@@ -1,7 +1,7 @@
 ## Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths
 ### Lecture 1 - November 17, 1979
 ### Dharma Talk by Dainin Katagiri Roshi
-Audio: http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791117.mp3
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791117.mp3)
 
 I have never studied (The) Blue Cliff Record (Japanese: Hekiganroku) with you, since I moved to Minneapolis. We studied Shōyōroku (“Book of Equanimity”) which is pretty similar with Blue Cliff Record. But this Blue Cliff Record is a little different, and pretty unique, from Shōyōroku we studied. Particularly Rinzai Zen uses this Blue Cliff Record so much. 
 

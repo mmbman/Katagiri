@@ -2,7 +2,7 @@
 ### Lecture 2 - November 18, 1979
 ### Dharma Talk by Dainin Katagiri Roshi
 
-[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
 
 Main subject, Case 1. I read (?) yesterday. This is very famous story in Zen Buddhism, so I think most of you know pretty well. 
 
