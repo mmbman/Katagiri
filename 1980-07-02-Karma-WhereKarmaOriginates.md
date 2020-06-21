@@ -1,5 +1,5 @@
+#### July 2, 1980
 ## Karma: Where Karma Originates
-### July 2, 1980
 ### Dharma Talk by Dainin Katagiri Roshi
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800702.mp3)
 
