@@ -1,4 +1,4 @@
-### June 6, 1987
+#### June 6, 1987
 ## Shobogenzo: Genjokoan - Lecture 1 Part 1
 ### Dharma Talk by Dainin Katagiri Roshi
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606a.mp3)
