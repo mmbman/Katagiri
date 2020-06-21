@@ -1,3 +1,4 @@
+[Index](index.md)
 #### July 1, 1980
 ## Karma: Twelve Chains of Causation
 ### Dharma Talk by Dainin Katagiri Roshi

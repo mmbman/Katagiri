@@ -1,3 +1,4 @@
+[Index](index.md)
 #### June 6, 1987
 ## Shobogenzo: Genjokoan: Lecture 1 Part 1
 ### Dharma Talk by Dainin Katagiri Roshi

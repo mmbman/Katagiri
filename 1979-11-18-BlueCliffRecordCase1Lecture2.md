@@ -1,3 +1,4 @@
+[Index](index.md)
 #### November 18, 1979
 ## Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 2
 ### Dharma Talk by Dainin Katagiri Roshi

@@ -1,3 +1,4 @@
+[Index](index.md)
 #### July 2, 1980
 ## Karma: Where Karma Originates
 ### Dharma Talk by Dainin Katagiri Roshi
