@@ -9,3 +9,5 @@
 1980-07-01 [Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation.md)
 
 1980-07-02 [Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates.md)
+
+1987-06-06 [Shobogenzo: Genjokoan - Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1.md)
