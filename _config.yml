@@ -1,3 +1,5 @@
 theme: jekyll-theme-slate
 title: Katagiri Transcripts
 description: Transcripts of Dharma talks by Dainin Katagiri Roshi.
+github:
+  is_project_page: false
