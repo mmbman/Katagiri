@@ -172,4 +172,6 @@ That is compassion. So, where is the compassion? Something more than the idea of
 
 Is that okay? Do you have any other questions? We will have discussion (later?)... 
 
+[Go to Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2)
+
 [Return to main page](index.md)
