@@ -196,4 +196,6 @@ Any others?
 
 So, always connected. Something like that.
 
+[Go to Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md)
+
 [Return to main page](index.md)
