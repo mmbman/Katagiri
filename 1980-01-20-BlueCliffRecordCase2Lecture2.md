@@ -107,21 +107,21 @@ The footnote for “As soon as there are words spoken, ‘this is picking and ch
 
 Do you have some questions? 
 
-(1:10:55) Question: [unintelligible]
+(1:10:55) **Question**: [unintelligible]
 
-Answer: But that is ... love and hate ... for a lot of people that is different... many emotional stuff. But we have all the love and hate and.. many emotional stuff. We don’t ignore this. We can’t throw them away. Why? From where that term comes, “avoid love and hate”: because we love already... we have already means, we have to take care. That means we shouldn’t obsess(?) with them, and, well, not confused. We must be finally free from them. In other words, what is the true love? You cannot say. While you can explain what love is... that is not real love. Don’t you think so?
+**Katagiri**: But that is ... love and hate ... for a lot of people that is different... many emotional stuff. But we have all the love and hate and.. many emotional stuff. We don’t ignore this. We can’t throw them away. Why? From where that term comes, “avoid love and hate”: because we love already... we have already means, we have to take care. That means we shouldn’t obsess(?) with them, and, well, not confused. We must be finally free from them. In other words, what is the true love? You cannot say. While you can explain what love is... that is not real love. Don’t you think so?
 
-Question: What I was wondering was do we have a choice... to hate or not to hate.
+**Question**: What I was wondering was do we have a choice... to hate or not to hate.
 
-Answer: Of course. We should choose. But you cannot always hanging on.. sooner or later, you must be free. Even though love is good, but you cannot all the time hanging on.
+**Katagiri**: Of course. We should choose. But you cannot always hanging on.. sooner or later, you must be free. Even though love is good, but you cannot all the time hanging on.
 
-Question: (?)
+**Question**: (?)
 
-Answer: First choose, but we must be free from, finally. That means we should understand what real love is, real hate is. Do you understand? 
+**Katagiri**: First choose, but we must be free from, finally. That means we should understand what real love is, real hate is. Do you understand? 
 
-Question: Meh. 
+**Question**: Meh. 
 
-Answer: Well anyway, you have to reach the third stage. [laughs] But you should choose. That’s why you have to choose, you have to pick - by what? By you. But ... we have to be careful... choosing and picking every day. But it is your understanding, your life. So, first, it is not perfect, that’s why... if you realize this, simultaneously you get into the second stage, “mountains are not mountains.” And then you can research, one by one: why? That is our practice. And finally, we can come back again to “mountains are mountains”; this is the third stage. At that time, we can really understand what real love is, what real hate is. What is real meaning of afflictive preferences that human beings possess? But, no words. Completely, words drop off. That means, you can handle afflictive preferences day-to-day. Anywhere, in which you are ... free from this. This is our practice. 
+**Katagiri**: Well anyway, you have to reach the third stage. [laughs] But you should choose. That’s why you have to choose, you have to pick - by what? By you. But ... we have to be careful... choosing and picking every day. But it is your understanding, your life. So, first, it is not perfect, that’s why... if you realize this, simultaneously you get into the second stage, “mountains are not mountains.” And then you can research, one by one: why? That is our practice. And finally, we can come back again to “mountains are mountains”; this is the third stage. At that time, we can really understand what real love is, what real hate is. What is real meaning of afflictive preferences that human beings possess? But, no words. Completely, words drop off. That means, you can handle afflictive preferences day-to-day. Anywhere, in which you are ... free from this. This is our practice. 
 
 (1:15:00) Commentary is... Engo’s commentary is pretty nice. So, if you have time to read the commentary to this case. I don’t have enough time to study with you the verses, the poem and commentary to the poem.
 

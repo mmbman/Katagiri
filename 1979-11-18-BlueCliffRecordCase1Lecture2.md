@@ -7,13 +7,13 @@
 
 Main subject, Case 1. I read (?) yesterday. This is very famous story in Zen Buddhism, so I think most of you know pretty well. 
 
-Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
+> Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
 
 In the history... it is said that Bodhidharma went to China in about 520. Of course there are several different opinions about the definite date, year, when Bodhidharma went to China. But anyway, about 520 he went to China to teach Buddhism. So that... was the first time which the seed of Zen Buddhism was planted in China. That’s why this event was very important for Zen Buddhism. That’s why, if you read the Zen koans, the Zen monks always bring up the question, “What’s the meaning of Bodhidharma coming to China (to) teach Zen Buddhism?” What for? What for, did Bodhidharma go to China and teach? That is, for many, many years, this question is very important in Zen Buddhism. Many monks discuss about it. It looks like the same question according to Christianity, for instance, (is) “Why is that God is incarnated as a human?” ... same question. But I don’t want to explain this today. That’s why in Zen Buddhism it’s very important for Zen teacher.
 
 (3:33) Anyway, Bodhidharma went to China in about 520, and met first the Emperor Wu. That is this story, the discussion between Emperor Wu and Bodhidharma. And the commentary by Engo Zenji says:
 
-When Bodhidharma first met Emperor Wu, the Emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma said, “There is no merit.” He immediately doused the Emperor with dirty water. If you can penetrate this statement, “there is no merit,” you can meet Bodhidharma personally. Now tell me, why is there no merit at all in building temples and ordaining monks? Where does the meaning of this lie?
+> When Bodhidharma first met Emperor Wu, the Emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma said, “There is no merit.” He immediately doused the Emperor with dirty water. If you can penetrate this statement, “there is no merit,” you can meet Bodhidharma personally. Now tell me, why is there no merit at all in building temples and ordaining monks? Where does the meaning of this lie?
 
 (5:00) Well, while this is a very natural question, his natural question has a lot of meaning. It’s natural but it’s deep question. If you practice zazen, most of you expect something particular; merit, or reward, or progress in practice. This is very natural. But what if Bodhidharma says, “no merit”? Why was Bodhidharma ‘liar’? Because if you practice zazen, some of you can find merit or progress in practice. If it is true, well, you cannot say there is “no merit.” There is merit; so why does Bodhidharma say “no merit”? That’s the question Engo Zen Master in his commentary says: why?
 
@@ -137,35 +137,35 @@ When I became a monk, for a while I felt good as a monk, because everyone offere
 
 (1:07:55) Questions? 
 
-Person 1: The commentator was saying that the Zen Master who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
+**Person 1**: The commentator was saying that the Zen Master who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
 
-Katagiri: Mmm hmm. 
+**Katagiri**: Mmm hmm. 
 
-Person 1: That’s why. 
+**Person 1**: That’s why. 
 
-Katagiri: But thirty blows doesn’t mean that the Zen Master gave the thirty blows actually. 
+**Katagiri**: But thirty blows doesn’t mean that the Zen Master gave the thirty blows actually. 
 
-Person 1: Well, no, but the commentator thought he deserved it. Isn’t that what this was?
+**Person 1**: Well, no, but the commentator thought he deserved it. Isn’t that what this was?
 
-Katagiri: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, and then a week or so. But because I hated the monks life, … life, finally my teacher says, come into my room, “Dainin, get up. When the time comes, everyone get up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is at least thirty blows. I actually deserved thirty blows. That’s why I couldn’t stay there. I start shaking, my body and mind is shaking, anyway. But I got up. I didn’t strike. Next day, I did it. Anyway, get up in the morning, and… anyway… Still I hate it [laughter] but anyway, I did it. But this is monk. 
+**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, and then a week or so. But because I hated the monks life, … life, finally my teacher says, come into my room, “Dainin, get up. When the time comes, everyone get up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is at least thirty blows. I actually deserved thirty blows. That’s why I couldn’t stay there. I start shaking, my body and mind is shaking, anyway. But I got up. I didn’t strike. Next day, I did it. Anyway, get up in the morning, and… anyway… Still I hate it [laughter] but anyway, I did it. But this is monk. 
 
 So that is really thirty blows. But if you don’t have.. If you’re not ready to open your eyes… but even … very gentle, Dainin, he didn’t scold me, Dainin. When the time comes everyone get up, please get up. If you feel sick, after that you can go to bed again. Very simple. If you’re now ready to accept this as thirty blows, don’t … the usual. … But anyway, that was really thirty blows for me. 
 
 Well, I don’t know if Emperor Wu deserved, accepted thirty blows, I don’t know. But anyway, that is Engo Zen Master’s comment.
 
-(1:10:58) Person 1: Excuse me, I thought that the Engo… the commentator was saying that the Zen Master who was speaking to Emperor Wu deserved the blows. That’s what I thought it meant; isn’t that right? … [crosstalk]
+(1:10:58) **Person 1**: Excuse me, I thought that the Engo… the commentator was saying that the Zen Master who was speaking to Emperor Wu deserved the blows. That’s what I thought it meant; isn’t that right? … [crosstalk]
 
-Katagiri: Master Chih. Oh oh - Master Chih deserved thirty blows. Oh, right! [laughter] Probably, huh? [laughs]
+**Katagiri**: Master Chih. Oh oh - Master Chih deserved thirty blows. Oh, right! [laughter] Probably, huh? [laughs]
 
 And he doesn’t know that the great illumination shines forth from under his own feet. This is the Engo Zen Master really playing with Zen Master Chih. Saying the opposite, completely opposite. He’s really playing. Do you understand? 
 
-Person 1: He says he deserves thirty blows… ?
+**Person 1**: He says he deserves thirty blows… ?
 
-Katagiri: Yes, because he says “ridiculous,” you cannot get him back, get Bodhidharma back again. But if you go there and ask Bodhidharma “please come back again”… maybe so. Don’t you think so? But he says, don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But after that, it is very great. Do you understand? 
+**Katagiri**: Yes, because he says “ridiculous,” you cannot get him back, get Bodhidharma back again. But if you go there and ask Bodhidharma “please come back again”… maybe so. Don’t you think so? But he says, don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But after that, it is very great. Do you understand? 
 
-(1:12:38) Person 2: What you’re saying… Why didn’t Bodhidharma in the first place, you know, explain to Emperor Wu what he was saying, if the Emperor didn’t understand…
+(1:12:38) **Person 2**: What you’re saying… Why didn’t Bodhidharma in the first place, you know, explain to Emperor Wu what he was saying, if the Emperor didn’t understand…
 
-Katagiri: [cackles] 
+**Katagiri**: [cackles] 
 
 [audience laughs] 
 
@@ -181,17 +181,17 @@ Of course, we should explain, but sometimes, time comes to… ????
 
 Is that okay?
 
-(1:15:19) Person 3: … When you tell the story about picking up the teacher, was that the story from your house, was that your experience? 
+(1:15:19) **Person 3**: … When you tell the story about picking up the teacher, was that the story from your house, was that your experience? 
 
-Katagiri: A zen story… Happened… 
+**Katagiri**: A zen story… Happened… 
 
-Person 3: … Master Chih… [unintelligible]
+**Person 3**: … Master Chih… [unintelligible]
 
-Katagiri: Don’t take this at face value, okay? 
+**Katagiri**: Don’t take this at face value, okay? 
 
-Person 3: Is it like a joke?
+**Person 3**: Is it like a joke?
 
-Katagiri: It’s not a joke. It’s not a joke. It’s not a joke; it’s very true. But, it means that the Engo Zen Master not directly praised Zen Master Chih. Exactly. You cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu don’t send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih what the truth, where truth is. So finally, nothing to say. How great his way is. Completely beyond human explanation; that’s what he says, very easily. He says he plays intellectually(?), saying that his way is against common way. So, from this point he should deserve thirty blows. But this is wonderful.
+**Katagiri**: It’s not a joke. It’s not a joke. It’s not a joke; it’s very true. But, it means that the Engo Zen Master not directly praised Zen Master Chih. Exactly. You cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu don’t send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih what the truth, where truth is. So finally, nothing to say. How great his way is. Completely beyond human explanation; that’s what he says, very easily. He says he plays intellectually(?), saying that his way is against common way. So, from this point he should deserve thirty blows. But this is wonderful.
 
 That’s why he says he doesn’t know the great illumination shines from under his own feet. 
 
