@@ -1,6 +1,4 @@
-## Latest Transcript
-
-1987-06-06: [Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md) - posted July 22, 2020.
+**Latest Transcript:** 1987-06-07: [Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md) - posted July 22, 2020.
 
 ## Transcripts in Chronological Order
 
