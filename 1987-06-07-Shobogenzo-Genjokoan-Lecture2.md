@@ -20,7 +20,7 @@ But yesterday I mentioned, individually, if you see your life, under all circums
 
 So, you should remain there, from the beginning. You should appreciate this energy; you should appreciate this life force gifted to you, from the beginning-less past. Anyway, you have already great capacity.
 
-That is temporarily, (what) we call buddha nature. Or, 2500 years ago, Buddha Shakyamuni mentioned, "all are Buddha." That is, temporarily, we call buddha. Buddha is a person who realize that perpetual flow of energy, flow of existence, constantly beginning from the beginning-less past, to the endless future. You should participate directly in it.
+That is temporarily, (what) we call buddha nature. Or, 2500 years ago, Buddha Shakyamuni mentioned, "all are buddha." That is, temporarily, we call buddha. Buddha is a person who realize that perpetual flow of energy, flow of existence, constantly beginning from the beginning-less past, to the endless future. You should participate directly in it.
 
 So, what is that? Just be here. And then, manifest it. So, strictly speaking, I think everyone is, anyway, in Buddha's world. Great world. 
 
@@ -51,7 +51,7 @@ Last sentence, it says: "Because the nature of wind is eternal, the wind of Budd
 > 
 > (77) Because the nature of air is to be ever-present, the behavior of Buddhists has made the earth manifest itself as gold and has ripened the Long River into curds and whey.
 > 
-> (Transcriber's Note: I will include alternative translations from "Dark Side of the Mirror" by David Brazier, "Realizing Genjokoan" by Shohaku Okumura, "Treasury of the True Dharma Eye" edited by Kazuaki Tanahashi, and the Nishijima & Cross translation of Shobogenzo, in that order. Comparison may be useful. The line numbering, which is somewhat arbitrary, here is borrowed from Brazier. I do not know what translation Roshi is using.)
+> (Transcriber's Note: I will include alternative translations from "Dark Side of the Mirror" by David Brazier, "Realizing Genjokoan" by Shohaku Okumura, "Treasury of the True Dharma Eye" edited by Kazuaki Tanahashi, and the Nishijima & Cross translation of Shobogenzo, in that order. Comparison may be useful. The line numbering, which is somewhat arbitrary, here is borrowed from Brazier. I do not know what translation Katagiri Roshi is using.)
 
 [More of the group figuring out what page to be on. Page 35, apparently.]
 
