@@ -29,3 +29,9 @@
 1987-06-07: [Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md)
 
 ...
+
+## Youth Practice Live
+
+Slides from "Youth Practice Live" that I'm hosting here
+
+2020-07-26 [Youth Practice Live #12: "Past, Present, and Future"](Youth-Practice-Live-12.pps)
