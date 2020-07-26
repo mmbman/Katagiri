@@ -30,13 +30,7 @@
 
 ...
 
-## Youth Practice Live
-
-Keynote slides from "Youth Practice Live" that I'm hosting here
-
-2020-07-26 [Youth Practice Live #12: "Past, Present, and Future"](Youth-Practice-Live-12.key)
-
 
 ### Contact Info
 
-If you have questions or comments about KatagiriTranscripts.net, contact [Kikan](mailto:kikan@cloudsinwater.org)
+If you have questions or comments about this site, contact [Kikan](mailto:kikan@cloudsinwater.org)
