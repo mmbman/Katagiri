@@ -28,6 +28,8 @@
 
 1987-06-07: [Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md)
 
+1987-06-20: [Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
+
 ...
 
 
