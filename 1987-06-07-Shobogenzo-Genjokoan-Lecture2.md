@@ -305,4 +305,6 @@ Okay, do you have a question? I'm sorry, I didn't finish.
 
 That's spiritual teacher. If you become a spiritual teacher, you must be like that. You cannot be a front. If you become a front person, if you become a person in front, it's trouble maker. So if you become a spiritual teacher, you must be always a person of behind. But, it really helps.
 
+[Next Talk: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
+
 [Return to main page](index.md)

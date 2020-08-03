@@ -1,4 +1,5 @@
-**Latest Transcript:** 1987-06-07: [Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md) - posted July 22, 2020.
+**Latest Transcript:** 1987-06-20: [Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas) - Posted August 2, 2020.
+
 
 ## Transcripts in Chronological Order
 
