@@ -1,9 +1,12 @@
-**Latest Transcript:** 1987-06-27: [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds) - Posted August 6, 2020.
-
+**Latest Transcript:** 1979-06-09: [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1) - Posted August 18, 2020
 
 ## Transcripts in Chronological Order
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
+
+...
+
+1979-06-09: [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
 ... 
 
