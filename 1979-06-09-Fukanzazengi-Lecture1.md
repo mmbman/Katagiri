@@ -152,4 +152,6 @@ So, that is the conclusion of the main subject in zazen. That's why Dogen Zenji 
 
 By the zazen, if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself are also a person far from your person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not practice for us.
 
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 2](1979-06-10-Fukanzazengi-Lecture2)
+
 [Return to main page](index.md)
