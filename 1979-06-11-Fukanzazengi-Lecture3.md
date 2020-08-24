@@ -208,7 +208,7 @@ It seems the buddha nature of the second one. But, it is still seen from dualist
 
 Then what he has to do is, well, but he practices. Continually, he practices. But aim just to sew good time and occasion, and good conditions. Arrangement. 
 
-(1:19:55) That means, without entering nirvana. Bodhisattva just sews. Arrangement, environment. And then just stand up there. But it is, immediately blooms his buddha nature. That is (???) The bodhisattva has (???) Bodhisattva and buddha.
+(1:19:55) That means, without entering nirvana. Bodhisattva just sews, arranging environment. And then just stand up there. But it is, immediately blooms his buddha nature. That is (???) The bodhisattva has (???) Bodhisattva and buddha.
 
 When the buddha appears, it's quiet. Nothing. You cannot see it. But a buddha is hidden behind the bodhisattva; bodhisattva walks, as a human being. Bodhisattva disappears, and buddha appears. And then that buddha is just like a blooming lotus flower. In the mud water.
 
@@ -216,7 +216,7 @@ When the buddha appears, it's quiet. Nothing. You cannot see it. But a buddha is
 
 *Katagiri*: Mmm hmm. Sure. Yes it is.
 
-*Question*: Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
+(1:21:10) *Question*: Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
 
 *Katagiri*: The goal in third type of zazen is broad. It's really broad. That goal is not open to him, his practice, and also to others practice. 
 
