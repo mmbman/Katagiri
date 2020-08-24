@@ -426,4 +426,6 @@ Okay?
 
 That's why that is number six: total personality. Let's be there. 
 
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 3](1979-06-11-Fukanzazengi-Lecture3)
+
 [Return to main page](index.md)
