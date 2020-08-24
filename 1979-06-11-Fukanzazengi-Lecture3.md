@@ -172,39 +172,39 @@ That's why when I was at Eiheiji monstery, Hashimoto Roshi said, "If you sit dow
 
 (1:14:35) Okay, do you have... Shall I discuss now, or tomorrow? If you have some questions. Tomorrow, of course, I want to have a chance to discuss with you about this. Or now.
 
-*Question*: Roshi, what's the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn't that the same thing? 
+***Question***: Roshi, what's the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn't that the same thing? 
 
-*Katagiri*: What is the ... ?
+***Katagiri***: What is the ... ?
 
-*same person*: You said there are three types of zazen. I didn't understand the difference between the third one and the second one, if ... to do shikantaza becomes our goal. 
+***same person***: You said there are three types of zazen. I didn't understand the difference between the third one and the second one, if ... to do shikantaza becomes our goal. 
 
-*Katagiri*: No. Our aim is not focused on goal. Goal is goal; we know goal. Goal is just image of the goal, because we don't reach yet. In order to reach the goal, all we have to do is, what? Take one step. 
+***Katagiri***: No. Our aim is not focused on goal. Goal is goal; we know goal. Goal is just image of the goal, because we don't reach yet. In order to reach the goal, all we have to do is, what? Take one step. 
 
-*same person*: Okay, to be present.
+***same person***: Okay, to be present.
 
-*Katagiri*: To be present, yes.
+***Katagiri***: To be present, yes.
 
-*same person*: Well isn't that a goal? 
+***same person***: Well isn't that a goal? 
 
-*Katagiri*: It's goal, and also practice. Goal and practice, simultaneously. Be present, just be present. But just be present, many kinds of way of being just present. Because everybody has a different idea. Sleeping all day, this is also be just present. Don't you think so? Doing zazen every day, all day, this is also just be present. Old men fighting with each other all day, this is also just be present. Don't you think so?
+***Katagiri***: It's goal, and also practice. Goal and practice, simultaneously. Be present, just be present. But just be present, many kinds of way of being just present. Because everybody has a different idea. Sleeping all day, this is also be just present. Don't you think so? Doing zazen every day, all day, this is also just be present. Old men fighting with each other all day, this is also just be present. Don't you think so?
 
-*same person*: No. 
+***same person***: No. 
 
-*Katagiri*: Well, many ways of existence.
+***Katagiri***: Well, many ways of existence.
 
-*same person*: That's not what I meant. 
+***same person***: That's not what I meant. 
 
-*Katagiri*: You don't understand the second one and the third one. 
+***Katagiri***: You don't understand the second one and the third one. 
 
-*same person*: Well it seems to me that the third one is the true nature of the second one. Even if you try to do the second one, you have to do the third one, because as soon as you're going over, there's another one. 
+***same person***: Well it seems to me that the third one is the true nature of the second one. Even if you try to do the second one, you have to do the third one, because as soon as you're going over, there's another one. 
 
-*Katagiri*: Okay, yes. I understand your question. Yes.
+***Katagiri***: Okay, yes. I understand your question. Yes.
 
 It seems the buddha nature of the second one. But, it is still seen from dualistic world. That's all. That's a different point.
 
-(1:18:00): *Question*: Roshi, were you making a distinction between the enlightenment of the arhat versus the enlightenment of the bodhisattva? Doesn't the arhat attain enlightenment, and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction; the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+(1:18:00): ***Question***: Roshi, were you making a distinction between the enlightenment of the arhat versus the enlightenment of the bodhisattva? Doesn't the arhat attain enlightenment, and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction; the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
-*Katagiri*: Uh, bodhisattva practice, yes. ... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next. 
+***Katagiri***: Uh, bodhisattva practice, yes. ... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next. 
 
 Then what he has to do is, well, but he practices. Continually, he practices. But aim just to sew good time and occasion, and good conditions. Arrangement. 
 
@@ -212,17 +212,17 @@ Then what he has to do is, well, but he practices. Continually, he practices. Bu
 
 When the buddha appears, it's quiet. Nothing. You cannot see it. But a buddha is hidden behind the bodhisattva; bodhisattva walks, as a human being. Bodhisattva disappears, and buddha appears. And then that buddha is just like a blooming lotus flower. In the mud water.
 
-*same person*: But is the bodhisattva practice of the third kind? 
+***same person***: But is the bodhisattva practice of the third kind? 
 
-*Katagiri*: Mmm hmm. Sure. Yes it is.
+***Katagiri***: Mmm hmm. Sure. Yes it is.
 
-(1:21:10) *Question*: Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
+(1:21:10) ***Question***: Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
 
-*Katagiri*: The goal in third type of zazen is broad. It's really broad. That goal is not open to him, his practice, and also to others practice. 
+***Katagiri***: The goal in third type of zazen is broad. It's really broad. That goal is not open to him, his practice, and also to others practice. 
 
-*same person*: It's not open?
+***same person***: It's not open?
 
-*Katagiri*: It is open to everybody. Everybody's goal. And also, it's open to not only the present, but also past, present, and future. For long range. The goal is extended through the three times. It's huge. That's why, we cannot get such a huge goal. Because it's too big. But, we are such a huge goal. So, such a huge goal. So, how can I say? Let's... that for a huge goal blooms with your life. How? Making arrangement of environment. 
+***Katagiri***: It is open to everybody. Everybody's goal. And also, it's open to not only the present, but also past, present, and future. For long range. The goal is extended through the three times. It's huge. That's why, we cannot get such a huge goal. Because it's too big. But, we are such a huge goal. So, such a huge goal. So, how can I say? Let's... that for a huge goal blooms with your life. How? Making arrangement of environment. 
 
 So finally, third type of zazen doesn't have a goal. We can say so. But it doesn't mean no goal. There is a goal, but that goal is broad, huge. But second type of zazen, goal is limited by individual views and thoughts. 
 
@@ -230,17 +230,17 @@ So, according to his life, of course, his task, his business, is (to) succeed. O
 
 (1:24:12) [quietly] Are there any (more) questions?
 
-*Question*: So what is the practice of the arhat, roshi? When he's already arhat, what is his practice? You said he just waits for death, but he has to practice something. 
+***Question***: So what is the practice of the arhat, roshi? When he's already arhat, what is his practice? You said he just waits for death, but he has to practice something. 
 
-*Katagiri*: Oh. Of course. Waiting for death is also practice for you.
+***Katagiri***: Oh. Of course. Waiting for death is also practice for you.
 
-*same person*: Well, I don't know, of course, but it seems like if a person practices so that he or she becomes an arhat, automatically it must move to the third type.
+***same person***: Well, I don't know, of course, but it seems like if a person practices so that he or she becomes an arhat, automatically it must move to the third type.
 
-*Katagiri*: Oh, of course, this is... Yes. Automatic.
+***Katagiri***: Oh, of course, this is... Yes. Automatic.
 
-*same person*: So it can't stay the same.
+***same person***: So it can't stay the same.
 
-*Katagiri*: Not automatic, sometimes. [chuckles] Not automatic. No.
+***Katagiri***: Not automatic, sometimes. [chuckles] Not automatic. No.
 
 It's not open to everybody. Only the person selected among the human beings can do this, automatically. You can get into the third type of zazen practice, that is, you can do. But not everybody. Because everybody has different karmas. But, it is not the object of criticism, given by us. Because, if I look his life in this world, his life is happy, wonderful, because he entered nirvana; wonderful. So, better than nothing. Wonderful. If you can attain, enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
 
