@@ -168,7 +168,7 @@ That is shikantaza. Shikantaza, zazen you do, mentioned by buddha. We can explai
 
 (1:12:30) You can do it, okay? So wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life. Continually. That is to accumulate merit and virtue. That practice is really just, sew the seeds. Sew the seeds. Arrangement circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right dharma is manifest. Dogen Zenji says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
 
-That's why when I was at Eiheiji monstery, Hashimoto Roshi said, "If you sit down even for a moment, you become buddha." Yes, you become buddha. If you can accept this, your are really lucky man, lucky person.
+That's why when I was at Eiheiji monastery, Hashimoto Roshi said, "If you sit down even for a moment, you become buddha." Yes, you become buddha. If you can accept this, your are really lucky man, lucky person.
 
 (1:14:35) Okay, do you have... Shall I discuss now, or tomorrow? If you have some questions. Tomorrow, of course, I want to have a chance to discuss with you about this. Or now.
 
@@ -222,11 +222,11 @@ When the buddha appears, it's quiet. Nothing. You cannot see it. But a buddha is
 
 ***same person***: It's not open?
 
-***Katagiri***: It is open to everybody. Everybody's goal. And also, it's open to not only the present, but also past, present, and future. For long range. The goal is extended through the three times. It's huge. That's why, we cannot get such a huge goal. Because it's too big. But, we are such a huge goal. So, such a huge goal. So, how can I say? Let's... that for a huge goal blooms with your life. How? Making arrangement of environment. 
+***Katagiri***: It is open to everybody. Everybody's goal. And also, it's open to not only the present, but also past, present, and future. For long range. The goal is extended through the three times. It's huge. That's why, we cannot get such a huge goal. Because it's too big. [laughs] But, we are such a huge goal. So, such a huge goal. So, how can I say? Let's... that for a huge goal blooms with your life. How? Making arrangement of environment. 
 
 So finally, third type of zazen doesn't have a goal. We can say so. But it doesn't mean no goal. There is a goal, but that goal is broad, huge. But second type of zazen, goal is limited by individual views and thoughts. 
 
-So, according to his life, of course, his task, his business, is (to) succeed. Of course. But I don't know whether it is good for others. So finally, he doesn't know what to do next. 
+So, according to his life, of course, his task, his business, is (to) succeed, of course. But I don't know whether it is good for others. So finally, he doesn't know what to do next. 
 
 (1:24:12) [quietly] Are there any (more) questions?
 
@@ -242,9 +242,9 @@ So, according to his life, of course, his task, his business, is (to) succeed. O
 
 ***Katagiri***: Not automatic, sometimes. [chuckles] Not automatic. No.
 
-It's not open to everybody. Only the person selected among the human beings can do this, automatically. You can get into the third type of zazen practice, that is, you can do. But not everybody. Because everybody has different karmas. But, it is not the object of criticism, given by us. Because, if I look his life in this world, his life is happy, wonderful, because he entered nirvana; wonderful. So, better than nothing. Wonderful. If you can attain, enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
+It's not open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of zazen practice; that is, you can do. But not everybody; because everybody has different karmas. But, it is not the object of criticism, given by us. Because, if I look (at) his life in this world, his life is happy, wonderful, because he entered nirvana; wonderful. So, better than nothing. Wonderful. If you can attain, enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
 
-So not only there is no chance to come back to samsaric world. So, just a river(?). Practicing, waiting for death. But a bodhisattva and tathagata are a little different.
+So not only there is no chance to come back to samsaric world. So, be just a river(?). Practicing, waiting for death. But a bodhisattva and tathagata are a little different.
 
 ***Question***: What about Doctor Jules Fox(?), Roshi? Based on what you were saying about karma, and dropping off ... and ...
 
@@ -256,17 +256,15 @@ So not only there is no chance to come back to samsaric world. So, just a river(
 
 [laughter]
 
-***Katagiri***: That's good call for you. Think of it. That's ... difficult homework assignment. Because really, you can think of your whole life. 
+***Katagiri***: That's good call for you. Think of it. That's a difficult homework assignment. Because really, you can think of your whole life. 
 
 Well actually, briefly speaking, if you want to reach the other shore, let's take one step, huh? Shikantaza. Okay? ... It's a very simple practice. Let's take one step. [car noise] But we do this mostly. On the other shore, go, and gassho are included, simultaneously. This is one step. That is shikantaza.
 
-> (Below this point, I have not yet finished transcribing the talk. Beware.)
+So, there are many ways to take one step. Everyone is different, takes a different way of one step. Everyone takes even one step in a different way. So, somebody takes one step, immediately stumbles over; somebody enjoy very much; somebody always suffers; and somebody with sadness and pensive; lots of types of one step. So, how to take one step in the best way? That is (???). I don't know. But I know, we can do, one step.
 
-So, there are many ways to take one step. Everyone is different, take a different way of one step. Everyone takes even one step in a different way. So, somebody takes one step... somebody enjoy very much; somebody always suffers; and somebody with sadness and pensive; lots of types of one step. So, how to take one step in best way? That is ... I don't know. But I know, we can do, one step.
+(1:29:50) Can you see the difference? Anyway, just one step, okay? Or, if you aim at this shore - long system, long life, in the (???) from this shore to the other shore - (???). And then if you focus on just the goal, then that main purpose of life is to meet this goal. The lifestyle becomes different. Don't you think so? Do you understand? Because, different. Because you want this goal. For this, in order to reach this goal, you have to struggle for life. Creating many things, try to do many things; successes, failures; many things. And then reach the goal - immediately you have to start (to) do something again, in order to new goal. Always there is a goal, struggle. While you have struggling for, it's distraction. This is very common; dualistic world. 
 
-(1:29:50) Can you see the difference? Anyway, just one step, okay? Or, if you aim at this short, long system, long life, .... From this shore to the other shore ... And then if you focus on just goal, then that main purpose of life is to meet this goal. The lifestyle becomes different. Don't you think so? Do you understand? Because, different. Because you want this goal. For this, in order to reach this goal, you have to struggle for life. Creating many things, try to do many things, successes, failures; many things. And then reach the goal, immediately you have to start do something again, in order to new goal. Always there is a goal, struggle. While you have struggling for, it's distraction. This is very common; dualistic world. 
-
-So in the moment ... we can have a better life. Better life ... .... that is not a goal, already. It's still suffering. We suffer from the goal. Maybe we have reached. So still suffering, struggle. That is really distraction. 
+So in the moment (???) we can have a better life. The better life we aim at (is) itself a goal; that is another goal, already. It's still suffering. We suffer from the goal, maybe we have reached. So still suffering, struggle. That is really distraction. 
 
 ***Question***: Are you saying that when you take one step it isn't a struggle? 
 
@@ -282,7 +280,7 @@ So in the moment ... we can have a better life. Better life ... .... that is not
 
 ***same person***: [unintelligible]
 
-***Katagiri***: ... always ... Not goal you are looking at. That goal is immense, large.
+***Katagiri***: This goal is immense. Not goal you are looking at. That goal is immense, large.
 
 ***same person***: How do I look at myself then? 
 
@@ -290,21 +288,21 @@ So in the moment ... we can have a better life. Better life ... .... that is not
 
 [tape change]
 
-(1:32:44) ... This life. But life makes life. 
+(1:32:44) ... this life. But life makes life. 
 
-How do you know? Well, we have to aim at life... and next ... life. Because ... 
+How do you know? Well, we have to aim at life after next life, and next next life. Because, it's going on. 
 
-So, just arrange all circumstances. Then stand up. Bloom. And if you bloom. Everyone realizes. Okay?
+So, just arrange all circumstances. (???) Then stand up. Bloom. Your tree must bloom. And if you bloom, everyone looks at you. Everyone realizes. Okay?
 
-Because if you bloom, according to Buddhism, one is many, and many is one. You are connected with many. So if one tiny seed ... blooms, immediately, whole world is connected. ... Directly or indirectly. It's very helpful for you. So Dogen used the term, "flower blooms, the world arises." Spring comes, flower blooms. Which comes first? We don't know. ... and then, how can ... look at the ... blooming.
+Because if you bloom, according to Buddhism, one is many, and many is one. You are connected with many thousand. So if one tiny seed, tiny rose (bud?) blooms here, immediately, whole world is connected. (???) Directly or indirectly. It's very helpful for you, for others. So Dogen used the term, "Flower blooms, the world arises." Spring comes, flower blooms. Which of the two comes first? We don't know. (???) Weed blooms. (???) and then, how can you (???) The world exists; look at the (???), blooming.
 
-(1:35:00) That buddha dharma is very active life. ... In other words, exist. And also ... seasons exist. Your bloom. First of all, we have to bloom. If you bloom, you are not one, you are many.
+(1:35:00) That buddha dharma is very active life. Cannot escape. In other words, exists. And also (???) the other seasons exist. You bloom; first of all, we have to bloom. If you bloom, you are not one, you are many.
 
-So, take one step. If you take one step, one step, many steps. Immediately. That's why if you take one step perfectly, one step connects to second step very naturally, and also, steps. You can do. And next, it continues. It is perfect. 
+So, take one step. If you take one step, one step, many steps. Immediately. That's why if you take one step perfectly, one step connects to second step very naturally, and also (??) steps. You can do. And next, it continues. It is perfect. 
 
 ***Question***: [unintelligible]
 
-***Katagiri***: Well, arhats, bodhisattvas, and tathagathas, are all discrimination, aren't they... no, well, the categories, buddhist categories. So temporarily we categorize, the Buddhist capability ... is categorized. After ten days ???? There is arhat, and bodhisattva, and ...  Arhat means a person who deserves to see respect from others. To deserve, to command, respect. That is arhat. Because he becomes arhat by reaching the ... intimate nirvana. Respect, perfect. 
+***Katagiri***: Well, arhats, bodhisattvas, and tathagatas, are all discrimination, aren't they... no, well, the categories, buddhist categories. So temporarily, we categorized the buddhas' capability, the quality of buddhas is categorized. After ten days (????) ... means, there is arhat, and bodhisattva, and well-gone...  Arhat means a person who deserves to see respect from others. To deserve, to command, respect from others. That is arhat. Because he becomes arhat by reaching the final goal: intimate nirvana. So everyone respects. Perfect. 
 
 ***Question***: What happens death comes? If an arhat is just waiting for death, what happens when death comes?
 
@@ -314,27 +312,28 @@ Just wait for death. But that death is not something particular apart from life.
 
 You know that death consists of many moments. Life is same. Life is also consisting of many moments, according to time process. What's different between death and life? We can try to put a certain name on a certain moment, which is called death, or which is called life. That is our name. But basically, all the same moment. Moments just going on. Moment, moment, moment.
 
-But we cannot completely depend on moment without any name. Because moment comes and goes fast. That's why we cannot stand up there. So we need cultural background, and we need ... and what's happened from the beginning of the world ... And then, this is systematized. We feel relief, because that is something we can depend on. But in time process, time is not something we can depend on. Completely going away. So life is something we have to completely depend on - yes or no? Life is completely going on. It's pretty hard. ...
+But we cannot completely depend on moment without any name. Because moment comes and goes *fast*. That's why we cannot stand up there. So we need cultural background, and we need to know... the beginning of the world, the end of the world, and what's happened from the beginning of the world, and such and such. And then, if we systematize, if all things are systematized perfectly, we feel relief, because that is something we can depend on. But in time process, time is not something we can depend on. Completely going away. So life is something we have to completely depend on - yes or no? Life is completely going on. It's pretty hard.
 
-from England, to get married. This young man, situation I performed ... and then they left for home, two weeks ... Can you imagine? That was first ... service for ... in the United States. Her name is White Rose. 
+(1:40:15) In San Francisco, there was a lady came from England, to get married with young man, situation I performed religious (ceremony) for her. And then they left for honeymoon. Two weeks later, they died, by accident, on the freeway. Can you imagine? That was first ... service for ... in the United States. Her name is White Rose. (??) gave name White Rose. Bloom.
 
-So, life, of course, life is something you can depend; but it's temporary. Completely we cannot depend on. But we cannot.... So temporarily, we have to take care of life. With best ... With best means to employ, we have to deal with life. No way, no excuse to escape. 
+So, life - of course, life is something you can depend - but it's temporary. Completely we cannot depend on. But we can grow life. So, temporarily, we have to take care of life. With best, with best means to employ, we have to deal with life. No way, no excuse to escape. 
 
-From this point, death is safe. Death is something we should depend on, or we should expect something after death? Right in the middle of death. No one knows. But finally something left, which is called ???? Right in the middle of death, what should we do? Should we think about death? Or should we ... death? Nothing to do. Because it's nothing but time. Life is same: nothing but time.
+From this point, death is safe. Death is something we should depend on, or we should expect something after death, through the death? (???) But there's finally something left, which is called time. Which is called vast. So right in the middle of death, what should we do? Should we think about death, or shouldn't we think death? Nothing to do. Because it's nothing but time. Life is same: nothing but time.
 
-So for arhat, if you understand this original nature of life and death in that way, you can wait for death. ... same as life, you can give. 
+So for arhat, if you understand this original nature of life and death in that way, you can wait for death. If that's the same as life, you can give. 
 
-(1:43:56) And then, as long as we have consciousness, consciousness always show you certainly flickering lights. Like or dislike, always. Because, we analyze death. ... So we always analyze. We fear death.
+(1:43:56) And then, as long as we have consciousness, consciousness always show you certainly flickering lights. Like or dislike, always. Because, we analyze death. (??)... into our life. So we always analyze. We fear(?) death.
 
-But that ... we can see objectively is nothing but flickering lights. Appear, disappear, object. And then arhat can accept death. Flickering lights; "Oh, flickering lights." So that's why people ask you, "How do you feel about death?" Maybe he'd say, "I don't want to die." I don't want to die doesn't mean "I don't really like death." That death is a ... flickering lights. That's why he said.. ... I want to live more. But this word is very different from Katagiri said, "I want to live more." That is very deluded. Death; clinging to life. Well, for the arhat, same. But, there is humor, kind of humor. "I don't want to die"; but, he knows peace, right before death. But he knows, on the other hand, flickering lights. "Hey Katagiri - all these flickering lights push you, poke you. Tap you."
+But that death, we can see objectively, is nothing but flickering lights. Appear, disappear, appear, disappear. And then arhat can accept death. Flickering lights: "Oh, flickering lights." So that's why people ask you, "How do you feel about death?" Maybe he'd say, "I don't want to die." "I don't want to die" doesn't mean "I don't really like death." That death is a ... just like flickering lights. That's why he said, "I don't like. I want to live more." But this word is very different from Katagiri said, "I want to live more." That is very deluded. Death; clinging to life. Well, for the arhat, same. But, there is humor, kind of humor. "I don't want to die"; but, he knows peace, right before death. But he knows, on the other hand, flickering lights. "Hey Katagiri - all these flickering lights push you, poke you. Tap you."
 
-(1:45:00) Tap your back. [tapping sound] Do you like death? "No." Do you want to live more? "Yes, I want to live." ... But death ... take care of you. I will take care of you, Katagiri. Even if you don't like, death is good for you. Death will take care of you. So finally I say, "Okay, okay; that's up to you." [laughs] Completely give up. Because I, and death, and life, are all the same. ... So, maybe for arhat, his life is very peaceful. His death is very peaceful. But Zen master says, would you give me a certain message for disciples, because you are dying please? We need final words. He said, "I don't want to die." This is final words for him. That means, watch out, you should know flickering lights, right in the middle of death; tapping your back, always. But even your back, it is...  So, all you have to do is, ... without always tapping your back... That's pretty...  There is kind of humor, but, it is really true.
+(1:45:00) Tap your back. [tapping sound] Do you like death? "No." Do you want to live more? "Yes, I want to live." ... You don't like death. But death says, "I will take care of you." [laughs] "I will take care of you, Katagiri. Even if you don't like, death is good for you. Death will take care of you." So finally I say, "Okay, okay; that's up to you." [laughs] Completely give up. ... Because I, and death, and life, are all the same. Come and go(?). So, maybe for arhat, his life is very peaceful, his death is very peaceful. But for Zen master ... (someone) says, "Would you give me a certain wonderful message for disciples, because you are dying, please? We need final words." He said, "I don't want to die." [laughs] This is final words for him. That means, watch out; you should know flickering lights, right in the middle of death, tapping your back, always. But even your back, it is your life. So, all you have to do is, you please die. Death always tapping your back. That's what he said, he expressed, to him. There is kind of humor, but, it is really true.
 
-So, there is no time to ... Whether I can die, or ... pain and confusion. I don't know what will happen right before I die. Maybe I scream, "Help!" [laughs] "Maybe I scream ..." [laughter] But no guarantee. No guarantee. But I know that. That's why I cannot ignore my life, my death. But I have to, anyway, move, take one step, forward, one by one. That's all I have to do. But even though I take one step, there is no guarantee before and after. That's all I have to do. 
+(1:47:24) So, there is no time to ... Whether I can die in peace, or pain and confusion. I don't know what will happen right before I die. Maybe I scream, "Help!" [laughs] Maybe I scream (???) [laughter] So no guarantee. No guarantee. But I know that. That's why I cannot ignore my life, my death. But I have to, anyway, move, take one step, forward, one by one. That's all I have to do. But even though I take one step, there is no guarantee before and after. That's all I have to do. 
 
-(1:48:30) We cannot ... freedom. So whatever you say, "Oh, help, Katagiri, help" ... or "I can keep quiet and die. Bye-bye, for a while." This is also my ... in the realm of no guarantee. But sometimes it's ... "Don't say bye-bye. Why don't you go with me, just for a while." "Oh, come on. Just go by yourself." [group laughter] Maybe this happens. That is a flickering light.
+(1:48:30) We cannot (???) freedom. So whatever you say - "Oh, help, Katagiri, help," or, "I can keep quiet and die. Bye-bye, for a while." This is also my ... in the realm of no guarantee. But sometimes it's ... "Don't say bye-bye. Why don't you go with me, just for a while." "No, not to death." "Oh, come on." "Shut up. Just go by yourself." [group laughter] Maybe this happens. These are flickering lights...
 
-Well you know, sometimes I take a ... back seat of an airplane, take a trip. And my son says, "Dad, you should have insurance." And I said, "No. I don't want the insurance. Because, how can I ... money?" [laughter] I don't like it. If I'm going to die, I want to take insurance with me. [laughter] Well, I pay the money for insurance, actually ... I really appreciate it. ... $20,000 So should I appreciate ... Such delusions come up, always. This is really flickering. 
+Well you know, sometimes I take a ... back seat of an airplane, take a trip. And my son says, "Dad, you should have insurance." And I said, "No. I don't want the insurance." Because, how can I ... money?" [laughter] ... I don't like it. If I'm going to die, I want to take the insurance with me. [laughter] Well, I pay the money for insurance, actually ... I really appreciate it. ... I cannot take the $200,000 with me. ... So should I appreciate ... 
 
+Such delusions come up, always. This is really flickering. But whatever you say, take the insurance, or not take the insurance, ...
 
 [Return to main page](index.md)
