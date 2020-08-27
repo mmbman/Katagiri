@@ -336,4 +336,6 @@ Well you know, sometimes I take a ... back seat of an airplane, take a trip. And
 
 Such delusions come up, always. This is really flickering. But whatever you say, take the insurance, or not take the insurance, ...
 
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 4](1979-06-12-Fukanzazengi-Lecture4)
+
 [Return to main page](index.md)
