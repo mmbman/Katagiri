@@ -152,4 +152,6 @@ And all we have to do is, whatever you may be, we can do same thing. That same t
 
 That's why Dogen Zenji says, "dying while either sitting or standing, have all depended" ... no, excuse me. "We find that transcendence of both unenlightenment or enlightenment" - that is good or bad, right, wrong, qualified or not qualified, whatever you say. Transcend - this is shikantaza itself. Anyway, transcend. Death or life - transcend of death and life. And then all you have to do is, be one with death, when death comes. That is shikantaza. At that time, you can die while you're sitting. You can die while you're standing. Very naturally. You can die lying down on your bed. You can die at home ... "Have all depended entirely on the strength of zazen." This is zazen. Yes it is.
 
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
+
 [Return to main page](index.md)

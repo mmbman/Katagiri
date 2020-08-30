@@ -1,4 +1,4 @@
-**Latest Transcript:** 1979-06-12 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 4](1979-06-12-Fukanzazengi-Lecture4) - Posted August 26, 2020
+**Latest Transcript:** 1979-06-13 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5) - Posted August 30, 2020
 
 ## Transcripts in Chronological Order
 
@@ -13,6 +13,10 @@
 1979-06-11 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 3](1979-06-11-Fukanzazengi-Lecture3)
 
 1979-06-12 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 4](1979-06-12-Fukanzazengi-Lecture4)
+
+1979-06-13 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
+
+
 
 ...
 
