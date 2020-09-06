@@ -439,4 +439,6 @@ Drop off means, become one with zazen. In other words, absorb into zazen.
 
 That is from the first.
 
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
+
 [Return to main page](index.md)
