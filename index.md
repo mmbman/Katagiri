@@ -1,4 +1,6 @@
-**Latest Transcript:** 1979-06-14 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6) - Posted September 4, 2020
+It's recommended to read these transcripts while listening to the audio recordings, which are referenced. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page at mnzencenter.org](http://www.mnzencenter.org/katagiri/).
+
+**Latest Transcript:** [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7) - Posted September 9, 2020
 
 ## Transcripts in Chronological Order
 
@@ -17,6 +19,8 @@
 1979-06-13 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 
 1979-06-14 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
+
+1979-06-15 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
 
 ...
 

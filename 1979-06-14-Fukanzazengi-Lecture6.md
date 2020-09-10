@@ -12,7 +12,7 @@
 
 That is sort of a force. Well, according to the book, The Central Conception Of Buddhism ([archive.org link](https://archive.org/stream/in.ernet.dli.2015.189881/2015.189881.The-Central-Conception-Of-Buddhism_djvu.txt); [Google Books link](https://books.google.com/books?id=C4HSakZwijIC&pg=PA18&lpg=PA18&dq=%22This+is+samskara+in+the+Buddhist+system%22&source=bl&ots=5i_tVITDm8&sig=ACfU3U2sXeTWnfGnSqQzvOecj4Vb2F04rQ&hl=en&sa=X&ved=2ahUKEwihipGzq9DrAhUYK80KHQTICW8Q6AEwAXoECAIQAQ#v=onepage&q=%22This%20is%20samskara%20in%20the%20Buddhist%20system%22&f=false)), he said about this: "a force, it must be recalled, shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. But, simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara in the Buddhist system." So, samskara as a force shouldn't be regarded as mere influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force(?) penetrating into another beings. But it is a condition, a kind of condition. A condition is a fact which occurs between two objects. But mainly these conditions are which is called origination and decay, according to primitive Buddhism; that is impermanence, or constant change. Appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 
-(8:04) Anyway, force is not a real force, but a condition. Conditioned element, which occurs between two objects. And also this conditioned element has a certain power to concert(?) two things, to exist. So that's why this author says, "simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself." This is samskara. 
+(8:04) Anyway, force is not a real force, but a condition. Conditioned element, which occurs between two objects. And also this conditioned element has a certain power to concert two things, to exist. So that's why this author says, "simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself." This is samskara. 
 
 For instance, yesterday I told you that story about Gensha Shibi. On the way on his travels, he stumbled over, he struck his toes on a rock. Blood appeared, and he screamed, "Ouch!" And he had the question: "Body and mind do not exist. From where does this pain come?" So, he attained enlightenment from this point. He went back to his temple and practiced under Seppo Zen Master.
 
@@ -332,5 +332,7 @@ According to, I told you, Mount Sumeru, right in the middle of the Universe, the
 This is explanation of that thing. In the first book of Abhidharmakosha, the whole book is explanation of how to (????) form exists. Very interesting.
 
 [end of recording]
+
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
 
 [Return to main page](index.md)
