@@ -1,12 +1,12 @@
-It's recommended to read these transcripts while listening to the audio recordings, which are referenced. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page at mnzencenter.org](http://www.mnzencenter.org/katagiri/).
+These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). It's best to read these transcripts while listening to the audio recordings, which are referenced in each talk. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
-**Latest Transcript:** [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7) - Posted September 9, 2020
+**Latest Transcript:** [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) - Posted September 12, 2020
 
 ## Transcripts in Chronological Order
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
-...
+1979-05-09 [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 
 1979-06-09 [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
@@ -50,10 +50,7 @@ It's recommended to read these transcripts while listening to the audio recordin
 
 1987-06-27: [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
-
 ...
 
 
-### Contact Info
-
-If you have questions or comments about this site, contact [Kikan](mailto:kikan@cloudsinwater.org)
+This site is maintained by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
