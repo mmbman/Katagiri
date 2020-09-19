@@ -107,4 +107,6 @@ Nakagawa Roshi(?) said, in the last day of sesshin, he would say - He is very in
 
 [*end of recording*]
 
+[Next talk: Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+
 [Return to main page](index.md)
