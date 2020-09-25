@@ -207,4 +207,6 @@ Finally, self is broad, but what is that? I cannot explain. But, it's there. It'
 
 The buddhism means always not to touch the extreme ideas; perception of soul, or perception of not-soul. Because, everything is working dynamically, constantly. That means, understanding everything working dynamically leads you to touch the core of real life. Which is fully alive. Fully alive.
 
+[Next Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+
 [Return to main page](index.md)
