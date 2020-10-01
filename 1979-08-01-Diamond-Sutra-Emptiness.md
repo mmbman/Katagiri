@@ -8,7 +8,7 @@ Chapter 7:
 
 > The Lord asked: What do you think, Subhuti, is there any dharma which the Tathagata has fully known as "the utmost, right and perfect enlightenment," or is there any dharma which the Tathagata has demonstrated? Subhuti replied: No, not as I understand what the Lord has said. And why? This dharma which the Tathagata has fully known or demonstrated – it cannot be grasped, it cannot be talked about, it is neither a dharma nor a no-dharma. And why? Because an Absolute exalts the Holy Persons.
 
-> (This is from "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 30, immediately following the passage quoted in the previous talk. Technically, it seems to be *section* 7, not chapter 7.)
+> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 30, immediately following the passage quoted in the previous talk.)
 
 In this chapter 7, there are two questions: What is Buddha? The second question is, what are dharmas taught (or preached) by Buddha, Tathagata?
 
@@ -183,5 +183,7 @@ That's why you can be (alive?) for many years, and you should be appreciative. Y
 ***Katagiri***: More questions?
 
 If you don't have more questions, I want to tell you one thing. At Omaha Zen Center, they will have opening ceremony of new zendo on September 9. So they need a lot of help. I want to get some volunteers to help Omaha Zen Center before opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don't know when, it depends on the numbers of the volunteers.
+
+[Next Talk: Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
 [Return to main page](index.md)

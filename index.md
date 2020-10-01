@@ -1,6 +1,6 @@
 These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). It's best to read these transcripts while listening to the audio recordings, which are referenced in each talk. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
-**Latest Transcript:** [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness) - Posted September 24, 2020
+**Latest Transcript:** [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) - Posted October 1, 2020
 
 ## Transcripts in Chronological Order
 
@@ -25,6 +25,8 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 1979-07-25 [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 
 1979-08-01 [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+
+1979-08-08 [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
 ...
 
