@@ -8,13 +8,12 @@
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 34-35.)
 
-<a name="238">(2:38)</a>  
+###### (2:38)
 I think you remember, the Buddha asked Subhuti before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the dharma?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached." 
 
 If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of perfection of giving, one of the six Paramitas.
 
-##### 4:40
-###### 4:41
+###### (4:41)
 In Buddhism usually there are three kinds of giving, perfection of giving. One is material gifts. Second is dharma gifts. Third is the giving of fearlessness. 
 
 Material gifts, dharma gifts. But if you don't have any material gifts, or if you don't have any capability to preach dharma, what should you give?
@@ -29,14 +28,14 @@ This is very important. Well, it's not necessary to always smile. To smile alway
 
 The third, "giving with words". It means to use peaceful words when one comes in contact with people. Peaceful words are very important. But peaceful words are not always gentle, not always soft. Sometimes even though the words are very pithy or very strong, it is also peaceful words when it is helpful for the person to turn over his own new life. 
 
-<a name="854">(8:54)</a>  
+###### (8:54)
 But even though it's not necessary to scold or to scream always, there is a very interesting story. One of the famous Japanese novelists, who had ... one of his sons who wasted lots of money. This novelist was also one of the great painters, so he painted and the larger pictures were in his room, sometimes he could sell them, but usually he didn't sell them. But his son always sold most of them without saying anything, in order to spend his life at the bar. [*mild group laughter*] Drinking beer, wine, whisky always. Finally, unfortunately, he got an ulcer. So he went to the hospital to recover, but unfortunately, at that time he recovered, but after that he still continued to spend lots of money to drink brandy. Finally, he got cancer. Until his death, the father didn't scold (him) at all; he didn't say anything. But his brothers and sisters were really angry with the father because he didn't say anything to him, just watched him. 
 
 This novelist was one of the very enthusiastic Buddhists, believing the teaching of the Lotus Sutra. In Lotus Sutra, (it) always expresses playing(?) the oneness of the world. So, right before he died with cancer, he really expressed appreciation to his father. He didn't say anything, but the son really expressed his gratitude to father. This is beautiful, because world is one. 
 
 So, it's not always scolding, using the last words, but it's not always to use soft words or gentle words. It really depends on the situation. Basically, anyway, we have to practice giving with words. 
 
-<a name="1256">(12:56)</a>  
+###### (12:56)
 The fourth, giving with body. That means to help people with body first. 
 
 Sometimes, most people think something with their head, saying, "I want to help the people," or, "I think I can believe." If you think – in Buddhism, to think is not to think, to think is to do something with body. So to believe is to practice with your body. But to believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do with body. 
