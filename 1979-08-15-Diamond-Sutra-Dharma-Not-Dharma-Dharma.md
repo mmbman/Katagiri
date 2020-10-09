@@ -13,7 +13,8 @@ I think you remember, the Buddha asked Subhuti before, "If there is nothing spec
 
 If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of perfection of giving, one of the six Paramitas.
 
-<a name="440">(4:40)</a>  
+##### 4:40
+###### 4:41
 In Buddhism usually there are three kinds of giving, perfection of giving. One is material gifts. Second is dharma gifts. Third is the giving of fearlessness. 
 
 Material gifts, dharma gifts. But if you don't have any material gifts, or if you don't have any capability to preach dharma, what should you give?
