@@ -180,9 +180,9 @@ Okay. Do you have some questions?
 
 ###### 56:00
 
-***Question***: Roshi? In one of D.T. Suzuki's books, he says that enlightenment is forgetfulness. Is that true?
+**Question**: Roshi? In one of D.T. Suzuki's books, he says that enlightenment is forgetfulness. Is that true?
 
-***Katagiri***: I think so. In other words, enlightenment is no-enlightenment, that is real enlightenment. 
+**Katagiri**: I think so. In other words, enlightenment is no-enlightenment, that is real enlightenment. 
 
 If you say enlightenment, (what) you think is individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is real picture of the truth. That's why forgetfulness is what we're really like. Term is different, but the same. 
 
