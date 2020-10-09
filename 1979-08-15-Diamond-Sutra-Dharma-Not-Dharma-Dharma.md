@@ -15,21 +15,29 @@ I think you remember, the Buddha asked Subhuti before, "If there is nothing spec
 
 If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of perfection of giving, one of the six Paramitas.
 
-###### 4:41
+###### 4:45
 
-In Buddhism usually there are three kinds of giving, perfection of giving. One is material gifts. Second is dharma gifts. Third is the giving of fearlessness. 
+In Buddhism usually there are three kinds of giving, the perfection of giving. One is material gifts. Second is dharma gifts. Third is the giving of fearlessness. 
 
-Material gifts, dharma gifts. But if you don't have any material gifts, or if you don't have any capability to preach dharma, what should you give?
+Material gifts, dharma gifts – but if you don't have any material gifts, or if you don't have any capability to preach dharma, what should you give?
 
 In one of the Buddhist scriptures, there are seven kinds of giving for such a person who doesn't have any material gifts and dharma gifts. 
 
+###### 5:58
+
 One is "giving with eyes". This is to come in contact with people with a tender look. This is also one giving practice. Even though you don't have any materials or dharmas you can preach, still there is a practice of giving. First one is giving with eyes.
 
-The second, "giving with face". It means to come in contact with people with a soft, gentle, joyous expression on one's face. This is second. 
+###### 6:32
 
-This is very important. Well, it's not necessary to always smile. To smile always, it's not necessary to do that. But if you have a very gentle, soft, magnanimous, joyous mind, your face speaks of your mind. How joyous it is, how gentle it is, even though you don't smile. But if your mind is always angry, or always expressing the complaints, et cetera, your face (is) always something miserable, ugly – even though you smile. [*group laughter*] Do you understand? So, second is giving with face.
+The second: "giving with face". It means to come in contact with people with a soft, gentle, joyous expression on one's face. This is second. 
 
-The third, "giving with words". It means to use peaceful words when one comes in contact with people. Peaceful words are very important. But peaceful words are not always gentle, not always soft. Sometimes even though the words are very pithy or very strong, it is also peaceful words when it is helpful for the person to turn over his own new life. 
+[...] This is very important. Well, it's not necessary to always smile. To smile always, it's not necessary to do that. But if you have a very gentle, soft, magnanimous, joyous mind, your face speaks of your mind. How joyous it is, how gentle it is, even though you don't smile. But if your mind is always angry, or always expressing the complaints, et cetera, your face (is) always something miserable, ugly – even though you smile. [*group laughter*] Do you understand? So, second is giving with face.
+
+###### 7:52
+
+The third: "giving with words". It means to use peaceful words when one comes in contact with people. 
+
+Peaceful words are very important. But peaceful words are not always gentle, not always soft. Sometimes even though the words are very pithy or very strong, it is also peaceful words when it is helpful for the person to turn over his own new life. 
 
 ###### 8:54
 
@@ -41,23 +49,30 @@ So, it's not always scolding, using the last words, but it's not always to use s
 
 ###### 12:56
 
-The fourth, giving with body. That means to help people with body first. 
+The fourth: giving with body. That means to help people with body first. 
 
 Sometimes, most people think something with their head, saying, "I want to help the people," or, "I think I can believe." If you think – in Buddhism, to think is not to think, to think is to do something with body. So to believe is to practice with your body. But to believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do with body. 
 
-On the other hand, you cannot do with your body alone. So next, the giving with mind. You have to do something with body, and also mind must be present with body. Because, we are human. If you're a cat or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with mind. So first you have to have breakfast with body, but you are not cat, you are not dog. So you have to have breakfast with mind. That means, why don't you use a fork, why don't you sit down on the chair. Why don't you keep silent, why don't you appreciate food given to you, why don't you appreciate your existence. Why don't you appreciate your parents, teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, Giving.
+###### 14:24
+
+On the other hand, you cannot do with your body alone. So next, the giving with mind. 
+
+You have to do something with body, and also mind must be present with body. Because, we are human. If you're a cat or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with mind. So first you have to have breakfast with body, but you are not cat, you are not dog. So you have to have breakfast with mind. That means, why don't you use a fork, why don't you sit down on the chair. Why don't you keep silent, why don't you appreciate food given to you, why don't you appreciate your existence. Why don't you appreciate your parents, teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, Giving.
 
 ###### 16:01
 
-Sixth: [...] Gift of making room for a person and offering a blanket to people. 
+Sixth: [...] Gift of making room for a person, and offering a blanket(?) to people. 
 
 Sometimes if you have a bus, old people come in, but young people don't care whoever comes in, so (they) keep sitting. But if you see the old people ride on the bus, why don't you make room for them? And sometimes you can offer the [*unintelligible*], blanket, and sleeping bag. Or [*unintelligible*], et cetera. 
 
-Seventh, the gift of sharing a room with people. Sometimes you can share a room with people.
+###### 17:30
 
-Those seven practice are the perfection of giving for a person who doesn't have any material gifts or dharma gifts. 
+Seventh: the gift of sharing a room with people. Sometimes you can share a room with people.
+
+Those seven practices are the perfection of giving for a person who doesn't have any material gifts or dharma gifts. 
 
 ###### 18:06
+
 But strictly speaking, material gifts and dharma gifts are all on the same footing. For example, if material gifts are given to a person of a preacher's fiber(?), one can help him to study and practice the teachings and become a preacher. Material gifts of this kind are on an equal footing with dharma gifts, because in the future he will be a preacher to give the Buddha's teachings to people. Or, by dharma gifts one can regain ones footing from difficulties in ones life, and feel grateful for ones life, without wasting any kinds of materials. Dharma gifts of this sort are of the same value as material gifts. Even though one is very poor, even though one has just a little materials to live to the minimum, he can find happiness in such a situation, because he can listen to dharma teaching; teaching given by preachers and people. 
 
 ###### 20:24
