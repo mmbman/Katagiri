@@ -107,10 +107,10 @@ So, we have to always practice in the realm of the truth, regardless of whether 
 
 But through the individual experience of the truth you can explain what the truth is. So, you can explain. And by the explanation of the truth, you can lead the people to be fit to gain the core of human life. That's why explanation is important. Even though explanation of the dharma is not real dharma, but it is dharma, because the dharma explained by you leads the people to be fit to gain the truth. 
 
-###### (38:50) 
-So, there is nothing to attach (to); to Sambhogakaya, to Nirmanakaya, to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to preach, just to preach. When the time comes to practice, just the practice. When the time comes to keep silent, just to keep silent. This is simple practice.
+###### 38:50
+So, there is nothing to attach (to); (not) to Sambhogakaya, to Nirmanakaya, to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to preach, just to preach. When the time comes to practice, just the practice. When the time comes to keep silent, just to keep silent. This is simple practice.
 
-###### (39:32)
+###### 39:32
 Finally in Chapter 8: "the Tathagata has taught that the dharmas special to the Buddhas are just not a Buddha's special dharmas. That is why they are called 'the dharmas special to the Buddhas.'" That means buddhadharma mentioned by human body, human speculation, is no no buddhadharma, because buddadharma is completely beyond human speculation; (it is) truth itself. You cannot touch. If you touch it, your body is burnt out. If you ignore it, your body and mind is frozen. So you cannot ignore, you cannot touch it; this is real state of the truth which exists constantly, with you wherever you may go. 
 
 So, you have to open your eyes to see the dharma truth constantly, under all circumstances. Neither touch nor ignore, always. Just the practice: open your eyes, open your heart toward it. How? Through the practice. Through the individual vituous quality you have planted in the past. So, good seed in the past. 
