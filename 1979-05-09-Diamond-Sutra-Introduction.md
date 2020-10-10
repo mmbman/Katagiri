@@ -38,7 +38,7 @@ So, at that time after Buddha's death, they tried to compile, they tried to leav
 
 Within [the] agamas, it was based on Buddha's teaching: philosophical, psychological teachings; mentioning impermanence, and suffering, no-self, and nirvana. Those four are called [the] Four Dharma Seals, mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
 
-So in [the] agama sutras, those four dharma seals were described. And then with the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha [(Abhidharmakośakārikā)](https://en.wikipedia.org/wiki/Abhidharmakośakārikā). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture, which is called Abhidharmakosha. 
+So in [the] agama sutras, those four dharma seals were described. And then with the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture, which is called Abhidharmakosha. 
 
 ###### 13:51
 
@@ -60,7 +60,7 @@ I told you before, the last week, Diamond Sutra is quite different from Vimalaki
 
 The group of Prajnaparamita sutras were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons – that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called emptiness. But that emptiness is exactly expressed by conscious thought. Huge.
 
-So Prajnaparamita is what is called The Perfection of Wisdom. (The) Indian people try to explain what wisdom is, according to concept. So, for instance, in Diamond Sutra, it says: 
+So Prajnaparamita is what is called The Perfection of Wisdom. [The] Indian people try to explain what wisdom is, according to concept. So, for instance, in Diamond Sutra, it says: 
 
 > Subhuti asked: What then, O Lord, is this discourse on dharma, and how should I bear it in mind? – The Lord replied: This discourse on dharma, Subhuti, is called "Wisdom which has gone beyond," and as such should you bear it in mind!
 >
@@ -134,11 +134,11 @@ And sometimes, vastness is personalized, and it's called Buddha. Because we real
 
 ###### 43:50
 
-So, who makes yourself confused? ... We ourselves make ourselves confused. That's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is intellectual understanding of human existence. Immediately we analyze existential fact; analyze it. If we analyze existential fact, we are [at?] two contradictory [aspects?]. A is A, but A is not A. Katagiri is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is Minnesota Zen Meditation Center. So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be one(?), must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all features(?).
+So, who makes yourself confused? ... We ourselves make ourselves confused. That's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is intellectual understanding of human existence. Immediately we analyze existential fact; analyze it. If we analyze existential fact, we are [at?] two contradictory [aspects?]. A is A, but A is not A. Katagiri is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is Minnesota Zen Meditation Center. So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one?], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features?].
 
 ###### 45:23
 
-This is very important. That's why we have to explain ourselves(?) – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. Katagiri is just Katagiri; that's all. That's enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
+This is very important. That's why we have to explain [ourselves?] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. Katagiri is just Katagiri; that's all. That's enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
 This is very natural. If you understand in that way, it's not necessary to [have a] complicated system of understanding: "A is A; A is not A; that's why A is A" – it's not necessary to say so. But we have to do so, because consciousness is already complicated. That's why we have to explain. That's it.
 
