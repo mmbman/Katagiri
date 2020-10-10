@@ -70,7 +70,7 @@ Wisdom is expressed – explained, described – by pretty conceptualized thing.
 
 ###### 21:48
 
-So according to this, they understand wisdom and try to teach wisdom like this: Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. [*he chuckles*] 
+So according to this, they understand wisdom and try to teach wisdom like this: Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
 In the latest Udambara, Professor Abe explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China: a little bit practical. Buddhism becomes 'practical' in order to explain Prajnaparamita not conceptually, [but] very practically. 
 
@@ -80,9 +80,9 @@ For instance, you know the koan... Zen Buddhists always use a koan, but this koa
 
 ###### 24:10
 
-Oh, yes, here is a very good example. Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." [*group laughs*] That is called Isan; his name was Isan. (Probably Guishan Lingyou, Kuei Shan Lingyu, Jpn. Isan Reiyū, 771-853.) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. [*laughter*] And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. [*laughter*] How do you call it? 
+Oh, yes, here is a very good example. Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called Isan; his name was Isan. (Probably Guishan Lingyou, Kuei Shan Lingyu, Jpn. Isan Reiyū, 771-853.) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
 
-For instance, there is a Katagiri. But this is not Katagiri, this is cow. [*he laughs*] But you say "cow"; it's not cow. So for instance, everything is Buddha. So, everything is ... human beings buddha, floors buddha, trees buddha, Dan is buddha. So, monk says, "Shall I call you Dan?" [*group laughs*] So: Katagiri, Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call?
+For instance, there is a Katagiri. But this is not Katagiri, this is cow. *[he laughs]* But you say "cow"; it's not cow. So for instance, everything is Buddha. So, everything is ... human beings buddha, floors buddha, trees buddha, Dan is buddha. So, monk says, "Shall I call you Dan?" *[the group laughs]* So: Katagiri, Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call?
 
 That's sort of a Zen puzzle; but this is really based on Buddhist philosophy. A is A, but A is not A. But A is really A.
 
@@ -112,9 +112,9 @@ If you understand eyes are eyes, this is first stage; this is very conceptualize
 
 I told you always, in Zen practice: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
-This is not. If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands. You have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don't think that "Oh, I can play guitar." Buddhism says, "No. You cannot play the guitar." "But I can play the guitar!" "It's not good enough." [*he chuckles*] Try to practice, until the playing guitar is completely tuning in the rhythm of the universe. Including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
+This is not. If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands. You have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don't think that "Oh, I can play guitar." Buddhism says, "No. You cannot play the guitar." "But I can play the guitar!" "It's not good enough." *[he chuckles]* Try to practice, until the playing guitar is completely tuning in the rhythm of the universe. Including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
 
-Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, your are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" [*unintelligible*] question, "How come? I am poet." "I am writer." Of course you are writer, you are musician. But - *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the [*unintelligible*] that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do. 
+Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, your are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" *[unintelligible]* question, "How come? I am poet." "I am writer." Of course you are writer, you are musician. But - *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do. 
 
 ###### 39:45
 
@@ -124,9 +124,9 @@ That is a great chance for you to practice, to continue to do it.
 
 ###### 40:46
 
-This is the very important point Diamond Sutra says. There are lots of expressions of, what would you say... contradictory expressions. "A is A, but A is not A, that's why we call A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or [*unintelligible*]. But even though you don't like your life, or you like your life – a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say, you don't like, or you like: what is life? What are you? You are still you. And your life is existent. How can you judge? 
+This is the very important point Diamond Sutra says. There are lots of expressions of, what would you say... contradictory expressions. "A is A, but A is not A, that's why we call A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. But even though you don't like your life, or you like your life – a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say, you don't like, or you like: what is life? What are you? You are still you. And your life is existent. How can you judge? 
 
-So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called emptiness, [*unintelligible*], and if you experience that emptiness it is called Buddha nature. Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
+So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called emptiness, *[unintelligible]*, and if you experience that emptiness it is called Buddha nature. Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
 ###### 43:16
 
@@ -144,13 +144,13 @@ This is very natural. If you understand in that way, it's not necessary to [have
 
 ###### 46:38
 
-That is characteristic of human being. Bird, dog, don't think in that way. When they feel hungry, just bite. Just eat. [*group laughs*] Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop. Don't give a gentle word, just a simple word: "*shut up*". [*group laughs*]
+That is characteristic of human being. Bird, dog, don't think in that way. When they feel hungry, just bite. Just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop. Don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
 
-[*tape change*]
+*[tape change]*
 
 ... stop them barking, you say, "shut up." That's enough. 
 
-But dog, dog without himself, just barks at you. This is dog. No problem. But can you bark at the people? Can you bark at the people like that? [*group laughs*] Of course, you can do. I can bark at you like this; but immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
+But dog, dog without himself, just barks at you. This is dog. No problem. But can you bark at the people? Can you bark at the people like that? *[laughter]* Of course, you can do. I can bark at you like this; but immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
 
 ###### 48:27
 
@@ -162,7 +162,7 @@ Obviously we have to think like this. But this is beautiful, beautiful aspect of
 
 ###### 49:42
 
-But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [*unintelligible*], everything. Nothing to separate from her or him. At that time, this ballerina [is] called great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
+But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – *[unintelligible]*, everything. Nothing to separate from her or him. At that time, this ballerina [is] called great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
 
 That's why Zen Master says, "When you feel hungry, eat. When you feel asleep, sleep." But this is third stage. This is the very profound, highest level of understanding. Not just like a dog, not just like a cat. We misunderstand Zen term, "When you feel hungry, eat. When you feel sleepy, sleep." This is not first stage, first level of understanding; that is the very profound, highest level of understanding. 
 
@@ -180,11 +180,11 @@ Okay, do you have any questions?
 
 ###### 53:00
 
-**Question**: Roshi? Do you [*unintelligible*] when you gave the year when the sutras were written, do those years correspond with the Christian years that we use [*unintelligible*] or are they Buddhist years? 
+**Question**: Roshi? Do you *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
 
-[*some confusion*]
+*[some confusion]*
 
-**another person**: Is it by the [*unintelligible*] calendar?
+**another person**: Is it by the *[unintelligible]* calendar?
 
 **Katagiri**: Oh, oh, yes - of course. I am talking about that.
 
@@ -192,29 +192,29 @@ Okay, do you have any questions?
 
 **Question**: Roshi, two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. And this came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
-[*group laughter*]
+*[laughter]*
 
-**Katagiri**: [*quietly*] Uh, before that, what did I say? 
+**Katagiri**: *[quietly]* Uh, before that, what did I say? 
 
-**Same person**: Well, you were talking – I think it was about sitting zazen just to sit zazen, and not to have expectations or goals, or... I'm not sure... [*unintelligible*] But that sentence really struck me. 
+**Same person**: Well, you were talking – I think it was about sitting zazen just to sit zazen, and not to have expectations or goals, or... I'm not sure... *[unintelligible]* But that sentence really struck me. 
 
-**Katagiri**: [*quietly*] Yeah. [*laughter*]
+**Katagiri**: *[quietly]* Yeah. *[laughter]*
 
-Maybe it's connected with a previous statement. [*laughter*] ... from one sentence, before, previous [*unintelligible*]
+Maybe it's connected with a previous statement. *[laughter]* ... from one sentence, before, previous *[unintelligible]*
 
-[*laughter*] 
+*[laughter]* 
 
-Because we have to understand something as a whole. "A is A; A is not A." [*laughter*]
+Because we have to understand something as a whole. "A is A; A is not A." *[laughter]*
 
 ###### 55:48
 
-It makes you sometimes confused, but this is very nice practice for you. [*laughter*] But practically, it's very simple. Very simple. Because you have to return home, and settle in peace and harmony. Where is home? [*unintelligible*] That's all. This is zazen.
+It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it's very simple. Very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That's all. This is zazen.
 
 But when you expect something, you completely go away from your home. Looking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it's fine, but, it makes you dizzy, that's all. Running here and there, always. But the more you are busy, the more you are exhausted. That's all. And finally you have to return home and settle yourself in peace and harmony. And then you say, "Oh, this is [alright?]." This is our point. That's all. The basic practice is very simple, very simple, really.
 
 But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: "Oh yes, I want to go back to my home." Everyone understands. But it takes time, because until it's penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
 
-That's why we have to continue to sit. I don't know why. [*he chuckles*] But you are lucky man, anyway. You are a lucky person. 
+That's why we have to continue to sit. I don't know why. *[he chuckles]* But you are lucky man, anyway. You are a lucky person. 
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
