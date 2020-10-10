@@ -68,7 +68,7 @@ So, if I see myself – here is Katagiri – immediately there is a certain kind
 
 But Katagiri 'smell' is a kind of a result we have judged. So that smell is from where that smell comes. If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginingless past; you have to go back. And you have to go to the endless future; then you can understand. So finally, that smell is no evaluation, something not evaluated. That is called Buddha – or, original nature of existence. Psychologically speaking, that is called total personality. Total personality; maybe trans-personality, whatever you say. (Presumably referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology)) 
 
-But trans-personality immediately smells: "I smell something", "I smell myself as Katagiri". So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense. But in a good sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes [a] stink.
+But trans-personality immediately smells: "I smell something", "I smell myself as Katagiri". So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense. But in a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes [a] stink.
 
 ###### 26:18
 
