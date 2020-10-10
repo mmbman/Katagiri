@@ -58,7 +58,7 @@ I told you before, the last week, Diamond Sutra is quite different from Vimalaki
 
 ###### 18:58
 
-The group of Prajnaparamita sutras were compiled in the beginning of A.D. by Indian people. Indian people like very much the... whatever it is... conceptualize, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, [...] the number billions is maybe (the) top. But Indian people use more than billions. That is kalpas, eons – completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called emptiness. But that emptiness is exactly expressed by conscious thought. Huge.
+The group of Prajnaparamita sutras were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, [...] the number billions is maybe (the) top. But Indian people use more than billions. That is kalpas, eons – completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called emptiness. But that emptiness is exactly expressed by conscious thought. Huge.
 
 So Prajnaparamita is what is called The Perfection of Wisdom. (The) Indian people try to explain what wisdom is, according to concept. So, for instance, in Diamond Sutra, it says: 
 
@@ -114,11 +114,11 @@ I told you always, in Zen practice: Zen practice is very simple. I told you, ver
 
 This is not. If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands. You have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don't think that "Oh, I can play guitar." Buddhism says, "No. You cannot play the guitar." "But I can play the guitar!" "It's not good enough." [*chuckles*] Try to practice, until the playing guitar is completely tuning in the rhythm of the universe. Including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
 
-Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, your are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" [*unintelligible*] question, "How come? I am poet." "I am writer." Of course you are writer, you are musician. But - *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write. Beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the [*unintelligible*] that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to (do?) fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do. 
+Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, your are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" [*unintelligible*] question, "How come? I am poet." "I am writer." Of course you are writer, you are musician. But - *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the [*unintelligible*] that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to (do?) fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do. 
 
 ###### 39:45
 
-And then, at that time, you can say, "I am guitar player, I am musician," Even though you don't think so, people call you; you are guitar player. And then, people don't tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that's pretty good. Sometimes you don't know when I became a writer, or when I am a great musician – you don't know. But it's not necessary. People ask you to play the guitar, to write something. 
+And then, at that time, you can say, "I am guitar player, I am musician." Even though you don't think so, people call you; you are guitar player. And then, people don't tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that's pretty good. Sometimes you don't know when I became a writer, or when I am a great musician – you don't know. But it's not necessary. People ask you to play the guitar, to write something. 
 
 That is a great chance for you to practice, to continue to do it. 
 
@@ -194,11 +194,11 @@ Okay, do you have any questions?
 
 [*group laughter*]
 
-***Katagiri***: [*quietly*] Uh, before that, what did I say? 
+**Katagiri**: [*quietly*] Uh, before that, what did I say? 
 
-***same person***: Well, you were talking – I think it was about sitting zazen just to sit zazen, and not to have expectations or goals, or... I'm not sure... [*unintelligible*] But that sentence really struck me. 
+**Same person**: Well, you were talking – I think it was about sitting zazen just to sit zazen, and not to have expectations or goals, or... I'm not sure... [*unintelligible*] But that sentence really struck me. 
 
-***Katagiri***: [*quietly*] Yeah. [*laughter*]
+**Katagiri**: [*quietly*] Yeah. [*laughter*]
 
 Maybe it's connected with a previous statement. [*laughter*] ... from one sentence, before, previous [*unintelligible*]
 
