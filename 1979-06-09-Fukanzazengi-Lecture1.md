@@ -240,7 +240,7 @@ And release. If you release, [there] is nothing but being, which is helping all 
 
 ###### 1:05:26
 
-So, that is the conclusion of the main subject in Fukanzazengi. That's why Dogen Zenji said, if you do zazen, according to [what] Dogen mentions, very naturally, the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. Very naturally. That is [the] meaning of zazen. We do always.
+So, that is the conclusion of the main subject in Fukanzazengi. That's why Dogen Zenji said, if you do zazen according to [what] Dogen mentions, very naturally, the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. Very naturally. That is [the] meaning of zazen. We do always.
 
 By the zazen, if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself [are] also a person far from real person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not [the] practice for us.
 
