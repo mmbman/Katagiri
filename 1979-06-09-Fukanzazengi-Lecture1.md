@@ -4,7 +4,7 @@
 ### Dharma Talk by Dainin Katagiri Roshi
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790609.mp3)
 
-###### 0:00
+###### 0:00 start of recording
 
 **Katagiri**: [The] last sentence of the main subject of Fukanzazengi – Universal Recommendation for Zazen – says, "For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." [*he repeats it*] 
 
