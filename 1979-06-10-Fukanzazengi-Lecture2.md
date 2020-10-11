@@ -12,19 +12,19 @@ Do you remember? You don't understand? Did you have some questions while I was t
 
 Well, let's think of what I said yesterday. If what I said yesterday is graphically shown – well, I will show [it], okay?
 
-###### 1:10
-
 *[Katagiri's voice gets more remote from the microphone, and there are sounds of writing on a blackboard]*
+
+###### 1:10
 
 Number one is, yesterday I told you, circumstances. 
 
-This is number two, that is sensory system, sensory world, through the five consciousnesses. The consciousness is the object: seeing, hearing, and touching. That is sensory world.
+... Number two, that is sensory system, sensory world, through the five consciousnesses. The consciousness is the object: seeing, hearing, and touching. That is sensory world.
 
-The third is realm of movement; that is, broadly speaking, the body. So, this is, only through zazen, regulation of body. Regulation of body.
+The third is realm of movement; that is, broadly speaking, the body. So this is, only through zazen, regulation of body. Regulation of body.
 
 And fourth is internal organ system. Internal organs work very smoothly, perfectly in balance when you do zazen. That is very important. And also in daily living, they must be going smoothly, perfectly in balance. This is internal organ system; that is really regulation of breath. 
 
-Yesterday I told you the heart, lungs, intestines, nerves, central nerves or further out; whatever they are, you cannot control [them]. They are completely beyond human speculation, human control. But only [the] breath is one thing you can control. That's why regulation of breath is very important.
+Yesterday I told you the heart, lungs, intestines, nerves, central nerves or further out; whatever they are, you cannot control [them]. They are completely beyond human speculation, human control. But only breath is one thing you can control. That's why regulation of breath is very important.
 
 The fifth ... is regulation [of] the brain-nerve system. So that is, according to zazen, regulation of mind. 
 
