@@ -1,6 +1,6 @@
 These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). It's best to read these transcripts while listening to the audio recordings, which are referenced in each talk. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
-**Latest Transcript:** [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) - Posted October 9, 2020
+**Administrative note:** I am currently updating the existing transcripts to a more readable style. Talks that have headings for the timestamps are the ones that have been updated.
 
 ## Transcripts in Chronological Order
 
