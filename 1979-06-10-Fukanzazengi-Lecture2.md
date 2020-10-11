@@ -149,7 +149,7 @@ So all things, anyway, cut off. Cut off means, [in their place?], put them aside
 
 **Katagiri**: No. No, I don't think so.
 
-**same person**: Where do they appear?
+**Same person**: Where do they appear?
 
 **Katagiri**: Well, that is, the regulation of body, regulation of the breath, regulation of mind – the teaching of Zen Buddhism, the practice of zazen, through regulation. So that's why I want to explain that. [Those] six categories [are] very common category according to psychology. *[unintelligible]*
 
@@ -179,55 +179,73 @@ So that's why the regulation of the mind, that is very important.
 
 ###### 37:18
 
-So from this point, it's pretty easy. No difficulty. That's why Dogen Zenji says, there is faith – if you believe total personality, or buddha nature, whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no suffering. No suffering, no confusion, no agitation, et cetera. Completely perfect. So it's pretty easy in a sense. But in a sense, according to six consciousness, it's pretty hard. Because, in the six consciousnesses, we can understand our life according to lots of, huge pile of experiences, which you have accumulated. That's why it's pretty hard. 
+So from this point, it's pretty easy. No difficulty. That's why Dogen Zenji says, there is faith – if you believe total personality, or Buddha nature, whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no suffering. No suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
-So arrangement, regulating the body - it's not so easy because you have your own posture. From where that posture comes? Anyway, you have accumulated from the past. But, here is the proper posture. Why don't you do it?
+So it's pretty easy, in a sense. But in a sense, according to six consciousness, it's pretty hard. Because, in the six consciousnesses, we can understand our life according to huge pile of experiences which you have accumulated. That's why it's pretty hard. 
 
-But basically, it's very easy: just do it. Just, proper posture. But it's not easy. Because, you have already your own posture, and also, you have already your sense. You don't like pain, you don't like uncomfortable - that is our preconception. That's why, if we try to (do) proper posture, we don't feel good. From this sense, well it's pretty hard. But it's not pretty hard. Proper posture is just proper posture.
+###### 38:37
 
-(39:40) *Question*: In terms of the senses, it seems like zazen is not natural. It's like, let's say, when you legs are hurting badly, that's your body naturally telling you that something is wrong. You know, the pain is a sign that there's something wrong. And so from a sensory point of view, it doesn't seem very natural. [Katagiri laughs]
+So arrangement, regulating the body – it's not so easy, because you have your own posture. From where that posture comes? You have accumulated [it] from the past. But, here is the proper posture; why don't you do it?
 
-*Katagiri*: (???) It's not (???). [group laughter] 
+So basically, it's very easy: just do it. Just, proper posture. But it's not easy. Because, you have already your own posture, and also, you have already your sense. You don't like pain, you don't like [being] uncomfortable – that is our preconception. That's why, if we try to [do] proper posture, we don't feel good. From this sense, well it's pretty hard. But it's not pretty hard. Proper posture is just proper posture.
 
-Don't misunderstand. There is pain and ache, and, well, physical ache, physical pain... Well, it's pain. So it's not necessary to commit suicide. Physical pain. Anyway. Even though it is natural.
+###### 39:40
 
-(40:42) *Question*: [Mostly unintelligible on the recording] Roshi? Regulation... if you're at some point experiencing something that seems good, pleasant, then intellectual involvement... in the sense of regulating the body ... Then the next one ... Natural tendency to... Is that the correct way to look at it?
+**Same person**: In terms of the senses, it seems like zazen is not natural. It's like, let's say, when you legs are hurting badly, that's your body naturally telling you that something is wrong. You know, the pain is a sign that there's something wrong. And so from a sensory point of view, it doesn't seem very natural. *[Katagiri laughs]*
 
-*Katagiri*: If you see the sleep - well, it's not right, but it's not wrong. 
+**Katagiri**: It's not masochism, okay? *[the group laughs]* Don't misunderstand. 
 
-*Question*: But I mean, in terms of regulation... Are experiencing something that's tranquil... There's some effect of that... Isn't that the purpose of regulating, to have that... everything working smoothly?
+There is pain and ache, and, well, physical ache, physical pain... Well, it's pain. So it's not necessary to commit suicide. Physical pain, anyway. Even though it is natural.
 
-*Katagiri*: Regulating... Regulating means not control. Basically, we have to regulate. What? Body, and breath. This is the two minimum; this is something we have to do to the minimum in zazen. Number one, number two, regulating. And also, at that time, many things happen. Sleep, not sleep; dizzy(?), and fascination, and (???) But they are just a (bump?) But only mind attach to it. If you see that, "oh, that's good," "that's bad," always. But in that mind, if you let it go, just (???); come back. For sleep, if you see the sleep: "Oh, it's sleep." If you see, just sleep. Just sleep. Just like, "oh, it's sleep." If you realize; awareness is important, okay? And then - (???) That is number 3; that's why regulation of the body. There's a way to sit in proper way, and immobile. It means, sitting with the body and also mind, which leads you to awaken totally. Is that clear? That's why at that time, mind is very sharp. The minute you catch something which happens - sleep or not sleep, dizzy or some other condition - between sleep and awakening, to wake up, you can realize. If you see the sleep, just awake. All that you have to do is regulate the breath; that is, let's sit down, right now. (????) The mind immediately attaches to and get is, good or bad, right or wrong. Awareness is - just see, and practice (???). Just the total dynamic working. That is awakening. That is wisdom. See, and adjust it. Very good. 
+###### 40:42
 
-The mind is always there. Interfering. Your mind is always interfering, that it's good or bad. (Enlightenment? Practice?) That is no design.
+**Question**: *[mostly unintelligible on the recording]* Roshi? ... regulation ... if at some point you're experiencing something that seems good, pleasant, then there's a natural tendency to think you're doing something right in terms of regulating the body ... Then the next moment, you experience something ... and there's a natural tendency to... Is that the correct way to look at it?
 
-(45:45) *Question*: [mostly unintelligible] Roshi? It seems like adjusting constantly in the direction of samadhi, constantly making that adjustment... But how do you...
+**Katagiri**: If you see the sleep – well, it's not right, but it's not wrong. 
 
-*Katagiri*: Well maybe it depends on the individual. Maybe so. But, constantly adjusting, adjusting what's wrong. (???) Just adjustments. But if you adjust and you say, "oh, constantly I have to adjust," is there something wrong? 
+**Same person**: *[still mostly unintelligible on the recording]* But I mean, in terms of regulation... If it seems as if you are experiencing something that's tranquil ... There's some effect of that... You want to have that happen again. But isn't that the purpose of regulating everything, to have everything working smoothly?
 
-[tape change]
+**Katagiri**: Regulating... Regulating is not control. Basically, we have to regulate. What? Body, and breath. This is the two minimum; this is something we have to do to the minimum in zazen. Number one, number two, regulating. And also, at that time, many things happen. Sleep, not sleep; dizzy, and fascination, and *[unintelligible]*. They are just a [bump?]. But only mind attaches to it, if you see that, "Oh, that's good," "That's bad," always. But in that mind, if you let it go, just come back. If you see the sleep: "Oh, it's sleep." If you see it, just sleep. Just like, "oh, it's sleep." If you realize; awareness is important, okay? And then – *[unintelligible]*. That is number three; that's why regulation of the body. There's a way to sit in proper way, and immobile. It means, sitting with the body and also mind, which leads you to awaken totally. Is that clear? That's why at that time, mind is very sharp. The minute you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and awakening – to wake up. You can realize. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let's sit down, right now, [totally in your body?]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is, just see, and [correct?] the body. Just the total dynamic working. That is awakening. That is wisdom. See, and adjust. Very good. 
 
-(46:27) ... immediately you attach to adjustment you have made. Try to judge: "it is good," "or it is bad." "I am doing zazen," "This is the real zazen," or "this is really shikantaza itself." Do you understand?
+The mind is always there, interfering, judging good or bad. [Enlightenment, practice] – that is no design.
 
-*Question*: Roshi, I wonder the same thing. I sort of feel like the effort is follow the breath, and then suddenly I realize I'm getting a little sleepy, or I catch myself thinking about something. At that time you're saying, just return to your effort to follow the breath. 
+###### 45:45
 
-*Katagiri*: Mmm-hmm. That's all.
+**Question**:  Roshi? It seems like that adjustment constantly in the direction of samadhi, constantly making that adjustment... But how do you...
 
-[pause]
+**Katagiri**: Well, maybe it depends on the individual. Maybe so. But, constantly adjusting, adjusting what's wrong, *[unintelligible]*. Just adjustments. But if you adjust and you say, "Oh, constantly I have to adjust," is there something wrong? 
+
+*[tape change]*
+
+... immediately you attach to adjustment you have made. Try[ing] to judge: "it is good," or "it is bad." "I am doing zazen," "This is the real zazen," or "this is really shikantaza itself." Do you understand?
+
+###### 46:52
+
+**Question**: Roshi, I wonder the same thing. I sort of feel like the effort is follow the breath, and then suddenly I realize I'm getting a little sleepy, or I catch myself thinking about something. And at that time, you're saying, just return to your effort to follow the breath. 
+
+**Katagiri**: Mmm-hmm. That's all.
+
+*[pause]*
 
 Is that something wrong?
 
-*Question*: No. [laughter]
+**Same person**: No. 
 
-*Question*: Roshi? Sometimes so many things come up, especially the first couple days of sesshin, seems like it takes an enormous effort to return to the breath. Should we use effort?
+*[Katagiri laughs]*
 
-*Katagiri*: Uh, enormous effort - we cannot continue enormous effort. So, sometimes. Don't attach to enormous effort constantly. Sometimes enormous effort makes you exhaust(ed). At that time, forget it! Just relax, okay? [group laughter] Just relax! And, you know, taking a breath, and short breath and long breath. Letting it go. 
+###### 47:47
 
-And then, for a while, while you take a breath, very naturally - (????). And then, your mind can calm. Maybe it takes an hour? Maybe two hours, maybe a day. It's okay. And then if your mind is very relaxed, let's return(?)
+**Question**: Roshi? Sometimes so many things come up, especially the first couple days of sesshin, seems like it takes an enormous effort to return to the breath. Is that – should we use effort?
 
-*Question*: Roshi? Are you saying that you should just go with whatever amount of effort you feel?
+**Katagiri**: Uh, enormous effort – we cannot continue enormous effort. So, sometimes. Don't attach to enormous effort constantly. Sometimes enormous effort makes you exhaust[ed]. At that time, forget it! Just *relax*, okay? *[the group laughs]* Just relax! And, you know, taking a breath, and short breath, and long breath. Letting it go. 
 
-*Katagiri*: Mmm-mmm. No. No. 
+And then, while you take a breath, very naturally – *[unintelligible]*. And then, your mind [can?] calm. Maybe it takes an hour? Maybe two hours, maybe a day. It's okay. And then if your mind is very relaxed, let's return.
+
+###### 49:08
+
+**Question**: Roshi? Are you saying that you should just go with whatever amount of effort you feel?
+
+**Katagiri**: Mmm-mmm. No. No. 
 
 Center is always center. Okay? You must be in the center. 
 
