@@ -4,7 +4,7 @@
 ### Dharma Talk by Dainin Katagiri Roshi
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
-###### 0:00
+###### 0:00 start of recording
 
 [*recording fades in*]
 
@@ -215,6 +215,8 @@ But when you expect something, you completely go away from your home. Looking fo
 But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: "Oh yes, I want to go back to my home." Everyone understands. But it takes time, because until it's penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
 
 That's why we have to continue to sit. I don't know why. *[he chuckles]* But you are lucky man, anyway. You are a lucky person. 
+
+###### 58:09 end of recording
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
