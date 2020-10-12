@@ -191,7 +191,7 @@ So basically, it's very easy: just do it. Just, proper posture. But it's not eas
 
 ###### 39:40
 
-**Same person**: In terms of the senses, it seems like zazen is not natural. It's like, let's say, when you legs are hurting badly, that's your body naturally telling you that something is wrong. You know, the pain is a sign that there's something wrong. And so from a sensory point of view, it doesn't seem very natural. *[Katagiri laughs]*
+**Same person**: In terms of the senses, it seems like zazen is not natural. It's like, let's say, when your legs are hurting badly, that's your body naturally telling you that something is wrong. You know, the pain is a sign that there's something wrong. And so from a sensory point of view, it doesn't seem very natural. *[Katagiri laughs]*
 
 **Katagiri**: It's not masochism, okay? *[the group laughs]* Don't misunderstand. 
 
@@ -203,9 +203,11 @@ There is pain and ache, and, well, physical ache, physical pain... Well, it's pa
 
 **Katagiri**: If you see the sleep – well, it's not right, but it's not wrong. 
 
-**Same person**: *[still mostly unintelligible on the recording]* But I mean, in terms of regulation... If it seems as if you are experiencing something that's tranquil ... There's some effect of that... You want to have that happen again. But isn't that the purpose of regulating everything, to have everything working smoothly?
+**Same person**: *[still mostly unintelligible on the recording]* But I mean, in terms of regulation... If it seems as if you are experiencing something that's tranquil ... There's some effects of that... You want to have that happen again. But isn't that the purpose of regulating everything, to have everything working smoothly?
 
-**Katagiri**: Regulating... Regulating is not control. Basically, we have to regulate. What? Body, and breath. This is the two minimum; this is something we have to do to the minimum in zazen. Number one, number two, regulating. And also, at that time, many things happen. Sleep, not sleep; dizzy, and fascination, and *[unintelligible]*. They are just a [bump?]. But only mind attaches to it, if you see that, "Oh, that's good," "That's bad," always. But in that mind, if you let it go, just come back. If you see the sleep: "Oh, it's sleep." If you see it, just sleep. Just like, "oh, it's sleep." If you realize; awareness is important, okay? And then – *[unintelligible]*. That is number three; that's why regulation of the body. There's a way to sit in proper way, and immobile. It means, sitting with the body and also mind, which leads you to awaken totally. Is that clear? That's why at that time, mind is very sharp. The minute you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and awakening – to wake up. You can realize. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let's sit down, right now, [totally in your body?]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is, just see, and [correct?] the body. Just the total dynamic working. That is awakening. That is wisdom. See, and adjust. Very good. 
+**Katagiri**: Regulating... Regulating is not control. Basically, we have to regulate – what? Body, and breath. This is the two minimum; this is something we have to do [at] the minimum in zazen. Number one, number two, regulating. And also, at that time, many things happen. Sleep, not sleep; dizzy, and fascination, and *[unintelligible]*. They are just a [bump?]. But ... mind attaches to it, if you see that, "oh, that's good," "that's bad," always. But with that mind, if you let it go, just *[unintelligible]*, come back. If you see the sleep: "oh, it's sleep." If you see it, just sleep, like "oh, it's sleep." If you realize; awareness is important, okay? And then – *[unintelligible]*. That is number three; that's why regulation of the body – sitting in the proper way, and immobile. It means, sitting with the body and also mind, which leads you to awaken totally. Is that clear? 
+
+That's why at that time, mind is very sharp. The minute you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and awakening – wake up. You can realize. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let's sit down, right now, [totally in your body?]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is, just see, and [correct?] the body. Just the total dynamic working. That is awakening. That is wisdom. See, and adjust. Very good. 
 
 The mind is always there, interfering, judging good or bad. [Enlightenment, practice] – that is no design.
 
@@ -221,7 +223,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 ###### 46:52
 
-**Question**: Roshi, I wonder the same thing. I sort of feel like the effort is follow the breath, and then suddenly I realize I'm getting a little sleepy, or I catch myself thinking about something. And at that time, you're saying, just return to your effort to follow the breath. 
+**Question**: Roshi, I wonder the same thing. I sort of feel like the effort is to follow the breath, and then suddenly I realize I'm getting a little sleepy, or I catch myself thinking about something. And at that time, you're saying, just return to your effort to follow the breath. 
 
 **Katagiri**: Mmm-hmm. That's all.
 
@@ -257,7 +259,7 @@ So you have to see. [A person] says, always many things happen. At that time, yo
 
 **Katagiri**: In zazen there is a basic rule, basic way of life, which is called zazen. Physical, already we have it here. That's why, even though you forget the enormous effort, still there is an effort,  physically. Breathing. 
 
-That's a point, but in daily living, [it's] a little different. For instance a woman's diet, may be difficult. But still there is. You must be, anyway, centered – center of the life. It means, even though you forget enormous effort ... it's not necessary to be confused by. ... To be confused by means, you are completely dragged away, by the mess. That's [questions?]. So, still there is effort. "Forget enormous effort" doesn't mean completely throw away; still [there is] effort.
+That's a point, but in daily living, [it's] a little different. For instance a woman's diet may be difficult. But still there is. You must be, anyway, centered – center of the life. It means, even though you forget enormous effort ... it's not necessary to be confused by. ... To be confused by means, you are completely dragged away, by the mess. That's [questions?]. So, still there is effort. "Forget enormous effort" doesn't mean completely throw away; still [there is] effort.
 
 **Same person**: So there's kind of a minimum level, that you always have to...
 
@@ -487,7 +489,7 @@ Is that okay?
 
 **Question**: You'd rather keep doing... 
 
-**Katagiri**: Yeah, keep doing. *[he sounds a bit our of breath]* Keep doing. *[everyone laughs]* 
+**Katagiri**: Yeah, keep doing. *[he sounds a bit out of breath]* Keep doing. *[everyone laughs]* 
 
 But how do you keep doing? That is *[unintelligible]* practice. So if you use too much enormous effort, you exhaust it. If your attention slackens, ... there is .... certain signs of laxity appears. So, how can you keep the equilibrium in your life - physically and mentally? That's pretty hard. In the practice of calligraphy, that is very important. 
 
