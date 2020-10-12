@@ -4,67 +4,91 @@
 ### Dharma Talk by Dainin Katagiri Roshi
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790611.mp3)
 
-... say something more, a little bit, about same subject, as I told yesterday. The subject was, "You must know that first, there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." I would like to explain a little more about same subject, from different angle today. Because this is very important characteristic of zazen we do, which is called shikantaza.
+###### 0:00 start of recording
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become buddha. This is first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn't understand the meaning, but, I was moved very much by this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become buddha. I accepted (it), totally - no question. I think now, I was lucky. [mild laughter] I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was lucky guy.
+**Katagiri**: [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." I would like to explain a little more about same subject, from [a] different angle today. Because this is very important characteristic of zazen we do, which is called shikantaza.
 
-Particularly according to dullness and distraction; dullness and distraction here are meant to exemplify all kinds of delusion. But according to Abidharma-kosha, dullness and distraction are just one of the delusions. ([Abhidharmakośa on encyclopediaofbuddhism.org](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)) So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharma-kosha. Thirty-seven and thirty-eight says, dullness in Sanskrit, styāna [spells it out], this is dullness. Translation says: torpor; or stiffness, or unctuousness(?) [tries to pronounce that], and sterility(?), indifference, and in Latin, (???) [lot of hard to discern stuff here] ... languor; torpor; sloth. (Also, lethargy.)
+Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become Buddha. This [was the] first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally - no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
 
-This is dullness, and the other one is distraction. They present it as, in Sanskrit, auddhatya [spells it] - that means, restlessness. Or, agitation, restlessness of mind, reckless, or frivolity. Et cetera.
+###### 2:33
 
-(5:19) But in Fukanzazengi, dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off, from the first. This is shikantaza.
+Particularly according to dullness and distraction: dullness and distraction here are meant to exemplify all kinds of delusion. But according to Abidharmakosha, dullness and distraction are just one of the delusions. ([Abhidharmakośa on encyclopediaofbuddhism.org](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)) So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in Sanskrit, styāna *[he spells it out]*, this is dullness. Translation says: torpor; or stiffness, or [obduracy?] *[he tries to pronounce that]*, and [sterility?], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
 
-First let me say a little bit about the meaning of the dullness and distraction. Broadly speaking, dullness and distraction are the state that the mind acts reactively, like the swing of a pendulum. And the body and mind lose a state of their equilibrium. That is in a state of either distraction or dullness. Just like a pendulum. 
+This is dullness, and the other one is distraction. They present it as, in Sanskrit, auddhatya *[he spells it]* – that means, restlessness. Or, agitation, restlessness of mind, reckless, or frivolity. Et cetera.
 
-So it is represented as kon-san(?) in Japanese. 'Kon'(?) is dullness, 'san'(?) is distraction. So according to Chinese letter, 'kon', the structure of the Chinese letter 'kon' consists of two parts. One is bottom, second is the sun. The sun sinks, or sets, at the bottom; the complete darkness.
+###### 5:18
 
-So kon means dullness, which means the state which the mind becomes gloomy and doesn't work. As if the sun sets, and the surroundings completely become dark. That is the meaning of kon, dullness.
+But in Fukanzazengi, dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off, from the first. This is shikantaza.
 
-San is distraction. Distraction is a state that the mind is annoyed with troublesome, and is (impermanent?). That is distraction. So distraction, broadly speaking, means... what would you say, relative understanding. Various relative understanding; relative views, relative thoughts. Or, worldly thoughts. Worldly thoughts means to understand or view something in the dualistic world. That is distraction. 
+###### 6:00
 
-So if you understand something in the dualistic world, whatever kind of things you can get, whatever kind of idea or view you can get, it's cause of distraction. For instance, good or evil, or neutral. Or had practice, or easy practice, or, so-so. Whatever kind of idea you get in the dualistic world, all becomes cause of distraction. That is really distraction. 
+First let me say a little bit about the meaning of ... dullness and distraction. Broadly speaking, dullness and distraction are the state [where] the mind acts reactively, like the swing of a pendulum, and the body and mind lose a state of their equilibrium. That is in a state of either distraction or dullness. Just like a pendulum. 
 
-(10:27) There are many kinds of zazen, many types of zazen, in this world, but broadly speaking, let me say, maybe three types of zazen. 
+So it is represented as [kon-san?] in Japanese. [Kon?] is dullness, [san?] is distraction. ... The structure of the Chinese letter [kon?] consists of two parts: one is bottom, the second is the sun. The sun sinks, or sets, at the bottom; the complete darkness. So [kon?] means dullness, which means the state which the mind becomes gloomy and doesn't work. As if the sun sets, and the surroundings completely become dark. That is the meaning of [kon?], dullness.
 
-One type of zazen is, that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds," perfectly. No weeds, perfectly. But at any cost, by the zazen, we struggle for weeding out. And make whole world completely clean, perfectly. But that is nothing but resting weeds. Resting weeds are temporary, for certain period of time. So, someday, weeds come back, come up. Because, you cannot destroy weeds. Because weeds are nothing but being. Just like your existence. Weeds, flowers - beautiful flowers, ugly flowers, many kinds of flowers. As long as flowers exist in this world, immediately there is weeds. 
+[San?] is distraction. Distraction is a state [where] the mind is annoyed with troublesome [things], and is [indeterminate?]. That is distraction. So distraction, broadly speaking, means ... relative understanding. Various relative understandings: relative views, relative thoughts. Or, worldly thoughts. Worldly thoughts means to understand or view something in the dualistic world. That is distraction. 
 
-(12:45) But actually, in the dualistic world, we don't like weeds. So, with hatred, we try to cut down. But while you maintain ... hatred. But by the hatred, maybe you can cut down. [loud airplane noise] But it is not complete, (not) completely removing weeds from the human world. Sometimes, somewhere, weeds come up. [still loud airplane noise] But we can see this kind of practice in the human world. 
+So if you understand something in the dualistic world ... whatever kind of idea or view you can get, it's [a] cause of distraction. For instance, good or evil, or neutral. Or hard practice, or easy practice, or, so-so. Whatever kind of idea you get in the dualistic world, all becomes [a] cause of distraction. That is really distraction. 
 
-(13:47) For instance, business. If you learn business; well, as long as you want to learn business - restaurant or whatever - we have to develop business. You want to be successful in running business. So usually, in common sense, we really struggle for feeling successful in business. Whatever happens, stumbling over; removing the weeds and gaining the flowers, and ... in order to be successful in the business, we struggle for our lives, and reach the other shores. We can do this. 
+###### 10:27
 
-(14:54) So, if you struggle with your whole heart, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. But, if you reach the other shore, that is (not) the final goal, because the other shore is also (???). So the goal you have reached is no longer goal. Immediately, first step; you have to go into first step. You have to do something from now. Do you understand? This is very clear; this is human world. We do. 
+There are many types of zazen in this world, but broadly speaking, let me say, maybe three types of zazen. 
 
-So immediately, your goal, completely goes far from you. That's why the moment that you reach the goal, immediately you don't feel satisfied. That's why you want to do something more. So that desire is infinite; just like snowballing. And then finally, we have to die. And then, death waits for you. That's all. This is very common. Very common. But I don't know whether there is real way, or not. 
+###### 10:48
 
-That is one type of zazen. If you do zazen like this, of course you can attain enlightenment. You can completely weed out, by arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath, well, you can reach a certain spiritual stage, which is called calmness, tranquility. Which you never see, feel, well, happy... 
+One type of zazen is, that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds," perfectly. At any cost, by the zazen, we struggle for weeding out, and make [the] whole world completely clean, perfectly. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So someday, weeds come back, come up, because you cannot destroy weeds, because weeds are nothing but being. Just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers. As long as flowers exist in this world, immediately there are weeds. 
 
-But, when the circumstances are changed; well you can't accept your calmness and tranquility you have experienced; cannot maintain. Immediately, it's gone. So you are confused, very much. I know several examples in the United States. 
+But actually, in the dualistic world, we don't like weeds. So, with hatred, we try to cut [them] down. But while you maintain ... hatred ... by the hatred, maybe you can cut [them] down. *[there is a loud airplane noise that makes it difficult to hear]* But it is not completely removing the weeds from the human world. Sometimes, somewhere, weeds come up. 
 
-But at certain stage, under certain circumstances, for instance ????, or whatever. But if you are right in the middle of a monastery in dharma(?), you can follow the rules, strict practice, very much. And you attain enlightenment. But when you come to the United States - completely different situation, okay? Very different situation. And then, weeds come back. It's really simple. 
+###### 13:36
 
-(18:58) Well, I don't mean it is good or bad, right and wrong. We should know, that is life. That is life, okay? These human beings; we should know that.
+We can see this kind of practice in the human world. For instance, business. If you learn business; well, as long as you want to learn business – restaurant or whatever – we have to develop business. You want to be successful in running business. So usually, in [the] common sense, we really struggle for feeling successful in business. Whatever happens, stumbling over ... removing the weeds and gaining the flowers ... in order to be successful in the business, we struggle for our lives, and reach the other shores. We can do this. 
 
-(19:15) And second type is, that we remove the roots of the weeds, and even the seeds, from the ground. Weeds no longer grow. They are completely free from samsaric world, in the Six Realms of Existence: hell, hungry ghost, titan spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly on the ground of only our own property, and cherish a feeling of having reached the final goal. In other words, we are, by way of having done our final goal, and spent our whole life without considering others' life.
+###### 14:53
 
-So, by the practice of zazen, it's possible to weed out even the seeds, completely, and the weeds no longer grow. That means, some Buddhism says, if you attain enlightenment, which is highest level of spiritual life, and then at that time, it's not necessary to come back to human world. You can stay constantly in the heaven.
+So, if you struggle with your whole heart, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. But, if you reach the other shore, that is [not] the final goal, because ... the other shore is also [transient?]. So the goal you have reached is no longer [the] goal. Immediately, you have to go into first step, you have to do something from now. Do you understand? This is very clear; this is human life. We do. 
 
-So, arhat, and many saints in the history of Buddhism, they showed us their experience. That's why one of the four stages of the bodhisattva, of buddhist practice, arhat does, is highest spirit of spiritual life, which never sees you... never to come back to human being, samsaric world. This is arhat practice. 
+So immediately, your goal completely goes far from you. That's why the moment that you reach the goal, immediately you don't feel satisfied, that's why you want to do something more. So that desire is infinite; just like snowballing. And then finally, we have to die. And then, death waits for you. That's all. This is very common. Very common. But I don't know whether it is real way, or not. 
 
-This is also zazen. You can do. But that is just weeding out on their own territory. That's all. 
+###### 16:42
 
-And then, when they completely weed out on their territory - they don't know what to do. So there is only the death to wait; that's all. So all they have to do is, just to wait - for their death. Can you imagine this? It's not necessary? If the people don't offer the food, they can survive, because they can stop their breath, for how many hours. Do you know that? Yes, they can do. Still, there is a possibility to survive. So, it's not necessary to struggle for their life. Just be there. No more weeds come up. Very clean. But, they don't know what to do. Just wait for their death, that's all. 
+That is one type of zazen. If you do zazen like this, of course you can attain enlightenment. You can completely weed out, by arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath – you can reach a certain spiritual stage, which is called calmness, tranquility. Which *[intelligible]* you feel happy...
 
-(24:25) Here is very good example in Japan. This is the story... one of the famous Japanese actors, who was interested in economy, business. So he cherished for a long time, some project he really wanted. So, he leaped at the chance to do this. So, he got a chance. He started to (do) that business project. Finally, he finished. Perfectly finished. Risking his whole life. He did it! Everyone respect; wonderful job, perfect. But finally, he didn't know what to do *next*. And then - can you imagine what will happen? He committed suicide. Why? He committed suicide. He must be happy, because he did it. But he committed suicide - why? People didn't understand it. 
+But, when the circumstances are changed: well, you cannot accept your calmness and tranquility [that] you have experienced; [you] cannot maintain [it]. Immediately, it's gone. So you are confused, very much. I know several examples in the United States. 
 
-So, that is really good example. Not only Buddhist - this is really human life. If you really want to do something, completely weed out; and you want to be successful in any kind of business, and Buddhist practice... If you want to live in paradise, you can do it. But, this is not final goal Buddha mentions. Because, if you do it, there is still confusion. You don't know what to do. Then, all you have to do is - finally, nothing to do. After reaching that highest level, nothing to do. Because that highest level is nothing but something (in) dualistic world. So, highest level is a certain level opposed to lowest level. Always dualistic world. But if you reach highest level in the dualistic world, still there is a confusion. 
+But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much. And you attain enlightenment. But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
 
-(27:20) Or, another confusion is, they really are by (???) world. Having reached highest level, and having stayed with that highest level. Nothing to do. Enjoy themselves. And all they have to do is, just to wait for death. 
+Well, I don't mean it is good or bad, right and wrong. We should know that is life. That is life, okay? These human beings; we should know that.
 
-That is what is called dullness. In other words, too much pride. "I finished. My task is done. So, any time, any where, I can die." So, you can wait for death, in peace and harmony. Without weeds; without having the weeds. But, this is called dullness. 
+###### 19:15
 
-Because, that high spirit is just one of the lifestyles in the dualistic world. It's not completely happiness. 
+And the second type is, that we remove the roots of the weeds, and even the seeds, from the ground. Weeds no longer grow. They are completely free from samsaric world, in the Six Realms of Existence: hell, hungry ghost, titan spirit, animal spirit, human beings, heavenly beings. (It's hard to tell whether he says "titan spirit" or "fighting spirit". Both work.) But unfortunately, we weed out perfectly on the ground of only *our own property*, and cherish a feeling of having reached the final goal. In other words, we are by way of having done our final goal, and spent our whole life without considering others' life.
 
-(29:00) The last type of zazen is something we do: shikantaza. 
+So, by the practice of zazen, it's possible to weed out even the seeds, completely, and the weeds no longer grow. That means, some Buddhism says, if you attain enlightenment, which is highest level of spiritual life ... then at that time, it's not necessary to come back to human world. You can stay constantly in the heaven.
+
+So, arhats and many saints in the history of Buddhism, they showed us, they experienced [it]. That's why one of the four results of Buddhist practice, [what the] arhat does, is [the] highest spirit of spiritual life, which enables you never to come back to human being, samsaric world. This is arhat practice. This is also zazen. You can do.
+
+###### 22:52
+
+But that is just weeding out on their own territory. That's all. And then, when they completely weed out on their territory – they don't know what to do. So there is only the death to wait [for]; that's all. So all they have to do is, just to wait for their death. Can you imagine this? 
+
+It's not necessary? If the people don't offer the food, they can survive, because they can stop their breath, for how many hours. Do you know that? Yes, they can do. Still, there is a possibility to survive. So, it's not necessary to struggle for their life. Just be there. No more weeds come up. Very clean. But, they don't know what to do. Just wait for their death, that's all. 
+
+###### 24:25
+
+Here is a very good example in Japan. This is the story *[unintelligible]* One of the famous Japanese actors, who was interested in economy, business. So he cherished for a long time, some project he really wanted. He waited [for] the chance to do this. So, he got a chance. He started to [do] that business project. Finally, he finished. Perfectly finished. Risking his whole life. He did it! Everyone respected [it]: wonderful job, perfect. But finally, he didn't know what to do *next*. And then – can you imagine what would happen? He committed suicide. Why? He committed suicide. He must be happy, because he did it. But he committed suicide – why? People didn't understand it. 
+
+So, that is a really good example: not only Buddhists, this is really human life. If you really want to do something, completely weed out; and [if] you want to be successful in any kind of business, and Buddhist practice – if you want to live in a paradise, you can do it. But, this is not [the] final goal Buddha mentions. Because, if you do it, there is still confusion. You don't know what to do. Then, all you have to do is – finally, nothing to do. After reaching that highest level, nothing to do. Because that highest level is nothing but something [in the] dualistic world. Highest level is a certain level opposed to lowest level. So, always dualistic world. But if you reach highest level in the dualistic world, still there is a confusion. 
+
+###### 27:20
+
+Or, another confusion is, they really are [weary of?] having reached highest level, and having stayed with that highest level. Nothing to do; enjoy themselves. And all they have to do is, just to wait for death. 
+
+That is what is called dullness. In other words, too much pride. "I finished. My task is done. So, any time, any where, I can die." So, you can wait for death, in peace and harmony. Without ... having the weeds. But, this is called dullness. Because, that high spirit is just one of the lifestyles in the dualistic world. It's not completely happiness. 
+
+###### 29:00
+
+The last type of zazen is something we do: shikantaza. 
 
 But struggling for reaching the other shore at any cost, this is also distraction. Which is good, distraction. Even though you reach the highest level of spiritual life, still there is a struggle. Because the moment you reach the final goal, final goal cannot be (???). You have to start again. That's why struggle constantly going on. That is distraction. On the other hand, dullness.
 
