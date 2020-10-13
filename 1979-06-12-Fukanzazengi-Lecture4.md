@@ -6,7 +6,7 @@
 
 ##### 0:00 start of recording
 
-Toward the end of Fukanzazengi, as a conclusion, Dogen Zenji explains how important shikantaza is from a different angle, from various way. So, little by little, we try to learn. "In surveying the past, we find that transcendence of both unenlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen." *[he repeats the quote]*
+Toward the end of Fukanzazengi, as a conclusion, Dogen Zenji explains how important shikantaza is from a different angle, from [a] various way. So, little by little, we try to learn. "In surveying the past, we find that transcendence of both unenlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen." *[he repeats the quote]*
 
 The notes given by Professor Abe (probably Masao Abe; see [translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](https://en.wikipedia.org/wiki/Denkoroku) that Bodhidharma and the fourth, fifth and sixth Chinese Zen patriarchs died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the Zen histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are – they died.
 
@@ -14,9 +14,7 @@ So, Dogen Zenji really wants to [speak] about how important zazen is. That zazen
 
 ##### 4:37
 
-Usually in the world, we constantly persist in our selfishness, ego consciousness, in order to accomplish our own purpose in life. Kicking out everybody; persisting, adhering to our egoistic sense. And finally, they may be disinterested in human life. There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because, no one pays attention to you if you do that. Finally, those kind of people are completely isolated. 
-
-And also, you cannot do anything in peace and harmony, you cannot live with the people in the human world in peace and harmony; so finally, it is really true that you are disinterested in human life. 
+Usually in the world, we constantly persist in our selfishness, ego consciousness, in order to accomplish our own purpose in life. Kicking out everybody; adhering to our egoistic sense. And finally, [we] may be disinterested in human life. There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because, no one pays attention to you if you do that. Finally, those kind of people are completely isolated. And also, you cannot do anything in peace and harmony, you cannot live with the people in the human world in peace and harmony; so finally, it is really true that you are disinterested in human life. 
 
 So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they can keep their life longer, they take their life.
 
@@ -24,13 +22,13 @@ So, on the verge of life and death, there are some who commit suicide, kill them
 
 There are some that, the death compels them to die even though they don't want to die. There are some that scream right before their death, because they don't like [it]. I know lots of examples. 
 
-I took care of a young man who served [in the] army. At that time he was 30 years old. But at his house, for many, many years, he persisted, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, [he was] kicking out everybody. He did everything that he likes. Finally, there was nothing to do which caused him to be interested.... So he was disinterested in usual daily life. So, he went and entered [the] army. 
+I took care of a young man who served [in the] army. At that time he was 30 years old. But at his house, for many, many years, he persisted, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, [he was] kicking out everybody. He did everything that he liked. Finally, there was nothing to do which caused him to be interested.... So he was disinterested in [his] usual daily life. So, he went and entered [the] army. 
 
-Well, he found [it] a little bit interesting, a little bit fun there, because there are lots of chances to kill a person, and animals, and use guns; and lots of fun there which he had never experienced before, so, he enjoyed [it] very much. But unfortunately, one day he fell down from a tree, while he was working on the tree, trimming the tree, with a Japanese hand saw. He fell down from the high tree. And finally, the bottom of his body [was] completely numb. He couldn't walk. So, he was in the army hospital.
+Well, he found [it] a little bit interesting, a little bit fun there, because there are lots of chances to kill a person, and animals, and using guns; and lots of fun there which he had never experienced before, so he enjoyed [it] very much. But unfortunately, one day he fell down from a tree while he was trimming the tree with a Japanese hand saw. He fell down from the high tree. And finally, the bottom of his body [was] completely numb. He couldn't walk. So, he was in the army hospital.
 
-But he was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself. Still, he expressed his ego in order to accomplish his purpose of his life. Screaming at the nurses, and hitting somebody, and fighting, even though he sat down on the chair. You know the chair, using the special chair? He screams at the nurses, and [is] fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. "Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch," I always told him. But he enjoyed very much. It was a part of his life. 
+But he was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself. Still he expressed his ego in order to accomplish his purpose of his life. Screaming at the nurses, and hitting somebody, and fighting, even though he sat down on the chair. You know ... using the special chair? He screams at the nurses, and [is] fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. "Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch," I always told him. But he enjoyed [it] very much. It was a part of his life. 
 
-And then [in] three years, he got another disease... maybe a kidney didn't work. If a kidney didn't work, well, the poisons ... goes around his whole body. He couldn't have urine, so all of a sudden, the poisons went around his body. Three days after starting to suffer from this, he died.
+And then [in] three years, he got another disease... maybe a kidney didn't work. If a kidney didn't work, well, the poisons ... go around his whole body. He couldn't have urine, so all of a sudden, the poisons went around his body. Three days after starting to suffer from this, he died.
 
 But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do, because there is death. He screamed.
 
@@ -42,9 +40,9 @@ This is very common. Very common.
 
 ##### 13:43
 
-So, for such people, they never thought [of the] significance of zazen, which causes all delusions to drop off from the first. They never thought, even glancing once at such a wonderful world. They don't care. That is okay. 
+So, for such people, they never thought [of the] significance of zazen, which causes all delusions to drop off from the first. They never thought [of] even glancing once at such a wonderful world. They don't care. That is okay. 
 
-But it is not bad to glance at that wonderful world. Even once in your whole life; that's great. It's not bad. Even though you cannot have a chance to glance at this wonderful world even once in your whole life; but if you want to pursue this, it's not bad for us. Because life is going on. So life after life, we can do it. 
+But it is not bad to glance at that wonderful world. Even once in your whole life; that's great. It's not bad. Even [if] you cannot have a chance to glance at this wonderful world even once in your whole life, [still] if you want to pursue this, it's not bad for us. Because life is going on. So life after life, we can do it. 
 
 ##### 15:14
 
@@ -66,9 +64,9 @@ There is a Zen story in The Blue Cliff Record, the 46th case, this is a very fam
 
 ##### 16:46
 
-What Kyosei asked the monk, his ... question is something [with] which Kyosei Zen Master raked [the] monk's mind [to see] how much his practice was going on. So, "What sound is that outside the gate?" The monk said, "The sound of raindrops." But, [the] teacher didn't ask [for the] sound of the raindrop[s]; he asked [for the] raindrop[s] themselves.
+What Kyosei asked the monk – his ... question is something [with] which Kyosei Zen Master raked [the] monk's mind [to see] how much his practice was going on. So, "What sound is that outside the gate?" The monk said, "The sound of raindrops." But, [the] teacher didn't ask [for the] sound of the raindrop[s]; he asked [for the] raindrop[s] themselves.
 
-But he used the words, "What's the sound outside of the gate?" So, the monk said, "That is sound of raindrops." You know the sound. [The] sound is not [the] raindrops. Raindrops are raindrops. But [the] sound comes from where? Raindrops. But [the] sound is not raindrops. It's very clear, don't you think so? Because raindrops are, anyway, *raindrops*. I cannot say – well, raindrops are active, moving, very active. Becoming one, or from [the] merging of raindrops and Earth and Universe, at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, "some raindrops." That is already something *extra*, don't you think so? 
+But he used the words, "What's the sound outside of the gate?" So, the monk said, "That is [the] sound of raindrops." You know the sound. [The] sound is not [the] raindrops. Raindrops are raindrops. But [the] sound comes from where? Raindrops. But [the] sound is not raindrops. It's very clear, don't you think so? Because raindrops are, anyway, *raindrops*. I cannot say – well, raindrops are active, moving, very active. Becoming one, or from [the] merging of raindrops and Earth and Universe, at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, "some raindrops." That is already something *extra*, don't you think so? 
 
 ##### 19:02
 
@@ -80,7 +78,7 @@ And then we say, "Oh, that is a jet airplane." I don't think so. The real jet ai
 
 So, the Zen Master asked, "What sound is that outside the gate?" The monk said, "sound of the raindrops." This is a very straightforward, honest monk. We do [this] always. Maybe I [would] say [it] in [the] same way: "Yes, rain. Sound of raindrops." 
 
-And then the Zen Master points out – well, pay attention. That [previous answer] is okay, because without this experience you cannot understand real rain drops. So that's alright; but pay more careful attention to [the] sound of [the] raindrops again. That's why [the] Zen teacher says, "sentient beings are inverted."
+And then the Zen Master points out: well, pay attention. That [previous answer] is okay, because without this experience you cannot understand real rain drops. So that's alright; but pay more careful attention to [the] sound of [the] raindrops again. That's why [the] Zen teacher says, "sentient beings are inverted."
 
 ##### 21:32
 
