@@ -216,15 +216,19 @@ So, some teacher says, "I am not qualified to be [a] teacher," so he returns to 
 
 What would you like, okay? There is stinky, muddy water, there is beautiful water – but both [are the] same. And you can do the same things, wherever you may be: [a] beautiful, nice place, nice smell, beautiful place, or here is a muddy, stinky, and lots of things. That is the samsaric world. And here is another beautiful world. But both [are the] same. And whatever you may be, you can do things – what would you like? What would you *be*? What would you prefer to be? Do you want be stinky, muddy? Do you understand?
 
-(1:06:50) 
+##### 1:06:50
 
-Well, if I've been, if you are beautiful place ... remember this. Many people bark at you. Because you are already beautiful place. That's when you can see "that's the ugly thing." If you make a mistake, lots of things happen.
+If you are [in a] beautiful place, there's a lot of "barking." Remember this. Many people bark at you. Because you are already [in a] beautiful place – that's why you can see lots of ugly things. If you make a mistake, lots of things happen. And then immediately you [say], "That is something extra." If you do this, you never touch the core of human life. 
 
-And then immediately you ask it, "That is something extra." If you do this, you never touch the core of human life. So, all are buddha, all are buddha. Muddy water, beautiful water; all buddha. Whatever you may be, you can do same things; buddha's world. Which would you like? It's very clear. No one prefers dirty place. Don't you think so? Very simple practice. But if you are beautiful place, it's not so easy. It's not so easy. But we should accept. 
+All are Buddha. Muddy water, beautiful water: all Buddha. Whatever you may be, you can do same things; Buddha's world. Which would you like? It's very clear. No one prefers [a] dirty place. Don't you think so? [It's a] very simple practice. But if you are [in a] beautiful place, it's not so easy. It's not so easy. But we should accept [it]. 
 
-And all we have to do is, whatever you may be, we can do same thing. That same thing is, shikantaza. Shikantaza, where all delusions drop off, from the first. It's not necessary you should find some order or demand. "Go away": you cannot say so. If you say "go away," they don't go away. Even though you say "please stay," they don't stay.
+And all we have to do is, whatever you may be, we can do [the] same thing. That same thing is shikantaza. Shikantaza, where all delusions drop off from the first. It's not necessary [that] you should find some order, or demand, "Go away"; you cannot say so. If you say "go away," they don't go away. Even though you say "please stay," they don't stay.
 
-That's why Dogen Zenji says, "dying while either sitting or standing, have all depended" ... no, excuse me. "We find that transcendence of both unenlightenment or enlightenment" - that is good or bad, right, wrong, qualified or not qualified, whatever you say. Transcend - this is shikantaza itself. Anyway, transcend. Death or life - transcend of death and life. And then all you have to do is, be one with death, when death comes. That is shikantaza. At that time, you can die while you're sitting. You can die while you're standing. Very naturally. You can die lying down on your bed. You can die at home ... "Have all depended entirely on the strength of zazen." This is zazen. Yes it is.
+That's why Dogen Zenji says ... "We find that transcendence of both unenlightenment or enlightenment..." – that is good or bad, right, wrong, qualified or not qualified, whatever you say. "Transcend" – this is shikantaza itself... transcending of death and life. And then all you have to do is, be one with death when death comes. That is shikantaza. 
+
+At that time, you can die while you're sitting, you can die while you're standing, very naturally. You can die lying down on your bed. You can die at home, *[unintelligible]*
+
+"... have all depended entirely on the strength of zazen." This is zazen. Yes it is.
 
 ##### 1:10:30 end of recording
 
