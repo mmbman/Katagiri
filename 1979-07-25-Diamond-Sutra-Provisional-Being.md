@@ -1,7 +1,7 @@
 [Index](index.md)
-#### July 25, 1979
-## Diamond Sutra: Provisional Being
-### Dharma Talk by Dainin Katagiri Roshi
+# Diamond Sutra: Provisional Being
+## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790725.mp3)
 
 There must be a person who tries to establish peaceful world, always. But when you see the world, it's pretty difficult for us to see beautiful aspect of human world. At that time, lots of chaos. We are disappointed. 

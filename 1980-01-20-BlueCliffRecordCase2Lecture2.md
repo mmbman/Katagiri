@@ -1,7 +1,7 @@
 [Index](index.md)
-####  January 20, 1980
-## Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 2
-### Dharma Talk by Dainin Katagiri Roshi
+# Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 2
+## January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800120.mp3)
 
 > Chao Chou, teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”

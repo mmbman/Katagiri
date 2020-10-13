@@ -1,7 +1,7 @@
 [Index](index.md)
-#### June 13, 1979
-## Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5
-### Dharma Talk by Dainin Katagiri Roshi
+# Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5
+## June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790613.mp3)
 
 There was a famous Zen Master named Gensha Shibi ([玄沙師備 Xuansha Shibei](https://terebess.hu/zen/xuansha.html)) who lived from 835-908 [some revision of the year of death, and laughter]. And he practiced under the guidance the famous Zen Master Seppō [Seppō Gison; Xuefeng Yicun ](https://terebess.hu/zen/xuefeng.html), who was 12-15 years older than Gensha Shibi. This story occurs in the Shobogenzo, the title is "The One Bright Pearl"; you can find this story here.

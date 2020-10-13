@@ -1,7 +1,7 @@
 [Index](index.md)
-#### August 8, 1979
-## Diamond Sutra: Giving and Non-Covetousness
-### Dharma Talk by Dainin Katagiri Roshi
+# Diamond Sutra: Giving and Non-Covetousness
+## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790808.mp3)
 
 (The recording begins toward the end of Katagiri quoting the passage below. He then repeats it.)

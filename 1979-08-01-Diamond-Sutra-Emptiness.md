@@ -1,7 +1,7 @@
 [Index](index.md)
-#### August 1, 1979
-## Diamond Sutra: Emptiness
-### Dharma Talk by Dainin Katagiri Roshi
+# Diamond Sutra: Emptiness
+## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790801.mp3)
 
 Chapter 7:

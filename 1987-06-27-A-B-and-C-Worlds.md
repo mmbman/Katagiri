@@ -1,7 +1,7 @@
 [Index](index.md)
-#### June 27, 1987
-## A, B, and C Worlds
-### Dharma Talk by Dainin Katagiri Roshi
+# A, B, and C Worlds
+## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
 
 ... in Shōbōgenzō Genjōkōan. "When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the buddha way originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 

@@ -1,7 +1,7 @@
 [Index](index.md)
-#### July 3, 1980
-## Karma: Unmanifested
-### Dharma Talk by Dainin Katagiri Roshi
+# Karma: Unmanifested
+## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800703.mp3)
 
 ...

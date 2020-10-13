@@ -1,6 +1,6 @@
 [Index](index.md)
-## Diamond Sutra: Introduction
-### May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
+# Diamond Sutra: Introduction
+## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
