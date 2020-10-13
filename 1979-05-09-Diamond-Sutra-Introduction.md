@@ -17,7 +17,6 @@ The second is a period in which a group of Nirvana sutras, a group of [Śrīmāl
 The third is the period in which a group of Yogacara sutras and a group of esoteric sutras were all compiled, after 480. 
 
 ##### 3:18
-
 During the first and the second centuries, there were several great organizers and philosophers of Mahayana Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna), who lived from 150-250. And the second person was [Aryadeva](https://en.wikipedia.org/wiki/Aryadeva), who lived 170-270. And the third one is [Asanga](https://en.wikipedia.org/wiki/Asanga), who lived 310-390. Particularly Asanga established, compiled Buddhist psychology at that time. [Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu) who lived 320-400. So, we can imagine all Buddhist scriptures were compiled by those four greater organizers and philosophers of Buddhist scriptures. 
 
 ##### 5:24
