@@ -6,9 +6,10 @@ $header-heading-color: #fff;
 $header-bg-color: #128D50;
 $header-bg-color-secondary: #155799;
 
-$section-headings-color: #0C8452;
-$body-text-color: #454F59;
-$blockquote-text-color: #4D565C;
-$body-link-color: #004988;
+// Text
+$section-headings-color: #3E9051;
+$body-text-color: #232323;
+$body-link-color: #2B549F;
+$blockquote-text-color: #394754;
 
 @import "{{ site.theme }}";
