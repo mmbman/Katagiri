@@ -441,4 +441,4 @@ That is from the first.
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 
-[Return to main page](index.md)
+[Index](index.md)

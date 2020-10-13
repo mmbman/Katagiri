@@ -335,4 +335,4 @@ This is explanation of that thing. In the first book of Abhidharmakosha, the who
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
 
-[Return to main page](index.md)
+[Index](index.md)

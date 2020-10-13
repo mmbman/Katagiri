@@ -307,4 +307,4 @@ That's spiritual teacher. If you become a spiritual teacher, you must be like th
 
 [Next Talk: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
-[Return to main page](index.md)
+[Index](index.md)

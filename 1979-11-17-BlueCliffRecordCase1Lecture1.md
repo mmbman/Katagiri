@@ -86,4 +86,4 @@ When you attend, when you have such positions for a certain period of time, you 
 
 [Go to Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2.md)
 
-[Return to main page](index.md)
+[Index](index.md)

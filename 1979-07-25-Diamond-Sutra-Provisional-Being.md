@@ -209,4 +209,4 @@ The buddhism means always not to touch the extreme ideas; perception of soul, or
 
 [Next Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 
-[Return to main page](index.md)
+[Index](index.md)

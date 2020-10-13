@@ -128,4 +128,4 @@ Do you have some questions?
 Okay.
 
 
-[Return to main page](index.md)
+[Index](index.md)

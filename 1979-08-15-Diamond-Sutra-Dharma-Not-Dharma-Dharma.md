@@ -203,4 +203,4 @@ If you say enlightenment, (what) you think is individual experience of enlighten
 
 So you must be free from enlightenment that you have experienced. And then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay at the Ph.D. without working with people. You have to forget degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. [*group laughter*] See the [*unintelligible*] and anyway, [*unintelligible*], day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is final goal you have to do. If you want to be real great dancer or painter, you have to be forget [*sic*]. Continually, you must be stupid, and continually practice. That is real enlightenment.
 
-[Return to main page](index.md)
+[Index](index.md)

@@ -86,4 +86,4 @@ But practically speaking, for instance, if you want to master downhill skiing, a
 
 (Recording ends here.)
 
-[Return to main page](index.md)
+[Index](index.md)

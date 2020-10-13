@@ -154,4 +154,4 @@ That's why Dogen Zenji says, "dying while either sitting or standing, have all d
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 
-[Return to main page](index.md)
+[Index](index.md)

@@ -95,4 +95,4 @@ That is the pointer. And then, the main case: [recording ends]
 
 [Go to Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2.md)
 
-[Return to main page](index.md)
+[Index](index.md)

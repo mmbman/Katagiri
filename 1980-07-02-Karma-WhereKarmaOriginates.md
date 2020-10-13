@@ -202,4 +202,4 @@ In Japan, Zen is… appears different. United States, Zen appears in a different
 
 Okay? Do you understand?
 
-[Return to main page](index.md)
+[Index](index.md)

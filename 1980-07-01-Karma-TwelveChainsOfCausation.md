@@ -18,4 +18,4 @@ So before time and space is completely normal sense of ignorance. This is birth 
 
 [Go to Lecture 2](1980-07-02-Karma-WhereKarmaOriginates)
 
-[Return to main page](index.md)
+[Index](index.md)

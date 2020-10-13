@@ -456,4 +456,4 @@ Such delusions come up, always. This is really flickering. But whatever you say,
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 4](1979-06-12-Fukanzazengi-Lecture4)
 
-[Return to main page](index.md)
+[Index](index.md)

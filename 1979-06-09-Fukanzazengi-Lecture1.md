@@ -248,4 +248,4 @@ By the zazen, if you believe "I should be happy," or "I want to do something," t
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 2](1979-06-10-Fukanzazengi-Lecture2)
 
-[Return to main page](index.md)
+[Index](index.md)

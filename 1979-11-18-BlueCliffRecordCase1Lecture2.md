@@ -197,4 +197,4 @@ That’s why he says he doesn’t know the great illumination shines from under 
 
 Commentary is very helpful for you; so if you have time, read the commentary. From now on, if I have time, I would like to explain one by one. 
 
-[Return to main page](index.md)
+[Index](index.md)

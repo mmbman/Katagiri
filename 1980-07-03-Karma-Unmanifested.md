@@ -34,4 +34,4 @@ Through this human body and mind, we have to know what karma is, what is the bas
 
 
  
-[Return to main page](index.md)
+[Index](index.md)
