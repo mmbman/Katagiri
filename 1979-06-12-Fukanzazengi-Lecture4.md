@@ -4,41 +4,51 @@
 ### Dharma Talk by Dainin Katagiri Roshi
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790612.mp3)
 
-Toward end of Fukanzazengi, as the conclusion, Dogen Zenji explains how important shikantaza is from a different angle, from various way. So ... we try to learn. "In surveying the past, we find that transcendence of both unenlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen." [repeats it]
+##### 0:00 start of recording
 
-The notes given by Professor Abe (probably Masao Abe; see [translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)) says, about dying while either sitting or standing: "It is written in (???) that Bodhidharma and the fourth, fifth and sixth Zen patriarchs died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the Zen histories." So from this point ... some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under the tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is, how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died, in peace and harmony. Whatever they do, wherever they are, they died.
+Toward the end of Fukanzazengi, as a conclusion, Dogen Zenji explains how important shikantaza is from a different angle, from various way. So, little by little, we try to learn. "In surveying the past, we find that transcendence of both unenlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen." *[he repeats the quote]*
 
-So, Dogen Zenji really wants to say about how important zazen is. That zazen is shikantaza. By that shikantaza, in the shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
+The notes given by Professor Abe (probably Masao Abe; see [translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](https://en.wikipedia.org/wiki/Denkoroku) that Bodhidharma and the fourth, fifth and sixth Chinese Zen patriarchs died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the Zen histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are – they died.
 
-(4:37) Usually, in common world, we constantly persist in our selfishness, ego consciousness, in order to accomplish our own purpose in life. Kicking out everybody; persisting, adhering to our egoistic sense. And finally, they may be disinterested in human life. There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because, no one pay attention to you if you do that. Finally, those kind of people are completely isolated. 
+So, Dogen Zenji really wants to [speak] about how important zazen is. That zazen is shikantaza. In shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
+
+##### 4:37
+
+Usually in the world, we constantly persist in our selfishness, ego consciousness, in order to accomplish our own purpose in life. Kicking out everybody; persisting, adhering to our egoistic sense. And finally, they may be disinterested in human life. There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because, no one pays attention to you if you do that. Finally, those kind of people are completely isolated. 
 
 And also, you cannot do anything in peace and harmony, you cannot live with the people in the human world in peace and harmony; so finally, it is really true that you are disinterested in human life. 
 
-So, on the verge of life and death, there are some who commit suicide; kill themselves. Even though they can keep their life longer, they take their life.
+So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they can keep their life longer, they take their life.
 
-There are some that, the death compels them to die, even though they don't want to die. There are some that they scream, right before their death, because they don't like. I know lots of examples. 
+##### 6:56
 
-I took care of a young man who served (in the) army. At that time he was 30 years old. But at his house, for many, many years, he persisted, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, kicking out everybody; he did everything that he likes. Finally, there was nothing to do which caused him to be interested in. So, he was disinterested in usual daily life. So he went and entered army. 
+There are some that, the death compels them to die even though they don't want to die. There are some that scream right before their death, because they don't like [it]. I know lots of examples. 
 
-Well, he found a little bit interesting, a little bit fun there. Because there are lots of chances to kill a person, and animals, and using guns, and lots of fun there, which he had never experienced before; so, he enjoyed very much. But unfortunately, one day he fell down from the tree, while he was working on the tree, trimming the tree, with a Japanese hand saw. He fell down from the high tree. And finally, the bottom of his body completely numb. He couldn't walk. So, he was in the army hospital. 
+I took care of a young man who served [in the] army. At that time he was 30 years old. But at his house, for many, many years, he persisted, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, [he was] kicking out everybody. He did everything that he likes. Finally, there was nothing to do which caused him to be interested.... So he was disinterested in usual daily life. So, he went and entered [the] army. 
 
-But he was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself. Still, he expressed his ego, in order to accomplish his purpose of his life. Screaming at the nurses, and hitting somebody, and fighting, even though he sat down on the chair. You know the chair, using the special chair? He screams at the nurses, and fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. "Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch," I always told him. But he enjoyed very much. It was a part of his life. 
+Well, he found [it] a little bit interesting, a little bit fun there, because there are lots of chances to kill a person, and animals, and use guns; and lots of fun there which he had never experienced before, so, he enjoyed [it] very much. But unfortunately, one day he fell down from a tree, while he was working on the tree, trimming the tree, with a Japanese hand saw. He fell down from the high tree. And finally, the bottom of his body [was] completely numb. He couldn't walk. So, he was in the army hospital.
 
-And then, for three years, he got another disease, which is called - maybe a kidney didn't work. If a kidney didn't work, well, the poisons, you know, the system of, what would you say... poisons that goes around his whole body. So he couldn't have urine. So, all of a sudden, the poisons went around his body. Three days after starting to suffer from this, he died.
+But he was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself. Still, he expressed his ego in order to accomplish his purpose of his life. Screaming at the nurses, and hitting somebody, and fighting, even though he sat down on the chair. You know the chair, using the special chair? He screams at the nurses, and [is] fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. "Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch," I always told him. But he enjoyed very much. It was a part of his life. 
 
-But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do; because, there is death. He screamed.
+And then [in] three years, he got another disease... maybe a kidney didn't work. If a kidney didn't work, well, the poisons ... goes around his whole body. He couldn't have urine, so all of a sudden, the poisons went around his body. Three days after starting to suffer from this, he died.
 
-And then, when I visited there, he immediately grasped me, held me here, and said, "I don't want to die." 
+But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do, because there is death. He screamed.
 
-It was his last scene(?). At the conclusion, he had for so long persisted in his egoistic sense, in order to see his purpose, the purpose of his life. That was concluded.
+And then, when I visited there, he immediately grabbed me, held me here, and said, "I don't want to die!"
+
+It was his last [scene?]. At the conclusion, he had for so long persisted in his egoistic sense, in order to see his purpose, the purpose of his life. That was concluded.
 
 This is very common. Very common.
 
-So, for such people, they never thought significance of zazen, which causes all delusions to drop off from the first. They never thought, even glancing, even once at such a wonderful world. They don't care. That is okay. 
+##### 13:43
 
-But it is not bad to glance at that wonderful world. Even once in your whole life; that's great. It's not bad. Even though you cannot have a chance to glance at this wonderful world, even once in your whole life; but if you want to pursue this, it's not bad for us. Because life is going on. So life after life; we can do it. 
+So, for such people, they never thought [of the] significance of zazen, which causes all delusions to drop off from the first. They never thought, even glancing once at such a wonderful world. They don't care. That is okay. 
 
-(15:15) There is a Zen story in The Blue Cliff Record; the 46th case, this is very famous Zen koan: 
+But it is not bad to glance at that wonderful world. Even once in your whole life; that's great. It's not bad. Even though you cannot have a chance to glance at this wonderful world even once in your whole life; but if you want to pursue this, it's not bad for us. Because life is going on. So life after life, we can do it. 
+
+##### 15:14
+
+There is a Zen story in The Blue Cliff Record, the 46th case, this is a very famous Zen koan: 
 
 > “Kyosei Zen Master (Chinese name Jingqing; Ching Ch’ing) asked a monk, “What sound is that outside the gate?” 
 > 
@@ -151,6 +161,8 @@ And then immediately you ask it, "That is something extra." If you do this, you 
 And all we have to do is, whatever you may be, we can do same thing. That same thing is, shikantaza. Shikantaza, where all delusions drop off, from the first. It's not necessary you should find some order or demand. "Go away": you cannot say so. If you say "go away," they don't go away. Even though you say "please stay," they don't stay.
 
 That's why Dogen Zenji says, "dying while either sitting or standing, have all depended" ... no, excuse me. "We find that transcendence of both unenlightenment or enlightenment" - that is good or bad, right, wrong, qualified or not qualified, whatever you say. Transcend - this is shikantaza itself. Anyway, transcend. Death or life - transcend of death and life. And then all you have to do is, be one with death, when death comes. That is shikantaza. At that time, you can die while you're sitting. You can die while you're standing. Very naturally. You can die lying down on your bed. You can die at home ... "Have all depended entirely on the strength of zazen." This is zazen. Yes it is.
+
+##### 1:10:30 end of recording
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 
