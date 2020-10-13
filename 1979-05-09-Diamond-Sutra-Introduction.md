@@ -16,11 +16,11 @@ The second is a period in which a group of Nirvana sutras, a group of [Śrīmāl
 
 The third is the period in which a group of Yogacara sutras and a group of esoteric sutras were all compiled, after 480. 
 
-#### 3:18
+##### 3:18
 
 During the first and the second centuries, there were several great organizers and philosophers of Mahayana Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna), who lived from 150-250. And the second person was [Aryadeva](https://en.wikipedia.org/wiki/Aryadeva), who lived 170-270. And the third one is [Asanga](https://en.wikipedia.org/wiki/Asanga), who lived 310-390. Particularly Asanga established, compiled Buddhist psychology at that time. [Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu) who lived 320-400. So, we can imagine all Buddhist scriptures were compiled by those four greater organizers and philosophers of Buddhist scriptures. 
 
-#### 5:24
+##### 5:24
 
 And the first period, when a group of Prajnaparamita sutras were compiled: at that time, a group of Prajnaparamita sutras consists of, for example, Vimalakirti sutra, and Mahaprajnaparamita sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gatha in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras; the short one or long one – short and long – which set forth the doctrine of prajna and emptiness. 
 
@@ -30,7 +30,7 @@ This sutra sets forth the doctrine of [śūnyatā](https://en.wikipedia.org/wiki
 
 The Diamond Sutra – we don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by Buddha Shakyamuni. All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](https://en.wikipedia.org/wiki/Āgama_(Buddhism)), [Nikāyas](https://en.wikipedia.org/wiki/Nikāya) – the agamas are, four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases, and lots of teachings – which Buddha's disciples had heard, and had memorized. 
 
-#### 10:17
+##### 10:17
 
 At the first conference, and the second conference, and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmit teachings with the oral method, directly. 
 
@@ -40,7 +40,7 @@ Within [the] agamas, it was based on Buddha's teaching: philosophical, psycholog
 
 So in [the] agama sutras, those four dharma seals were described. And then with the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture, which is called Abhidharmakosha. 
 
-#### 13:51
+##### 13:51
 
 But during the first and the second centuries, lots of the Mahayana Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual (normal?) persons, but unusual persons, sort of genuine religious persons, who understood perfectly Buddha's teachings, and who understood perfectly the tendency of the religious thought of those days – the stream of Buddhist thought, religious thought of those days. They were really concerned about the Buddha's teaching, how they should compile Buddha's teaching, how they should transmit Buddha's teaching. So they were required, by tendency of very public religious thought, to compile Buddha's teachings based on original Buddhist teachings, based on impermanence, suffering, no self, and nirvana. 
 
@@ -50,13 +50,13 @@ Even the Vimalakirti sutra, we don't know who wrote that one. Traditionally, Vim
 
 So those authors were really genuine religious persons, who understood religious spirit mentioned by Buddha, and also tendency of the religious thought and philosophical thought of those days. 
 
-#### 17:40
+##### 17:40
 
 I want to tell you the fundamental thought of Diamond Sutra. What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
 I told you before, the last week, Diamond Sutra is quite different from Vimalakirti sutra, because Diamond Sutra is a little bit "dry". ... The Vimalakirti Sutra is more literature, Buddhist literature – beautiful. But Diamond Sutra is sort of – well, the teaching is based on philosophical Buddhist teaching. So, a little "dry". 
 
-#### 18:58
+##### 18:58
 
 The group of Prajnaparamita sutras were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons – that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called emptiness. But that emptiness is exactly expressed by conscious thought. Huge.
 
@@ -68,17 +68,17 @@ So Prajnaparamita is what is called The Perfection of Wisdom. [The] Indian peopl
 
 Wisdom is expressed – explained, described – by pretty conceptualized thing.
 
-#### 21:48
+##### 21:48
 
 So according to this, they understand wisdom and try to teach wisdom like this: Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
 In the latest Udambara, Professor Abe explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China: a little bit practical. Buddhism becomes 'practical' in order to explain Prajnaparamita not conceptually, [but] very practically. 
 
-#### 23:12
+##### 23:12
 
 For instance, you know the koan... Zen Buddhists always use a koan, but this koan is really based on Buddhist philosophy mentioned by Prajnaparamita sutra: "Mountain is mountain, mountain is not mountain, but mountain is mountain." Very practically they explain by Zen monks, just like this, for instance... 
 
-#### 24:10
+##### 24:10
 
 Oh, yes, here is a very good example. Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called Isan; his name was Isan. (Probably Guishan Lingyou, Kuei Shan Lingyu, Jpn. Isan Reiyū, 771-853.) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
 
@@ -86,21 +86,21 @@ For instance, there is a Katagiri. But this is not Katagiri, this is cow. *[he l
 
 That's sort of a Zen puzzle; but this is really based on Buddhist philosophy. A is A, but A is not A. But A is really A.
 
-#### 27:05
+##### 27:05
 
 This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, matter of existential fact, or reality – that is the point. Katagiri is one of the beings which is always floating in the stream of change. So, nothing to get. We are always chasing after something. But we cannot get it. 
 
 So important point is, the existential reality. What is existential reality? If you say Katagiri, what is his existential fact, or reality. That is a point. But usually you don't believe that; we don't say that, we don't understand in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's very shallow understanding. 
 
-#### 28:40
+##### 28:40
 
 Existential fact is very vast, very vast. Which is never limited by a certain thing called Katagiri, or buffalo, or A, or B, or C, or mountain, or river. That is existential fact or reality. Because, completely... well, what would you say... nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize. This is basic nature of being. But in the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separate. That's why, first of all, we have to deny your understanding. But... to deny is not to destroy existence. To deny is to enable you to realize something else around [the] subject you have understood. 
 
-#### 31:11 
+##### 31:11 
 
 For instance, here is a paper, white paper. At that time you say, immediately, "this is white paper." But, we don't say white paper. If we say "this is white paper," that understanding is really ... you understand only white paper. But Buddhism immediately says, "this is not white." "Not white" means to bring the other colors into your mind. "Not white" doesn't mean to destroy white; "not white" means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means, white paper, white color, doesn't exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. That is negation. That's why we have to negate first. White is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
 
-#### 33:04
+##### 33:04
 
 Do you understand? This is very simple explanation. But usually we don't understand in that way, because we understand negation as negation. But negation is not merely negation, destroy something. "No eyes, no ears, no mouth, no body, no mind" doesn't mean to destroy your eyes, your nose. If you say "no eyes," that means pay careful attention to the rest of the parts, physical parts: nose, mouth, ears, head, heart, and consciousness. Lots of things. And also, circumstances, and the nature [of] all beings. 
 
@@ -108,7 +108,7 @@ That's why eyes are eyes, but eyes are not eyes. That means, eyes are supported 
 
 If you understand eyes are eyes, this is first stage; this is very conceptualized. Everything is separate. But this is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – anyway, everything. And then at that time, eyes really work, pretty well. 
 
-#### 35:44
+##### 35:44
 
 I told you always, in Zen practice: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
@@ -116,33 +116,33 @@ This is not. If you want to play the guitar, you cannot play the guitar with two
 
 Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, your are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" *[unintelligible]* question, "How come? I am poet." "I am writer." Of course you are writer, you are musician. But - *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do. 
 
-#### 39:45
+##### 39:45
 
 And then, at that time, you can say, "I am guitar player, I am musician." Even though you don't think so, people call you; you are guitar player. And then, people don't tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that's pretty good. Sometimes you don't know when I became a writer, or when I am a great musician – you don't know. But it's not necessary. People ask you to play the guitar, to write something. 
 
 That is a great chance for you to practice, to continue to do it. 
 
-#### 40:46
+##### 40:46
 
 This is the very important point Diamond Sutra says. There are lots of expressions of, what would you say... contradictory expressions. "A is A, but A is not A, that's why we call A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. But even though you don't like your life, or you like your life – a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say, you don't like, or you like: what is life? What are you? You are still you. And your life is existent. How can you judge? 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called emptiness, *[unintelligible]*, and if you experience that emptiness it is called Buddha nature. Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
-#### 43:16
+##### 43:16
 
 And sometimes, vastness is personalized, and it's called Buddha. Because we realize vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
-#### 43:50
+##### 43:50
 
 So, who makes yourself confused? ... We ourselves make ourselves confused. That's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is intellectual understanding of human existence. Immediately we analyze existential fact; analyze it. If we analyze existential fact, we are [at?] two contradictory [aspects?]. A is A, but A is not A. Katagiri is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is Minnesota Zen Meditation Center. So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one?], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features?].
 
-#### 45:23
+##### 45:23
 
 This is very important. That's why we have to explain [ourselves?] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. Katagiri is just Katagiri; that's all. That's enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
 This is very natural. If you understand in that way, it's not necessary to [have a] complicated system of understanding: "A is A; A is not A; that's why A is A" – it's not necessary to say so. But we have to do so, because consciousness is already complicated. That's why we have to explain. That's it.
 
-#### 46:38
+##### 46:38
 
 That is characteristic of human being. Bird, dog, don't think in that way. When they feel hungry, just bite. Just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop. Don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
 
@@ -152,7 +152,7 @@ That is characteristic of human being. Bird, dog, don't think in that way. When 
 
 But dog, dog without himself, just barks at you. This is dog. No problem. But can you bark at the people? Can you bark at the people like that? *[laughter]* Of course, you can do. I can bark at you like this; but immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
 
-#### 48:27
+##### 48:27
 
 You should enjoy your life, of course. Let's enjoy. Let's enjoy our life, as you like. Of course, let's enjoy. 
 
@@ -160,13 +160,13 @@ But immediately you think, "What is the purpose of human life? What is the purpo
 
 Obviously we have to think like this. But this is beautiful, beautiful aspect of human life. Because you are human; not dog, not bird. That's why you can realize a universe in a broad [region?], and we understand people, we can figure out way to live in peace and harmony with people – not only under certain circumstances, under *all* circumstances, we can live. Because we think always like this. That's why we have to think like this.
 
-#### 49:42
+##### 49:42
 
 But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – *[unintelligible]*, everything. Nothing to separate from her or him. At that time, this ballerina [is] called great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
 
 That's why Zen Master says, "When you feel hungry, eat. When you feel asleep, sleep." But this is third stage. This is the very profound, highest level of understanding. Not just like a dog, not just like a cat. We misunderstand Zen term, "When you feel hungry, eat. When you feel sleepy, sleep." This is not first stage, first level of understanding; that is the very profound, highest level of understanding. 
 
-#### 51:30
+##### 51:30
 
 Okay. Next time, we will study one by one. 
 
@@ -178,7 +178,7 @@ He also translated the Diamond Sutra with his commentary. Those commentaries wil
 
 Okay, do you have any questions? 
 
-#### 53:00
+##### 53:00
 
 **Question**: Roshi? Do you *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
 
@@ -188,7 +188,7 @@ Okay, do you have any questions?
 
 **Katagiri**: Oh, oh, yes - of course. I am talking about that.
 
-#### 54:13
+##### 54:13
 
 **Question**: Roshi, two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. And this came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
@@ -206,7 +206,7 @@ Maybe it's connected with a previous statement. *[laughter]* ... from one senten
 
 Because we have to understand something as a whole. "A is A; A is not A." *[laughter]*
 
-#### 55:48
+##### 55:48
 
 It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it's very simple. Very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That's all. This is zazen.
 
@@ -216,7 +216,7 @@ But before, it takes time. It takes time, returning to home and settling in the 
 
 That's why we have to continue to sit. I don't know why. *[he chuckles]* But you are lucky man, anyway. You are a lucky person. 
 
-#### 58:09 end of recording
+##### 58:09 end of recording
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
