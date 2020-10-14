@@ -6,7 +6,7 @@
 
 ##### 0:00 start of recording
 
-There was a famous Zen Master named Gensha Shibi ([Chinese: Xuansha Shibei 玄沙師備](https://terebess.hu/zen/xuansha.html)) who lived from 835 to *[there is some revision of the year of death, and group laughter]* 908. And he practiced under the guidance the famous Zen Master Seppō ([Seppō Gison; Chinese: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)), who was 12-15 years older than Gensha Shibi. This story occurs in the Shobogenzo [in the fascicle] "The One Bright Pearl"; you can find this story there.
+There was a famous Zen Master named Gensha Shibi ([Chinese: Xuansha Shibei 玄沙師備](https://terebess.hu/zen/xuansha.html)) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master Seppō ([Seppō Gison; Chinese: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)), who was 12-15 years older than Gensha Shibi. This story occurs in the Shobogenzo [in the fascicle] "The One Bright Pearl"; you can find this story there.
 
 Gensha Shibi Zen Master used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained enlightenment, so he left the boat and he became a monk immediately after that. 
 
