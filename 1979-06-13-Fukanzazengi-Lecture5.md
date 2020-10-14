@@ -401,125 +401,157 @@ Without mind, you cannot do zazen.
 
 ##### 1:17:17
 
-**Question**: Roshi? I wonder ... but like when so much, not just thought, but lot of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed(?)
+**Question**: Roshi? I wonder *[unintelligible]* but like when so much, not just thought, but lots of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed. *[she laughs]*
 
-***Katagiri***: Yes. That is your life, don't you think? [group laughter] That's why I told you, that is your life. "Zipping", and squeezing(?) ... I understand. That's nice... [more group laughter]
+**Katagiri**: Yes. That is your life, don't you think? *[he and others laugh]* That's why I told you, that is your life. "Zipping", and squeezing ... *[laughter]* I understand. That's nice, *[unintelligible]* *[more laughter]*
 
-***same person***: ... What do you do?
+**Same person**: ... What do you do?
 
-***Katagiri***: Why do I do? 
+*[laughter]*
 
-***same person***: What.
+**Katagiri**: Why do I do? 
 
-***Katagiri***: What do I do? 
+**Multiple people**: What.
 
-***same person***: Yeah, sure. What do you do? About all the zipping. It doesn't feel like calm, centered anything; it feels like a mess.
+**Katagiri**: What do I do? 
 
-***Katagiri***: So I told you sometimes: pat your head. Pat your head, and quiet. "Quiet, little girl. Do it quietly." It's pretty good, don't you think, (if) even for a moment, you can do. But zazen is very good chance, very good chance - you can do very quietly. You are really centered. But your daily living is pretty hard, that's why, pat your head, and "let's do it." Even for a moment. 
+**Same person**: Yeah, sure. What do you do? About all this zipping. It doesn't feel like calm, centered anything; it feels like a mess.
 
-You can do it. That's all we have to do, because we have to do zazen itself. Instead of being involved in the zipping and running, et cetera. Do you understand?
+**Katagiri**: So I told you sometimes: pat your head. Pat your head, and, "Quiet, little girl. Quiet. Do it quietly." It's pretty good, don't you think, if even for a moment, you can do. But zazen is a very good chance, very good chance – you can do [it] very quietly, you are really centered. But your daily living is pretty hard, that's why, pat your head, and "let's do it." Even for a moment. 
 
-***same person***: Well, I understand over here. Over here, I can't do it.
+You can do it. That's all we have to do, because we have to do zazen itself, instead of being involved in the zipping and running, et cetera. Do you understand?
 
-***Katagiri***: Oh, you can do it. But you don't believe it; that's the point. For instance, dancing: you are dancing, don't you think? You are dancing, and right in the middle of dancing - what is the dance? Dancing itself is just dancing itself; no pain, no suffering, just dance going on. If you create the problem, you immediately look at the after dance and before dance. And then immediately after dance, there are lots of beings exist; audience, your feelings, your emotions, circumstances, orchestras; many things. And then your mind starts to attach to it; picking. And then you don't feel good. That means immediately your life goes "zip". To the right, to the left; zip, zip, zip. That's (???). So, all you have to do is, just look at dance. 
+**Same person**: Well, I understand over here. Over here, I can't do it.
 
-(1:20:42) So all you have to do is, after the dance, well, just practice dance. 
+**Katagiri**: Oh, you can *do* it. But you don't believe it, that's the point. For instance, dancing: you are dancing, don't you think? You are dancing, and right in the middle of dancing – what is the dance? Dancing itself is just dancing itself; no pain, no suffering, just dance going on. If you create the problem, at that time you immediately look at the after dance and before dance. And then immediately after dance, there are lots of beings [that] exist: audience, your feelings, your emotions, and circumstances, orchestras; many things. And then your mind starts to attach to it, picking. And then you don't feel good. That means immediately your life goes "zip". To the right, to the left; zip, zip, zip. That's busy. So, all you have to do is, just look at dance. 
 
-So, right in the middle of dance - nothing. No zipping, no suffering, no pain - can you imagine? 
+So all you have to do is, after the dance, well, just practice dance. 
 
-***same person***: Mmm. Dancing, I can imagine.
+So, right in the middle of dance – nothing. No zipping, no suffering, no pain. Can you imagine? 
 
-***Katagiri***: Sure. Same. 
+**Same person**: Dancing, I can imagine.
 
-The atmosphere is different doing zazen. It's different. Dancing is total movement, dynamic, but zazen is stillness. That's a point; different appearance. But exactly content is the same. And also after dance, there is different things; the pros and cons, failures and successes, many things. But zazen is completely zazen. That's quiet, always. No pros and cons, feelings, anything. That's a different point. 
+**Katagiri**: Sure. Same. 
 
-That's why we have to emphasize always zazen itself. Dance itself. But dancer as artist, you have to deal with dance itself, and also after dance, and also before dance. That means always looking at your life in the time process. This is a very common dualistic world. That's why life becomes busy. But, if you really want to be free, experience freedom as a dancer, actually, from the beginning to end, just perform the dance. Quality of dance. Completely beyond judgement. Judgement is something you are involved in just on the surface. So just accept. So that surface is sort of the weeds; but weeds will be wonderful fertilizer for you. That's why, accept. And then all you have to do is, basically, you must be freedom. You must get freedom of the zazen; of the dance. That means: practice dance itself. You have to find yourself right in the middle of dance itself. So, you can stand up. In the realm of criticism, and judgment, and lots of things - you can stand up there.
+The atmosphere is different doing zazen; it's different. Dancing is total movement, dynamic, but zazen is stillness. That's a point; different appearance. But exactly content is the same. And also, after dance there are different things: the pros and cons, failures and successes, many things. But zazen is completely zazen. That's quiet, always; no pros and cons, feelings, anything. That's a different point. 
+
+That's why we have to emphasize always zazen itself,  dance itself. But [the] dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dancing. That means always looking at your life in the time process. This is a very common dualistic world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform the dance. Quality of dance [is?] completely beyond judgement. Judgement is something you are involved in just on the surface. So just accept. 
+
+So that surface is sort of the weeds; but weeds will be wonderful fertilizer for you. That's why, accept. And then all you have to do is, basically, you must be freedom. You must get freedom of the zazen, of the dance. That means: practice dance itself. You have to find yourself right in the middle of dance itself.
+
+So, you can stand up. In the realm of criticism, and judgment, and lots of things - you can stand up there.
 
 Is that okay? So-so?
 
 Your question is, what do I do right in the middle of zipping, and ...?
 
-***same person***: In zazen. I understand the dance move, but in zazen I can't find that...
+**Same person**: In zazen. I understand the dance a little bit. In zazen I can't find that...
 
-***Katagiri***: Focus.
+**Katagiri**: Focus. Center.
 
-***same person***: Yeah, I can't find it at all.
+**Same person**: Yeah, I can't find it at all.
 
-***Katagiri***: That is pretty good for you, because you can vomit lots of the stinks of your mind that have accumulated from the past. So you have lots of things, okay? So in zazen, you can vomit. Spit up.
+**Katagiri**: That is pretty good for you, because you can vomit lots of the stinks of your mind that have accumulated from the past. So you have lots of things, okay? So in zazen, you can vomit. Spit up.
 
-***same person***: So eventually, I can ... ?
+**Same person**: So eventually, I can ... ?
 
-***Katagiri***: Sure. 
+**Katagiri**: Sure. 
 
-***same person***: So is spitting it up zazen too?
+**Same person**: So is spitting it up zazen too?
 
-***Katagiri***: Sure. 
+**Katagiri**: Sure. 
 
-[group laughter]
+*[some laughter]*
 
-If you spit up zazen, even spit up zazen, yes, it's good. Because if you do zazen, "I did zazen," that is also, you create something new. So whatever thing, you will spit up. Okay?
+Even spit up zazen, yes, it's good. Because if you do zazen [like] "I did zazen," that is also [when] you create something new. So whatever thing, you will spit up. 
 
-***Question***: Roshi? I don't know, kind of relating to what [name] is saying. Seems like you always... the feeling I get about the way you teach zazen is from what I would call a very pure point of view. Just like, if you're going to enter into non duality, you just enter into it. You just sit down and do zazen; you enter into non duality. And it seems like that, to me, that's the point you always emphasize. It seems like you really stay away from complicating us, by giving us, saying well you work through these levels of consciousness, and you have to go through these various stages. But to me, like, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in Tibetan Buddhism, how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
+Okay?
 
-***Katagiri***: Well, I don't know; I'm teaching, I'm talking about the zazen in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. Now that means, I don't mean that I try to escape. Because we have to be centered. If you're not centered, whatever kind of you do, you are confused. So important point is, you must be centered. If you are centered, you can handle many things in proper way. So, my purpose is, my focus is, to zazen in which we must be free, perfectly free. So, [laughs] if you're involved in lots of things. The technique, and, well... that's endless. Endlessly, there are lots of techniques. Of course, Buddhism teaches in that way. But main focus of Buddhism, Buddhist system, is not being constantly involved in technique like this. So if you're interested in that sort of technique, you must go someplace; Yoga, because Yoga is better than the Buddhism. 
+##### 1:25:31
 
-***same person***: But it seems like it would be encouraging to...
+**Question**: Roshi? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach zazen is what I would call a very pure point of view. Just like, if you're going to enter into non duality, you just enter into it. You just sit down and do zazen; you enter into non duality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us, by giving us, saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in Tibetan Buddhism, how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
 
-***Katagiri***: Of course; that's why I suggest you to go Yoga and study. But I don't know the yoga is perfectly allows you to be free. I don't know.
+**Katagiri**: Well, I don't know; I'm talking about the zazen in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. *[he laughs]* Now ... I don't mean that I try to escape. Because we have to be centered. If you're not centered, whatever kind of [thing] you do, you are confused. So important point is, you must be centered. If you are centered, you can handle many things in [a] proper way. So, my focus is ... the zazen in which we must be free, perfectly free. 
 
-***same person***: Yeah, I believe that. For me, I believe that Zen is the most direct and purest...
+So, *[he laughs]* if you're involved in lots of things, [lots of] techniques – well, that's endless. Endlessly, there are lots of techniques. So of course, Buddhism teaches in that way, but [the] main focus of Buddhism, [the] Buddhist system, is not being constantly involved in the technique like this. So if you're interested in that sort of technique, you must go someplace [else]. Yoga [for example], because Yoga is better than Buddhism [for that].
 
-***Katagiri***: No I don't believe so. [laughs] You believe, that's okay. 
+**Same person**: But it seems like it would be encouraging to...
 
-[group laughter]
+**Katagiri**: Of course; that's why I suggest you to go to the Yoga and study. But I don't know that Yoga perfectly allows you to be free. I don't know.
 
-***same person***: Well, how about, for instance, some of these Rinzai teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from dualism; that's 'me' having satori. And so that's dualistic satori; that's not real satori.
+**Same person**: Yeah, I believe that. For me, I believe that Zen is the most direct and purest...
 
-***Katagiri***: Yes, yes. Okay, sure.
+**Katagiri**: No, I don't believe so. *[he laughs]* You believe, that's okay. *[group laughter]*
 
-***same person***: But it might be encouraging to have dualistic satori, just to understand it. In Rinzai they say, it's important to have that understanding, to know what's going on.
+**Same person**: Okay.
 
-***Katagiri***: Right, right. Right.
+Well, how about, for instance, some of these Rinzai teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from dualism; that's "me" having satori, and so that's dualistic satori, that's not real satori.
 
-***different person***: Give him some hope, Roshi. 
+**Katagiri**: Yes, yes. Okay, sure.
 
-[crosstalk]
+**Same person**: But it might be encouraging to have dualistic satori, just to understand it. In Rinzai they say, it's important to have that understanding, to know what's going on.
 
-***Katagiri***: Yes beautiful; that's why Rinzai emphasizes why don't you attain enlightenment. So, if the enlightenment is beautiful, it's okay. 
+**Katagiri**: Right, right. Right.
 
-***same person***: But you're still saying that that's dualistic enlightenment, and so that's unnecessary. 
+**Different person**: Give him some hope, Roshi. 
 
-***Katagiri***: I think so. What it is, real enlightenment. Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is, well, nothing to say. Nothing to show. 
+*[there is some crosstalk]*
 
-(1:31:53) [sighs] I'm sorry.
+**Katagiri**: Yes, beautiful. That's why Rinzai emphasizes, "Why don't you attain enlightenment?" So, if the enlightenment is beautiful, it's okay. 
 
-***Question***: Roshi? How is the zazen that we do for future generations?
+**Same person**: But you're still saying that that's dualistic enlightenment, and so that's unnecessary. 
 
-***Katagiri***: Well, if you do zazen, not zippy zazen, if you do real shikantaza, that is really good zazen for generation.
+**Katagiri**: I think so. What [is it], real enlightenment? Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is – well, nothing to say. Nothing to show. 
 
-***same person***: *Why*?
+*[he sighs]* I'm sorry.
 
-***Katagiri***: Why? Because you can transmit. You can transmit yourself, how sublime your life is, through that zazen. You can see the picture of life, existence. You can transmit how important problem of life and death, to future generations.
+##### 1:32:00
 
-***Question***: Roshi? Is pain doing zazen, ... ?
+**Question**: Roshi? How is the zazen that we do for future generations?
 
-***Katagiri***: Exists. Yes. But in real zazen - no. No pain. 
+**Katagiri**: Well, if you do zazen, and not zippy zazen, if you do real shikantaza, that is really good zazen for generations.
 
-***same person***:  It doesn't exist.
+**Same person**: *Why*?
 
-***Katagiri***: No. The pain you believe exists is sort of dregs, you can pick up. 
+**Katagiri**: Why? Because you can transmit. You can transmit yourself, how sublime your life is, through that zazen. You can see the picture of life, existence. You can transmit how important [the] problem of life and death [is], to future generations.
 
-For instance, I always tell you that talking like this, and doing zazen like the posture for full lotus and half lotus for two hours, I don't feel pain. But pain exists here; but I don't feel pain. Now I feel pain, because I'm paying attention to it. So, the pain is here; exists. But pain doesn't exist. When I just be here, pain completely becomes one with me. So, no pain. But if you say "that's pain", it is already some dregs, you can see after experience of pain. After real pain, or before pain.
+##### 1:32:54
 
-[tape change]
+**Question**: Roshi? *[unintelligible]* pain during zazen *[unintelligible]* does it exist at all?
 
-***Question***: Roshi. When Dogen says, "From the beginning, dullness and distraction are struck aside," what does he mean, "from the beginning"? 
+**Katagiri**: [Pain] exists. 
 
-***Katagiri***: Simultaneously, with zazen. Even though there is demand, no (???), no effort: dullness, distraction, drop off. 
+**Question**: During zazen *[unintelligible]*?
+
+**Katagiri**: Yes. But in real zazen – no. No pain. 
+
+**Same person**: It doesn't exist.
+
+**Katagiri**: No. The pain you believe exists is sort of dregs you can pick up. 
+
+For instance, I always tell you that talking like this, and doing zazen like the posture for full lotus and half lotus for two hours, I don't feel pain. The pain exists here; but I don't feel pain. *Now* I feel pain, because I'm paying attention to it. So, the pain *is* here; [it] exists. But pain doesn't exist. When I just be here, pain completely becomes one with me. So, no pain. But if you say, "that's pain", it is already some dregs [that] you can see *after* [the] experience of pain. After real pain, or before pain.
+
+*[tape change]*
+
+##### 1:34:28
+
+**Question**: Roshi? When Dogen says, "From the beginning, dullness and distraction are [struck aside]," what does he mean, "From the beginning"? 
+
+**Katagiri**: Simultaneously.
+
+**Same person**: With what?
+
+**Katagiri**: With zazen. Even though there is demand, no *[unintelligible]*, no effort: dullness [and] distraction drop off. 
 
 Drop off means, become one with zazen. In other words, absorb into zazen.
 
 That is from the first.
+
+**Same person**: *[unintelligible]*
+
+**Katagiri**: Hmm-hmm.
+
+##### 1:35:31 end of recording
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 
