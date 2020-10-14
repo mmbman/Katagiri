@@ -405,7 +405,7 @@ Without mind, you cannot do zazen.
 
 ##### 1:17:17
 
-**Question**: Roshi? I *[unintelligible]*, but like when so much, not just thought, but lots of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed. *[she laughs]*
+**Question**: Roshi? I *[unintelligible]*, but when so much, not just thought, but lots of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed. *[she laughs]*
 
 **Katagiri**: Yes. That is your life, don't you think? *[he and others laugh]* That's why I told you, that is your life. "Zipping", and squeezing ... *[laughter]* I understand. That's nice, *[unintelligible]* *[more laughter]*
 
