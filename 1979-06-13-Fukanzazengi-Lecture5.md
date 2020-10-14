@@ -333,59 +333,75 @@ Okay?
 
 **Question**: Roshi? I have a question on what is the best thing to do when you're feeling burned out from doing concentrated zazen. Like when you sit and you see all thoughts coming, and you know that you can really put effort, and really get with the zazen from the thoughts, but you're just not willing to put the effort out. Or, you could put your body in a position where there was a lot of pain...
 
-***Katagiri***: When we think, "I should keep away from the thoughts," or, "I shouldn't," or, "I don't care," whatever you say - that is something extra. Something extra, you are involved in. That is all things - anyway, you can see after doing zazen. After real experience. Always we see this. 
+**Katagiri**: When we think, "I should keep away from the thoughts," or "I shouldn't," or "I don't care," – whatever you say, that is something extra. Something extra you are involved in. [Those are] all things you can see *after* doing zazen, after [the] real experience. Always we see this. 
 
-The point is, if we see thoughts, many thoughts, sometimes, with our consciousness, consciousness gets exhausted. But actually, it's not necessary to worry about. Because, if you experience real exhaustion, exhaustion itself knows pretty well what to do next. So, if you get exhaust, well, that's too much. It's not necessary to be concerned about "that's too much." If you think "that's too much," it really makes you exhausted *more*, and psychologically, and physically. So "I exhaust": if you do zazen, everyone exhaust, physically. But mentally... mental exhaustion is a little bit complicated. If you see physical exhaustion: "oh, tired". And then it's, "ooooh, tired." Very different, don't you think so? [first one sounds more matter-of-fact; second one sounds more drawn out and perhaps melodramatic] And then, "I don't want it." That is already mental exhaustion. So, you add to physical exhaustion, something extra, always. 
+The point is, if we see many thoughts with our consciousness, sometimes consciousness gets exhausted. But actually it's not necessary to worry about [it], because if you experience real exhaustion, exhaustion itself knows pretty well what to do next. So, if you get exhausted – well, that's too much. It's not necessary to be concerned about "that's too much." If you think "that's too much," it really makes you exhausted *more*, psychologically and physically. So "I [am] exhaust[ed]": if you do zazen, everyone [gets exhausted?] physically. But mental exhaustion is a little bit complicated. If you see physical exhaustion: "Oh, tired". And then it's, "Oooooh, tired." *[the first one sounds more matter-of-fact; second one sounds more drawn out and perhaps melodramatic]* Very different, don't you think so?  And then: "I don't want it." That is already mental exhaustion. So you add to physical exhaustion something extra, always. 
 
-(1:04:37) So, actually, physical exhaustion itself knows pretty well what to do next. Because, exhaustion itself itself has no abode. No abode; emptiness. So, if you exhaust, in zazen, you never die. You never die; you feel good after that. 
+So actually, physical exhaustion itself knows pretty well what to do next. Because, exhaustion itself itself has no abode. No abode; emptiness. So, if you exhaust [yourself] in zazen, you never die. You never die; you feel good after that. Don't you think so?
 
-***same person***: Well, so maybe exhaustion isn't the right word, Roshi. It's a state like, where I can be sitting, and pretty quiet, you know, not moving a lot, because I'm in a position where I'm not in a lot of pain, in an easier position. And, it's like the thoughts keep coming, and keep coming, and keep coming. And it's like how you live your everyday life; you know, you walk around the street and all these thoughts keep coming. And I feel like I can go on like that for months, and that to stop that would take a lot of effort, but I just don't have it to put the effort out.
+**Same person**: Well, so maybe exhaustion isn't the right word, Roshi. It's a state like, where I can be sitting, and pretty quiet, you know, not moving a lot, because I'm in a position where I'm not in a lot of pain, in an easier position. And, it's like the thoughts keep coming, and keep coming, and keep coming. And it's like how you live your everyday life; you know, you walk around the street and all these thoughts keep coming. And I feel like I can go on like that for months, and that to stop that would take a lot of effort, but I just don't have it to put the effort out.
 
-***Katagiri***: But, mostly, even in your daily living, you cannot chase after each thought you have had. Don't you think? You throw away most of the thoughts that you have had. For instance, if walk on the street, maybe you are caught by some ideas, "Oh, I want to go to Japan." But, sometimes, "Oh, it's ridiculous." Even if you don't say it's ridiculous - you completely forget. And then another thought comes up, and then, if you are interested in certain ideas, you just attach to for a certain moment. Certain period of time. So you are always handling just the one thought, one views. That's all. And then, another thought comes up, and then if you are not interested, you can throw away pretty easily. We do, always. But in zazen, problem is, in the zazen, the surroundings are completely quiet. And also, the surroundings are limited, what is called zazen. It's a small room. So mind cannot stand up [chuckles] in small room, because mind wants to run wild in the universe. Completely beyond time and space. Going to Europe, going to Japan, always; this is characteristic of mind. But if you sit down and let the mind rest in the small room, which is called zazen: mind cannot stand up. It's very hard. That's why mind becomes more picky of it's thoughts. Do you understand? 
+##### 1:05:39
 
-But actually, you do always, in your daily living, exactly as the zazen. Difference is that your mind is more picky than usual daily life. That's all. That's why you are confused pretty easily. But in daily living, very naturally, automatically, you throw away what you have to do, even though you don't think. Throw away, and you can pick up one thing, and immediately another thing comes up from outside, so you don't have enough time to meddle with it, so you handle another thing. But, strictly speaking, you always handle one thing. 
+**Katagiri**: But, mostly, even in your daily living, you cannot chase after each thought you have had. Don't you think? You throw away most of the thoughts that you have had. For instance, if walk on the street, maybe you are caught by some ideas: "Oh, I want to go to Japan." But, sometimes: "Oh, it's ridiculous." Even if you don't say it's ridiculous, you completely forget. And then another thought comes up, and then, if you are interested in certain ideas, you just attach to [them] for a certain moment, a certain period of time. So you are always handling just the one thought, one view. That's all. And then, another thought comes up, and then if you are not interested, you can throw [it] away pretty easily. We do [this] always. But in zazen, problem is ... the surroundings are completely quiet. And also, the surroundings are limited, what is called zazen. It's a small room. So mind cannot stand up *[he chuckles]* in [a] small room, because [the] mind wants to run wild in the universe, completely beyond time and space. Going to Europe, going to Japan, always; this is characteristic of mind. But if you sit down and let the mind rest in the small room, which is called zazen: mind cannot stand up. It's very hard. That's why [the] mind becomes more picky of it's thoughts. Do you understand? 
 
-***same person***: I understand what you're saying. It doesn't feel to me like really doing zazen. It's not really doing zazen. And yet, it feels like I could do a 20-day sesshin this way. 
+But actually, you do [let go of thoughts] always in your daily living, exactly as the zazen. [The] difference is that your mind is more picky than usual daily life. That's all. That's why you are confused pretty easily. But in daily living, very naturally, automatically, you throw away what you have to do, even though you don't think [about it]. Throw away, and you can pick up one thing, and immediately another thing comes up from outside, so you don't have enough time to meddle with it, so you handle another thing. But, strictly speaking, you always handle one thing. 
 
-***Katagiri***: That's why I told you, mind is more picky. That's why mind don't believe that zazen is not real zazen. 
+**Same person**: I understand what you're saying. It doesn't feel to me like really doing zazen. It's not really doing zazen. And yet, it feels like I could do a 20-day sesshin this way. 
 
-***same person***: I don't think I understand. 
+**Katagiri**: That's why I told you, mind is more picky. That's why mind doesn't believe; that zazen is not real zazen. 
 
-***Katagiri***: Mind. Mind is more picky. Of your thoughts and ideas, in calm circumstances, surroundings, which is called zazen. That's why mind doesn't believe. Mind feels always; mind always pokes its head into many thoughts, many ideas. And then, he feels good, mind feels good if let it go. But actually surroundings are very quiet. And also, mind always sees something after and before. That means, analyze. Dichotomize, always. That's why mind, what mind can do is, to pick up something, after you have done. That is feeling, and that is experience, that is feeling of zazen. Boredom(?) and enjoyment about the same. 
+**same person**: I don't think I understand. 
 
-***same person***: So are you saying then that even though it seems like what I do outside, but in fact because I'm sitting zazen and doing this, it's still different? What I'm doing with my mind?
+**Katagiri**: Mind. [The] mind is more picky of your thoughts and ideas in calm circumstances, surroundings, which is called zazen. That's why [the] mind doesn't believe. Mind *feels* always. Mind always pokes its head into many thoughts, many ideas. And then, ... mind feels good if [you] let it go. But actually surroundings are very quiet. And also, mind always sees something after and before. That means, analyze, [and] dichotomize, always. That's why what mind can do is, to pick up something, after you have done. That is feeling, and that is experience; that is feeling of zazen. [Boredom?] and enjoyment about the same. 
 
-***Katagiri***: I beg your pardon.
+**Same person**: So are you saying then that even though it seems like what I do outside, but in fact because I'm sitting zazen and doing this, it's still different? What I'm doing with my mind?
 
-***same person***: Are you saying that what I'm doing with my mind while I'm sitting, even though it seems like what I do when I'm not sitting, still it's different? 
+**Katagiri**: I beg your pardon.
 
-***Katagiri***: It's different because you can see the mind a little clearer. That's why mind, you can see lots of things in zazen. But in zazen, you are very confused because you have not enough time to involve in mind, because nothing to do, circumstances are very quiet. But ... lots of things. So, important point is, in zazen, whatever happens in the vomit. Vomit. The vomit means, vomit of mind. [chuckles] Mind has lots of things (it's) attaching to. So, vomit. Mind feels good, mind doesn't feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sitting here. All you have to do is, just sit. 
+##### 1:10:42
 
-***same person***: Yeah, I understand that. One thought that I had about it, Roshi, is that sometimes it feels like building up bad habits in zazen. That if I'm going to sit, I should sit with effort. I shouldn't get in the habit of sitting with no effort. That's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
+**Same person**: Are you saying that what I'm doing with my mind while I'm sitting, even though it seems like what I do when I'm not sitting, still it's different? 
 
-***Katagiri***: Well the point is just to spit out. But, you shouldn't think that, in that way. If you think in that way, "I am creating bad habit," that is extra. So immediately, you create another thing. So just spit up. Because this is the mind. Your mind, your life. So, don't feel bad in that way; don't involve in that mind in that way. Just spit up. If your mind slips off, going to Europe, well let it go back. That's all. But when you go back, at that time you think, "That is bad habit" - that is extra.
+**Katagiri**: It's different because you can see the mind a little clearer. That's why you can see lots of things in zazen. But in zazen, you are very confused because you have not enough time to involve [yourself] in mind, because nothing to do, circumstances are very quiet. But *[unintelligible]* lots of things. So, [the] important point in zazen is, whatever happens in the "vomit". Vomit. The vomit means, anyway, *[he chuckles]* vomit of [the] mind.  Mind has lots of things [it's] attaching to. So, vomit. Mind feels good, mind doesn't feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sit here. All you have to do is just sit.
 
-***same person***:  What if you don't ever want to bring it back? 
+##### 1:12:16
 
-***Katagiri***: Well that is about the same. Even though your mind is always staying in Europe, it is same. Even though you come back here, it's same, not different. It means you are already involved in something after zazen. That's all. So we shouldn't involve in this. Because all of Europe, and the mind, everything, right in the middle of zazen. So very naturally it comes up. So all you have to do is, just be centered. Okay?
+**Same person**: Yeah, I understand that. One thought that I had about it, Roshi, is that sometimes it feels like building up bad habits in zazen. That if I'm going to sit, I should sit with effort; I shouldn't get in the habit of sitting with no effort. That's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
 
-[laughs]
+**Katagiri**: Well the point is just to spit [up]. But, you shouldn't think that, in that way. That's all. If you think in that way, "I am creating bad habit," that is extra. So immediately, you create another thing. So just spit up. Because this is the mind; your mind, your life. So, don't feel bad in that way; don't involve in that mind in that way. Just spit up. If your mind slips off, going to Europe, well let it go back. That's all. But when you go back, if at that time you think, "That is a bad habit" – that is extra.
 
-(1:14:34) ***Question***: You said mind has a tendency to go before zazen, and after zazen.
+**Same person**: What if you don't ever want to bring it back? You know, what if you're sitting there *[unintelligible]* in Europe?
 
-***Katagiri***: Because characteristic of dichotomize, analyze.
+**Katagiri**: Well that is about the same. Even though your mind is always staying in Europe, it is the same. *[laughter]* Even though you come back here, it's the same, not different. It means you are already involved in something *after* zazen. That's all. So we shouldn't involve in this. Because all of Europe, and the mind, everything, [is] right in the middle of zazen. So very naturally it comes up. Okay? So all you have to do is, just be centered.
 
-***same person***: Is it possible for mind to go on zazen?
+*[he laughs]*
 
-***Katagiri***: Yes. Yes, it is. That's why I told you, let the mind do zazen, with you.
+##### 1:14:34
+
+**Question**: You said mind has a tendency to go before zazen, and after zazen.
+
+**Katagiri**: Because characteristic of [mind is to] dichotomize, analyze.
+
+**Same person**: Is it possible for mind to go *on* zazen?
+
+**Katagiri**: Yes!
+
+**Same person**: Oh, it is!
+
+**Katagiri**: Yes, it is. *[someone laughs]* That's why I told you, let the mind do zazen, with you.
 
 Without mind, you cannot do zazen.
 
-***Question***: Roshi. I think you told the story of Gensha several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced enlightenment at that time. 
+##### 1:15:12
 
-***Katagiri***: I don't think he felt bad; maybe according to common sense, he felt bad, because he died. But he felt something deeper. Why he has to die now? For stumbling on the boat? Why? That is, maybe he really felt strongly, the true picture of human life, based on impermanence, transiency. But he tried to help. But in the history, well, some history says he pushed him in the water. Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay; I understand this. But it's not necessary to think that. Maybe someone added it to the story. Anyway, it was reality which his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
+**Question**: Roshi. I think you told the story of Gensha several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced enlightenment at that time. 
 
-(1:17:17) ***Question***: Roshi? I wonder ... but like when so much, not just thought, but lot of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed(?)
+**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on impermanence, transiency. He tried to help. But in the history, well, some history says ... Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
+
+##### 1:17:17
+
+**Question**: Roshi? I wonder ... but like when so much, not just thought, but lot of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed(?)
 
 ***Katagiri***: Yes. That is your life, don't you think? [group laughter] That's why I told you, that is your life. "Zipping", and squeezing(?) ... I understand. That's nice... [more group laughter]
 
