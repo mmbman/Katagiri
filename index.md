@@ -1,4 +1,4 @@
-These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). It's best to read these transcripts while listening to the audio recordings, which are referenced in each talk. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
+These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). You can read these transcripts while listening to the audio recordings, which are referenced in each talk. For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
 # Transcripts in Chronological Order
 
