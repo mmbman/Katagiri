@@ -8,7 +8,7 @@
 
 **Katagiri**: Toward the end of Fukanzazengi, as a conclusion, Dogen Zenji explains how important shikantaza is from a different angle, from [a] various way. So, little by little, we try to learn. "In surveying the past, we find that transcendence of both unenlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen." *[he repeats the quote]*
 
-The notes given by Professor Abe (probably Masao Abe; see [translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](https://en.wikipedia.org/wiki/Denkoroku) that Bodhidharma and the fourth, fifth and sixth Chinese Zen patriarchs died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the Zen histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are – they died.
+The notes given by Professor Abe ([Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe); see [translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](https://en.wikipedia.org/wiki/Denkoroku) that Bodhidharma and the fourth, fifth and sixth Chinese Zen patriarchs died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the Zen histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are, they died.
 
 So, Dogen Zenji really wants to [speak] about how important zazen is. That zazen is shikantaza. In shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
 
@@ -32,9 +32,9 @@ And then [in] three years, he got another disease... maybe a kidney didn't work.
 
 But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do, because there is death. He screamed.
 
-And then, when I visited there, he immediately grabbed me, held me here, and said, "I don't want to die!"
+And then, when I visited there, he immediately grabbed me, held me here, and he said, "I don't want to die!"
 
-It was his last [scene?]. At the conclusion, he had for so long persisted in his egoistic sense, in order to see his purpose, the purpose of his life. That was concluded.
+It was his last scene. At the conclusion, he had for so long persisted in his egoistic sense, in order to see his purpose, the purpose of his life. That was concluded.
 
 This is very common. Very common.
 
@@ -66,7 +66,7 @@ There is a Zen story in The Blue Cliff Record, the 46th case, this is a very fam
 
 What Kyosei asked the monk – his ... question is something [with] which Kyosei Zen Master raked [the] monk's mind [to see] how much his practice was going on. So, "What sound is that outside the gate?" The monk said, "The sound of raindrops." But, [the] teacher didn't ask [for the] sound of the raindrop[s]; he asked [for the] raindrop[s] themselves.
 
-But he used the words, "What's the sound outside of the gate?" So, the monk said, "That is [the] sound of raindrops." You know the sound. [The] sound is not [the] raindrops. Raindrops are raindrops. But [the] sound comes from where? Raindrops. But [the] sound is not raindrops. It's very clear, don't you think so? Because raindrops are, anyway, *raindrops*. I cannot say – well, raindrops are active, moving, very active. Becoming one, or from [the] merging of raindrops and Earth and Universe, at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, "some raindrops." That is already something *extra*, don't you think so? 
+But he used the words, "What's the sound outside of the gate?" So, the monk said, "That is [the] sound of raindrops." You know the sound. [The] sound is not [the] raindrops. Raindrops are raindrops. But [the] sound comes from where? Raindrops. But [the] sound is not raindrops. It's very clear, don't you think so? Because raindrops are, anyway, *raindrops*. ... Raindrops are active, moving, very active. Becoming one, or from [the] merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, "some raindrops." That is already something *extra*, don't you think so? 
 
 ##### 19:02
 
@@ -82,9 +82,9 @@ And then the Zen Master points out: well, pay attention. That [previous answer] 
 
 ##### 21:32
 
-Yes, we are inverted. This is [spiritual?], don't you think so? You're sitting here. How much can you sit? What is the sound of your shikantaza? You say, "Yes, sound; that is a sound." What is the sound in you? You say, "sound of shikantaza," but it's too late, because real shikantaza has gone already. And then you catch the sound from the shikantaza, and when you grasp it: "that is shikantaza." It's not shikantaza – you are already inverted. Don't you think so? 
+Yes, we are inverted. This is spiritual, don't you think so? You're sitting here; how much can you sit? What is the sound of your shikantaza? You say, "Yes, sound; that is a sound." What is the sound in you? You say, "sound of shikantaza," but it's too late, because real shikantaza has gone already. And then you catch the sound from the shikantaza, and when you grasp it: "that is shikantaza." It's not shikantaza – you are already inverted. Don't you think so? 
 
-... And then finally, you follow after that again and again. What happens after that, after following after things? After things means, sound. You know that Dogen Zenji says, I told you often, the moment consists of 60 instances (instants?). So what you can hear, the moment, is sound of the moment. *[he snaps his fingers]* Like this. But, this one moment *[finger snap]* consists of 60 instances. If it is true – what did you hear? What in the moment have you heard? *[snap]* This sound, don't you think so? But this sound, the moment, is nothing but sort of dregs after you squeeze the 60 instances. And then you got the one grip of the raindrops, just the raindrops: "I've got it." But that is one moment – already, 60 instants you have missed! So how can you know? 
+And then you judge immediately, and then finally, you follow after that again and again. What happens after that, after following after things? After things means, sound. You know that Dogen Zenji says, I told you often, the moment consists of 60 instants. (Katagiri says "instances," but he probably means "instants"; that is probably the better translation.) So what you can hear, the moment, is sound of the moment. *[he snaps his fingers]* Like this. But, this one moment *[finger snap]* consists of 60 instants. If it is true – what did you hear? What in the moment have you heard? *[snap]* This sound, don't you think so? But this sound, the moment, is nothing but sort of dregs after you squeeze the 60 instants. And then you got the one grip of the raindrops, just the raindrops: "I've got it." But that is one moment – already, 60 instants you have missed! So how can you know? 
 
 ##### 24:05
 
@@ -98,7 +98,7 @@ But, you shouldn't lose sight of yourself, and also you shouldn't follow after t
 
 ##### 26:59
 
-So, he doesn't stay there. He knows the sound of the raindrop but it is not the raindrop. So he knows pretty well; that's why he doesn't stay there. If he doesn't stay with the sound of the raindrop, he doesn't lose himself. But without [the] sound of the raindrop, he cannot understand the raindrops as they are; that's why he loses sight of himself. Do you understand? That's why his activity, his relationship between the raindrop and his life, is always moving, dynamically.
+So, he doesn't stay there. He knows the sound of the raindrop but it is not the raindrop. So he knows pretty well; that's why he doesn't stay there. If he doesn't stay with the sound of the raindrop, he doesn't lose himself. But without [the] sound of the raindrop, he cannot understand the raindrops as they are; that's why he loses sight of himself. Do you understand? That's why his activity, his relationship between the raindrop and his life, is always moving dynamically.
 
 So he said, "almost". "I almost don't lose myself." "Almost" means constantly he is free, between raindrops and his life. If you stay even for a moment, you lose. If you ignore the sound of raindrops, you burn out – you lose. If you completely keep away from sound of the drop, your life is frozen; it doesn't work. And then, if you attach to the sound of raindrops, your life burns up. What should you do? No answer. It really depends on you. But this is true.
 
@@ -116,7 +116,7 @@ Only [when] something happens which is called [a] gap or crack, you are really c
 
 ##### 32:16
 
-So the monk asks, "What is the meaning of, 'I almost don't lose myself?" The Zen Master says, "Though it still should be easy to come out of freedom and say something about it..." If you get freedom, if you understand [the] real meaning of raindrops. Because, [the] Zen Master says, you listen to [and] you can hear the sound of raindrops, you believe that is *raindrops*. But Zen teacher says it is not raindrops; you believe the *sound* of the raindrops. And then, you understand: "Really? Oh, what are *real* raindrops?" That is a kind of enlightenment. 
+So the monk asks, "What is the meaning of, 'I almost don't lose myself?'" The Zen Master says, "Though it still should be easy to come out of freedom and say something about it..." If you get freedom, if you understand [the] real meaning of raindrops. Because, [the] Zen Master says, you listen to [and] you can hear the sound of raindrops, you believe that is *raindrops*. But Zen teacher says it is not raindrops; you believe the *sound* of the raindrops. And then, you understand: "Really? Oh, what are *real* raindrops?" That is a kind of enlightenment. 
 
 So, you can express [that]. If you come out of the understanding of raindrops, which is called enlightenment or freedom, then [you] can express [it]. But it's not so easy. It's not so easy to say something about freedom itself, raindrops themselves. When you are one with it: no, nothing to say. It's pretty hard. 
 
@@ -124,7 +124,7 @@ For instance, you and your air are communicating smoothly, working in themselves
 
 ##### 35:06
 
-[The] same applies to shikantaza. Shikantaza is just shikantaza. When you merge yourself in zazen itself, very naturally, all dualisms drop off. All verbal explanations drop off. Nothing to say. Sound of raindrops or real raindrops or not real raindrops – nothing to say, nothing to say. So, all you have to do is, just be one with shikantaza itself. At that time, very naturally, your body and mind are really basking in shikantaza, [and] shikantaza is basking in your body and mind; they don't bother each other. Just be there, constantly. 
+[The] same applies to shikantaza. Shikantaza is just shikantaza. When you merge yourself in zazen itself, very naturally, all dualisms drop off. All verbal explanations drop off. Nothing to say. Sound of raindrops or real raindrops or not real raindrops – nothing to say. So, all you have to do is, just be one with shikantaza itself. At that time, very naturally, your body and mind are really basking in shikantaza, [and] shikantaza is basking in your body and mind; they don't bother each other. Just be there, constantly. 
 
 But if you for a moment come out of this shikantaza, you can look at yourself and also many things around you and then immediately, [the] mind starts to attach. Making noise.
 
@@ -136,7 +136,7 @@ And then finally, you can stop shooting. If you do it, you can stop shooting, ve
 
 ##### 39:10
 
-What are the raindrops? Raindrops are you. Raindrops are zazen. If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe, "that is raindrop," [or] "shikantaza." That is confusion. So completely cease firing. For this – no way. Completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just do, okay?
+What are the raindrops? Raindrops are you. Raindrops are zazen. If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe, "that is raindrop," [or] "shikantaza." That is confusion. So completely cease firing. For this – no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just do, okay?
 
 ##### 40:16
 
@@ -146,7 +146,7 @@ The gap is something which causes you to see something objectively. While [you a
 
 ##### 42:37
 
-And then – well for instance, if I die. Before dying, I can see my death. It really scares me. "I don't want to die." Or I say, "Okay, okay; I can die." But on the other hand, I don't want to die. But death is coming up to me. So, always I discuss with death: "I like it, but I don't *like* it." – "Well, are you sure you like death?" – "No, I don't. But anyway, no way, so I like it." – "But, it is not honest." So, if I continue to ask myself, "Are you sure?" – I don't like it. But if you don't like [it], can you escape from it? No way. Because death is just coming up to me. Death is there, coming up. 
+And then – well for instance, if I die. Before dying, I can see my death. It really scares me. "I don't want to die." Or I say, "Okay, okay; I can die." On the other hand, I don't want to die. But death is coming up to me. So, always I discuss with death: "I like it, but I don't *like* it." – "Well, are you sure you like death?" – "No, I don't. But anyway, no way, so I like it." – "But, it is not honest." So, if I continue to ask myself, "Are you sure?" – I don't like it. But if you don't like [it], can you escape from it? No way. Because death is just coming up to me. Death is there, coming up. 
 
 But right before, until death reaches me, death is still not real death. [It is the] sound of death; I always hear the sound of death. Then after the sound of death, always it makes me confused. "I like it," "I don't like it," "I like it," "I don't like it"... "Oh, I don't care." Whatever you say, this is nothing but hearing the sound of death, that's all. It's not real death. But if the death reaches me perfectly – no death. No suffering, no prison, no delusions. Completely all delusions drop off. 
 
