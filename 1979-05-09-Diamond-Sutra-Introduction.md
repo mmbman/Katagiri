@@ -28,17 +28,17 @@ So, the number nine sutra, among those 16 sutras, is the Diamond Sutra. It's ful
 
 This sutra sets forth the doctrine of [śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā) and [prajñā](https://en.wikipedia.org/wiki/Prajñā_(Buddhism)). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in Zen Buddhism. 
 
-The Diamond Sutra – we don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by Buddha Shakyamuni. All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](https://en.wikipedia.org/wiki/Āgama_(Buddhism)), [Nikāyas](https://en.wikipedia.org/wiki/Nikāya) – the agamas are, four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases, and lots of teachings – which Buddha's disciples had heard, and had memorized. 
+The Diamond Sutra – we don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by Buddha Shakyamuni. All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](https://en.wikipedia.org/wiki/Āgama_(Buddhism)), [Nikāyas](https://en.wikipedia.org/wiki/Nikāya) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases, and lots of teachings – which Buddha's disciples had heard, and had memorized. 
 
 ##### 10:17
 
-At the first conference, and the second conference, and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmit teachings with the oral method, directly. 
+At the first conference and the second conference and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they [had] memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmitted teachings with the oral method, directly. 
 
-So, at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. That is *agama*.
+So, at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. [Those are the] *agamas*.
 
 Within [the] agamas, it was based on Buddha's teaching: philosophical, psychological teachings; mentioning impermanence, and suffering, no-self, and nirvana. Those four are called [the] Four Dharma Seals, mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
 
-So in [the] agama sutras, those four dharma seals were described. And then with the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture, which is called Abhidharmakosha. 
+So in [the] agama sutras, those four dharma seals were described. And then with the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
@@ -48,13 +48,13 @@ Even though those Buddhist scriptures were not mentioned directly by Buddha, Ind
 
 Even the Vimalakirti sutra, we don't know who wrote that one. Traditionally, Vimalakirti wrote [it] – but we are "suspicious" whether such a person was existing or not. Well anyway, we don't know who wrote it. But huge Buddhist scriptures exist. 
 
-So those authors were really genuine religious persons, who understood religious spirit mentioned by Buddha, and also tendency of the religious thought and philosophical thought of those days. 
+So those authors were really genuine religious persons, who understood [the] religious spirit mentioned by Buddha, and also [the] tendency of the religious thought and philosophical thought of those days. 
 
 ##### 17:40
 
-I want to tell you the fundamental thought of Diamond Sutra. What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
+I want to tell you the fundamental thought of [the] Diamond Sutra. What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
-I told you before, the last week, Diamond Sutra is quite different from Vimalakirti sutra, because Diamond Sutra is a little bit "dry". ... The Vimalakirti Sutra is more literature, Buddhist literature – beautiful. But Diamond Sutra is sort of – well, the teaching is based on philosophical Buddhist teaching. So, a little "dry". 
+I told you before, last week, the Diamond Sutra is quite different from the Vimalakirti sutra, because the Diamond Sutra is a little bit "dry". ... The Vimalakirti Sutra is more literature, Buddhist literature – beautiful. But Diamond Sutra is sort of – well, the teaching is based on philosophical Buddhist teaching. So, a little "dry". 
 
 ##### 18:58
 
@@ -66,11 +66,13 @@ So Prajnaparamita is what is called The Perfection of Wisdom. [The] Indian peopl
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 49)
 
-Wisdom is expressed – explained, described – by pretty conceptualized thing.
+Wisdom is expressed – explained, described – by [a] pretty conceptualized thing.
 
 ##### 21:48
 
-So according to this, they understand wisdom and try to teach wisdom like this: Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
+So according to this, they understand wisdom and try to teach wisdom like this: 
+
+Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
 In the latest Udambara, Professor Abe explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China: a little bit practical. Buddhism becomes 'practical' in order to explain Prajnaparamita not conceptually, [but] very practically. 
 
