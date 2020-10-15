@@ -1,9 +1,9 @@
 # Shōbōgenzō: Genjōkōan: Lecture 2
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
-
 [Home](index.md)
+
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
 
 Yesterday I mentioned, the important point in Buddhism is that we have to feel deeply and directly who you are. Such as, tasting, realizing manas, psychologically speaking. At that time, the realization of manas guides you to touch, what would you say, karmic life, coming from past life. That is alayavijñāna. 
 

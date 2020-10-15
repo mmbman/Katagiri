@@ -1,9 +1,9 @@
 # Karma: Twelve Chains of Causation
 ## July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
-
 [Home](index.md)
+
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
 
 (The online audio of this first talk is only about five minutes long: apparently the first side of the tape was blank. Very unfortunate. However, the talk from the following day appears after this one.)
 
