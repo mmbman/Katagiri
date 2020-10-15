@@ -443,7 +443,7 @@ That's why we have to emphasize always zazen itself,  dance itself. But [the] da
 
 So that surface is sort of the weeds; but weeds will be wonderful fertilizer for you. That's why, accept. And then all you have to do is, basically, you must be freedom. You must get freedom of the zazen, of the dance. That means: practice dance itself. You have to find yourself right in the middle of dance itself.
 
-So, you can stand up. In the realm of criticism, and judgment, and lots of things - you can stand up there.
+So, you can stand up. In the realm of criticism, and judgment, and lots of things – you can stand up there.
 
 Is that okay? So-so?
 
@@ -473,7 +473,7 @@ Okay?
 
 ##### 1:25:31
 
-**Question**: Roshi? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach zazen is what I would call a very pure point of view. Just like, if you're going to enter into non duality, you just enter into it. You just sit down and do zazen; you enter into non duality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us, by ... saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in Tibetan Buddhism, how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
+**Question**: Roshi? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach zazen is what I would call a very pure point of view. Like, if you're going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us by ... saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in Tibetan Buddhism, how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
 
 **Katagiri**: Well, I don't know; I'm talking about the zazen in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. *[he laughs]* Now ... I don't mean that I try to escape. Because we have to be centered. If you're not centered, whatever kind of [thing] you do, you are confused. So important point is, you must be centered. If you are centered, you can handle many things in [a] proper way. So, my focus is ... the zazen in which we must be free, perfectly free. 
 
@@ -485,7 +485,7 @@ So, *[he laughs]* if you're involved in lots of things, [lots of] techniques –
 
 **Same person**: Yeah, I believe that. For me, I believe that Zen is the most direct and purest...
 
-**Katagiri**: No, I don't believe so. *[he laughs]* You believe, that's okay. *[group laughter]*
+**Katagiri**: No, I don't believe so. *[he laughs]* [If] you believe [it], that's okay. *[group laughter]*
 
 **Same person**: Okay.
 
