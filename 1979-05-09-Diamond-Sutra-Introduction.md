@@ -182,7 +182,7 @@ Okay, do you have any questions?
 
 *[some confusion]*
 
-**another person**: Is it by the *[unintelligible]* calendar?
+**Another person**: Is it by the *[unintelligible]* calendar?
 
 **Katagiri**: Oh, oh, yes - of course. I am talking about that.
 
@@ -202,13 +202,13 @@ Maybe it's connected with a previous statement. *[laughter]* ... from one senten
 
 *[laughter]* 
 
-Because we have to understand something as a whole. "A is A; A is not A." *[laughter]*
+Because we have to understand something as a whole. "A is A; A is not A." *[laughter]* "A is A."
 
 ##### 55:48
 
-It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it's very simple. Very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That's all. This is zazen.
+It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it's very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That's all. This is zazen.
 
-But when you expect something, you completely go away from your home. Looking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it's fine, but, it makes you dizzy, that's all. Running here and there, always. But the more you are busy, the more you are exhausted. That's all. And finally you have to return home and settle yourself in peace and harmony. And then you say, "Oh, this is [alright?]." This is our point. That's all. The basic practice is very simple, very simple, really.
+But when you expect something, you completely go away from your home. Seeking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it's fine, but it makes you dizzy, that's all. Running here and there, always. But the more you are busy, the more you are exhausted. That's all. And finally you have to return home and settle yourself in peace and harmony. And then you say, "Oh, this is [alright?]." This is our point. That's all. The basic practice is very simple, very simple, really.
 
 But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: "Oh yes, I want to go back to my home." Everyone understands. But it takes time, because until it's penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
 
