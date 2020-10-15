@@ -3,7 +3,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
-[Index](index.md)
+[Home](index.md)
 
 ##### 0:00 start of recording
 
@@ -219,4 +219,4 @@ That's why we have to continue to sit. I don't know why. *[he chuckles]* But you
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
-[Index](index.md)
+[Home](index.md)

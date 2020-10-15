@@ -1,8 +1,9 @@
-[Index](index.md)
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1
 ## June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790609.mp3)
+
+[Home](index.md)
 
 ##### 0:00 start of recording
 
@@ -242,4 +243,4 @@ By the zazen, if you believe "I should be happy," or "I want to do something," t
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 2](1979-06-10-Fukanzazengi-Lecture2)
 
-[Index](index.md)
+[Home](index.md)
