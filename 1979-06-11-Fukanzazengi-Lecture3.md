@@ -6,25 +6,27 @@
 
 ##### 0:00 start of recording
 
-**Katagiri**: [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." I would like to explain a little more about same subject, from [a] different angle today. Because this is very important characteristic of zazen we do, which is called shikantaza.
+**Katagiri**: [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." I would like to explain a little more about same subject, from [a] different angle today, because this is very important characteristic of [the] zazen we do, which is called shikantaza.
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become Buddha. This [was the] first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally - no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
+Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become Buddha. This [was the] first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
 
 ##### 2:33
 
-Particularly according to dullness and distraction: dullness and distraction here are meant to exemplify all kinds of delusion. But according to Abidharmakosha, dullness and distraction are just one of the delusions. ([Abhidharmakośa on encyclopediaofbuddhism.org](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)) So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in Sanskrit, styāna *[he spells it out]*, this is dullness. Translation says: torpor; or stiffness, or [obduracy?] *[he tries to pronounce that]*, and [sterility?], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
+Particularly according to dullness and distraction: dullness and distraction here are meant to exemplify all kinds of delusion. But according to Abidharmakosha, dullness and distraction are just [two] of the delusions. ([Abhidharmakośa on encyclopediaofbuddhism.org](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)) So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in Sanskrit, styāna *[he spells it out]*, this is dullness. Translation says: torpor; or stiffness, or [obduracy?] *[he tries to pronounce that]*, and [sterility?], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
 
-This is dullness, and the other one is distraction. They present it as, in Sanskrit, auddhatya *[he spells it]* – that means, restlessness. Or, agitation, restlessness of mind, reckless, or frivolity. Et cetera.
+This is dullness, and the other one is distraction. They present it as, in Sanskrit, auddhatya *[he spells it]* – that means, restlessness. Or, agitation, restlessness of mind, reckless[ness], or frivolity. Et cetera.
 
 ##### 5:18
 
-But in Fukanzazengi, dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
+But in Fukanzazengi, [the] dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
 
 ##### 6:00
 
 First let me say a little bit about the meaning of ... dullness and distraction. Broadly speaking, dullness and distraction are the state [where] the mind acts reactively, like the swing of a pendulum, and the body and mind lose a state of their equilibrium. That is in a state of either distraction or dullness. Just like a pendulum. 
 
-So it is represented as [kon-san?] in Japanese. [Kon?] is dullness, [san?] is distraction. ... The structure of the Chinese letter [kon?] consists of two parts: one is bottom, the second is the sun. The sun sinks, or sets, at the bottom; the complete darkness. So [kon?] means dullness, which means the state which the mind becomes gloomy and doesn't work. As if the sun sets, and the surroundings completely become dark. That is the meaning of [kon?], dullness.
+So it is represented as [kon-san?] in Japanese. [Kon?] is dullness, [san?] is distraction... 
+
+The structure of the Chinese letter [kon?] consists of two parts: one is bottom, the second is the sun. The sun sinks, or sets, at the bottom; the complete darkness. So [kon?] means dullness, which means the state which the mind becomes gloomy and doesn't work. As if the sun sets, and the surroundings completely become dark. That is the meaning of [kon?], dullness.
 
 [San?] is distraction. Distraction is a state [where] the mind is annoyed with troublesome [things], and is [indeterminate?]. That is distraction. So distraction, broadly speaking, means ... relative understanding. Various relative understandings: relative views, relative thoughts. Or, worldly thoughts. Worldly thoughts means to understand or view something in the dualistic world. That is distraction. 
 
@@ -38,7 +40,7 @@ There are many types of zazen in this world, but broadly speaking, let me say, m
 
 One type of zazen is, that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds," perfectly. At any cost, by the zazen, we struggle for weeding out, and make [the] whole world completely clean. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So someday, weeds come back, come up, because you cannot destroy weeds. Because weeds are nothing but being – just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers. As long as flowers exist in this world, immediately there are weeds. 
 
-But actually, in the dualistic world, we don't like weeds. So, with hatred, we try to cut [them] down. But while you maintain ... hatred ... by the hatred, maybe you can cut [them] down. *[there is a loud airplane noise that makes it difficult to hear]* But it is not completely removing the weeds from the human world. Sometimes, somewhere, weeds come up. 
+But actually, in the dualistic world, we don't like weeds. So, with hatred, we try to cut [them] down. But while you maintain ... hatred ... by the hatred, maybe you can cut [them] down. But it is not completely removing the weeds from the human world. Sometimes, somewhere, weeds come up. 
 
 ##### 13:36
 
@@ -46,7 +48,7 @@ We can see this kind of practice in the human world. For instance, business. If 
 
 ##### 14:53
 
-So, if you struggle with your whole heart, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. But, if you reach the other shore, that is [not] the final goal, because ... the other shore is also [transient?]. So the goal you have reached is no longer [the] goal. Immediately, you have to go into first step, you have to do something from now. Do you understand? This is very clear; this is human life. We do. 
+So, if you struggle with your whole heart, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. But, if you reach the other shore, that is [not] the final goal, because ... the other shore is also [transient]. So the goal you have reached is no longer [the] goal. Immediately, you have to go into first step, you have to do something from now. Do you understand? This is very clear; this is human life. We do. 
 
 So immediately, your goal completely goes far from you. That's why the moment that you reach the goal, immediately you don't feel satisfied, that's why you want to do something more. So that desire is infinite; just like snowballing. And then finally, we have to die. And then, death waits for you. That's all. This is very common. Very common. But I don't know whether it is real way, or not. 
 
@@ -56,7 +58,7 @@ That is one type of zazen. If you do zazen like this, of course you can attain e
 
 But, when the circumstances are changed: well, you cannot accept your calmness and tranquility [that] you have experienced; [you] cannot maintain [it]. Immediately, it's gone. So you are confused, very much. I know several examples in the United States. 
 
-But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much. And you attain enlightenment. But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
+But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much, and you attain enlightenment. But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
 
 Well, I don't mean it is good or bad, right and wrong. We should know that is life. That is life, okay? These [are] human beings; we should know that.
 
@@ -64,7 +66,7 @@ Well, I don't mean it is good or bad, right and wrong. We should know that is li
 
 And the second type is, that we remove the roots of the weeds, and even the seeds, from the ground. Weeds no longer grow. They are completely free from samsaric world in the Six Realms of Existence: hell, hungry ghost, titan spirit, animal spirit, human beings, heavenly beings. (It's hard to tell whether he says "titan spirit" or "fighting spirit". Either works.) But unfortunately, we weed out perfectly on the ground of only *our own property*, and cherish a feeling of having reached the final goal. In other words, ... by way of having done our final goal, [we] spent our whole life without considering others' lives.
 
-So, by the practice of zazen, it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some Buddhism says, if you attain enlightenment, which is highest level of spiritual life ... then at that time, it's not necessary to come back to human world. You can stay constantly in the heaven.
+So, by the practice of zazen, it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some Buddhism says, if you attain enlightenment, which is [the] highest level of spiritual life ... then at that time, it's not necessary to come back to [the] human world. You can stay constantly in the heaven.
 
 So, arhats and many saints in the history of Buddhism, they showed us, they experienced [it]. That's why one of the four results of Buddhist practice, [what the] arhat does, is [the] highest spirit of spiritual life, which enables you never to come back to human being, samsaric world. This is arhat practice. 
 
@@ -90,17 +92,17 @@ That is what is called dullness. In other words, too much pride. "I finished. My
 
 The last type of zazen is something we do: shikantaza. 
 
-Struggling for reaching the other shore at any cost: this is also distraction. Which is good, distraction. Even though you reach the highest level of spiritual life, still there is a struggle, because the moment you reach the final goal, the final goal cannot be *[unintelligible]* – you have to start again. That's why struggle [is] constantly going on. That is distraction. On the other hand, dullness. 
+Struggling for reaching the other shore at any cost: this is also distraction. Which is good, distraction. Even though you reach the highest level of spiritual life, still there is a struggle, because the moment you reach the final goal, the final goal turns into the beginning; you have to start again. That's why struggle [is] constantly going on. That is distraction. On the other hand, dullness. 
 
 But if you do shikantaza, dullness and distraction drop off, from the first. 
 
 ##### 30:12
 
-Even the karma. Karma is [dead?], we planted in the past. Some karmas were good, some karmas were evil, some karmas were neutral. Many karmas, we created in the past. And then ..., you know pretty well, those karmas are where? [They] are at the bottom of our mind, this body and mind. Karma is here. 
+Even the karma. Karma is [dead?], we planted in the past. Some karmas were good, some karmas were evil, some karmas were neutral. Many karmas, we created in the past. And then, you know pretty well, those karmas are where? [They] are at the bottom of our mind. This body and mind. Karma is here. 
 
 So, through your daily living, you can realize. Your present lives are influenced by something else, which you don't understand. Well, maybe some people call it karma – only when they realize something's wrong. Because only when you realize something's wrong, you really get the chance to reflect upon yourself very seriously. That's when you put a certain [level?] on your life: "That is something wrong." That karma is wrong. Evil karma. 
 
-But actually, [the] karma [that] exists with you is completely beyond moral sense of good or bad or neutral. 
+But actually, [the] karma [that] exists with you is completely beyond [the] moral sense of good or bad or neutral. 
 
 ##### 32:08
 
@@ -130,27 +132,27 @@ So: It is very important, what kind of time and occasion and conditions we shoul
 
 ##### 36:52
 
-[The] important point is, that we have to create a good time and occasion, good conditions, as best as we can. If you create good time and occasion, and good conditions, ... immediately, some of the karmas in the past which are called good appear in the present. And, if you have done [it], immediately that will be a seed of the karma which will appear in the future. So, you can always sew a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. But evil karmas [are] always here, very quiet. And if you do always good karma, creating good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
+[The] important point is, that we have to create a good time and occasion, good conditions, as best as we can. If you create good time and occasion, and good conditions, ... immediately some of the karmas in the past which are called good appear in the present. And, if you have done [it], immediately that will be a seed of the karma which will appear in the future. So, you can always sew a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. But evil karmas [are] always here, very quiet. And if you do always good karma, creating good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
 
 What is good? What is a good time and occasion, and what is a good condition? That is a point. This "good" is not the "good" opposed to "evil". [This] good is *super-good*. The supreme good; beyond good or bad, right and wrong. Such a good seed should be stored, right now, right here, from day to day. At that time, that good seed is planted in your blood, and creates new life. 
 
 ##### 39:28
 
-We call [it] fukutoku [suru?]. Fukutoku means merit and virtue. ([Fukutoku 福徳 - equivalent to Sanskrit Punya?](https://www.nichirenlibrary.org/en/dic/Content/P/131)) [Suru?] (累積?) means to accumulate. So, to accumulate merit and virtue. That means, sew a good seed. Completely, that good seed originates from intrinsic value of pure human activities, very pure human activities. That is fukutoku, merit and virtue. Fukutoku [suru?], we say. 
+We call [this] fukutoku[asuru?]. Fukutoku means merit and virtue. (Fukutoku 福徳 – equivalent to Sanskrit [Punya](https://www.nichirenlibrary.org/en/dic/Content/P/131)?) [Suru?] (累積?) means to accumulate. So, to accumulate merit and virtue. That means, sew a good seed. Completely, that good seed originates from intrinsic value of pure human activities, very pure human activities. That is fukutoku, merit and virtue. Fukutoku[asuru?], we say. 
 
 ##### 40:43
 
 But let me say about this: we don't understand. Still we don't understand, because, well, why is it that dullness and distraction drop off from the first if you accumulate merit and virtue?
 
-In order to understand this point, first of all, we have to see practice for long range, life after life. Not only seeing your life ... in this life, in this world; you have to see your whole life, life after life. Maybe next life, [or] the life after next life. Anyway, life is continually going on, because we created karma in the past, and also, we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means future will exist. So, you can get the chance to be born in the next life. That is [the] meaning or sense of [theory?] of karma. So as long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
+In order to understand this point, first of all, we have to see practice for long range, life after life. Not only seeing your life ... in this life, in this world; you have to see your whole life, life after life. Maybe next life, [or] the life after next life. Anyway, life is continually going on, because we created karma in the past, and also, we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means future will exist. So, you can get the chance to be born in the next life. That is [the] meaning or sense of [the theory?] of karma. So as long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
 
 ##### 42: 44
 
-So, [the] point is, that we sew a good seed. We sew a good time and occasion, and good conditions. At that time – well, according to my talk yesterday, when good time and occasion are ripe, when good conditions are arranged, finally there is something left: that is total personality. Don't you think so? Do you remember? That's why all we have to do is, arrange. Arrange, number one, environment. Second, the sensory world. Arrange in many ways, with careful consideration for the movement system; that is body, hands, feet, tongue. All movement system, we have to arrange. And then, finally, sit down in the proper way ... immobile. Immobile state. At that time, very naturally, body can be kept [in] equilibrium. And fourth, regulation [of] breath. If you regulate the breath, very naturally, regulation of the breath influences so much: the system of your hormones, and blood circulation, and also your nerve system, and internal organs; it influences very much. And also finally, regulating mind. That means, no design of having a reward, becoming Buddha; just do it. Just do it. Because, the mind has certain sticky[ness] ... which is called attachment. If you attach [to] it, immediately there is a string between zazen and you. You cannot cut [it]; you cannot see the zazen clearly. So immediately there is, that is a type of ...
+So, [the] point is, that we sew a good seed. We sew a good time and occasion, and good conditions. At that time – well, according to my talk yesterday, when good time and occasion are ripe, when good conditions are arranged, finally there is something left: that is total personality. Do you remember? That's why all we have to do is, arrange. Arrange, number one, environment. Second, the sensory world. Arrange in many ways, with careful consideration for the movement system; that is body, hands, feet, tongue. All movement system, we have to arrange. And then, finally, sit down in the proper way ... immobile. Immobile state. At that time, very naturally, body can be kept [in] equilibrium. And fourth, regulation [of] breath. If you regulate the breath, very naturally, regulation of the breath influences so much: the system of your hormones, and blood circulation, and also your nerve system, and internal organs; it influences very much. And also finally, regulating mind. That means, no design of having a reward, becoming Buddha; just do it. Just do it. Because, the mind has a certain sticky[ness] ... which is called attachment. If you attach [to] it, immediately there is a string between zazen and you. You cannot cut [it]; you cannot see the zazen clearly. So immediately there is, that is a type of ...
 
 *[tape change]*
 
-... through regulation of body, and regulation of breath. That is what is called samadhi, perfect samadhi. Often at that time, there is no chance to insert design of becoming buddha or having rewards. So, [it is] very pure. There is something left, which is called intrinsic value of pure human activity. Just do. That is total personality. Psychologically speaking, that is total personality.
+... through regulation of body, and regulation of breath. That is what is called samadhi, perfect samadhi. Often at that time, there is no chance to insert design of becoming Buddha or having rewards. So, [it is] very pure. There is something left, which is called intrinsic value of pure human activity. Just do. That is total personality. Psychologically speaking, that is total personality.
 
 ##### 47:10
 
