@@ -130,17 +130,17 @@ This is movement, simplified by our arrangement.
 
 ##### 42:38
 
-And next, [the] gut system. For this, Dogen says, "eat and drink moderately. And also, breathe gently through your nose." But actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It's going on. Even though your heart is beating, [go and?] slow down, okay? And then you put the gasoline into it, and try to get the energy – you cannot do it. So when you see the heart slowing down, [the lungs?] slow down - but that is [*unintelligible*]. [*unintelligible*]. Either way, it is. Sometimes you have to accept it.
+And next, [the] gut system. For this, Dogen says, "Eat and drink moderately." And also, "Breathe gently through your nose." But actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It's going on. Even though your heart is beating, [go and?] slow down, okay? And then you put the gasoline into it, and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* slow down - but that is [*unintelligible*]. Either way, it is. Sometimes you have to accept it.
 
-So, your heart, your lungs, and your stomach, your intestines, hormone system, are completely beyond your control. But there is one thing that you can control, and that is the breath. And also this breath really influences the whole system, all systems of the hormones, and also the lungs, and heart, everything. That is the breath. That's why we try to concentrate on the breath. Taking care of breath. At that time, all guts work very naturally, very naturally. Circulation of your breath, pretty good. [The pulse?] is pretty good. And your heart is beating normally. Very natural. 
+So, your heart, your lungs, and your stomach, your intestines, hormone system, are completely beyond your control. But there is one thing that you can control, and that is the breath. And also this breath really influences the whole system, all systems of the hormones, and also the lungs, and heart, everything. That is the breath. That's why we try to concentrate on the breath, taking care of breath. At that time, all guts work very naturally, very naturally. Circulation of your breath, pretty good. [The pulse?] is pretty good. And your heart is beating normally. Very natural. 
 
 ##### 44:56
 
-Next, the brain-nerve system. According to brain-nerve system, Dogen Zenji says, "Do not think good or bad; do not administer pros and cons." Or, "cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a Buddha." 
+Next, the brain-nerve system. According to brain-nerve system, Dogen Zenji says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a Buddha." 
 
 > (It looks like the translation Katagiri is using may be Norman Waddell's, as it says "administer pros and cons". See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf))
 
-That is brain-nerve system. According to brain-nerve system, we have to regulate mind. Mind is characterized by attachment; attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind...
+That is [the] brain-nerve system. According to brain-nerve system, we have to regulate mind. Mind is characterized by attachment; attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind...
 
 [tape change]
 
@@ -158,7 +158,7 @@ If your mind really attaches to good or bad or neutral, immediately here is a th
 
 And [in] your life you are really disappointed. That is what is called delusion, what is called dullness. Dullness is sort of, completely sinking into the bottom of the ocean. That is dullness. 
 
-On the other hand, distraction. Dogen Zenji says, distraction is, your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and all over. That is distraction. 
+On the other hand, distraction. Dogen Zenji says, distraction is [that] your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and all over. That is distraction. 
 
 On the other hand, dullness is completely [like] you are sinking into the bottom of the ocean. And finally, you don't know what to do. Whatever kind of delusion, [either] dullness or distraction – both distract. Your activities distract [*unintelligible*]. Settling yourself in the self is very difficult.
 
@@ -168,15 +168,15 @@ So finally, we have to practice regulating the mind. That regulating of the mind
 
 But how can you practice egolessness? Dogen Zen Master says, if you really simply forget your body and mind, you should throw away yourself into the heart of Buddha. That means, you should throw yourself away to something. That "to something" is, to your object. But this object is not any object, this is the house of the Buddha. 
 
-So ... first of all, if you want to deal with this book, you have to throw away yourself into this book. But this object is not the book. This book is Buddha. So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book, as well as dealing with your life. So, you can deal with this book with compassion. It's really compassion; you can deal with it. At that time, the book really teaches you something.
+So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book. This book is Buddha. So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book, as well as dealing with your life. So, you can deal with this book with compassion. It's really compassion; you can deal with it. At that time, the book really teaches you something.
 
 ##### 51:42
 
-So that is egolessness. And also, at that time, if you throw away yourself, your body and mind, into the house of the Buddha, at that time, Dogen Zen Master says, "When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any man's mind." At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing original nature of existence. Very natural. Simultaneous. 
+So that is egolessness. And also, at that time, if you throw away yourself, your body and mind, into the house of the Buddha, at that time, Dogen Zen Master says, "When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any man's mind." At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing [the] original nature of existence. Very natural. Simultaneous. 
 
 ##### 52:56
 
-So, there is zazen. Zazen and you: if you see [them] separately, that is a situation [in] which you can create discrimination world, dualistic world. Zazen and you: "I like zazen," "I don't like zazen," whatever you say, that is dualistic world. So first of all, you have to make arrangement, zazen and you, circumstances and sensory world; you have to arrange all things. And then, at that time, if you arrange all circumstances, I told you before: and then, you should take care of zazen. With egolessness.
+So, there is zazen. Zazen and you: if you see [them] separately, that is a situation [in] which you can create discrimination world, dualistic world. Zazen and you: "I like zazen," "I don't like zazen," whatever you say, that is dualistic world. So first of all, you have to make arrangement, [of] zazen and you, circumstances and sensory world; you have to arrange all things. And then, at that time, if you arrange all circumstances, I told you before: and then, you should take care of zazen. With egolessness.
 
 ##### 54:00
 
@@ -188,7 +188,7 @@ But if you completely offer yourself to zazen, that zazen helps you, simultaneou
 
 That's egolessness. Egolessness, based on spirit of throwing away, offering yourself into zazen, is based on the help of samadhi. Only you can throw [yourself] away into zazen; at that time, you cannot do it without samadhi. One-pointedness. If you want to practice samadhi, one-pointedness, you have to arrange circumstances. Cease all affairs, and all involvements. There is no chance to involve in some of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is samadhi. If you practice samadhi, if you are right in the middle of samadhi, very naturally there is practice of egolessness. Because, you can offer yourself to zazen. 
 
-So, very simple task. And then, at that time, if you offer yourself, and then after that there is no design on becoming a Buddha, or expecting a reward, et cetera – no design – at that time, this practice is exactly to manifest [the] original nature of the Buddha. Existence.
+So, very simple task. And then, at that time, if you offer yourself, and then after that [if] there is no design on becoming a Buddha, or expecting a reward, et cetera ... at that time, this practice is exactly to manifest [the] original nature of the Buddha, existence.
 
 ##### 56:36
 
@@ -202,17 +202,17 @@ If you really want to accomplish one thing which you want to do, you have to cut
 
 ##### 58:35
 
-This is very natural attitude to our life. That's why Dogen Zenji says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity; yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and zazen – [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice samadhi. Samadhi is one-pointedness. If you come from one-pointedness, there is egolessness. Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
+This is [a] very natural attitude to our life. That's why Dogen Zenji says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and zazen, [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice samadhi. Samadhi is one-pointedness. If you come from one-pointedness, there is egolessness. Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
 
 ##### 1:00:05
 
-Simplify, unify; that is what is called harmonious. Or regulating, we use the term regulating. Regulating is [to] not destroy, not [to] move from one to another. Regulating means that you know all things, many things around us. First, accept. And, how to *arrange* this; how to use circumstances, sensory system, movement system, that, and also brain-nerve system, whatever it is. And then, let's sit down, in the core of your total personality. That is Buddha nature.
+Simplify, unify; that is what is called harmonious. Or regulating; we use the term regulating. Regulating is not [to] destroy, not [to] move from one to another. Regulating means that you know all things, many things around us. First, accept. And, how to *arrange* this; how to use circumstances, sensory system, movement system; that, and also brain-nerve system, whatever it is. And then, let's sit down, in the core of your total personality. That is Buddha nature.
 
 ##### 1:00:58
 
 And then this total personality, which is called Buddha, is completely perfect, all-pervading. Dogen Zenji says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice samadhi, you can offer yourself into, and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
 
-And then, even though you don't understand, your total personality is perfectly peace. Perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
+And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
 
 ##### 1:02:39
 
@@ -224,7 +224,7 @@ First, belief. That is faith. Faith is total acceptance that [your] original, to
 
 And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is enlightenment. How can you experience enlightenment? Well first, practice of egolessness. How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is still no design on expecting any reward. Just do it. That is shikantaza.
 
-That is really helpful. That is really [a] way of helping the people; offering your merit, merit of your practice, to all sentient beings. But according to [a] narrow understanding of human life, first you really cut off your weeds, the root of your weeds. And you want to be happy. That's nice; but it is [a] narrow understanding, because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere.
+That is really helpful. That is really [a] way of helping the people: offering your merit, merit of your practice, to all sentient beings. But according to [a] narrow understanding of human life, first you really cut off your weeds, the root of your weeds. And you want to be happy. That's nice; but it is [a] narrow understanding, because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere.
 
 ##### 1:05:05
 
