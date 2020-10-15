@@ -27,7 +27,7 @@ So, what is a scream? [The] scream is right after he struck [his toe] – a litt
 
 He said, "From where [does the] pain come?" The striking his toes ... there is no pain [there], because striking the toes is exactly dynamic working. Becoming one with the rock, becoming one with his toes, and ears, and [the] road, and his consciousness, and the whole body; and he stumbled over, that's all. So, all delusions completely drop off. Nothing.
 
-After that: [a] little moment, immediately you can hear the sound of raindrops, and then that is "ouch." That is really "ouch." But that is nothing but, I told you yesterday, one drop of rain – a drop of dew, after creating sixty moments. Squeezing the rocks, and his body and nails, and his consciousness; squeezing [all that] simultaneously, and then you can get one drop of dew. That is [the] result. And then, you say, scream.
+After that, [a] little moment, immediately you can hear the sound of raindrops, and then that is "ouch." That is really "ouch." But that is nothing but, I told you yesterday, one drop of rain – a drop of dew, after squeezing sixty [instants]. Squeezing the rocks, and his body and nails, and his consciousness; squeezing [all that] simultaneously, and then you can get one drop of dew. That is [the] result. And then, you say, scream.
 
 ##### 9:44
 
@@ -45,13 +45,13 @@ So before you do zazen, you saw a picture of your life. When you sit zazen – y
 
 From this point, the zazen you do is exactly like a clean mirror. You can see your life reflected in it, so zazen is exactly [a] mirror. You can see your life, and how you handled your life, or you have handled your life, how you will handle your life. You can see your picture. 
 
-For instance, if you do zazen, you feel [person?]. And then immediately something happens; that [person?] is just your life. Don't you think so? It's really your life. If you do zazen, you will always feel person. That is *not* zazen. You're *[unintelligible]* person. And also, you handled your life, just like a person. And also, you have handled you life, just like a person. And if you continue to do zazen like this, you will handle your zazen like this. So nothing *[unintelligible]* to say. 
+For instance, if you do zazen, you feel [a person?]. And then immediately something happens; that [person?] is just your life. Don't you think so? It's really your life. If you do zazen, you will always feel person. That is *not* zazen. You're [not this?] person. And also, you handled your life, just like a person. And also, you have handled you life, just like a person. And if you continue to do zazen like this, you will handle your zazen like this. So nothing *[unintelligible]* to say. 
 
 ##### 15:10
 
 Or sometimes, lots of emotions come up: hatred, anger; [so] you cannot stand up in zazen such as religious zazen. But this is really your life, don't you think so? It's really your life. That's why you can see your life through zazen. And then this is not your .... life in the zazen. It is not your life in zazen, it is your *whole* life, in the past, in the future, if you deal with your life in that way. So if you see your zazen with ... anger, hatred, and [boredom?], lots of emotions: this is your life. And also you should realize how you handled your life. You handled your life just like this in the past. And you have handled [it] so far [like this]. And also you will [handle it like this] – if you don't realize. 
 
-And also, sometimes, even though you don't understand what zazen is, you really believe zazen, and jump into it. Believing zazen is Buddha. This is great; so, in a sense, you can create [a] new life. That is, in your life, you handled in the past like this, and also you have handled so far like this, and you will handle in that way. 
+And also, sometimes, even though you don't understand what zazen is, you really believe zazen, and jump into it, believing zazen is Buddha. This is great; so, in a sense, you can create [a] new life. That is, in your life, you handled in the past like this, and also you have handled so far like this, and you will handle in that way. 
 
 ##### 17:07
 
@@ -117,7 +117,7 @@ But we don't understand. That's why we say, "Let's accumulate merit and virtue."
 
 Dogen Zenji really admired Gensha Shibi and Seppō Zen Master in this story. 
 
-So, "Gensha said, 'Bodhidharma didn't come to the East. The Second Patriarch didn't go to the West.' This gained Seppō's special praise." Seppō really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, zazen itself – [he] struck it, right in the middle of striking his toes. Before ... he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] dualistic world. So all we have to do is focus on just right here. 
+So, "Gensha said, 'Bodhidharma didn't come to the East. The Second Patriarch didn't go to the West.' This gained Seppō's special praise." Seppō really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, zazen itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] dualistic world. So all we have to do is focus on just right here. 
 
 ##### 35:29
 
@@ -149,13 +149,13 @@ Do you have some questions?
 
 But even then, [there is] nothing to do there. Forget it. All we have to do is, we have to do real zazen. *[unintelligible]*
 
-If you are really involved in that feeling or idea, that is nothing but looking at your life *after* [being?] life. After. Can you imagine? The life, zazen *after* zazen, or before. 
+If you are really involved in that feeling or idea, that is nothing but looking at your life *after* [being] life. After. Can you imagine? The life, zazen *after* zazen, or before. 
 
 **Same person**: Okay, but, it happens anyway.
 
 **Katagiri**: Oh, of course. But how can you see that life before and after? Because you are right in the middle of zazen, that's why you can see [it]. Don't you think so?
 
-For instance, Gensha ... striking his toes. This is completely right in the middle of [it]. [It] occurs; no pains, no pleasures, no suffering. That's why he can experience: "Pain. Ouch." That's why he can see his life after striking his toes. If he was not there, he wouldn't see his life after striking. He wouldn't scream. Do you understand?
+For instance, Gensha ... striking his toes. This is completely right in the middle of [it]. [It] occurs; no pains, no pleasures, no suffering. That's why he can experience, "Pain. Ouch." That's why he can see his life after striking his toes. If he was not there, he wouldn't see his life after striking. He wouldn't scream. Do you understand?
 
 **Same person**: He wouldn't scream?
 
@@ -243,7 +243,7 @@ Becoming ... whatever I want to do, or I don't want to do. Or "this is good," or
 
 **Same person**: So we don't say "I just made a judgment" *[unintelligible]*
 
-**Katagiri**: Beyond judgment or not, thought incoming. Thoughts and judgement come up because "you" do zazen. Let's return to the point, [the] root. You do zazen, that's why thoughts come up, judgement comes up. So important point is, not [to] involve in thoughts and ideas. Let's involve in zazen itself. According to the Gensha story, not [being] involved in the sound of the raindrops, which is called, "Ouch." 
+**Katagiri**: Beyond judgment or not, thought incoming. Thoughts and judgement come up because *you* do zazen. Let's return to the point, [the] root. You do zazen, that's why thoughts come up, judgement comes up. So important point is, not [to] involve in thoughts and ideas. Let's involve in zazen itself. According to the Gensha story, not [being] involved in the sound of the raindrops, which is called, "Ouch." 
 
 **Same person**: You're saying the thoughts and judgements are results of doing zazen, they're not zazen itself?
 
@@ -255,7 +255,7 @@ Becoming ... whatever I want to do, or I don't want to do. Or "this is good," or
 
 **Same person**: It's sort of company for us. 
 
-**Katagiri**: Sure. *[someone laughs]* Even though you hate it *[he laughs]* immediately there, that's why when you sit down, you can catch any kind of "sound" of thoughts, ideas, and views, because [the]  surroundings are very calm. So we catch the sound ... which we have never thought before. Even a little sound comes up. That is [the] contents of your life. Any kinds of sounds come from the contents of our life.
+**Katagiri**: Sure. *[someone laughs]* Even though you hate it *[he laughs]*, immediately there, that's why when you sit down, you can catch any kind of "sound" of thoughts, ideas, and views, because [the]  surroundings are very calm. So we catch the sound ... which we have never thought before. Even a little sound comes up. That is [the] contents of your life. Any kinds of sounds come from the contents of our life.
 
 Is that okay? Okay.
 
@@ -367,13 +367,15 @@ But actually, you do [let go of thoughts] always in your daily living, exactly a
 
 **Same person**: Are you saying that what I'm doing with my mind while I'm sitting, even though it seems like what I do when I'm not sitting, still it's different? 
 
-**Katagiri**: It's different because you can see the mind a little clearer. That's why you can see lots of things in zazen. But in zazen, you are very confused because you have not enough time to involve [yourself] in mind, because nothing to do, circumstances are very quiet. But *[unintelligible]* lots of things. So, [the] important point in zazen is, whatever happens in the "vomit". [Yes,] vomit. "The vomit" means, anyway, *[he chuckles]* vomit of [the] mind.  Mind has lots of things [it's] attaching to. So, vomit. Mind feels good, mind doesn't feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sit here. All you have to do is just sit.
+**Katagiri**: It's different because you can see the mind a little clearer. That's why you can see lots of things in zazen. But in zazen, you are very confused because you have enough time to involve [yourself] in mind, because [there is] nothing to do and circumstances are very quiet. But *[unintelligible]* lots of things. So, [the] important point in zazen is whatever happens. In the "vomit". [Yes,] vomit. "The vomit" means, anyway, *[he chuckles]* vomit of [the] mind. Mind has lots of things [it's] attaching to. So, vomit. Mind feels good, mind doesn't feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sitting here. *All* you have to do is, just sit.
 
 ##### 1:12:16
 
 **Same person**: Yeah, I understand that. One thought that I had about it, Roshi, is that sometimes it feels like building up bad habits in zazen. That if I'm going to sit, I should sit with effort; I shouldn't get in the habit of sitting with no effort. That's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
 
-**Katagiri**: Well the point is just to spit out. But, you shouldn't think that, in that way. That's all. If you think in that way, "I am creating bad habit," that is extra. So immediately, you create another thing. So just spit up. Because this is the mind; your mind, your life. So, don't feel bad in that way; don't involve in that mind in that way. Just spit up. If your mind slips off, going to Europe, well let it go back. That's all. But when you go back, if at that time you think, "That is a bad habit" – that is extra.
+**Katagiri**: Well the point is just to spit out. But, you shouldn't think that, in that way. That's all. If you think in that way, "I am creating bad habit," that is extra. So immediately, you create another thing. 
+
+So just spit up. Because this is the mind; your mind, your life. So, don't feel bad in that way; don't involve in that mind in that way. Just spit up. If your mind slips off, going to Europe, well let it go back. That's all. But when you go back, if at that time you think, "That is a bad habit" – that is extra.
 
 **Same person**: What if you don't ever want to bring it back? You know, what if you're sitting there *[unintelligible]* in Europe?
 
@@ -401,17 +403,17 @@ Without mind, you cannot do zazen.
 
 **Question**: Roshi. I think you told the story of Gensha several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced enlightenment at that time. 
 
-**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on impermanence, transiency. He tried to help. But in the history, well, some history says ... Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
+**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on impermanence, transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
 
 ##### 1:17:17
 
-**Question**: Roshi? I *[unintelligible]*, but when so much, not just thought, but lots of emotion, and thought, and I want to escape from zazen, and too much uncomfortableness, and just everything is just zipping around. So you feel like, squeezed. *[she laughs]*
+**Question**: Roshi? I *[unintelligible]*, but when so much, not just thought, but lots of emotion, and thought, and "I want to escape from zazen," and too much uncomfortableness, and just everything, so that everything is just zipping around. So you feel like, squeezed. *[she laughs]*
 
-**Katagiri**: Yes. That is your life, don't you think? *[he and others laugh]* That's why I told you, that is your life. "Zipping", and squeezing ... *[laughter]* I understand. That's nice, *[unintelligible]* *[more laughter]*
+**Katagiri**: Yes. That is your life, don't you think? *[he and others laugh]* That's why I told you, that is your life. "Zipping", and squeezing ... *[laughter]* I understand. That's nice, [don't you think?] *[more laughter]*
 
-**Same person**: ... What do you do?
+**Same person**: *[after a moment]* What do you do?
 
-*[laughter]*
+*[more laughter]*
 
 **Katagiri**: Why do I do? 
 
@@ -439,7 +441,7 @@ So, right in the middle of dance – nothing. No zipping, no suffering, no pain.
 
 The atmosphere is different doing zazen; it's different. Dancing is total movement, dynamic, but zazen is stillness. That's a point; different appearance. But exactly content is the same. And also, after dance there are different things: the pros and cons, failures and successes, many things. But zazen is completely zazen. That's quiet, always; no pros and cons, feelings, anything. That's a different point. 
 
-That's why we have to emphasize always zazen itself,  dance itself. But [the] dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dancing. That means always looking at your life in the time process. This is a very common dualistic world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform the dance. Quality of dance [is?] completely beyond judgement. Judgement is something you are involved in just on the surface. So just accept. 
+That's why we have to emphasize always zazen itself, dance itself. But [the] dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dancing. That means always looking at your life in the time process. This is a very common dualistic world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform the dance. Quality of dance [is?] completely beyond judgement. Judgement is something you are involved in just on the surface. So just accept. 
 
 So that surface is sort of the weeds; but weeds will be wonderful fertilizer for you. That's why, accept. And then all you have to do is, basically, you must be freedom. You must get freedom of the zazen, of the dance. That means: practice dance itself. You have to find yourself right in the middle of dance itself.
 
@@ -517,7 +519,7 @@ Well, how about, for instance, some of these Rinzai teachers, like Kapleau and s
 
 **Katagiri**: Well, if you do zazen, and not zippy zazen, if you do real shikantaza, that is really good zazen for generations.
 
-**Same person**: *Why*?
+**Same person**: *Why?*
 
 **Katagiri**: Why? Because you can transmit. You can transmit yourself, how sublime your life is, through that zazen. You can see the picture of life, existence. You can transmit how important [the] problem of life and death [is], to future generations.
 
