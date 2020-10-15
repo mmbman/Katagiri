@@ -1,8 +1,9 @@
-[Index](index.md)
 # Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 1
 ## January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800119.mp3)
+
+[Home](index.md)
 
 At this time, I would like to study with you the second case of The Blue Cliff Record, “The Ultimate Path is Without Difficulty”. Our main case, let me read first the main case:
 
@@ -95,4 +96,4 @@ That is the pointer. And then, the main case: [recording ends]
 
 [Go to Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2.md)
 
-[Index](index.md)
+[Home](index.md)

@@ -1,6 +1,7 @@
-[Index](index.md)
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6
 ## June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
+
+[Home](index.md)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
 
@@ -335,4 +336,4 @@ This is explanation of that thing. In the first book of Abhidharmakosha, the who
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
 
-[Index](index.md)
+[Home](index.md)

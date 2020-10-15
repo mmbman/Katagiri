@@ -1,8 +1,9 @@
-[Index](index.md)
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5
 ## June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790613.mp3)
+
+[Home](index.md)
 
 ##### 0:00 start of recording
 
@@ -563,4 +564,4 @@ That is from the first.
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 
-[Index](index.md)
+[Home](index.md)

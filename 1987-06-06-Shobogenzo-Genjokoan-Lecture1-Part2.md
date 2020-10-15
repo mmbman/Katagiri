@@ -1,8 +1,9 @@
-[Index](index.md)
 # Shōbōgenzō: Genjōkōan: Lecture 1 Part 2
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606b.mp3)
+
+[Home](index.md)
 
 ... Buddha’s teaching. In other words, I mentioned, enlightenment and salvation. Enlightenment and salvation, or wisdom and compassion, (are) never separate from each other. So, you should understand deeply the emerging of enlightenment and salvation. 
 
@@ -200,4 +201,4 @@ So, always connected. Something like that.
 
 [Go to Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md)
 
-[Index](index.md)
+[Home](index.md)

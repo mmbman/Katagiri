@@ -1,8 +1,9 @@
-[Index](index.md)
 # Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 2
 ## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
+
+[Home](index.md)
 
 Main subject, Case 1. I read (?) yesterday. This is very famous story in Zen Buddhism, so I think most of you know pretty well. 
 
@@ -196,4 +197,4 @@ That’s why he says he doesn’t know the great illumination shines from under 
 
 Commentary is very helpful for you; so if you have time, read the commentary. From now on, if I have time, I would like to explain one by one. 
 
-[Index](index.md)
+[Home](index.md)

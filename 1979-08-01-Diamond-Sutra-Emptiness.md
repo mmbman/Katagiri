@@ -1,8 +1,9 @@
-[Index](index.md)
 # Diamond Sutra: Emptiness
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790801.mp3)
+
+[Home](index.md)
 
 Chapter 7:
 
@@ -186,4 +187,4 @@ If you don't have more questions, I want to tell you one thing. At Omaha Zen Cen
 
 [Next Talk: Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
-[Index](index.md)
+[Home](index.md)

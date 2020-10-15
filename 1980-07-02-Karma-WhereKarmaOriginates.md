@@ -1,8 +1,9 @@
-[Index](index.md)
 # Karma: Where Karma Originates
 ## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800702.mp3)
+
+[Home](index.md)
 
 I talked, in the first early morning zazen, I said, “to deport oneself in samadhi.” I have to correct this term: “to deport,” not “deport.” (Sounds like the same word.) That’s why, maybe I explained after that, “playing freely.” That is deport. Okay?
 
@@ -202,4 +203,4 @@ In Japan, Zen is… appears different. United States, Zen appears in a different
 
 Okay? Do you understand?
 
-[Index](index.md)
+[Home](index.md)

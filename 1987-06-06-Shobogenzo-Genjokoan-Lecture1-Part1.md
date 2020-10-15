@@ -1,8 +1,9 @@
-[Index](index.md)
 # Shobogenzo: Genjokoan: Lecture 1 Part 1
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606a.mp3)
+
+[Home](index.md)
 
 I would like to study egolessness through Genjōkōan, which you have had already… this book. (?) The title is, in English, “The Issue At Hand”. So at this time, would like to study egolessness - what is egolessness - through Dogen’s teaching, particularly Genjōkōan, “The Issue at Hand”. 
 
@@ -182,4 +183,4 @@ Is that okay? Do you have any other questions? We will have discussion (later?).
 
 [Go to Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2)
 
-[Index](index.md)
+[Home](index.md)

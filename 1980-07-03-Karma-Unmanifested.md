@@ -1,8 +1,9 @@
-[Index](index.md)
 # Karma: Unmanifested
 ## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800703.mp3)
+
+[Home](index.md)
 
 ...
 
@@ -33,5 +34,4 @@ Through this human body and mind, we have to know what karma is, what is the bas
 (15:00) The questions is; there is one question... According to Buddhist psychology, karma is divided into two: one is manifested, second is unmanifested karma. Why is it that we have to emphasize unmanifested karma? Because, karma is already with us and occupying the basis of human existence. And also this karma is sort of property, I told you yesterday; property. 
 
 
- 
-[Index](index.md)
+[Home](index.md)
