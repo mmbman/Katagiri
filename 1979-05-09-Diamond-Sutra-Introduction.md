@@ -72,7 +72,7 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
-In the latest Udambara, Professor Abe explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain Prajnaparamita not conceptually, [but] very practically. 
+In the latest Udambara, Professor Abe ([Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe), pronounced "Ah-bay") explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain Prajnaparamita not conceptually, [but] very practically. 
 
 ##### 23:12
 
