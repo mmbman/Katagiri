@@ -356,7 +356,7 @@ But actually, you do [let go of thoughts] always in your daily living, exactly a
 
 **Katagiri**: That's why I told you, mind is more picky. That's why mind doesn't believe that zazen is not real zazen. 
 
-**same person**: I don't think I understand. 
+**Same person**: I don't think I understand. 
 
 **Katagiri**: Mind. [The] mind is more picky of your thoughts and ideas in calm circumstances, surroundings, which is called zazen. That's why [the] mind doesn't believe. Mind *feels* always. Mind always pokes its head into many thoughts, many ideas. And then, ... mind feels good if [you] let it go. But actually surroundings are very quiet. And also, mind always sees something after and before. That means, analyze [and] dichotomize, always. That's why what mind can do is to pick up something after you have done. That is feeling, and that is experience; that is [the] feeling of zazen. [Boredom?] and enjoyment [are] about the same. 
 
