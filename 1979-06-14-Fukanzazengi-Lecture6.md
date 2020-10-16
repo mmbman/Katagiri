@@ -309,11 +309,13 @@ And then we say that is, body and mind exist. But I don't think so. But we canno
 
 **Same person**: We can't talk about *[unintelligible]*
 
-**Katagiri**: We have to talk ... If you want to talk about mind, you have to talk about mind as a dharma. Because that is a mind, that is a dharma which exists in dualistic world, and also which exists in the truth. Has the original nature of the mind. At that time, no mind. In the truth, in the context of the truth, there is no idea of the mind. That's why Prajnaparamita says no mind; no eyes, no ears. But how can we know no mind? That's why Dogen Zenji says, in the chapter of Prajnaparamita Sutra he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, mind, nose and eyes become one with zazen. So no eye, no mind, no mouth.
+**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in dualistic world, and also which exists in the truth, as the original nature of the mind. At that time, no mind. In the truth, in the context of the truth, there is no idea of the mind. That's why Prajnaparamita says "no mind"; "no eyes, no ears, [etc.]". But how can we know no-mind? That's why Dogen Zenji says, in the chapter [in Shobogenzo on the Prajnaparamita Sutra] he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
 
-Do you understand? That is the meaning of no mind. No mind doesn't mean destroy. So using your mind perfectly. How? Fitting into single object, zazen. At that time, there is no mind. 
+Do you understand? That is the meaning of no mind. No mind doesn't mean to destroy. So, using your mind perfectly. How? Fitting into [a] single object, zazen. At that time, there is no mind. 
 
-***Question***: Sometimes you, or in the past, you or (????) somebody, talked about big mind, small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
+##### 1:20:44
+
+**Question**: Sometimes you – or in the past, you or [someone], or Suzuki Roshi, talked about big mind, small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
 
 ***Katagiri***: Both. I'm talking about both.
 
