@@ -213,93 +213,103 @@ Well, [that] is a good example. Someone dies in that way, and that is conditione
 
 Philosophically speaking, that is interdependent co-production. 
 
+##### 1:02:55
+
 **Same person**: Well then, we can still see the instant without attaching to it and learning from that? Because, perhaps if he'd have noticed the rock an instant before, he wouldn't have bumped his toe on it.
 
-***Katagiri***: mm-hm?
+**Katagiri**: Hmm?
 
-***same person***: Gensha had noticed a rock.
+**Same person**: Gensha had noticed a rock.
 
-***Katagiri***: I don't know. Maybe so.
+**Katagiri**: I don't know. Maybe so.
 
-***same person***: ... Can we look at that and see that without attaching to it?
+**Same person**: Well I'm saying maybe he would have noticed the rock. Can we look at that and see that, or is that attaching to it?
 
-(1:03:34) ***Katagiri***: That is already process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment, completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock. Just there. 
+**Katagiri**: That is already [the] process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment, completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. 
 
-If his mind is working before he struck his toes, maybe he didn't, he wouldn't have such an event. But already here, something. That means, rock as a being, beyond function of mind. 
+If his mind is working before he struck his toes, maybe he wouldn't have such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
 
-But how do they associate with each other? So I don't know, we don't know. Because between the two, something connected. 
+But how do they associate with each other? We don't know. Because between the two, something connected. 
 
-That connection not something happens right now. It's really connected with the past and future. And that's very broad. 
+That connection [is] not something [that] happens right now. It's really connected with the past, and future. And that's why it's broad. 
 
-That's why if you don't pay careful attention to your life, well, many things come up. That's why all we have to do is, to use (???) with our best. Fitting into object. Zazen, if we want to do zazen. And become one. 
+That's why if you don't pay careful attention to your life, well, many things come up. That's why all we have to do is, to use perfectly, with our best, fitting into object. Zazen, if we want to do zazen. And become one. 
 
-And then after that - well, that's it. Mind associates and attaches. 
+And then after that – well, *[unintelligible]* mind associates and attaches. 
 
-(1:05:45) So, yesterday, according to my talk yesterday, we are always seeing before zazen and after zazen. We miss middle; middle, that is real zazen. But we always understand zazen before zazen and after zazen. Or you before zazen, you after zazen. We always look and check; analyze. But we miss most important zazen and practice is middle. Is that clear?
+So, according to my talk yesterday, we are always seeing before zazen and after zazen. We miss [the] middle; that is real zazen. But we always understand zazen before zazen and after zazen. Or you before zazen, you after zazen. We always look and check; analyze [ourself]. But we miss, [the] most important zazen and practice is [the] middle. Is that clear?
 
-***same person***: Mm-hm.
+**same person**: Mmm-hmm.
 
-***Question***: Roshi? In Dogen's writings, [unintelligible] water, moon (???) what is the water (???)
+##### 1:06:26
 
-***Katagiri***: Water is, according to Dogen's understanding, that is the whole universe. That water is the occupying (???) space; water is universe. When the water becomes one with moon, when the water (???) moon, at that time, water is not water, water is whole universe. At that time, there is no combination, no combination of water and moon.
+**Question**: Roshi? In Dogen's writings, the water reflects the Moon? What is the water?
 
-If you see the water, immediately there is the moon. But that moon doesn't appear. That's why Dogen Zenji says, "when one is bright, the other one is dark." That means, water appears. That water is really blooming of the universe. Not water; universe.
+**Katagiri**: Water is, according to Dogen's understanding, that is the whole universe. That water is occupying a certain space; water is universe. When the water becomes one with moon, when the water reflects the moon, at that time, water is not water, water is [the] whole universe. At that time, there is no combination of water and moon.
 
-Universe includes moon, water, tree, birds; that is real meaning of the water's life. 
+So, if you see the water, immediately there is the moon. But that moon doesn't appear. That's why Dogen Zenji says, "When one is bright, the other one is dark." That means that water appears. That water is really [the] blooming of the universe. Not water; universe.
 
-(1:08:20) ***Question***: Roshi? Were the two monks expressing their life when they went back to the monastery? Or were they picking and choosing?
+The universe includes moon, water, tree, birds; that is [the] real meaning of the water's life. 
 
-***Katagiri***: Two monks?
+##### 1:08:19
 
-***same person***: The two monks, your friends that you described. To go back; was that an expression of their life? Or were they picking and choosing? And what's the difference?
+**Question**: Roshi? Were the two monks expressing their life when they went back to the monastery? Or were they picking and choosing?
 
-***Katagiri***: Oh of course, he chose. He chose. His life. But by what? What part of his mind did he choose? I don't know. Maybe karma is connected with the past life, present life, future life. 
+**Katagiri**: Two monks?
 
-There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his, maybe, karma, he planted seed in the past. And then many things combined, unified, and (???). Something happened. 
+**Same person**: The two monks, your friends that you described. To go back; was that an expression of their life? Or were they picking and choosing? And what's the difference?
 
-And then his mind catch it. That's event. Monastery, and  movies, and his karmas, all things put together, and then something happens. And then, mind catch it. And then mind chooses, let's go there. 
+**Katagiri**: Oh of course, he chose. He chose – his life. But by *what*? What part of his mind did he choose [with?]? I don't know. Maybe karma; it's connected with the past life, present life, future life. 
 
-(1:10:20) ***Question***: I still don't understand the statement, "The body does not exist." (???) He said, "the body does not exist," or something like that?
+There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his – maybe – karma, he planted a seed in the past. And then many things combined, unified, and he can see. Something happened. 
 
-***Katagiri***: Well, if you use the term "body and mind," already that is the image of body and mind. You are already taken in by the (world?), the trick, already. The body and mind doesn't exist means, well, body and mind is what? Body and mind is nothing but a being which exists, right now, right here, beyond good or bad, right and wrong. So, body is what? Well, very important thing, but on the other hand, it's not important. So if you judge the body from your mind - in other words, if you see the body after something, before something; if you understand the body before and after, you always (???). But really body and mind is just the being becoming one with you. Becoming one with some event. 
+And then his mind catches that event. Monastery, and movies, and his karmas; all things put together, and then something happens. And then [the] mind catches it *[unintelligible]*. And then [the] mind chooses, "Let's go there."
 
-If you strike your toes on the rock, your body and mind - what? Nothing but the toes. The toes exemplify your whole body and mind.
+##### 1:10:20
 
-So, toes, your body, are just the beings as it is, beyond human speculation. Before you judge, before you see your body, before something happens. And also after, if you see your body after, something happens. You can say, that is the body. That's why you attach to it and scream, ouch. But right in the middle of the current(?), body doesn't, no idea of body, because toes, rock, just one. That's all.
+**Question**: I still don't understand the statement, "The body does not exist." When he stubbed his toe, and he said, "The body does not exist," or something like that?
 
-Body, rock, conditions ... just one. Your toes are used perfectly for the rock, fitting into it. That's all. Something happens. 
+**Katagiri**: Well, if you use the term "body and mind," already that is the image of the body and mind. You are already taken in by the [world?], the trick, already. The body and mind doesn't exist means, well, body and mind is what? Body and mind is nothing but a being which exists, right now, right here, beyond good or bad, right and wrong. So, body is what? Well, a very important thing, but on the other hand, it's not important. So if you judge the body from your mind – in other words, if you see the body after something, before something – if you understand the body before and after, you always *[unintelligible]*. But really body and mind is just the being becoming one with you, becoming one with some event. 
 
-***same person***: Why does the pain continue? Is that your mind [unintelligible]
+If you strike your toes on the rock, your body and mind – what? Nothing but the toes. The toes exemplify your whole body and mind.
 
-***Katagiri***: Yes. Pain is sort of the idea, image, of some of your experience. Real pain is no pain. But if your mind attaches to something, it is called, sometimes, pain, it is called pleasure. Your toe, your body, is just one with rock, right in the middle of event. No idea of body, no idea of rock, no idea of toes, no idea of pain. Just all things put together, combined. Combined and appear(?). In this realm, there is no confusion. Just all thing put together. And after that, immediately, mind attach to it. And then, you say, "Body. I have a toe." And then you say, "Ouch!" 
+So, toes, your body, are just the being as it is, beyond human speculation. Before you judge, before you see your body before, something happens. And also after, if you see your body after, something happens. You can say, that is the body; that's why you attach to it and scream, "Ouch!" But right in the middle of occurrence, body [has] no idea of body, because toes [and] rock [are] just one. That's all. Body, rock, [and] conditions are just one. Your toes are used perfectly for the rock, fitting into it. That's all. Something happens. 
 
-(1:14:53) That's why he said, "Body and mind doesn't exist; from where (does) pain come?" Actually, pain comes from, no abode. "No abode" means, just the functioning of the two things, rock and toe. Just the function, total dynamic working, that's all. Within this, no pain. Sort of a death. If you become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and us. After that, immediately I say, "Ah, this is death!" But it's too late. We do always, in our daily living. "I died. Oh! This is death." And though we say that is, body and mind exist. But I don't think so. 
+##### 1:13:37
 
-But we cannot ignore that. That's why we have to, we have already mind, and also we have lots of customs we have accumulated in the past. That's why we have to pay careful attention to our body and mind, how to use them, perfectly fitting into circumstances. Environment; zazen, or whatever. 
+**Same person**: Why does the pain continue? Is that your mind attaching to it and *[unintelligible]*
 
-***Question***: (???) Does mind exist before these things take place?
+**Katagiri**: Yes. Pain is sort of the idea, image, of some of your experience. Real pain is no pain. But if your mind attaches to something, it is called, sometimes, pain, [sometimes] it is called pleasure. So your toe, your body, is just one with rock, right in the middle of event. No idea of body, no idea of rock, no idea of toes, no idea of pain. Just all things put together, combined. They combine and appear. In this realm, there is no confusion; just all thing put together. And after that, immediately, mind attaches to it. And then, you say, "Body. I have a toe." And then you say, "Ouch!" 
 
-***Katagiri***: The mind already exists. 
+That's why he said, "Body and mind doesn't exist; from where [does the] pain come?" Actually, [the] pain comes from no abode. "No abode" means just the functioning of the two things, rock and toe. Just the function, total dynamic working, that's all. Within this, no pain. Sort of a death. If you become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and us. After that, immediately I say, "Ah, this is death!" But it's too late. We do always, in our daily living. "I died. Oh! This is death." *[he laughs]* 
 
-***same person***: The mind is always existing? 
+And then we say that is, body and mind exist. But I don't think so. But we cannot ignore that.... We have already mind, and also we have lots of customs we have accumulated in the past. That's why we have to pay careful attention to our body and mind, how to use them, perfectly fitting into circumstances, environment: zazen, or whatever. 
 
-***Katagiri***: Exists. Of course.
+##### 1:16:36
 
-***same person***: Independent of these things? Independent of toe hitting rock?
+**Question**: You said we have already mind, and you had some other statements, Roshi. Does mind exist before these things take place?
 
-***Katagiri***: Oh, independent. You mean the mind is independent. Yes, actually mind is independent from that total dynamic working. Yes. [some laughter] The original nature of the mind is already there. Original nature of the mind is what? Not mind. No mind. It's just conditioned origination. Conditioned co-production. 
+**Katagiri**: The mind ... already exists. 
 
-***same person***: ... But anyway, mind exists before these things are happening. 
+**Same person**: The mind is always existing? 
 
-***Katagiri***: Yes. Original face of the mind is exactly same as being. Just like rock and toes and trees and birds, many things. Same. That's why we call (them) dharmas. Everything is called dharmas. So mind, unwholesome mind or wholesome mind, whatever kind - all dharmas. Completely same. 
+**Katagiri**: Exists? Of course.
 
-***Question***: Can we speak about mind apart from dharmas? 
+**Same person**: Independent of these things? Independent of toe hitting rock?
 
-***Katagiri***: No, we cannot. 
+**Katagiri**: Oh, independent. You mean the mind is independent. Yes, actually mind is independent from that total dynamic working. Yes. *[some laughter]* The original nature of the mind is already there. Original nature of the mind is what? Not mind. No mind. It's just conditioned origination. Conditioned co-production. Function. That's all.
 
-***same person***: Can't talk about (???) ...
+**Same person**: But anyway, mind exists before these things are happening. 
 
-***Katagiri***: We have to talk ... If you want to talk about mind, you have to talk about mind as the dharma. Because that is a mind, that is a dharma which exists in dualistic world, and also which exists in the truth. Has the original nature of the mind. At that time, no mind. In the truth, in the context of the truth, there is no idea of the mind. That's why Prajnaparamita says no mind; no eyes, no ears. But how can we know no mind? That's why Dogen Zenji says, in the chapter of Prajnaparamita Sutra he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, mind, nose and eyes become one with zazen. So no eye, no mind, no mouth.
+**Katagiri**: Yes. Original face of the mind is exactly [the] same as being. Just like [the] rock, and toes, and trees, and birds, many things. Same. That's why we call [them] dharmas. Everything is called dharmas. So mind – unwholesome mind or wholesome mind, whatever kind – all dharmas. Completely [the] same. 
+
+**Same person**: Can we speak about mind apart from dharmas? 
+
+**Katagiri**: No, we cannot. 
+
+**Same person**: We can't talk about *[unintelligible]*
+
+**Katagiri**: We have to talk ... If you want to talk about mind, you have to talk about mind as a dharma. Because that is a mind, that is a dharma which exists in dualistic world, and also which exists in the truth. Has the original nature of the mind. At that time, no mind. In the truth, in the context of the truth, there is no idea of the mind. That's why Prajnaparamita says no mind; no eyes, no ears. But how can we know no mind? That's why Dogen Zenji says, in the chapter of Prajnaparamita Sutra he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, mind, nose and eyes become one with zazen. So no eye, no mind, no mouth.
 
 Do you understand? That is the meaning of no mind. No mind doesn't mean destroy. So using your mind perfectly. How? Fitting into single object, zazen. At that time, there is no mind. 
 
