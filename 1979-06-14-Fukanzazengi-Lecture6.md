@@ -309,52 +309,59 @@ And then we say that is, body and mind exist. But I don't think so. But we canno
 
 **Same person**: We can't talk about *[unintelligible]*
 
-**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in dualistic world, and also which exists in the truth, as the original nature of the mind. At that time, no mind. In the truth, in the context of the truth, there is no idea of the mind. That's why Prajnaparamita says "no mind"; "no eyes, no ears, [etc.]". But how can we know no-mind? That's why Dogen Zenji says, in the chapter [in Shobogenzo on the Prajnaparamita Sutra] he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
+**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in [the] dualistic world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. That's why Prajnaparamita says "no mind"; "no eyes, no ears, [etc.]". But how can we know no-mind? That's why Dogen Zenji says, in the chapter [in Shobogenzo on the Prajnaparamita Sutra] he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
 
 Do you understand? That is the meaning of no mind. No mind doesn't mean to destroy. So, using your mind perfectly. How? Fitting into [a] single object, zazen. At that time, there is no mind. 
 
 ##### 1:20:44
 
-**Question**: Sometimes you – or in the past, you or [someone], or Suzuki Roshi, talked about big mind, small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
+**Question**: ... In the past, you or [someone], or Suzuki Roshi, talked about big mind and small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
 
-***Katagiri***: Both. I'm talking about both.
+**Katagiri**: Both. I'm talking about both.
 
-So picky mind, monkey mind, is small mind. But original nature of mind is big mind. 
+So picky mind, monkey mind, is small mind. But original nature of the mind is big mind. 
 
-***Question***: You're talking about big mind.
+**Same person**: You're talking about big mind.
 
-***Katagiri***: Yes, big mind. But we cannot ignore small mind. Because, right after event occurs, mind associates with, so you can't ignore. That's why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no planning of having a reward, becoming buddha; no design. Continually do. Otherwise, we cannot use our body and mind perfectly, fitting into zazen. 
+**Katagiri**: Yes, big mind. But we cannot ignore small mind. Because, right after [an] event occurs, mind associates with [it], so you can't ignore [it]. That's why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no planning of having a reward, [no design of] becoming Buddha. [We have to] continually do [this], otherwise, we cannot use our body and mind perfectly, fitting into zazen. 
 
-(1:22:10) ***Question***: Roshi? [unintelligible] your explanation (???) What I wanted to know is, what the mind is right now.
+##### 1:22:10
 
-***Katagiri***: That's why I said the universe. Mind is right now. 
+**Question**: Roshi? When I asked about the water before, if I understood you, your explanation *[unintelligible]* What I wanted to know is, what the water is right now.
 
-Right now, right here; it doesn't mean something limited by something, which is called water. Right now, right here is what? Right now, right her is universe. If you say universe, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How do you see real meaning of right now, right here, of the universe? Be alive, right now, right here. 
+**Katagiri**: That's why I said the universe. [What?] is right now. 
 
-So whatever you say, that is a water, that is a moon; that's okay, according to this. But when you come back to dualistic world, water is water. Moment is moment. Space is space, time is time. Toe is toe, Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, Universe (moves?). That is (one?). It is not combination of the water and the moon. 
+Right now, right here, it doesn't mean something limited by something which is called water. Right now, right here is what? Right now, right here is universe. If you say universe, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How do you see [the] real meaning of right now, right here, of the universe? Be alive, right now, right here. 
 
-1:24:30 So that's why Dogen Zenji says, the self is whole universe. And also, time is being. Time is not time; time is being. Time is space. Space is time.
+So whatever you say – that is water, that is a moon – that's okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, [the] universe blooms. That is one. It is not a combination of the water and the moon. 
 
-Time is being, when you say, "now, right now, and right here." What is time is being? We cannot put a name on it. That's why we say "now-ness," or "now and here-ness," (???) "eternity," or "eternal time," or any other kind of words you use; it's very difficult to (???). Now and here (???)
+So that's why Dogen Zenji says, the self is [the] whole universe. And also, time is being. Time is not time; time is being. Time is space. Space is time.
 
-(1:25:33) So, water is your self, this whole universe; it's timeless being. 
+Time is being when you say, "now, right now, and right here." What is "time is being"? We cannot put a name on it. That's why we say "now-ness," or "now and here-ness," or "eternity," or "eternal time," or any other kind of words you use; it's very difficult to manifest. Now and here, *[unintelligible]*
 
-[tape skip]
-(1:25:50) ***Question***: [unintelligible]
+So, water is [the] universe. [The] self is [the] whole universe. Time is being.
 
-***Katagiri***: Because we have enjoyed small mind for many years. So we have got used to enjoying it, for many, many years. Not only your life; from the beginingless past. Anyway, we did, we have done, always. That's why it's pretty hard to see the big mind immediately. It really depends on the individual. 
+*[tape change]*
 
-Maybe someone, we can see big mind after practicing of three years, or five years, maybe ten years. Maybe so. It doesn't matter. 
+##### 1:25:50
+
+**Question**: *[unintelligible]*
+
+**Katagiri**: Well, because we have enjoyed [our] little, small mind for many years. So we have got used to enjoying it, for many, many years. Not only your [own] life; from the beginingless past. Anyway, we have done [so] always. That's why it's pretty hard to see the big mind immediately. It really depends on the individual. 
+
+Maybe someone really can see big mind after practicing three years, or five years, maybe ten years. Maybe so. It doesn't matter. 
 
 Is that okay? That's why it's pretty hard.
 
-But important point is, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing; "I like this," "I don't like this," "I feel good," "I don't feel good," "that's why I want do this," "I don't want to do this"... This is very messy. No matter how long you practice zazen, you cannot find big mind. Anyway, that is that; it's not necessary to destroy or hate or like. Let them be alone. All you have to do is, just, right zazen, if you want to do zazen.
+But [the] important point is, when we practice, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing; "I like this," "I don't like this," "I feel good," "I don't feel good," "That's why I want do this," "I don't want to do this"... This is very messy. No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it's not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
 
-***Question***: Roshi? Is apropti always present when propti is present? 
+##### 1:27:50
 
-***Katagiri***: That is a very conceptualized term. There are lots of terms there. But in Mahayana Buddhism we don't believe it is really something which exists. If you say something which exists, it has substance. 
+**Question**: Roshi? Is aprapti always present when prapti is present? 
 
-***same person***: Okay, well in the story you gave us as an example, of prapti and apropti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and apropti was the earthquake. And they were both present at that time. I think; if I understand the terms.
+**Katagiri**: That is a very conceptualized term. There are lots of terms there. But in Mahayana Buddhism we don't believe it is really something which exists. If you say something which exists, it has substance. 
+
+**Same person**: Okay, well in the story you gave us as an example, of prapti and apropti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and apropti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
 ***Katagiri***: Aprapti is kind of force which kept my friend to Eiheiji monastery separate from the movie theater. Keep them away, saving him from death. Do you understand, that is aprapti, something separate; force to separate. Sometimes put together; at that time, unfortunately, you have to die. But he was saved. That is, maybe, force of aprapti.
 
