@@ -175,41 +175,45 @@ Do you have questions?
 
 For instance... Well, here is a good example, okay? 
 
-When I was at Eiheiji monastery, we had a big earthquake. It was evening of the day which we performed memorial service for Dogen's death. And then - that is 5:00. And then, right after service in the zendo, all monks are about the leave the zendo, and several people in end of the line step out from the zendo, and then earthquake happened. Fortunately, there was no damage to Eiheiji monastery. The foundation, the hallways and steps dropped down almost an inch, that's all. No damage. 
+When I was at Eiheiji monastery, we had a big earthquake. It was evening of the day [on] which we performed [the] memorial service for Dogen's death. That is 5:00 [pm]. And then, right after [the] service ... all [the] monks are about the leave the zendo, and several people in the end of the line stepped out from the zendo, and then [the] earthquake happened. Fortunately there was no damage to Eiheiji monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that's all. No damage. 
 
-But here is a very good example. One of my friends; that day was vacation, a day off for him. So he took a day off, went to (???), a little far from Eiheiji monastery, it took about 70 minutes at that time; now it's pretty quick, but at that time it took 70 minutes from Eiheiji monastery to (???). So, he went there, and, I don't know what he did, but he went. But he told me, he wanted to see a movie at that time. He wanted to see a movie. But he thought, "Oh, tonight, memorial service. Tonight, particular day of performing the memorial service for Dogen's death. Let's go back." So he returned. And then at that time, all movie theater completely crashed; everybody died. This is because (???)  If you have a big earthquake, exactly, "boom". All people completely died. But he said he was saved. Do you understand? This is a very good example. [Group laughter; perhaps because no one understands how this is a good example.]
+But here is a very good example. One of my friends, that day was vacation, a day off for him. So he took a day off, [and] went to Fukui City. [It's] a little far from Eiheiji monastery, ... now it's pretty quick, but at that time it took about 70 minutes from Eiheiji monastery to Fukui city. So, he went there, and, I don't know what he did, but anyway he went. He told me he wanted to see a movie at that time. But he thought, "Oh, tonight, [is the] memorial service. [This] is the particular day of performing the memorial service for Dogen's death. Let's go back." So he returned. And then at that time, [the whole] movie theater completely crashed; everybody died. Because there were several tiers – no posts. If you have a big earthquake, exactly – "boom". All [the] people completely died; but he was saved. (The earthquake killed 3769 people. See [1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))
 
-One more person is, right on the train, from (Fukui?) city to Eiheiji monastery. Because he thought also, "Oh, today is the particular day of performing a memorial service for Dogen. So let's go back." He also, he was in the train. And also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, train completely tipped off. But he survived. Do you understand? This is very good example.
+Do you understand? This is a very good example. *[The group laughs – perhaps because no one understands how this is a good example.]*
 
-***same person***: Okay, how do these terms then relate to karma?
+One more person was on the train from Fukui City to Eiheiji monastery. Because he thought also, "Oh, today is the particular day of performing a memorial service for Dogen. So let's go back." So he was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off [the track]. But he survived. Do you understand? This is [a] very good example.
 
-***Katagiri***: I don't know. I don't know.
+**Same person**: Okay, how do these two terms then relate to karma?
 
-[laughter]
+**Katagiri**: I don't know. I don't know. *[some laughter]*
 
-That is karma, maybe past life. Well, you can envision past life, and also, his karma in the past might be good. He planted good karma in the past. That's why he wanted to see the movie, but he thought, "Oh, no, let's go back to Eiheiji monastery." So that is pretty good karma. From where that good sense comes, maybe from a past life. 
+That is karma, maybe past life. Well, you can envision past life, and also, his karma in the past might be good. He planted good karma in the past. That's why he wanted to see the movie, but he thought, "Oh, no, let's go back to Eiheiji monastery." So that is pretty good karma. From where that good sense comes – maybe from a past life. 
 
-***same person***: So the karma in influences how strong (???) ...
+**Same person**: So the karma in life influences how strong...
 
-***Katagiri***: Sure. In many ways. 
+**Katagiri**: Sure. In many ways. 
 
-But only if the conditions, times, opportunities are ripe and conditions arranged. (???) That's why Dogen's memorial day, his day off, all set up. And then, karma start work. Which would you like? You want to go to movie, or you want go to Eiheiji monastery?
+But only if the conditions, times, opportunities are ripe and conditions arranged. *[unintelligible]* That's why Dogen's memorial day, his day off – all set up. And then, karma starts work. Which would you like? You want to go to movie, or you want go to Eiheiji monastery?
 
-(1:00:06) ***same person***: How then are those conditions separate from the body, if karma is involved? I mean, things don't happen randomly. 
+##### 1:00:06
 
-***Katagiri***: How karma... What is your question? 
+ **Same person**: How then are those conditions separate from the body, if karma is involved? I mean, things don't happen randomly. 
 
-***same person***: When you talk about conditioned elements and ... not relating to the truth of the mind? Did you say that? Well how is that so, if... ?
+**Katagiri**: How karma... What is your question? 
 
-***Katagiri***: Well, conditioned elements are very broad. Past, present, future. So, conditioned elements associated with karma. 
+**Same person**: When you talk about conditioned elements and ... not relating to the truth or the mind? Did you say that? Well how is that so, if... ?
 
-***same person***: But isn't that associated with mind?
+**Katagiri**: Well, conditioned elements are very broad. Past, present, future. So, conditioned elements [are?] associated with karma. 
 
-***Katagiri***: No. Because that karma is completely beyond good or bad, right and wrong. If you judge the karma, it's good, it's bad, that means mind associated with karma. But karma is just karma. That is a conditioned element. That's why something happens. Rock, Gensha Shibi's toes. Something happens; but I don't know. You cannot say it is bad, it is good. Why can you do this? Well, we don't know. For instance if you walk on bridge, and the bridge immediately crashes, and you die. Why is it you have to die? No one knows. Well, there is a good example. Someone dies in that way, and that is conditioned elements. That is completely good and bad. That is a matter of (???) mind. So whether it is associated with karma, and not associated with, completely beyond. Just conditioned elements. But anyway, karma, conditioned elements, is related with the past, present, future. That is conditioned elements. 
+**Same person**: But isn't that associated with mind?
+
+**Katagiri**: No. Because that karma is completely beyond good or bad, right and wrong. If you judge the karma – it's good, it's bad – that is the mind associated with karma. But karma is just karma. That is a conditioned element. That's why something happens. Rock, Gensha Shibi's toes; something happens. But I don't know; you cannot say it is bad, [or] it is good. Why can you do this? Well, we don't know. For instance if you walk on a bridge, and the bridge immediately crashes, and you die. Why is it you have to die? No one knows. 
+
+Well, [that] is a good example. Someone dies in that way, and that is conditioned elements, always. That is completely and good and bad – that is a matter of the mind. So whether it is associated with karma, [or] not associated – completely beyond. Just conditioned elements. But anyway, conditioned elements [are] related with the past, present, future. That is conditioned elements. 
 
 Philosophically speaking, that is interdependent co-production. 
 
-***same person***: Well then, we can still see the instant without attaching to it and learning from that? Because, perhaps if he'd have noticed the rock an instant before, he wouldn't have bumped his toe on it.
+**Same person**: Well then, we can still see the instant without attaching to it and learning from that? Because, perhaps if he'd have noticed the rock an instant before, he wouldn't have bumped his toe on it.
 
 ***Katagiri***: mm-hm?
 
