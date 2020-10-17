@@ -5,93 +5,131 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790725.mp3)
 
-There must be a person who tries to establish peaceful world, always. But when you see the world, it's pretty difficult for us to see beautiful aspect of human world. At that time, lots of chaos. We are disappointed. 
+##### 0:00 start of recording
 
-But, according to Diamond Sutra, Subhuti, one of Buddha's ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated, particularly in the world, in the confused world." Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
+There must be a person who tries to establish [a] peaceful world, always. But when you see the world, it's pretty difficult for us to see [a] beautiful aspect of [the] human world. At that time, [there is] lots of chaos. We are disappointed. 
+
+But, according to [the] Diamond Sutra, Subhuti, one of Buddha's ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated – particularly in the confused world?" Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
 
 That is Buddha's answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still, there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
 
-This person, according to Buddha's explanation, this person really practiced, in his past life, a certain particular buddhist teaching based on no-self, and also no perception of dharma. No perception of subject, no perception of object. For century after century, for many, many years, he saw many buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
+According to Buddha's explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on no-self, and also no perception of dharma. No perception of subject, no perception of object. For century after century, for many, many years, he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
 
-Last week I told you, perception of self (is) divided into four. One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of five skandhas. Because five skandhas is analysis of existence. How existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, impulses, consciousness.
+##### 3:25
 
-So we believe, pretty easily, that five skandhas are self. But five skandhas are nothing but the teaching, apart from ourselves. So we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
+Last week I told you, perception of self (is) divided into four [categories].
 
-(5:11) The second kind of ego consciousness is: we believe there is that which is continuous. Otherwise, it seems to be difficult for us to believe, or go from child to adult. So, it's pretty easy for us to believe that there is that which is continuous, from birth to death.
+One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five skandhas. Because [the] five skandhas is [an] analysis of existence; how existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, impulses, consciousness.
 
-And then you believe, "I am changing." "I change." Then, the idea of change comes into existence. But if you don't believe there is something which is continuous, it's pretty difficult to get idea of change.
+We believe, pretty easily, that [the] five skandhas are self. But [the] five skandhas are nothing but the teaching, apart from ourselves. So we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
 
-So, it is pretty easy for us to believe there is something particular which is continuous. This is also second misunderstanding. This is second ego consciousness. So, no perception of a being.
+##### 5:11
 
-The third: if you believe there is that which is continuous, that is kind of a 'soul', unifying, harmonizing your life. Sort of a watchmaker. Watchmaker controls one watch, and second watch; no matter how many watches there are, he always controls (them), so all watches go exactly right, in proper way. So that is, watchmaker is sort of a 'soul', which exists forever, and also has almighty (power) to control your life. And all sentient beings: trees, birds, whole universe. This is also third ego consciousness. That's why buddha says, no perception of soul.
+The second kind of ego consciousness is: we believe there is that which is continuous. Otherwise, it seems to be difficult for us to believe or go from child to adult. So, it's pretty easy for us to believe that there is that which is continuous from birth to death.
 
-The fourth kind of ego consciousness is: we want to believe something particular which is called karma, which leads you to be reborn in the next life. So karma is something particular, which is eternal entity, which leads you to next life. But actually, karma doesn't exist in that way, as an idea of entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. 
+And then you believe, "I am changing." "I change." Then the idea of change comes into existence. But if you don't believe there is something which is continuous, it's pretty difficult to get [to the] idea of change.
 
-When you yawn, that is your karma. If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But (if) right after expression of your anger, you smile; well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that's why, no perception of a person. This is a kind of idea of karma. 
+So, it is pretty easy for us to believe there is something particular which is continuous. This is also [the] second misunderstanding. This is [the] second ego consciousness. So, no perception of a being.
 
-(9:54) So, no ego consciousness. This kind of Bodhisattva, who exists under all circumstances, teaching the Buddha's teaching, practiced for many, many years this practice of no ego consciousness.
+##### 6:56
 
-Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
+The third: if you believe there is that which is continuous, that is kind of a "soul", unifying, harmonizing your life. Sort of a watchmaker. [The] watchmaker controls one watch, and the second watch; no matter how many watches there are, he always controls [them], so all watches go exactly right, in [the] proper way. That is, [the] watchmaker is sort of a "soul", which exists forever, and also has almighty [power] to control your life, and all sentient beings: trees, birds, [the] whole universe. This is also [the] third ego consciousness. That's why Buddha says, no perception of [a] soul.
 
-There are four kinds of perceptions of object, negatively. Because, according to Diamond Sutra, this Bodhisattva practiced four no perceptions of object. One is, everything is emptiness. Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds - no. Emptiness means that a thing exists without any reason, why, or what, how. No reason. If you say "why," you can explain. Why Katagiri is Japanese; I can explain. But that explanation of Katagiri doesn't hit the mark. Why? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
+##### 8:10
 
-But you can explain why; some explanation of the reason why you are American, well, cannot (???). So finally, "you are American" means: emptiness, nothing. That means: Americans exist. We've got enemies. 
+The fourth kind of ego consciousness is: we want to believe something particular [exists] which is called karma, which leads you to be reborn in the next life. So karma is something particular, which is [an] eternal entity, which leads you to [your] next life. But actually, karma doesn't exist in that way, as an idea of [an] entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. 
 
-Rose, beautiful flower, blooms just to bloom. If you say beautiful flower blooms to work, or to live, or to create the people, or anything, (that's not?) real life of the beautiful flowers. Real life of beautiful flower is, bloom just to bloom. But when you see beautiful flowers in the heart of the mountain, immediately you think, "Oh poor flowers, kindly flowers, why don't you bloom in the beautiful garden? People see." But that is speculation, human speculation. The real life of flowers blooms just to bloom.
+When you yawn, that is your karma. If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But [if] right after expression of your anger, you smile – well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that's why, no perception of a person. This is a kind of idea of karma. 
 
-You live to work. Why do you live? What is the purpose, to live in this world? So you say, "I live to work." Or, "I work to live." Or you say, "I don't know. I just live." Whatever you say, it doesn't hit the mark. Okay? It doesn't help you. 
+##### 9:54
 
-If you know "I exist to work" or "I work to live," this is pretty good; a little helpful, for a certain period of time. But it's not real help. Real help is, you live just to live. That's all you have to do. Because, everything becomes emptiness. Everything returns to emptiness. No reason. To live is (???). Because, the nature of existence, your life, or your question, your answers, are absolute. Which you are pretty familiar with, absolute. Absolute is, it exists by itself. Original nature of the self, exists by itself. That means, you are free; really free. So, everything is empty. Emptiness.
+So, no ego consciousness. This kind of Bodhisattva, who exists under all circumstances, teaching the Buddha's teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
 
-(15:24) And then, if everything is emptiness, that emptiness is that which is existent. That which is accurate. Or, that which is real. If it is true, the third, no perception of object, is no perception. That means, you cannot talk about it. You cannot talk about the absolute, or original nature of the self, or existence. Don't touch it. Untouchable. If you touch it, if you (attack?) it, it's not absolute. 
+There are four kinds of perceptions of object negatively. Because, according to Diamond Sutra, this Bodhisattva practiced four no-perceptions of object.
 
-(16:15) I became a monk when I was 18. So, why I became a monk? I don't know exactly. I can explain; but if I explain why... it's not quite right. So, real reason why I became a monk is indescribable. Because, that reason has been connected into my past life. No reason. So it's pretty difficult to describe. 
+##### 11:02
 
-But whatever you pick up; your nose, your eyes, your head, your body, whatever it is; finally, it's very difficult to describe what really is. This is third: no perception of object. 
+One is, everything is emptiness. Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how; no reason. If you say "Why," you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn't hit the mark. Why? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
 
-Fourth is, if it is indescribable. The absolute is completely indescribable? No. You can describe. Because, there is a term, absolute, from where it comes. Because, someone knows. Maybe in the past life, in the past, someone knew the absolute, someone experienced the absolute. Someone experienced emptiness; someone experienced original nature of existence. Someone. 
+You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: emptiness, nothing. That means: Americans exist. We've got enemies. 
+
+##### 12:45
+
+Rose, beautiful flower, blooms just to bloom. If you say beautiful flower blooms to work, or to live, or to please the people, or anything – that's not real life of the beautiful flower. Real life of beautiful flower is, bloom just to bloom. But when you see beautiful flowers in the heart of the mountain, immediately you think, "Oh poor flowers, kindly flowers, why don't you bloom in the beautiful garden? People will see." But that is speculation, human speculation. The real life of flowers blooms just to bloom.
+
+... Why do you live? What is the purpose, to live in this world? So you say, "I live to work." Or, "I work to live." Or you say, "I don't know. I just live." Whatever you say, it doesn't hit the mark. Okay? It doesn't help you. 
+
+If you know "I live to work" or "I work to live," this is pretty good; a *little* helpful, for a certain period of time. But it's not *real* help. Real help is, you live just to live. That's all you have to do. Because ... everything returns to emptiness – no reason. To live is *[unintelligible]*. Because, the nature of existence, your life, or your question, your answers, are absolute. Which you are pretty familiar with, absolute. Absolute is, it exists by itself. Original nature of the self, exists by itself. That means, you are free; really free. So, everything is empty. Emptiness.
+
+##### 15:24 
+
+And then, if everything is emptiness, that emptiness is that which is existent, that which is accurate, or that which is real. If it is true, the third no perception of object is no perception. That means, you cannot talk about it. You cannot talk about the absolute, or original nature of the self, or existence. Don't touch it. Untouchable. If you touch it, if you [attack?] it, it's not absolute. 
+
+##### 16:15
+
+I became a monk when I was 18. So, why [did] I become a monk? I don't know exactly. I can explain, but if I explain why – it's not quite right. So, [the] real reason why I became a monk is indescribable. Because, that reason has been connected into my past life. No reason. So it's pretty difficult to describe. 
+
+But whatever you pick up; your nose, your eyes, your head, your body, whatever it is; finally, it's very difficult to describe what really is. This is [the] third no perception of object.
+
+##### 17:36
+
+Fourth is, if it is indescribable. [Is] the absolute completely indescribable? No. You can describe [it]. Because, there is a term, absolute, from where it comes. Because, someone knows. Maybe in a past life, in the past, someone knew the absolute, someone experienced the absolute. Someone experienced emptiness; someone experienced original nature of existence. Someone. 
 
 For instance, if I am master of making miso or tofu. No one can imitate exactly same as my tofu, okay? Exactly good tofu, in my way. No one can imitate. So that is the master of tofu maker. Tofu maker, miso maker. 
 
 But it's pretty difficult to teach making a menu. Of course I can make a menu, but it's pretty difficult to teach exactly the same tofu as I make. I try to teach, but it doesn't hit the mark. But I know. So, there is a master of tofu makers. That's why you can get the title: Master of the Tofu Makers. That is absolute. Real meaning of how to make tofu. 
 
-But it's very difficult to describe. But here is master of - as long as you have title, master of tofu maker - well, you are person who experienced. If it is true, you know that. So, you can describe. Then, next, we have the right menu. Items one, two, three, four; describe. But description doesn't hit the mark. That's why absolute is indescribable. But absolute is, still there is a fact which you are describing. 
+But it's very difficult to describe. But here is master of – as long as you have title, master of tofu maker – well, you are a person who experienced. If it is true, you know that. So, you can describe [it]. Then, next, we have to write menu: items one, two, three, four; describe. But [that] description doesn't hit the mark. That's why [the] absolute is indescribable. But absolute is, still there is a fact which you are describing. 
 
-(20:21) Do you understand? This is no perception of soul, no perception of object. 
+Do you understand? This is no perception of soul, no perception of object. 
+
+##### 20:28
 
 So that is the particular practice for Bodhisattvas, for many years in his past life. No perception of the subject, no perception of the object.
 
-"And why? If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
-
+> And why? If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
+> 
 > (Quote from "Buddhist Wisdom: The Diamond Sutra and The Heart Sutra" by Edward Conze, pp. 27-28)
 
-So, if you have perception of either a dharma or a no-dharma, if you have a perception of either object or no-object, this is still perception. For instance, in zazen, all you have to do is be one with zazen. That means not-thinking. Don't think anything. "Don't think anything" is, what do you mean - "think not-thinking." So what do you mean, not thinking not-thinking? That means, to think is also to think. Do you understand? Pretty clear. To think is also to think. But not-think is also to think. Don't you think so? 
+##### 21:44
 
-Both are perceptions created by your consciousness. You try not to think, but, you try not to think is always to think. Is that clear?
+So, if you have perception of either a dharma or a no-dharma, if you have a perception of either object or no-object, this is still perception. For instance, in zazen, all you have to do is be one with zazen. That means not-thinking; don't think anything. "Don't think anything" is – what do you mean? – "think not-thinking." So what do you mean, not thinking not-thinking? That means, to think is also to think. Do you understand? Pretty clear. But not-think is also to think. Don't you think so? 
 
-So, you cannot have perception of dharma or no-dharma. If Buddha teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
+Both are perceptions created by your consciousness. You try not to think, but, you try to not to think is always to think. Is that clear?
 
-But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says "no perception of dharma, no perception of no-dharma". You cannot attach to either one of them, because both are still thinking dharmas. Thinking object. So are still involved in object, perception of object. Whatever you say, perception of object or no perception of object, whatever you say. Negatively or affirmatively, whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
+##### 23:10
 
-If you attach to one of them, there is attachment to self, I told you before, perception of self, perception of a being, perception of a soul, perception of a person. I told you before; do you understand? So, you shouldn't attach to this. 
+So, you cannot have a perception of dharma or no-dharma. If Buddha teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
+
+But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says "no perception of dharma, no perception of *no-dharma*". You cannot attach to either one of them, because both are still thinking dharmas. Thinking object. So you are still involved in object, perception of object. Whatever you say, perception of object or no perception of object, whatever you say. Negatively or affirmatively, whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
+
+If you attach to one of them, there is attachment to self. I told you before: perception of a self, perception of a being, perception of a soul, perception of a person. I told you before; do you understand? So, you shouldn't attach to this. 
+
+##### 25:00
 
 That means the object is not something you can attach to. That means object is not something which is accurate, or not something real. Object is provisional being. Provisional being.
 
-But it's pretty hard to understand this. So, I want to explain this. Why... why do you believe a thing to be accurate? Even the Buddha says, everything is provisional being. But you don't believe, because, there is a book. No one believes this is provisional being. You say, this is a being, which is real, or accurate. Here it is. You don't believe. 
+But it's pretty hard to understand this. So, I want to explain this. Why do you believe a thing to be accurate? Even the Buddha says everything is provisional being, you don't believe [it], because, there is a book. There is a book; no one believes this is a provisional being. You say, this is a being which is real, or accurate. Here it is! [So] you don't believe [it].
 
-(26:12) For instance, if you see the movie. Well, you know the movie - what are you watching? You're watching the screen, pictures on a screen. But world created by the pictures on the screen is not real world; this is provisional world. You believe pretty well; that is provisional world. So don't worry about whatever happens. Whatever scene happens, or whatever thing happens - don't cry, don't surprise, whatever. Sit down on the chair and watch the screen. Finally, you cry. You cry, and you jump up when something happens. Did you see the "Jaws"? [*laughter*] You scream, immediately.
+##### 26:12
 
-But it is not real being. The artificial shark, also that is provisional being, created on the screen. But you scream, simultaneously. Why do you scream? Because you are participating in that provisional world. At that time, provisional world is no longer provisional. That is actual being; it turns into actual being. Do you understand? Is that clear? It completely turns into actual being.
+Well, for instance, if you see [a] movie. You know movies – what are you watching? You're watching the screen, pictures on a screen. But [the] world created by the pictures on the screen is not a real world; this is a provisional world. So you believe pretty well: this is a provisional world. So, don't worry about whatever happens. Whatever scene happens, or whatever thing happens – don't cry, don't [be] surprised, whatever. So you sit down on a chair and watch the screen. Finally, you cry. You cry, and you *jump up* when something happens. Did you see "Jaws"? [*laughter*] You scream, immediately.
 
-Always you are being with, creating picture on a screen. Intellectually, you believe that is a provisional world, but while you are watching this, completely unconsciously or consciously, you are present with provisional beings. So, provisional beings turn into actual beings. So that's why you cry, and you smile, with the world created on the screen.
+But it is not a real being. The artificial shark, also that is a provisional being, created on the screen. But you scream, simultaneously. Why do you scream? Because you are participating in that provisional world. At that time, provisional world is no longer provisional. That is actual being; it turns into actual being. Do you understand? Is that clear? It completely turns into actual being.
 
-(29:27) So with this point, we are always moving toward object. Always. At that time, object is no longer provisional being. Because if you move toward object initiatively, object becomes actual being. Because object is no longer object. Object is with you; you are in object. So finally, there is no object for you, completely. You become a tree. Tree becomes you. 
+Always you are being with ... pictures on a screen. Intellectually, you believe that is a provisional world, but while you are watching this, completely unconsciously or consciously, you are present with provisional beings, so provisional beings turn into actual beings. So that's why you cry, and you smile, with the world created on the screen.
 
-Initiatively, we are always moving toward object. Participating in, being engaged in. At that time, object becomes working, pretty well, with you simultaneously. 
+##### 29:25
 
-On the other hand - this is one point. So, subject always moving toward object. Another aspect is, not always subject initiatively moving toward object; sometimes object moves toward subject. For instance, when you walk on the street, and a big rock is right in front of you, and then you stumble over it. To stumble over it means, rock exists. That rock gives you a sense of resistance. A kind of resistance, or a kind of antagonism. 
+So with this point, we are always moving toward object. Always. At that time, object is no longer provisional being. Because if you move toward object initiatively, object becomes actual being. Because object is no longer object. Object is with you, and you are in object. So finally, there is no object for you, completely. You become a tree. Tree becomes you. 
 
-What is being which seems to be very accurate, touching your consciousness, touching your body, your hand. But sometimes you cannot touch your hand with your body. Sort of anger; your enemy. Your enemy, or your anger cannot touch with your body. But it's really something existant. Because, that hatred gives you a sense of antagonism, to you. At that time, object becomes not provisional being; object becomes completely actual being. 
+Initiatively, we are always moving toward object. Participating in, being engaged in. At that time, object becomes working with you, pretty well, simultaneously.
+
+##### 30:51
+
+On the other hand – this is one point, subject always moving toward object. Another aspect is, not always subject initiatively moving toward object; sometimes object moves toward subject. For instance, when you walk on the street, and a big rock is right in front of you, and then you stumble over it. To stumble over it means, rock exists. That rock gives you a sense of resistance. A kind of resistance, or a kind of antagonism. 
+
+[That] is being which seems to be very accurate, touching your consciousness, touching your body, your hand. But sometimes you cannot touch your hand with your body. Sort of anger; your enemy. Your enemy, or your anger cannot touch with your body. But it's really something existent. Because, that hatred gives you a sense of antagonism, to you. At that time, object becomes not provisional being; object becomes completely actual being. 
 
 So, object comes up to you, subject comes up to you. So, if you want to make a poem, or if you want to paint a picture of trees, you have to talk, you have to move initiatively to the trees, and talk.
 
