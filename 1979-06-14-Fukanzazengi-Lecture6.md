@@ -127,9 +127,9 @@ That's okay. But still there is a [*unintelligible*].
 
 ##### 45:40
 
-So that is one of the conditioned elements, which is called obtaining [or] getting. So between the two objects, zazen and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility exist. You can plant a seed, right now, with your body, completely. According to instructions, you can plant seeds – even though you don't understand. Or, you can completely actualize; actualize completion. According to [possession? perception?] and instructions; you can find, you can realize. But if you actualize exactly, even though intellectually [you] cannot reach [it], it's really actualized. You cannot *[unintelligible]*. So, you can complete something in your daily living. 
+So that is one of the conditioned elements, which is called obtaining [or] getting. So between the two objects, zazen and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility exist. You can plant a seed, right now, with your body, completely. According to instructions, you can plant seeds – even though you don't understand. Or, you can completely actualize; actualize completion. According to [possession? perception?] and instructions; you can find, you can realize. But if you actualize exactly, even though intellectually [you] cannot reach [it], it's really actualized. You can actualize. So, you can complete something in your daily living. 
 
-But also between zazen and you there is another possibility. "Well, I don't understand." "Well, I don't want to do, but, I will just do it."
+But also between zazen and you there is another possibility: "Well, I don't understand." "Well, I don't want to do, but, I will just do it."
 
 ##### 47:11
 
@@ -143,7 +143,7 @@ Well, we have to make every possible effort to do that, because we have a mind. 
 
 ##### 48:25
 
-Dogen Zenji says that's why "... it cannot be fully known by the practicing or realizing of supernatural power either." Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[he laughs]* Or, Dogen Zenji says, "It must be deportment beyond man's hearing and seeing." If you see zazen after your zazen, that is [an] image of zazen, it is not real zazen. Deportment means behavior, which is called zazen. In Japanese we call it Igi[?]. (Probably [Igi 威儀](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html) – dignity; dignified manner; majesty) The "I" (pronounced "Ee") of igi means "majestical and awe-inspiring". Majestic, very majestic. "Gi" of Igi means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says "deportment", but originally we use "igi". Usually we use "behavior", but that behavior is "igi" in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the [wisdom or rhythm] of the truth. That is your behavior.
+Dogen Zenji says that's why "... it cannot be fully known by the practicing or realizing of supernatural power either." Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[he laughs]* Or, Dogen Zenji says, "It must be deportment beyond man's hearing and seeing." If you see zazen after your zazen, that is [an] image of zazen, it is not real zazen. Deportment means the behavior which is called zazen. In Japanese we call it igi. (Pronounced "ee-jee", more or less. Probably [igi 威儀](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html) – dignity; dignified manner; majesty.) The "i" of igi means "majestic and awe-inspiring". Majestic, very majestic. "Gi" of Igi means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says "deportment", but originally we use "igi". Usually we use "behavior", but that behavior is "igi" in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the [wisdom or rhythm] of the truth. That is your behavior.
 
 ##### 50:30
 
@@ -159,13 +159,13 @@ Do you have questions?
 
 **Katagiri**: Positives, yes.
 
-**Same person**: And the aprapti is some force that keeps away.
+**Same person**: And aprapti is some force that keeps away.
 
 **Katagiri**: Yes.
 
 **Same person**: Could you say a little more about that?
 
-**Katagiri**: Well that is, changing. Changing; function of change, stream of change, broadly speaking. So we analyze that function of change, dividing [it] into several things. Again, prapti and aprapti – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
+**Katagiri**: Well that is, changing: function of change, stream of change, broadly speaking. So we analyze that function of change, dividing [it] into several things. Again, prapti and aprapti – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
 
 **Same person**: Could you develop a specific example, of, just, something in everyday life that comes up and where...
 
@@ -177,7 +177,7 @@ For instance... Well, here is a good example, okay?
 
 When I was at Eiheiji monastery, we had a big earthquake. It was evening of the day [on] which we performed [the] memorial service for Dogen's death. That is 5:00 [pm]. And then, right after [the] service ... all [the] monks are about the leave the zendo, and several people in the end of the line stepped out from the zendo, and then [the] earthquake happened. Fortunately there was no damage to Eiheiji monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that's all. No damage. 
 
-But here is a very good example. One of my friends, that day was vacation, a day off for him. So he took a day off, [and] went to Fukui City. [It's] a little far from Eiheiji monastery, ... now it's pretty quick, but at that time it took about 70 minutes from Eiheiji monastery to Fukui city. So, he went there, and, I don't know what he did, but anyway he went. He told me he wanted to see a movie at that time. But he thought, "Oh, tonight, [is the] memorial service. [This] is the particular day of performing the memorial service for Dogen's death. Let's go back." So he returned. And then at that time, [the whole] movie theater completely crashed; everybody died. Because there were several tiers – no posts. If you have a big earthquake, exactly – "boom". All [the] people completely died; but he was saved. (The earthquake killed 3769 people. See [1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))
+But here is a very good example. One of my friends that day was on vacation, a day off for him. So he took a day off, [and] went to Fukui City. [It's] a little far from Eiheiji monastery, ... now it's pretty quick, but at that time it took about 70 minutes from Eiheiji monastery to Fukui city. So, he went there, and, I don't know what he did, but anyway he went. He told me he wanted to see a movie at that time. But he thought, "Oh, tonight, [is the] memorial service. [This] is the particular day of performing the memorial service for Dogen's death. Let's go back." So he returned. And then at that time, [the whole] movie theater completely crashed; everybody died. Because there were several tiers – no posts. If you have a big earthquake, exactly, "boom". All [the] people completely died; but he was saved. (The earthquake killed 3,769 people. See [1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))
 
 Do you understand? This is a very good example. *[The group laughs – perhaps because no one understands how this is a good example.]*
 
@@ -239,7 +239,7 @@ And then after that – well, *[unintelligible]* mind associates and attaches.
 
 So, according to my talk yesterday, we are always seeing before zazen and after zazen. We miss [the] middle; that is real zazen. But we always understand zazen before zazen and after zazen. Or you before zazen, you after zazen. We always look and check; analyze [ourself]. But we miss, [the] most important zazen and practice is [the] middle. Is that clear?
 
-**same person**: Mmm-hmm.
+**Same person**: Mmm-hmm.
 
 ##### 1:06:26
 
@@ -329,11 +329,11 @@ So picky mind, monkey mind, is small mind. But original nature of the mind is bi
 
 **Question**: Roshi? When I asked about the water before, if I understood you, your explanation *[unintelligible]* What I wanted to know is, what the water is right now.
 
-**Katagiri**: That's why I said the universe. [What?] is right now. 
+**Katagiri**: That's why I said the universe. [Which?] is right now. 
 
-Right now, right here, it doesn't mean something limited by something which is called water. Right now, right here is what? Right now, right here is universe. If you say universe, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How do you see [the] real meaning of right now, right here, of the universe? Be alive, right now, right here. 
+Right now, right here, it doesn't mean something limited by something which is called water. Right now, right here is what? Right now, right here is [the] universe. If you say universe, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How do you see [the] real meaning of right now, right here, of the universe? Be alive, right now, right here. 
 
-So whatever you say – that is water, that is a moon – that's okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, [the] universe blooms. That is one. It is not a combination of the water and the moon. 
+So whatever you say – "that is water," "that is a moon" – that's okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, [the] universe blooms. That is one. It is not a combination of the water and the moon. 
 
 So that's why Dogen Zenji says, the self is [the] whole universe. And also, time is being. Time is not time; time is being. Time is space. Space is time.
 
@@ -353,7 +353,7 @@ Maybe someone really can see big mind after practicing three years, or five year
 
 Is that okay? That's why it's pretty hard.
 
-But [the] important point is, when we practice, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing; "I like this," "I don't like this," "I feel good," "I don't feel good," "That's why I want do this," "I don't want to do this"... This is very messy. No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it's not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
+But [the] important point is, when we practice, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing: "I like this," "I don't like this," "I feel good," "I don't feel good," "That's why I want do this," "I don't want to do this"... This is very messy. No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it's not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
 
 ##### 1:27:50
 
@@ -361,7 +361,7 @@ But [the] important point is, when we practice, we have to practice zazen not as
 
 **Katagiri**: That is a very conceptualized term. There are lots of terms there; but in Mahayana Buddhism we don't believe [they are] really something which exist. If you say something which exists, it has substance. 
 
-**Same person**: Okay, well in the story that you gave us as an example of prapti and aprapti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and apropti was the earthquake. And they were both present at that time. I think; if I understand the terms.
+**Same person**: Okay, well in the story that you gave us as an example of prapti and aprapti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and aprapti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
 **Katagiri**: Aprapti is kind of a force which kept my friend [at] Eiheiji monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprapti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprapti.
 
@@ -387,7 +387,7 @@ Is that clear? That is aprapti: force to separate from something.
 
 **Katagiri**: No.
 
-**Question**: Roshi? What simplified it for me was when you explained in the book that aprapti was more a force that kept away the negatives, and prapti was the force that brought towards you positives. Is that correct understanding?
+**Another person**: Roshi? What simplified it for me was when you explained in the book that aprapti was more a force that kept away the negatives, and prapti was the force that brought towards you positives. Is that correct understanding?
 
 **Katagiri**: Towards you or towards your object. 
 
