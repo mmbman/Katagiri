@@ -9,11 +9,11 @@
 
 (A loud thunderstorm is going on during this talk.)
 
-... when the Buddha Shakyamuni sat in meditation, in zazen, under a tree, *[there is a sound of thunder]* he had [a] tremendous sound of thunder, that was more than this. But, his meditation, zazen, was not disturbed by the thunder. And after zazen, he stood from his seat, and practiced kinhin, walking meditation. At that time, [the] thunder was completely gone. The surroundings were very quiet. Around him, there was one of the Buddhist laymen, who watched the Buddha's meditation. But the Buddha's zazen *[sound of thunder]* was never disturbed by [the] thunder, *[loud sound of thunder continues]* [even though it] was [a] really tremendous sound of thunder. He asked the Buddha: "Four cows and two farmers were killed by electric shock of lightning at this time, a few minutes ago. *[long sound of thunder, or maybe an airplane low overhead]* Did you hear the sound of the thunder?" *[the sound continues]* The layman said, "There was a huge sound of thunder, everyone knew that. Did you sleep at that time?" Buddha said, "No, I didn't sleep." So the layman said, "Were you in the state of [a] person who [is] without consciousness?" The Buddha said, "No. I did zazen, with consciousness." So [the] layman said, "That's excellent, wonderful! I have never [something like this] heard before." So the layman really respected [*thunder*] the Buddha Shakyamuni's zazen. 
+... when the Buddha Shakyamuni sat in meditation, in zazen, under a tree, *[there is a sound of thunder]* he had [a] tremendous sound of thunder, that was more than this. But, his meditation, zazen, was not disturbed by the thunder. And after zazen, he stood from his seat, and practiced kinhin, walking meditation. At that time, [the] thunder was completely gone. The surroundings were very quiet. Around him, there was one of the Buddhist laymen, who watched the Buddha's meditation. But the Buddha's zazen *[sound of thunder]* was never disturbed by [the] thunder, *[loud sound of thunder continues]* [even though it] was [a] really tremendous sound of thunder. He asked the Buddha: "Four cows and two farmers were killed by electric shock of lightning at this time, a few minutes ago. *[long sound of thunder, or maybe an airplane low overhead]* Did you hear the sound of the thunder?" *[the sound continues]* The layman [continued], "There was a huge sound of thunder, everyone knew that. Did you sleep at that time?" Buddha said, "No, I didn't sleep." So the layman [asked], "Were you in the state of [a] person who [is] without consciousness?" The Buddha said, "No. I did zazen, with consciousness." So [the] layman said, "That's excellent, wonderful! I have never [something like this] heard before." So the layman really respected [*thunder*] the Buddha Shakyamuni's zazen. 
 
 ##### 4:14
 
-And in those days, the attainment of samadhi with no consciousness was regarded as the highest level of spiritual life. [From] this point, you can stop [your] breath for a certain period of time, or you can stay in a sort of death. You can stop functioning of your heart. 
+In those days, the attainment of samadhi with no consciousness was regarded as the highest level of spiritual life. [From] this point, you can stop [your] breath for a certain period of time, or you can stay in a sort of death. You can stop the functioning of your heart. 
 
 So that was really [the] highest level of practice in those days, practice [informed] by Brahmanism. So, if people attained this, everybody respected [it]. But Buddha didn't do [this]; Buddha did zazen with consciousness. Never-the-less, he didn't hear the sound. His zazen was not disturbed by the sound of meditation, the sound of the thunder. So, this layman had never heard before about such a kind of zazen. So he said, "How wonderful, excellent it is!"
 
@@ -114,47 +114,45 @@ That is called zazen, based on body and mind dropping off.
 
 Okay, do you have any questions?  
 
-(39:44) 
+##### 39:44
 
-***Question***: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops" (   )  and you just mentioned that buddha said he (didn't) hear the thunder. Are they saying the same thing as (   )?
+**Question**: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops." And you just mentioned that Buddha said he didn't hear the thunder. Are they saying the same thing as ... ?
 
-***Katagiri***: Same. Expression is different, but same situation. 
+**Katagiri**: Same. [The] expression is different, but same situation. 
 
-The Zen master (is) always right in the middle of real rain drops. But, it's not necessary to stay with it. That's why any time, anywhere, you can go to the right, to the left. That's why he said, "almost". Because if you say "I am to the left; I am just here" - immediately (  ) another aspect (  ) "Why don't you come this way?" So, "Okay, I will go." If you stay there, and then pop in, "I am here." Another side, "Why don't you come in?" That is dualistic. [*thunder*]
+The Zen master [is] always right in the middle of real rain drops. But, it's not necessary to stay with it. That's why any time, anywhere, he can go to the right, to the left. That's why he said, "almost". Because if you say, "I am to the left; I am just here," – immediately: "Hey, hey!" Another aspect [decides?], "Why don't you come this way?" So, "Okay, I will go." If you stay there, and then pop in, "I am here," another side says, "Why don't you come here?" That is dualistic. [*thunder*]
 
-Basically, Zen Master, right in the middle of real raindrops, he never moves. But even if he moves: flickering lights. Right side, left side. And then, in the realm of flickering lights: "I am in the right side" or "I am in the left side." That is "almost". It's not real place he has to stay. But anytime he can move. That is freedom. 
+Basically, [a] Zen Master, right in the middle of real raindrops, he never moves. But even if he moves: [that is] flickering lights. Right side, left side. And then, in the realm of flickering lights: "I am in the right side" or "I am in the left side" – that is "almost". It's not a real place he has to stay. Anytime, he can move. That is freedom. 
 
-Monk asked the ino - ino hit the (  ) [*unintelligible over airplane noise*]  
+##### 41:54
 
-... Made by wood. We hit with small piece of wood. Then, hitting that one, and making announcement, which is very important. If he wants to kick out somebody, because he did something wrong, the Ino makes announcement, he will kick out of the zendo today, right after breakfast. And then, he bows nine bows to Manjushri and leaves. Well, that is, lots of rules. Lots of rules there. But anyway, in the story, Ino hits that one, and making announcement, today the monks on the right side should work such and such, outside, picking of grasses, et cetera. The monks on the left side should work such and such. And then monks accept. But only the head monk didn't accept. So he asked the Ino, "What does Manjushri do? Because he sits right in the middle of zendo." In the zendo, in Japan, Manjushri is enshrined in the middle of the zendo - not this way, right in the middle. The monks sit around Manjushri; right side, left side, anywhere around. 
+A monk asked the Ino – the Ino hit the *[unintelligible over airplane noise]* ... not the han, what would you say... *[unintelligible]* ... we hit [it] with a small piece of wood. Then, hitting that, and making [an] announcement which is very important. If he wants to kick somebody out because he did something wrong, the Ino makes [an] announcement [that] he will kick people out of the zendo today, right after breakfast. And then, he bows nine bows to Manjushri and leaves. Well, that is the monastic rules; lots of rules there. But anyway, in the story, [the] Ino hits that one, and making an announcement: Today the monks on the right side should work such and such – outside, picking the grasses, et cetera. The monks on the left side should work such and such. And then the monks accept [their assignments]. But only the head monk didn't accept [it]. He asked the Ino, "What does Manjushri do? Because he sits right in the middle of [the] zendo." In Japan, Manjushri is enshrined in the middle of the zendo – not this way [here], [but] right in the middle. The monks sit around Manjushri; right side, left side, anywhere around. So always Majushri sits in the middle. Well, the Ino didn't give an assignment [*he laughs*] to Manjushri. That's why [the] head monk asked, "What does Manjushri do?" The Ino said, "He is always sitting in the middle, never attached to right or left. But he is working, always." Pretty good, huh? *[some laughter]*
 
-So always Majushri sits in the middle. Well, the Ino didn't give assignment [*laughs*] to Manjushri; that's why head monk asked, "What does Manjushri do?" The Ino said, "He is always sitting in the middle, never attached to right or left. But he's working, always." Pretty good, huh? [some laughter]
+That's why ... Buddha said, he didn't hear the sound of the thunder. *[unintelligible]* But on the other hand, Buddha says, "I almost lose myself by the sound of [the] thunder." That's okay, because he is in the middle. Any time, anywhere, he can go in all directions. If your are always right side, it's pretty hard to go to the left side. But in the middle, it's pretty easy to go in all directions. 
 
-That's why that is, Buddha said. So he didn't listen to, he didn't hear, the sound of thunder. (   ) But on the other hand, Buddha says, "I almost lose myself by the sound of thunder." That's (okay?). Because he is in the middle. Any time, anywhere, he can go in all directions. If your are always right side, it's pretty hard to go to the left side. But in the middle, it's pretty easy to go in all directions. 
+##### 46:10
 
-***Question***: Is that what we mean by the Middle Way?
+**Question**: Is that what we mean by the Middle Way?
 
-***Katagiri***: Yes. Middle Way. Middle Way is not to walk in the middle of the street, okay? [*pause, then laughter*] Middle Way is to walk in the middle with total awareness - of middle, right side, and left side, and all beings around him. This is the Middle Way.
+**Katagiri**: Yes. Middle Way. The Middle Way is not to walk in the middle of the street, okay? [*he pauses, then there is some laughter*] The Middle Way is to walk in the middle with total awareness – of middle, right side, and left side, and all beings around him. Then this is the Middle Way. But if you just walk in the middle, you hit your forehead against a streetcar. [*laughter*] Watch out. You cannot walk that way. 
 
-But if you just walk in the middle, you hit your forehead against a streetcar. [*laughter*] Watch out. You cannot walk that way. 
+Before, I told you always, there is a scale. Now why don't point out the *middle*? You cannot just point out the middle without understanding there is a right and there is a left, or [the] total picture of the scale.
 
-Before, I told you always (   ). Why don't point out the middle. You can't just point out the middle without understanding there is a right, there is a left, or total picture of the (  ) 
+*[tape change]*
 
-[tape change]
+##### 47:30
 
-(47:30) ... If you think about zazen for seven days, you become a good friend with zazen. How do you like? You hate. [*laughs*] 
+(The following anecdote, at the end of the seven day sesshin, starts quietly, but is difficult to transcribe after a while because it's mostly covered by laughter.)
 
-Is there anyone who attained enlightenment? [*laughter*]
+**Katagiri**: If you think about zazen for seven days, you become a good friend with zazen. How do you like [it]? You hate [it]. [*soft laughter*]
 
-No one? [*laughter*]
+Is there anyone who attained enlightenment? No one? [*laughter*]
 
-(The following anecdote is difficult to transcribe, since it's mostly covered by laughter.)
+Nakagawa Roshi ... at the last day of sesshin, he would say – He is very interesting Zen master. He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the Rinzai Zen style, so that's okay; beautiful, anyway. So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and [*he laughs*] he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained enlightenment. Do you know who it is?" *[everyone laughs]* That is a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" [*sound of loudly dropping a stick or something*] *[raucous laughter]* *[unintelligible]* That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who? Who?" – "Maybe I?" *[laughter]* But he says, "No, no, no. I don't either." He's a nice guy, huh? Finally, all *[unintelligible]*, gone. "Yes." *[laughter]*
 
-Nakagawa Roshi(?) said, in the last day of sesshin, he would say - He is very interesting Zen master. He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is (  ). That's okay; beautiful, anyway. So one day he sat in the (   ) and did (sitting?), and he played a record of a Bach... concerto. Famous music, anyway. He liked very much; so he played that, and [*laughs*] he immediately said: "At this time during sesshin, there is one person who attained enlightenment. Do you know who it is?" [*laughter*] ... in a very big voice: "DO YOU KNOW WHO IT IS?" [*laughter*] And then no one said. [*laughter*] And then he said, "Do you want to know who who you [*unintelligble*]" [*laughter*] But no one said. And only one person said [*unknown gesture*]. Then he immediately said, "*This* person?" [*sound of dropping stick or something, disapprovingly*] ... That's interesting. Everybody such as (  ). Maybe I? He says, "No, no, no. I don't either." He's a nice guy, eh? Finally, all (  ) gone. "Yes." 
+*[he laughs]* Remember that story. That's [a] real, true story. 
 
-[laughs] Remember that story. That's real, true story. 
-
-[*end of recording*]
+##### 51:04 end of recording
 
 [Next talk: Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 
