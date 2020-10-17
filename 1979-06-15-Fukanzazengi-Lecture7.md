@@ -100,19 +100,23 @@ So, very naturally, zazen blooms. And also you bloom, as total personality, ther
 
 ##### 35:18
 
-Yesterday I told you, between the two objects, there is a kind of forces. That is just a condition; condition or fact. That condition, conditioned elements, a kind of force to unify two objects, perfectly. That conditioned elements is kind of force which melds each object, used perfectly, in order to fit another object. That is conditioned element. Even though you don't like. If you don't like, and you try to escape a certain situation. Or if you do something at random, immediately some problem there. But basically, if there are two objects completely unified, basically. By what? Conditioned elements. But this conditioned element, we don't know what it is, because this is just dynamic working - that's all. Dynamic working. We don't know how two objects are fit together; we don't know. But anyway, conditioned elements can use one subject, exactly perfectly, in order to fit its own object. At that time, something happens. Striking the toe, and blood comes. 
+Yesterday I told you, between the two objects there is a kind of force. That is just a condition; condition or fact. That condition, conditioned element, [is] a kind of force to unify two objects perfectly. That conditioned element is a kind of force which melds each object, used perfectly, in order to fit another object. That is conditioned element. Even if you don't like and you try to escape a certain situation, or if you do something at random, immediately [there is] some problem there, but basically, there are two objects completely unified. By what? Conditioned elements. But this conditioned element, we don't know what it is – because this is just dynamic working, that's all. We don't know how two objects are fit together. But anyway, conditioned elements can use one subject exactly perfectly in order to fit its own object. At that time, something happens. Striking the toe, and blood comes. 
 
-Then immediately mind picks, and says, "Oh, toes. And rocks. And also blood." Finally you say, "Ouch." But that is just seeing the pictures, before and after. But right in the middle, between before and after, nothing. No pains, no delusions, no confusion. Just the rock, just the toes, just the breath. All of them exist perfectly, in peace.
+Then immediately mind picks, and says, "Oh, toes. And rocks. And also blood." And finally you say, "Ouch." But that is just seeing the pictures, before and after. Right in the middle, between before and after: nothing. No pains, no delusions, no confusion. Just the rock, just the toes, just the breath. All of them exist perfectly, in peace.
 
-So, we have to do this. How we can do this? From this body and mind. That's why, using your mind, consciousness. Let's use your body and mind with your best, in order to fit your object. Because, we have our body, and our mind, have lots of customs you have accumulated, from the beginning-less past. That's why its pretty hard to fit your object exactly. That's why we need to practice. But even for a moment, your body and mind are used perfectly to fit your object. That is, anyway, blooming flower, beautiful flower. Even though you don't know, it's really blooming flower. 
+##### 37:52
 
-At that time, if you continue to do this, you become, very naturally, a great guitar player. Zazen player. Buddha-land player. It's true. Very naturally. Even though you don't like. Very naturally you do. 
+So, we have to do this. How can we do this? From this body and mind. That's why, using your mind, consciousness – let's use your body and mind with your best, in order to fit your object. Because, we – our body and our mind – have lots of customs [we] have accumulated, from the beginningless past. That's why its pretty hard to fit your object exactly. That's why we need to practice. But even for a moment, [if] your body and mind are used perfectly to fit your object, that is [a] blooming flower, beautiful flower. Even though you don't know, it's really [a] blooming flower. 
+
+At that time, if you continue to do this, you become, very naturally, a great guitar player, [or] zazen player, [or] Buddha-land player. It's true. Even though you don't like [it], very naturally you do. 
 
 That is called zazen, based on body and mind dropping off. 
 
 Okay, do you have any questions?  
 
-(39:44) ***Question***: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops" (   )  and you just mentioned that buddha said he (didn't) hear the thunder. Are they saying the same thing as (   )?
+(39:44) 
+
+***Question***: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops" (   )  and you just mentioned that buddha said he (didn't) hear the thunder. Are they saying the same thing as (   )?
 
 ***Katagiri***: Same. Expression is different, but same situation. 
 
