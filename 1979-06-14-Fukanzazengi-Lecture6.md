@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-... talked about zazen based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to see this from a pretty different angle, that is sort of from the psychological point of view. You know pretty well [that] in the primitive Buddhism, there are the categories of existence, which are called [the] five skandhas. Among the five skandhas, there is very interesting concept which is called samskara. In the Prajnaparamita Sutra, it is translated as "impulses". According to Doctor Conze ([Edward Conze](https://en.wikipedia.org/wiki/Edward_Conze)) it is regarded as "together-maker". That concept of samskara is very interesting teaching.
+... talked about zazen based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to see this from a pretty different angle, that is sort of from the psychological point of view. You know pretty well [that] in primitive Buddhism, there are the categories of existence which are called [the] five skandhas. Among the five skandhas, there is [a] very interesting concept which is called samskara. In the Prajnaparamita Sutra, it is translated as "impulses". According to Doctor Conze ([Edward Conze](https://en.wikipedia.org/wiki/Edward_Conze)) it is regarded as "together-maker". That concept of samskara is very interesting teaching.
 
 ##### 2:05
 
@@ -341,7 +341,7 @@ Time is being when you say, "now, right now, and right here." What is "time is b
 
 So, water is [the] universe. [The] self is [the] whole universe. Time is being.
 
-*[tape change]*
+*[tape skip]*
 
 ##### 1:25:50
 
@@ -359,61 +359,67 @@ But [the] important point is, when we practice, we have to practice zazen not as
 
 **Question**: Roshi? Is aprapti always present when prapti is present? 
 
-**Katagiri**: That is a very conceptualized term. There are lots of terms there. But in Mahayana Buddhism we don't believe it is really something which exists. If you say something which exists, it has substance. 
+**Katagiri**: That is a very conceptualized term. There are lots of terms there; but in Mahayana Buddhism we don't believe [they are] really something which exist. If you say something which exists, it has substance. 
 
-**Same person**: Okay, well in the story you gave us as an example, of prapti and apropti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and apropti was the earthquake. And they were both present at that time. I think; if I understand the terms.
+**Same person**: Okay, well in the story that you gave us as an example of prapti and aprapti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and apropti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
-***Katagiri***: Aprapti is kind of force which kept my friend to Eiheiji monastery separate from the movie theater. Keep them away, saving him from death. Do you understand, that is aprapti, something separate; force to separate. Sometimes put together; at that time, unfortunately, you have to die. But he was saved. That is, maybe, force of aprapti.
+**Katagiri**: Aprapti is kind of a force which kept my friend [at] Eiheiji monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprapti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprapti.
 
-***Question***: Do you mean, Roshi, because he changed his mind?
+**Question**: Do you mean, Roshi, because he changed his mind?
 
-(1:29:50) ***Katagiri***: Aprapti is not obtaining or not getting. That is a force, kind of force. That means conditioned element. So, before your mind is exercised, there is something (???), some kind of force. To attach to, or to separate from. To put together, or to separate. That is total dynamic working.
+**Katagiri***: Aprapti is not obtaining or not getting. That is a force, a kind of force. That means a conditioned element. So, before your mind is exercised, there is some kind of force, to attach to, or to separate from. To put together, or to separate. That is total dynamic working.
 
-Is that clear? That is aprapti; force to separate from something. 
+Is that clear? That is aprapti: force to separate from something. 
 
-***same person***: Is that like inertia, Roshi?
+**Same person**: Is that like inertia, Roshi?
 
-***Katagiri***: Nausea?
+**Katagiri**: Nausea?
 
-***same person***: Inertia.
+**Same person**: Inertia.
 
-***Katagiri***: Inertia. What is that?
+**Katagiri**: Inertia. What is that?
 
-***same person***: The force that... Things at rest tend to stay at rest, and things that are moving tend to...
+**Same person**: The force that things at rest tend to stay at rest, and things that are moving tend to...
 
-***Katagiri***: No, if you say force, that force has a certain kind of power, to penetrate into another.
+**Katagiri**: No, if you say force, that force has a certain kind of power, to penetrate into another.
 
-***same person***: No, that's (???) It sounds like (???) So things that, like what you're talking about prapti and aprapti, things that at rest tend to stay at rest unless something...
+**Same person**: No, that's not *[unintelligible]* ... So things that, like what you're talking about prapti and aprapti, things that at rest tend to stay at rest unless something...
 
-***Katagiri***: No.
+**Katagiri**: No.
 
-***Question***: Roshi? What simplified it for me was when you explained in the book that aprapti was more a force that kept away the negatives, and prapti was the force that brought towards you positives. Is that correct understanding?
+**Question**: Roshi? What simplified it for me was when you explained in the book that aprapti was more a force that kept away the negatives, and prapti was the force that brought towards you positives. Is that correct understanding?
 
-***Katagiri***: Towards you or towards your object.
+**Katagiri**: Towards you or towards your object. 
 
-***Question***: So are these functions, functioning people that are actively engaged in practicing the buddha's way? 
+##### 1:31:53
 
-***Katagiri***: Who?
+**Question**: So are these functions that function in people that are actively engaged in practicing the Buddha's way? Or anyone?
 
-***Question***: Aprapti and prapti. In the two in the example you gave, both of those people were monks, they were practicing the Buddha's way. And we're talking about either being drawn to positive or kept away from negative things. Are, are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
+**Katagiri**: Who?
 
-***Katagiri***: Sure. [laugher] Universal. Yes.
+**Question**: Aprapti and prapti. With the two in the example you gave, both of those people were monks, they were practicing the Buddha's way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
 
-***Question***: Are they simultaneous, Roshi? Prapti and aprapti? Do they operate simultaneously? 
+**Katagiri**: Sure. *[laugher]* Universal. Yes.
 
-***Katagiri***: Sometimes together, sometimes different. Because sometimes you can see them both. Say "I want to go there," "I don't want to go there." (???) you don't know what to do. So original nature of such a feeling comes from prapti and aprapti. But intellectually you know pretty well, you should choose this one. But actually you don't know what to do. So you can see the both. So sometimes both work together, sometimes separately. 
+##### 1:31:51
 
-***Question***: Roshi, do you know (???) creation stories? Most cultures have them; religions have creation stories that explain how it all started. Like "Adam and Eve" is a creation story...
+**Question**: Are they simultaneous, Roshi? Prapti and aprapti? Do they operate simultaneously? 
 
-[tape change]
+**Katagiri**: Sometimes together, sometimes different, okay? Because sometimes you can see them both. Say "I want to go there," "I don't want to go there," simultaneously, so you don't know what to do. The sort of original nature of such a feeling comes from prapti and aprapti. Intellectually, you know pretty well you should choose this one, but actually you don't know what to do, so you can see them both. So sometimes both work together, sometimes separately. 
 
-(1:34:00) ***Katagiri***: Well, the Abhidharma-kosha, there is a work on human world, the structure of the human world, the structure of human beings. They explain how the world created. Just like creation of world mentioned by Christianity.
+##### 1:33:42
 
-According to, I told you, Mount Sumeru, right in the middle of the Universe, there is the huge Mount Sumeru. At top of the mountain, the gods exists; eightfold kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, frequent, (???). And then, four kinds of (???) exist. North, south, east, west. (???) is human world. 
+**Question**: Roshi, do you know the term "creation stories"? Most cultures have them; religions have creation stories that explain how it all started. Like "Adam and Eve" is a creation story...
 
-This is explanation of that thing. In the first book of Abhidharmakosha, the whole book is explanation of how to (????) form exists. Very interesting.
+*[tape change]*
 
-[end of recording]
+**Katagiri***: Well, the Abhidharmakosha, [that] is an outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world [is] created, just like creation of world mentioned by Christianity.
+
+According to [that] ... I told you, right in the middle of the Universe there is the huge [Mount Sumeru](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism)). At top of the mountain, the gods exists; eightfold kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. *[unintelligible]* is human world. 
+
+*[unintelligible]* this is an explanation of that thing. In the first book of Abhidharmakosha, the whole book is an explanation of how this structure and form exists. Very interesting.
+
+##### 1:35:52 end of recording
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
 
