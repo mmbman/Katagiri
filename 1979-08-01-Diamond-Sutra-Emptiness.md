@@ -87,7 +87,7 @@ And consciousness works only when you don't feel satisfactory. If you want to be
 
 You experience [this] in your daily living. I always sometimes trip to Omaha by airplane. When I am in the airplane, well, my consciousness doesn't work. My consciousness completely stops. To know where I am, or what's going on; I don't know. Just be one with airplane. But sometimes something happens, all of a sudden, when airplane is in an air pocket, "boom". "What's that?" Then, at that time, I don't feel satisfied. In that situation, immediately there is a gap between airplane and I. So that is psychic crack. And then could wind blows into me: "Oh my, I don't want to die!" *[laughter]* Or, if you see something through the window, immediately you can create psychic crack. Because you can see many things moving, so you see, "Oh, I am in an airplane." But if you are completely one with the airplane, consciousness completely stops. That's wonderful. But, consciousness doesn't disappear. It's there, but it stops. Consciousness doesn't [vanish?]. 
 
-#### 34:09
+##### 34:09
 
 The original nature of existence is just like oneness right in the middle of [the] airplane. That's all. This is original nature of existence, in which you are present constantly. 
 
