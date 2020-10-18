@@ -58,5 +58,6 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 ...
 
+You can [follow Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
 These talks are transcribed by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
