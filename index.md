@@ -2,7 +2,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 # Transcripts in Chronological Order
 
-**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first eight talks are pretty solid.
+**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first nine talks are pretty solid; the rest need more work.
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
