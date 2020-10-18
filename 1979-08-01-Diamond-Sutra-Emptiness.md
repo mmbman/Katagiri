@@ -13,17 +13,21 @@ Chapter 7:
 
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 30, immediately following the passage quoted in the previous talk.)
 
-In this chapter 7, there are two questions: What is Buddha? The second question is, what are dharmas taught (or preached) by Buddha, Tathagata?
+In this chapter 7, there are two questions: What is Buddha? The second question is, what are the dharmas taught or preached by Buddha, Tathagata?
 
 Buddha asked Subhuti: "Is there any dharma which the Tathagata has fully known as 'the utmost, right and perfect enlightenment'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
-In Japanese, enlightenment is described by three different characters. One is kaku - awareness. Second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as 'realization'. So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. Original nature of existence is, truth. 
+In Japanese, enlightenment is described by three different characters. One is kaku - awareness. Second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
 ##### 5:25
 
 According to [the] first term, kaku, awareness, this kind of enlightenment is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice zazen – or even though you don't practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
 
-This is [the] first experience; everyone can do [this]. But this experience of awareness is still at the conscious level. So, even though you understand [the] universe, there is still some difficulty for us to know how we should put it into practice. We don't know what to do. Because [the] experience of the universe through awareness doesn't work enough appropriately in your daily living. So that is awareness. 
+This is [the] first experience; everyone can do [this]. But this experience of awareness is still at the conscious level. So, even though you understand [the] universe, there is still some difficulty for us to know how we should put it into practice. We don't know what to do. Because [the] experience of the universe through awareness doesn't work enough appropriately in your daily living. 
+
+So that is awareness.
+
+##### 7:50 
 
 The second is satori. Satori is a little deeper than [the] experience of awareness, because satori is that awareness which penetrates your body, your skin, muscle, bone, and marrow. So, you really understand what the universe is, how all beings exist, through your body and mind, skin, muscle, bone, and marrow. You understand pretty well. So your daily living [is] a little bit free from their difficulties, because you understand pretty well and you know a little bit how to practice [with] the universe in your daily living, how to practice the experience of satori in your daily living. 
 
@@ -31,17 +35,21 @@ In your daily living, maybe your attitude gradually becomes very gentle, compass
 
 That is satori. Usually people understand, then cultivate [the] experience of satori; Zen practice gives [us] a chance to experience satori, and then that is [the] final goal we are aiming at. But this is not [the] final goal, because [the] experience of satori is still something tinged. It is still tinged with something intellectual which is going on at [a] subconscious level. 
 
-So, final goal is that you must be free from [the] experience of satori. That is [the] third, [the] one which is called "sho", which literally means "verification". Verification which is called "sho" is oneness with [the] original nature of being. There is no gap between; exactly your daily living is perfectly in accord with [the] original nature of existence, [the] rhythm of nature of existence. 
+##### 11:27
+
+So, [the] final goal is that you must be free from [the] experience of satori. That is [the] third, [the] one which is called "sho", which literally means "verification". Verification which is called "sho" is oneness with [the] original nature of being. There is no gap between; exactly your daily living is perfectly in accord with [the] original nature of existence, [the] rhythm of nature of existence. 
 
 That is [the] third one, which is called "sho", translated usually [as] realization. This third enlightenment is the highest spiritual level, [in] which you can be free from awareness and satori. So, [there is] no trace of satori, no trace of awareness. That is called sho, verification, because you are already one with [the] original nature of existence, even though you don't realize [it]. You are already right in the middle of [the] nature of existence. 
 
 ##### 13:31
 
-By this 'sho', enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike. That is the total picture of existence you have. This is enlightenment. 
+By this "sho", enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike [it]. That is the total picture of existence you have. This is enlightenment. 
 
-That's why Buddha says, "Is there any dharma which the Tathagata has fully known as 'the utmost, right and perfect enlightenment'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. But real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
+That's why Buddha says, "Is there any dharma which the Tathagata has fully known as 'the utmost, right and perfect enlightenment'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
 
-That is enlightenment, real enlightenment. That's why, if you are called buddha, that buddha experience(s) enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. Subhuti says, no. 
+That is enlightenment, real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. Subhuti says, "No." 
+
+##### 16:04
 
 So let's see about this utmost, right, perfect enlightenment, represented as sho in Japanese.
 
@@ -51,6 +59,8 @@ According to the commentary by Conze, he says:
 
 So let's understand, let's think, one by one.
 
+##### 18:10
+
 Doctor Conze said: 
 
 > Subhuti asks, "All dharmas have therefore really not been fully known by the Tathagata?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathagata. For there are not two natures of dharma, but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
@@ -59,11 +69,11 @@ This is the explanation of first point, the marklessness of all things. That mea
 
 ##### 19:55
 
-Emptiness means, original nature of existence is that which exists constantly without any reason. If you say "why do we exist," you have to answer, "we exist to eat," "we exist to work," "we work to live," – whatever you say. But, this answer to the question "why" doesn't hit the mark, what the original nature of existence is, because original nature of existence is exactly emptiness. In Buddhism emptiness doesn't mean, always I tell you, not something in vain. Emptiness is total dynamic working. Original nature of existence is constantly, totally working in dynamism, without leaving any trace, without getting any ideas. You cannot catch it. That is original nature of existence. So, if you ask yourself why you exist in this world, why do you exist in this world as American, as Japanese, as a Buddhist, as a Christian - well, we don't understand. Of course, you can answer to this question "why," but even though you get answer to this question "why," that answer is not good enough. So still there is lots of things you don't understand. 
+Emptiness means, [the] original nature of existence is that which exists constantly without any reason. If you say "why do we exist," you have to answer, "we exist to eat," "we exist to work," "we work to live," – whatever you say. But, this answer to the question "why" doesn't hit the mark, what the original nature of existence is, because [the] original nature of existence is exactly emptiness. In Buddhism emptiness doesn't mean, always I tell you, not something in vain. Emptiness is total dynamic working. [The] original nature of existence is constantly, totally working in dynamism, without leaving any trace, without getting any ideas. You cannot catch it. That is original nature of existence. So, if you ask yourself why you exist in this world, why do you exist in this world as American, as Japanese, as a Buddhist, as a Christian - well, we don't understand. Of course, you can answer this question "why," but even though you get [an] answer to this question "why," that answer is not good enough. Still there [are] lots of things you don't understand. 
 
-Strictly speaking, whatever answer you get to the question "why" you exist in this world as American – before you answer this question, or before you make answer of why, you are already absolute being. You already exist. No reason. Before you make a question, you exist already. You have to answer to this question to get answer to this reality, before you may question why. 
+Strictly speaking, whatever answer you get to the question "why" you exist in this world as American – before you answer this question, or before you make answer of why, you are already absolute being. You already exist. No reason. Before you make a question, you exist already. You have to answer this question to get [an] answer to this reality, before you may question why. 
 
-If you try to get answer to this question *why*, it means that already you look at yourself objectively, running it through your head, without touching existence itself. Existence itself has no reason. Because before you make answer why, I am Katagiri. I am here. I am Katagiri already. Before I call myself Katagiri, original nature of Katagiri is right now, right here. How can I explain this? No reason. The real nature of Katagiri exists without reason. 
+If you try to get [an] answer to this question *why*, it means that already you look at yourself objectively, running it through your head, without touching existence itself. Existence itself has no reason. Because before you make answer why, I am Katagiri. I am here. I am Katagiri already. Before I call myself Katagiri, original nature of Katagiri is right now, right here. How can I explain this? No reason. The real nature of Katagiri exists without reason. 
 
 ##### 24:34
 
@@ -73,13 +83,13 @@ One of the German poets said, "A rose exists without any reason. A rose blooms b
 
 Rose exists without any reason. I think so; rose exists without any reason. Why rose blooms in the beautiful, big garden, or in a small garden, or wherever. When you say to a rose, "How happy you are. Wonderful, happy, wonderful rose, you are." Whatever you say, this is coming from human speculation. 
 
-Human speculation doesn't hit the mark, existence itself, the rose. Before you say whatever it is, rose exists. Rose exists. Tiny flowers, poppy seed, blooms in the heart of the mountain. You say, "Oh, poor, beautiful flowers." But this is something extra. Whatever you say to a flower: "You are okay," or "Let's bloom there." Or you say, "I don't care." Or you say, "Thank you very much, blooming flower in front of me in the heart of the mountain." Whatever you say, it doesn't hit the mark, bullseye. Before you say, "Little flowers blooms in the heart of the mountain," already *[unintelligible]* beautiful flower it's own life force blooms. This is like of the little flower itself. So, tiny flower exists, without any reason. 
+Human speculation doesn't hit the mark, existence itself – the rose. Before you say whatever it is, rose exists. Rose exists. Tiny flowers, poppy seed, blooms in the heart of the mountain. You say, "Oh, poor, beautiful flowers." But this is something extra. Whatever you say to a flower: "You are okay," or "Let's bloom there." Or you say, "I don't care." Or you say, "Thank you very much, blooming flower in front of me in the heart of the mountain." Whatever you say, it doesn't hit the mark, bullseye. Before you say, "Little flowers bloom in the heart of the mountain," [it is] already letting the beautiful flower of its own life force bloom. This is [the] life of the little flower itself. So, [the] tiny flower exists, without any reason. 
 
-##### 27:17
+##### 27:16
 
 And this is emptiness. Emptiness means, no reason. With no reason, everything exists, everything exists as it really is. And then, when your consciousness starts work, and consciousness catches your existence objectively, at that time, you create lots of things. Toward, like, dislike, good, bad; whatever it is. Many things come up. 
 
-The utmost, perfect, right enlightenment is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature's existence which exists without any reason, at that time, emptiness is represented as *[finger snap]* stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in a possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
+The utmost, perfect, right enlightenment is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature's existence which exists without any reason, at that time, emptiness is represented as *[finger snap]* stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
 
 ##### 29:51
 
