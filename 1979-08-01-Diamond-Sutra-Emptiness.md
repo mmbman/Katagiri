@@ -187,7 +187,7 @@ The absolute, or the truth, is the unconditioned. Well, the unconditioned means 
 
 > ... it means here that which cannot be discriminated. With an obvious and deliberate disregard for logic the Sutra claims that this unrelated Absolute can enter into a relation with certain persons. This is a difficult idea, and a difficult word is chosen to express it. **Exalts** – the word (prabhavita) contains a great wealth of meaning, and "exalts" is the best I can do. One could also say, "are glorified by," "draw their strength from," "owe their distinction to," or "derive their dignity from." The idea is that the holy persons have "arisen" from the Unconditioned, have been "produced" from it, are "brought forth" by it. 
 
-So, the absolute, the unconditioned, the original nature of existence [instilling?] in all beings, exalts your life, basically. Giving encouragement to you, giving strength to you, giving dignity to you, constantly. This is [the] absolute. So, from this point, we are already right in the middle of this. All we have to do is just continually be present with this absolute. Absolute means, completely speaking, under all circumstances, as much as possible, you should stand up straight, and with stability, confidence. Your consciousness tells you whatever it is – "you are good boy" or "bad boy", whatever it is – anyway, you should be stable, stand up straight. Continue to take care of your life.
+So, the absolute, the unconditioned, the original nature of existence [inherent] in all beings, exalts your life, basically. Giving encouragement to you, giving strength to you, giving dignity to you, constantly. This is [the] absolute. So, from this point, we are already right in the middle of this. All we have to do is just continually be present with this absolute. Absolute means, completely, under all circumstances, as much as possible, you should stand up straight, and with stability [and] confidence. Your consciousness tells you whatever it is – "you are good boy" or "bad boy", whatever it is – anyway, you should be stable, stand up straight, and continue to take care of your life.
 
 And then, finally, you can really experience what is called spiritual stability. 
 
@@ -203,7 +203,7 @@ Do you have any questions?
 
 **Katagiri**: Karma. Enlightenment. The ultimate, utmost, right perfect enlightenment. Okay?
 
-
+## 1:06:45
 
 **Question**: Roshi, would one good way of putting it be, everything is within emptiness and emptiness is within everything? 
 
@@ -217,7 +217,7 @@ Do you have any questions?
 
 **Katagiri**: Not within. Everything is emptiness. 
 
-It is exactly *[unintelligible]*, not within, not with, not in, not on. 
+It is exactly [here?], it's not within, not with, not in, not on. 
 
 *[long silence]*
 
@@ -233,7 +233,7 @@ That's why you can be alive for many years, and you should be appreciative. You 
 
 **Katagiri**: More questions?
 
-If you don't have more questions, I want to tell you one thing. At Omaha Zen Center, they will have opening ceremony of new zendo on September 9. So they need a lot of help. I want to get some volunteers to help Omaha Zen Center before opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don't know when, it depends on the numbers of the volunteers.
+If you don't have more questions, I want to tell you one thing. At Omaha Zen Center, they will have [the] opening ceremony of new zendo on September 9. So they need a lot of help. I want to get some volunteers to help Omaha Zen Center before [the] opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don't know when, it depends on the numbers of the volunteers.
 
 ##### 1:10:15 end of recording
 
