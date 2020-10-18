@@ -213,7 +213,7 @@ But when you expect something, you completely go away from your home. Seeking fo
 
 But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: "Oh yes, I want to go back to my home." Everyone understands. But it takes time, because until it's penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
 
-That's why we have to continue to sit. I don't know why. *[he chuckles]* But you are lucky man, anyway. You are a lucky person. 
+That's why we have to continue to sit. I don't know why. *[he chuckles]* But you are a lucky man, anyway. You are a lucky person. 
 
 ##### 58:09 end of recording
 
