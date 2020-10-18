@@ -59,4 +59,4 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 ...
 
 
-This site is maintained by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
+These talks are transcribed by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
