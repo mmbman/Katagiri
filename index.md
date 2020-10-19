@@ -26,6 +26,8 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [1979-08-01 Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 
+### Talks below here are still in rough draft form
+
 [1979-08-08 Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
 [1979-08-15 Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
