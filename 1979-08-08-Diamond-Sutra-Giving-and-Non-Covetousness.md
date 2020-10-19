@@ -84,7 +84,7 @@ That's why Dogen Zenji says the practice of giving is not to covet. This is very
 > That’s what Destiny means: being opposite,  
 > and nothing else, and always opposite.
 
-This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the late years of his life. In this book, what he wants to tell us is not pessimistic of the human world, but [is] the oneness of life and death. The title, Duino Elegies, is something pensive, but behind this poem he really wants to say, oneness of life death. 
+This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the late years of his life. In this book, what he wants to tell us is not pessimistic of the human world, but [is] the oneness of life and death. The title, Duino Elegies, is something pensive, but behind this poem he really wants to say, oneness of life and death. 
 
 [I want to explain the most important two points about this poem.] One is: "That's what Destiny is: to be face to face and nothing but that and always opposite." And [the] second point is: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world, nowhere-without-not."
 
@@ -92,7 +92,7 @@ This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the
 
 [But] first, I would like to explain the first part of this poem: "Only we see death; but the beast is free and has its death always behind it and God before it, and when it walks it goes toward eternity, as springs flow." 
 
-Only human beings can see death. [We] can see death in many ways, from many angles: before, and behind you, to the right, to the left; many ways you can see death. "But beast is free and has its death always behind it." It means, beast – the animals, birds, dogs, cats, whatever it is – is free from the death. We can see death completely different. Death is always behind beasts' life. Death never attacks the beast; always behind. So, beast never despairs in death. Beast never can accept death in despair. Do you understand? Death is always behind. 
+Only human beings can see death. [We] can see death in many ways, from many angles: before, and behind you, to the right, to the left; many ways you can see death. "But [the] beast is free and has its death always behind it." It means, the beast – the animals, birds, dogs, cats, whatever it is – is free from the death. We can see death completely differently. Death is always behind beast's life. Death never attacks beast; always behind. So, beast never despairs in death. Beast never can accept death in despair. Do you understand? Death is always behind. 
 
 So that's why, "God before it": God means in this case, [the] vastness of space. He never sees the death in front of him; [he is] always going ahead toward [the] vastness of space, eternity. That means God before it. That's why he said, "when it walks it goes toward eternity." Completely eternity. He doesn't know, in the moment, [that] there is some destiny he doesn't see. So that's to go, just to go ahead. And then only when he sees something dangerous, he is scared. But he doesn't see the death. So death is completely one with beast, always. 
 
