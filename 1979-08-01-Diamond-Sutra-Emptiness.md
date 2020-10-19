@@ -203,7 +203,7 @@ Do you have any questions?
 
 **Katagiri**: Karma. Enlightenment. The ultimate, utmost, right perfect enlightenment. Okay?
 
-## 1:06:45
+##### 1:06:45
 
 **Question**: Roshi, would one good way of putting it be, everything is within emptiness and emptiness is within everything? 
 
