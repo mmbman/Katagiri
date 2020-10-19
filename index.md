@@ -2,7 +2,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 # Transcripts in Chronological Order
 
-**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first ten talks are pretty solid; the rest need more work.
+**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first 11 talks are pretty solid; the rest need more work.
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
@@ -26,9 +26,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [1979-08-01 Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 
-### Talks below here are still in rough draft form
-
 [1979-08-08 Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+
+### Talks below here are still in rough draft form
 
 [1979-08-15 Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
