@@ -15,7 +15,7 @@
 
 I think you remember, the Buddha asked Subhuti before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the dharma?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached." 
 
-If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six Paramitas.
+If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā).
 
 ##### 4:45
 
