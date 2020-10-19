@@ -149,35 +149,37 @@ So, you have to open your eyes to see the dharma truth constantly, under all cir
 
 ##### 41:15
 
-So, no buddhadharma is real buddhadharma. Or, before this, Chapter 8 says: no-heap of merit is real merit. In other words, no-merit is real merit. Merit is two kinds of merit. Worldly merit: if you practice something you can experience. That individual experience is a kind of merit, worldly merit. So real merit is completely no merit because you cannot attach to individual experience of merit. Individual merit – no.
+So, no-buddhadharma is real buddhadharma. Or, before this, Chapter 8 says: no-heap of merit is real merit. In other words, no-merit is real merit. Merit is two kinds of merit. Worldly merit: if you practice something, you can experience [something]. That individual experience is a kind of merit, worldly merit. So real merit is completely no merit, because you cannot attach to individual experience of merit. Individual merit – no.
 
-Real merit is completely no-merit. No-merit is real merit. If you completely throw away, give it to somebody, if your individual experience is given to the truth or universe again, at that time you can get real merit. 
+Real merit is completely no-merit. No-merit is real merit. If you completely throw [it] away, give it to somebody, if your individual experience is given to the truth or universe again, at that time you can get real merit. 
 
-For instance, if you chant the sutra to the Buddha, this is practice. But through the practice we expect something from the practice, ritual. By ritual, by chanting the sutra, the merit of chanting the sutra can reach to the Buddha's heart or not? Of course. But actually, all you have to do is, just chant of the sutra. By chanting the sutra, very naturally you can experience something from ritual, but that experience is completely individual. I always tell you, there is no reason to attach to individual experience. Next we have to put it aside. So all you have to do is, practically, just continue to chant the sutra, in the presence of buddha. Just practice zazen, that is 'shikan' zazen, or 'shikan' chanting. This is meaning of Zen Buddhistic ritual. 
+For instance, if you chant the sutra to the Buddha, this is practice. But through the practice we expect something from the practice, [from] ritual. By ritual, by chanting the sutra, the merit of chanting the sutra can reach to the Buddha's heart or not? Of course. But actually, all you have to do is, just chant of the sutra. By chanting the sutra, very naturally you can experience something from ritual, but that experience is completely individual. I always tell you, there is no reason to attach to individual experience. Next we have to put it aside. So all you have to do is, practically, just continue to chant the sutra, in the presence of Buddha. Just practice zazen. That is "shikan" zazen, or "shikan" chanting. This is [the] meaning of Zen Buddhist ritual. 
 
 ##### 44:19
 
-So, no merit. Always putting aside individual experience, whatever it is, and then continually chant – that is no-merit. But this no-merit is *really* merit, because you can deeply settle yourself in the middle of ritual. Very stable. 
+So, no merit. Always putting aside individual experience, whatever it is, and then [continuing to] chant – that is no-merit. But this no-merit is *really* merit, because you can deeply settle yourself in the middle of ritual. Very stable. 
 
 So sooner or later, you can touch the core of existence. And that is no-heap of merit. So according to Dogen's term, giving is not to covet.
 
 ##### 45:10
 
-I told you last Wednesday... I read a piece of poem by Rilke, which occurs in the Duino Elegies. He's in the later years of his life. In this book, he really explains oneness of life and death. Apparently, that poem seems to be a pessimistic view of human life, but actually not. 
+I told you last Wednesday... I read a piece of [a] poem by Rilke, which occurs in the Duino Elegies. He's in the later years of his life. In this book, he really explains [the] oneness of life and death. Apparently, that poem seems to be a pessimistic view of human life, but actually [it is] not. 
 
-I read just a piece of [the] poem. He points out the attitude of human life, what we do usually. He says "never, not for a single day, do we have pure space in which the flowers are always unfolded." Never, not for a single day: because, if you get the merit, we stay with the merit. We never, not for a single day – this is very usual state of human life. Always stay[ing] with small world created by individual. At that time, very naturally, we can fight, we can create problem. So he says, "that is what destiny is, to be face to face." There is for every world, an opposed... 
+I read just a piece of [the] poem. He points out the attitude of human life, what we do usually. He says "never, not for a single day, do we have pure space in which the flowers are always unfolded." Never, not for a single day: because, if you get the merit, we stay with the merit. We never, not for a single day – this is [the] very usual state of human life. Always stay[ing] with small world created by [the] individual. At that time, very naturally, we can fight, we can create problem[s]. So he says, "That is what destiny is, to be face to face." 
+
+There is for every world, an opposed... 
 
 *[tape change]*
 
-... but why don't we have... have we had pure space in which the flowers are always unfolded; that means universe or truth. 
+... but why don't we have ... pure space in which the flowers are always unfolded; that means universe or truth. 
 
 ##### 48:07
 
-It is important to face-to-face, but not *always* face-to-face. Without being face to face, we cannot experience individual life. If you want to practice, you have to face, you have to present with zazen, practice face to face directly. And then very naturally you can experience individual things. But at that time, there is no merit. That means, put it aside, and then why don't you open your heart. Why don't you throw away your heart to pure space. Pure space means not face-to-face. Not face to face. Just be with zazen, if you do zazen. Just be present with gassho if you do gassho. Just have breakfast with breakfast, with mind and body. That means, we have to be sometimes behind breakfast, or next to, side by side to the breakfast, not face to face. Or sometimes just be in, be right in. Or sometimes, be just next to breakfast. Or just be nestling close to the breakfast. *[some chuckles in the group]* Walk hand in hand.
+It is important to face-to-face, but not *always* face-to-face. Without being face-to-face, we cannot experience individual life. If you want to practice, you have to face, you have to [be] present with zazen, practice face to face directly. And then very naturally you can experience individual things. But at that time, there is no merit. That means, put it aside, and then why don't you open your heart. Why don't you throw away your heart to pure space. Pure space means not face-to-face. Not face to face. Just be with zazen, if you do zazen. Just be present with gassho if you do gassho. Just have breakfast with breakfast, with mind and body. That means, we have to be sometimes behind breakfast, or next to, side by side to the breakfast, not face to face. Or sometimes just be in, be right in. Or sometimes, be just next to breakfast. Or just be nestling close to the breakfast. *[some chuckles in the group]* Walk hand in hand.
 
 This is very important. Without saying anything, without arguing or whatever it is, why is it we have to have breakfast every morning? We have to, when the time comes to have breakfast, just have breakfast. If you don't want, don't have breakfast. That's all. No problem. But if you're always present with breakfast face to face according to your intellectual sense, well, you create lots of argument. *Why*? In India, they have just one meal a day. Why don't you have one meal a day? If you want, you can have. 
 
-Well, lots of complaints, argument. But no matter how long you argue with any problem, any subject, the argument is going endlessly. Finally, all you have to do is, keep your mouth shut; just have breakfast with your [best? breath?]. That's all we have to do.
+Well, lots of complaints, argument. But no matter how long you argue with any problem, any subject, the argument is going endlessly. Finally, all you have to do is, keep your mouth shut; just have breakfast with your [best?]. That's all we have to do.
 
 ##### 51:30
 
@@ -185,15 +187,15 @@ That's why Rilke said to us what we do usually: "never not for a single day, we 
 
 ##### 52:54
 
-So, that is always the explanation of the buddhadharma, or merit, in the negative sense in the Diamond Sutra. Negative sense, no-merit [or] no buddhadharma, doesn't mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma is attachment to individual merit, individual buddhadharma we experienced. This is suggestion [or] hint Buddhism always does, criticizing human life always like this. Because, we don't realize usually. 
+So, that is ... the explanation of the buddhadharma, or merit, in the negative sense in the Diamond Sutra. [The] negative sense, no-merit [or] no-buddhadharma, doesn't mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma, is attachment to individual merit, individual buddhadharma we experienced. This is [a] suggestion [or] hint Buddhism always does, always criticizing human life like this; because we don't realize [it], usually. 
 
 ##### 54:04
 
-If Buddhism uses the negative sense, you will get the big shock. *Why*? "Life is characterized by suffering." "*What's that*?" We don't like it. That is really big shock to your mind. That's very good medicine for you. It is bitterness of good medicine. That's why Buddhism always uses unusual terms, in the negative sense. But it's not [a] real negative. It's positive, really positive. 
+If Buddhism uses the negative sense, you will get the big shock. *Why*? "Life is characterized by suffering." "*What's that*?" We don't like it. That is [a] really big shock to your mind. That's very good medicine for you. It is [the] bitterness of good medicine. That's why Buddhism always uses unusual terms, in the negative sense. But it's not [a] real negative. It's positive, really positive. 
 
-Because that is such a human [quality?]. Human is very stubborn [with] ego. Because, human is pretty weak. If you're strong, it not necessary to be stubborn; you can open pretty easily. But we are weak. That's why in order to perfect weakness, we have to be stubborn. *[he chuckles]* Do you understand? We always do. 
+Because that is such a human [quality?]. Humans [are] very stubborn [with] ego. Because, [the] human is pretty weak. If you're strong, it's not necessary to be stubborn; you can open pretty easily. But we are weak. That's why in order to perfect weakness, we have to be stubborn. *[he chuckles]* Do you understand? We always do. 
 
-That's why in order to – not destroy – in order to realize stubbornness of ego, unfortunately we have to experience big shock, physically and psychologically. We don't like. But we have to do. 
+That's why in order to – not destroy – in order to realize stubbornness of ego, unfortunately we have to experience [a] big shock, physically and psychologically. We don't like [it]. But we have to do. 
 
 Okay. Do you have some questions? 
 
@@ -203,9 +205,9 @@ Okay. Do you have some questions?
 
 **Katagiri**: I think so. In other words, enlightenment is no-enlightenment, that is real enlightenment. 
 
-If you say enlightenment, [what] you think is individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is real picture of the truth. That's why forgetfulness is what we're really like. Term is different, but the same. 
+If you say enlightenment, [what] you think is [the] individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is [the] real picture of the truth. That's why forgetfulness is what we're really like. [The] term is different, but [it is] the same. 
 
-So you must be free from enlightenment that you have experienced. And then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay at the Ph.D. without working with people. You have to forget degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[group laughter]* See the *[unintelligible]* and anyway, *[unintelligible]*, day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is final goal you have to do. If you want to be real great dancer or painter, you have to be forget *[sic]*. Continually, you must be stupid, and continually practice. That is real enlightenment.
+So you must be free from [the] enlightenment that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay [with] the Ph.D. without working with people. You have to forget [the] degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[group laughter]* See the peoples' bodies, and anyway, examine. Day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is [the] final goal you have to do. If you want to be real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
 
 ##### 58:56 end of recording
 
