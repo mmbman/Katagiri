@@ -13,21 +13,21 @@
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 34-35, immediately following the passage quoted in the previous talk.)
 
-The commentary by Conze here is very interesting. Let me read (it) first:
+The commentary by Conze here is very interesting. Let me read [it] first:
 
-> The merit to be derived from giving depends, among other things, on the preciousness of the gift, and the quality of the recipient. The gift consists of the seven precious things, mentioned also at chapter 11, 19, 28, 32a. They are gold, silver, lapis lazuli, coral, gems, diamonds, and pearls. When this most previous of all material gifts is given in abundance to the Tathagatas, who are the most exalted persons of all, then this act of giving produces a quite exceptional amount of merit. This sounds strange to modern ears. The Tathagatas have all they need, they certainly can make no use of all this gold, silver, etc., and so how could this gift benefit them? Would it not be very much more to the point to relieve the sufferings of those who are in want, and to give them what they need, and what they would use so gladly? Is there not a complete and callous disregard of the poor in the Buddhist statement that the best gift is that which is given by the dispassionate to the dispassionate? Common sense as we understand it must withhold its approval from this statement. Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.
+> The merit to be derived from giving depends, among other things, on the preciousness of the gift, and the quality of the recipient. The gift consists of the seven precious things, mentioned also at chapter 11, 19, 28, 32a. They are gold, silver, lapis lazuli, coral, gems, diamonds, and pearls. When this most precious of all material gifts is given in abundance to the Tathagatas, who are the most exalted persons of all, then this act of giving produces a quite exceptional amount of merit. This sounds strange to modern ears. The Tathagatas have all they need, they certainly can make no use of all this gold, silver, etc., and so how could this gift benefit them? Would it not be very much more to the point to relieve the sufferings of those who are in want, and to give them what they need, and what they would use so gladly? Is there not a complete and callous disregard of the poor in the Buddhist statement that the best gift is that which is given by the dispassionate to the dispassionate? Common sense as we understand it must withhold its approval from this statement. Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.
 
 ##### 4:20
 
-In Mahayana Buddhism, perfection of giving is one of the most important practices for us, because it is one of the six Paramitas. Giving is the first item of the six Paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in proper way. Which is one of the Eightfold Noble Truths (Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. First important thing is to practice perfection of giving. 
+In Mahayana Buddhism, [the] perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā). Giving is the first item of the six paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in [the] proper way. Which is one of the Eightfold Noble Truths (Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. First important thing is to practice perfection of giving. 
 
-If you read Mahayana Buddhist scriptures, very often they say, "give offerings decorated with seven precious treasures to Tathagatas, to Arhats, to noble enlightened men." Very often in that way. So according to modern sense, it doesn't make sense whether to give. Why don't give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand in that way about the practice of giving, it's pretty difficult to understand the real spirit of Mahayana Buddhism. That's why Conze says, "Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity." I would like to talk about this point of view tonight. 
+If you read Mahayana Buddhist scriptures, very often they say, "give offerings decorated with seven precious treasures to Tathagatas, to Arhats, to noble enlightened men." Very often [they speak] in that way. So according to modern sense, it doesn't make sense whether to give. Why don't give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand in that way about the practice of giving, it's pretty difficult to understand the real spirit of Mahayana Buddhism. That's why Conze says, "Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity." I would like to talk about this point of view tonight. 
 
 ##### 7:44
 
-Dogen Zen Master says, giving is not to covet. This is the meaning of giving, practice of giving: not to covet. More or less, we are very covetous – not only to the money, not only to the material, but to the psychological or mental situation, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always. Try to get more, always try to get from. Not giving something to others, try to get something from others always. This is covetousness. 
+Dogen Zen Master says, giving is not to covet. This is the meaning of [the] practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to the psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always. Try to get more, always try to get [something] from [them]. Not giving something to others, [but] trying to get something from others, always. This is covetousness. 
 
-This is very common, very common in the human world. That's why we fight each-other always. Arguments, disputes; finally, we fight. Finally... we are living separately, and what is the term I use always – *[he struggles for the term]* divorce. *[laughter]* It very often happens in this world. 
+This is very common, very common in the human world. That's why we fight each-other always. Arguments, disputes; finally, we fight. Finally... we are living separately, and what is the term I use always – *[he struggles for the term]* – divorce. *[laughter]* It very often happens in this world. 
 
 That's why Dogen Zenji says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
 
@@ -36,19 +36,19 @@ That's why Dogen Zenji says the practice of giving is not to covet. This is very
 > and when it walks it goes toward eternity,   
 > as springs flow. Never, not for a single day  
 > do we have pure space before us in which the flowers 
-> are always unfolded. It's forever world  
-> and (never) nowhere without not (:)  
-> (the pure and unwatched-over air we breath,  
-> *know* infinitely and do not want.)  
+> are always unfolded (unfolding). It's forever world  
+> and [never] nowhere without not  
+> [the pure and unwatched-over air we breath,  
+> *know* infinitely and do not want.]  
 > ...   
 > That's what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
 >
-> (This seems to be mostly the same as [this source](http://my.fit.edu/~rosiene/rilke.pdf) of The Eighth Duino Elegy by Rainer Maria Rilke, but Katagiri appears to be skipping some pieces of it.)
+> (This seems to be mostly the same as [this source](http://my.fit.edu/~rosiene/rilke.pdf) of The Eighth Duino Elegy by Rainer Maria Rilke, but Katagiri appears to be missing a couple pieces of it, and he says "unfolded" instead of "unfolding".)
+
+>(Here are a couple different translations for reference. Skip these if you are not interested.)
 >
->(Here are a couple different translations for reference. Skip these if you're not interested.
->
->[From a different translation:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
+>[Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
 > 
 > We alone face death.  
 > The beast, death behind and  
@@ -68,7 +68,7 @@ That's why Dogen Zenji says the practice of giving is not to covet. This is very
 > always and only to face  
 > one another and nothing else.  
 >   
-> [And another:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf)
+> [translated by J.B. Leishman and Stephen Spender:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf)
 > 
 > We only see death; the free animal  
 > has its decease perpetually behind it  
@@ -82,29 +82,29 @@ That's why Dogen Zenji says the practice of giving is not to covet. This is very
 > endlessly knows, and never craves.  
 > ...  
 > That’s what Destiny means: being opposite,  
-> and nothing else, and always opposite.)
+> and nothing else, and always opposite.
 
-This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the late years of his life. In this book, what he wants to tell us is not pessimistic of the human world, but the oneness of life and death. The title is, for Duino Elegies, something pensive, but behind this, behind this poem, he really wants to say oneness of life death. 
+This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the late years of his life. In this book, what he wants to tell us is not pessimistic of the human world, but the oneness of life and death. The title, Duino Elegies, is something pensive, but behind this poem, he really wants to say oneness of life death. 
 
 ##### 13:00
 
-What I want to explain about this poem, the most important two points, one is: "That's what Destiny is: to be face to face and nothing but that and always opposite." And also second point is: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world, nowhere-without-not."
+[I want to explain the most important two points about this poem.] One is: "That's what Destiny is: to be face to face and nothing but that and always opposite." And also second point is: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world, nowhere-without-not."
 
-First, I would like to [*unintelligible*] the first part of this poem: "Only we see death; but the beast is free and has its death always behind it and God before it, and when it walks it goes toward eternity, as springs flow." 
+[But] first, I would like to explain the first part of this poem: "Only we see death; but the beast is free and has its death always behind it and God before it, and when it walks it goes toward eternity, as springs flow." 
 
-Only human beings can see death. [We] can see death in many ways, from many angles: before, and behind you, to the right, to the left; many ways you can see death. "But beast is free and has its death always behind it." It means, beast - the animals, birds, dogs, cats, whatever it is - is free from the death. We can see death completely different. Death is always behind beasts' life. Death never attacks the beast; always behind. So, beast never despairs in death. Beast never can accept death in despair. Do you understand? Death is always behind. 
+Only human beings can see death. [We] can see death in many ways, from many angles: before, and behind you, to the right, to the left; many ways you can see death. "But beast is free and has its death always behind it." It means, beast – the animals, birds, dogs, cats, whatever it is – is free from the death. We can see death completely different. Death is always behind beasts' life. Death never attacks the beast; always behind. So, beast never despairs in death. Beast never can accept death in despair. Do you understand? Death is always behind. 
 
-So that's why... "God before it," God means in this case, vastness of space. He never sees the death in front of him; [he is] always going ahead toward vastness of space, eternity. That means God before it. That's why he said, "when it walks it goes toward eternity." Completely eternity. He doesn't know; in the moment there is some destiny he doesn't see. So that's to go, just to go ahead. And then only when he sees something dangerous, he is scared. But he doesn't see the death. So death is completely one with beast, always. 
+So that's why, "God before it": God means in this case, [the] vastness of space. He never sees the death in front of him; [he is] always going ahead toward [the] vastness of space, eternity. That means God before it. That's why he said, "when it walks it goes toward eternity." Completely eternity. He doesn't know, in the moment, [that] there is some destiny he doesn't see. So that's to go, just to go ahead. And then only when he sees something dangerous, he is scared. But he doesn't see the death. So death is completely one with beast, always. 
 
 ##### 16:44
 
-That's why he said, "When it walks it goes toward eternity, as springs flow." Just as springs always ... flows. Springs flow from the ground, always coming up. No suffering. So from this point, beast never suffers, from life or death. But they have subjective... feeling, according to their... instinct. So they fear death or something dangerous only when they see something dangerous right in from of them. But they never think death, they never think something dangerous in a second. So always, whatever happens, they always walk toward eternity, no fear. The fear appears only when they see it right in front of them. 
+That's why he said, "When it walks it goes toward eternity, as springs flow." Just as springs always ... flow. Springs flow from the ground, always coming up. No suffering. So from this point, beast never suffers, from life or death. But they have subjective... feeling, according to their... instinct. So they fear death or something dangerous only when they see something dangerous right in from of them. But they never think death, they never think something dangerous in a second. So always, whatever happens, they always walk toward eternity, no fear. The fear appears only when they see it right in front of them. 
 
 That is what Rilke said. And then next: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world and nowhere without not. That's what Destiny is: to be face to face and nothing but that and always opposite." This is a very common lifestyle of human beings: being present face-to-face, creating the world, the world created by us, and think[ing] that world is the most important for us. That's why we really cling to the world created by us. So at that time we always face, we are always present face-to-face.
 
 That way to live is sort of miserable, if you are always present face-to-face. Because if you are present face-to-face, there is always argument, dispute, and quarrel, fighting each other, in being face to face.
 
-Look at the problem of divorce, look at the fighting between the man and woman; look at the human world. [Like?] from the husband, or between your friends, within people - we are always face to face, and fight.
+Look at the problem of divorce, look at the fighting between the man and woman; look at the human world. [Like?] from the husband, or between your friends, within people – we are always face to face, and fight.
 
 This is very common for us. That's why Rilke says, that's what destiny is, to be face to face. That looks just like human destiny. But human destiny is not something ... which your life is completely tied up with. Destiny is completely ... something which allows you to be free. You can turn off your destiny, you can cut your way to the fortune. 
 
@@ -112,7 +112,7 @@ This is very common for us. That's why Rilke says, that's what destiny is, to be
 
 If you follow the life face to face always, there is always human problems, arguments, fighting, complaining. Finally, divorce, and living separately, and hatred – always. 
 
-So, what I want to tell you is: face to face is sometimes important, because we cannot escape from it. If you live with more than one being, you have to face to face. But on the other hand, we should know a little different way to live. Instead of being face to face, sit side by side, to your friends, to your parents, or to your boyfriend or girlfriend, husband or wife. Or walk: walk next to, close to each other, instead of face to face. And sit down on a bench side by side; and why don't you rest your head on the other's shoulder, and take a deep breath. That's wonderful, beautiful. Can you see the beautiful scene, in walking around the lake? All the couples walk around the lake; I saw sometimes. All the couples walk around, and finally they sit on the bench, and take a deep breath, and already sit down, and sitting very closely to husband, and rest her head on his shoulder. That's beautiful, don't you think so? That's a beautiful scene. 
+So, what I want to tell you is: face to face is sometimes important, because we cannot escape from it. If you live with more than one being, you have to [be] face to face. But on the other hand, we should know a little different way to live. Instead of being face to face, sit side by side, to your friends, to your parents, or to your boyfriend or girlfriend, husband or wife. Or walk: walk next to, close to each other, instead of face to face. And sit down on a bench side by side; and why don't you rest your head on the other's shoulder, and take a deep breath. That's wonderful, beautiful. Can you see the beautiful scene, in walking around the lake? All the couples walk around the lake; I saw sometimes. All the couples walk around, and finally they sit on the bench, and take a deep breath, and already sit down, and sitting very closely to husband, and rest her head on his shoulder. That's beautiful, don't you think so? That's a beautiful scene. 
 
 But when you sit face to face: "Hey, what are you doing there?" *[laughter]* Or sometimes you can be face to face and express your affectionate feelings. Well, sometimes it is important, but if you do [it] always, you get fed up with it, don't you think so? Pretty soon you're fed up with such love and human relationship. You cannot always face to face each other; even though love is beautiful, you're fed up with love.
 
@@ -120,17 +120,21 @@ So if you really want to experience love, not aways face to face. Well, forget i
 
 ##### 25:25
 
-So this is pretty nice for us. This is very important for us. If you don't follow your life like this, you always are constantly face to face – that's human problem. That's why Rilke says, "That's what destiny is: to be face to face and nothing but that and always opposite." Always something opposite that you can see. Arguing, or quarreling, fighting – why do you fight, why do you argue? Because you can see something opposite, from you, from others. That's why you fight. But when you live with more than one being – even though you love, or even though your parent, even though your brother or sister – they are completely different from each other. But still there is a chance to live [with] each-other. How? Well, not to be always face to face. Sometimes, why don't you go behind parent and massage parent on the shoulder when they feel stiff. That's pretty good. Well you always hate the parent; but parents are your parents. If you're always present with the parent face to face, that's pretty hard, very hard. But you should respect parent's existence, because you are existent. Owing to your parents existence, you are existent, so you should appreciate. For this, sometimes, why don't you go behind, or why don't you sit side by side with each other. And why don't you hold your parents shoulders with compassion? That's pretty good practice for us.
+So this is pretty nice for us, this is very important for us. If you don't follow your life like this, you always are constantly face to face – that's [a] human problem. 
+
+That's why Rilke says, "That's what destiny is: to be face to face and nothing but that and always opposite." Always something opposite that you can see. Arguing, or quarreling, fighting – why do you fight, why do you argue? Because you can see something opposite from you, from others. That's why you fight. But when you live with more than one being – even though you love [them], or even though [they are] your parent, [or] your brother or sister – they are completely different from each other. But still there is a chance to live [with] each-other. How? Well, not to be always face to face. Sometimes, why don't you go behind parent and massage parent on the shoulder when they feel stiff. That's pretty good. Well you always hate the parent; but parents are your parents. If you're always present with the parent face to face, that's pretty hard, very hard. But you should respect parent's existence, because you are existent. Owing to your parents existence, you are existent, so you should appreciate. For this, sometimes, why don't you go behind, or why don't you sit side by side with each other. And why don't you hold your parents shoulders with compassion? That's pretty good practice for us.
 
 ##### 28:00
 
-And then that's why next, Rilke said, "Never, not for a single day do we have pure space before us in which the flowers are always unfolded." Have you ever experienced vastness of space which the blooming flowers very smoothly enter into your heart, without [decoding?] them? We are always [decoding?] flowers. Do you understand [decode?] flowers? Without [decoding?] the beautiful flowers, just blooming, the beautiful flowers smoothly enter into your heart. That is the vastness of space. 
+And then that's why next, Rilke said, "Never, not for a single day do we have pure space before us in which the flowers are always unfolded." Have you ever experienced [the] vastness of space [in] which the blooming flowers very smoothly enter into your heart, without [decoding?] them? We are always [decoding?] flowers. Do you understand [decode?] flowers? Without [decoding?] the beautiful flowers, just blooming, the beautiful flowers smoothly enter into your heart. That is the vastness of space. 
 
-Well, in Buddhism, that vastness of space is which is called emptiness. Emptiness is vast, unfathomable, boundless. No particular power, no particular force, which you think. But it is there, which is unfathomable, and deep, and vast, and boundless. And then when you get into, it's very evasive, for that to understand what it is, because it is vast, it is boundless. But when it is not there, when it doesn't exist, it's very difficult for us to exist. So that is space, that is what is called emptiness. 
+Well, in Buddhism, that vastness of space is [what] is called emptiness. Emptiness is vast, unfathomable, boundless. No particular power, no particular force, which you think. But it is there, which is unfathomable, and deep, and vast, and boundless. And then when you get into [it], it's very evasive ... to understand what it is, because it is vast, it is boundless. But when it is not there, when it doesn't exist, it's very difficult for us to exist. So that is space, that is what is called emptiness. 
 
 ##### 30:27
 
-"Do we have a pure space before us in which the flowers are always unfolded. It's forever world and  nowhere without not." We always see the world created by us; "nowhere without not." Always we see the world created by us, and believe that is important for us. But most important thing is, the vastness of space. The world created by us is [a] tiny world. We can see from individual telescope. This is important for us, because that is the world in which we live. But in order to live in this small world, we have to know bigger scale of the world. That is vastness of space. According to Buddhism, it's called emptiness. 
+"[Never] ... do we have a pure space before us in which the flowers are always unfolded. It's forever world and ... nowhere without not." We always see the world created by us; "nowhere without not." Always we see the world created by us, and believe that is important for us. But [the] most important thing is, the vastness of space. The world created by us is [a] tiny world. We can see [it through our] individual telescope. This is important for us, because that is the world in which we live. But in order to live in this small world, we have to know [the] bigger scale of the world. That is [the] vastness of space. According to Buddhism, it's called emptiness. 
+
+(Katagiri seems to interpret "without not" as emptiness, and "nowhere" meaning the same as "never", i.e. "never emptiness". The poem actually says "never nowhere without not" or "never the nowhere minus the no". So, "nowhere without not" or "nowhere minus the no" would be emptiness. However, the underlying the point is the same.)
 
 Emptiness is not the world. I don't know what it is; but *it is*. Emptiness.
 
