@@ -2,7 +2,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 # Transcripts in Chronological Order
 
-**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first 11 talks are pretty solid; the rest need more work.
+**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first 12 talks are pretty solid; the rest need more work.
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
@@ -28,9 +28,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [1979-08-08 Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
-### Talks below here are still in rough draft form
-
 [1979-08-15 Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+
+### Talks below here are still in rough draft form
 
 [1979-11-17 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1.md)
 
