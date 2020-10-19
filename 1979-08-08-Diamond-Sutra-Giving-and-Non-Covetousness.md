@@ -19,7 +19,7 @@ The commentary by Conze here is very interesting. Let me read [it] first:
 
 ##### 4:20
 
-In Mahayana Buddhism, [the] perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā). Giving is the first item of the six paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in [the] proper way. Which is one of the Eightfold Noble Truths (Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. First important thing is to practice perfection of giving. 
+In Mahayana Buddhism, [the] perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā). Giving is the first item of the six paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in [the] proper way. Which is one of the Eightfold Noble Truths (Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. [The] first important thing is to practice perfection of giving. 
 
 If you read Mahayana Buddhist scriptures, very often they say, "give offerings decorated with seven precious treasures to Tathagatas, to Arhats, to noble enlightened men." Very often [they speak] in that way. So according to modern sense, it doesn't make sense whether to give. Why don't give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand in that way about the practice of giving, it's pretty difficult to understand the real spirit of Mahayana Buddhism. That's why Conze says, "Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity." I would like to talk about this point of view tonight. 
 
@@ -86,9 +86,9 @@ That's why Dogen Zenji says the practice of giving is not to covet. This is very
 
 This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the late years of his life. In this book, what he wants to tell us is not pessimistic of the human world, but [is] the oneness of life and death. The title, Duino Elegies, is something pensive, but behind this poem he really wants to say, oneness of life death. 
 
-##### 13:00
+[I want to explain the most important two points about this poem.] One is: "That's what Destiny is: to be face to face and nothing but that and always opposite." And [the] second point is: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world, nowhere-without-not."
 
-[I want to explain the most important two points about this poem.] One is: "That's what Destiny is: to be face to face and nothing but that and always opposite." And also second point is: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world, nowhere-without-not."
+##### 13:43
 
 [But] first, I would like to explain the first part of this poem: "Only we see death; but the beast is free and has its death always behind it and God before it, and when it walks it goes toward eternity, as springs flow." 
 
@@ -96,9 +96,9 @@ Only human beings can see death. [We] can see death in many ways, from many angl
 
 So that's why, "God before it": God means in this case, [the] vastness of space. He never sees the death in front of him; [he is] always going ahead toward [the] vastness of space, eternity. That means God before it. That's why he said, "when it walks it goes toward eternity." Completely eternity. He doesn't know, in the moment, [that] there is some destiny he doesn't see. So that's to go, just to go ahead. And then only when he sees something dangerous, he is scared. But he doesn't see the death. So death is completely one with beast, always. 
 
-##### 16:44
-
 That's why he said, "When it walks it goes toward eternity, as springs flow." Just as springs always ... flow. Springs flow from the ground, always coming up. No suffering. So from this point, beast never suffers, from life or death. But they have subjective... feeling, according to their... instinct. So they fear death or something dangerous only when they see something dangerous right in from of them. But they never think death, they never think something dangerous in a second. So always, whatever happens, they always walk toward eternity, no fear. The fear appears only when they see it right in front of them. 
+
+##### 18:10
 
 That is what Rilke said. And then next: "Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It's forever world and nowhere without not. That's what Destiny is: to be face to face and nothing but that and always opposite." This is a very common lifestyle of human beings: being present face-to-face, creating the world, the world created by us, and think[ing] that world is the most important for us. That's why we really cling to the world created by us. So at that time we always face, we are always present face-to-face.
 
