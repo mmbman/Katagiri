@@ -28,29 +28,29 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [1979-08-15 Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
-[1979-11-17 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1.md)
+[1979-11-17 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1)
 
 ### Talks below here are still in rough draft form:
 
-[1979-11-18 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2.md)
+[1979-11-18 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2)
 
-[1980-01-19 Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1.md)
+[1980-01-19 Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
 
-[1980-01-20 Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2.md)
-
-...
-
-[1980-07-01 Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation.md)
-
-[1980-07-02 Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates.md)
+[1980-01-20 Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2)
 
 ...
 
-[1987-06-06: Shobogenzo: Genjokoan - Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1.md)
+[1980-07-01 Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation)
 
-[1987-06-06: Shobogenzo: Genjokoan - Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2.md)
+[1980-07-02 Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates)
 
-[1987-06-07: Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2.md)
+...
+
+[1987-06-06: Shobogenzo: Genjokoan - Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1)
+
+[1987-06-06: Shobogenzo: Genjokoan - Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2)
+
+[1987-06-07: Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2)
 
 [1987-06-20: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
