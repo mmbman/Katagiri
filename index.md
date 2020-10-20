@@ -28,9 +28,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [1979-08-15 Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
-### Talks below here are still in rough draft form:
-
 [1979-11-17 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1.md)
+
+### Talks below here are still in rough draft form:
 
 [1979-11-18 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2.md)
 
