@@ -2,8 +2,6 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 # Transcripts in Chronological Order
 
-**Note:** I am updating the transcripts I've already done to a more readable style. Currently the first 12 talks are pretty solid; the rest need more work.
-
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
 [1979-05-09 Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
