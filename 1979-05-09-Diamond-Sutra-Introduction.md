@@ -37,7 +37,7 @@ At the first conference and the second conference and the third conference after
 
 Within [the] agamas, it was based on Buddha's teaching: philosophical, psychological teachings, mentioning impermanence, and suffering, no-self, and nirvana. Those four are called [the] Four Dharma Seals, mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
 
-So in [the] agama sutras, those four dharma seals were described. And then with the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in [the] agama sutras, those four dharma seals were described. And then [within] the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
@@ -81,15 +81,17 @@ For instance, you know the koan; Zen Buddhists always use a koan, but this koan 
 
 ##### 24:10
 
-Oh, yes, here is a very good example. [A] Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called Isan; his name was Isan. (Probably Isan Reiyū; Chinese: Guishan Lingyou or Kuei Shan Lingyu, 771-853.) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
+Oh, yes, here is a very good example. [A] Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called Isan; his name was Isan. (Probably Isan Reiyū; Chinese: Kuei Shan Lingyu or Guishan Lingyou, 771-853.) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
 
-For instance, there is a Katagiri. But this is not Katagiri, this is cow. *[he laughs]* But you say "cow"; it's not cow. So for instance, everything is Buddha. Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: Katagiri, Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it?
+For instance, there is a Katagiri. But this is not Katagiri, this is cow. *[he laughs]* But you say "cow"; it's not cow. 
+
+[Or,] for instance, everything is Buddha. Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: Katagiri, Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it?
 
 That's sort of a Zen puzzle; but this is really based on Buddhist philosophy. A is A, but A is not A. But A is really A.
 
 ##### 27:05
 
-This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, matter of existential fact, or reality – that is the point. Katagiri is one of the beings which is always floating in the stream of change. So, nothing to get. We are always chasing after something. But we cannot get it. 
+This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, [the] matter of existential fact, or reality – that is the point. Katagiri is one of the beings which is always floating in the stream of change. So, nothing to get. We are always chasing after something. But we cannot get it. 
 
 So [the] important point is, the existential reality. What is existential reality? If you say Katagiri, what his existential fact, or reality is. That is a point. But usually you don't believe that; we don't say that, we don't understand in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's very shallow understanding. 
 
