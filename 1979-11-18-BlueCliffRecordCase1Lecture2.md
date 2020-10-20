@@ -53,17 +53,19 @@ So, anyway, whatever you do in the human world, there is language. Without langu
 
 ##### 14:15
 
-Emperor Wu says, “What is the merit?” Because he built lots of temples, educated monks; what is the merit? If you do something good, just like Emperor Wu, of course, according to language, according to costumes and images, some prepossessions, there will be something good as a result. But sometimes there’s not. Even though you do something good, result, when it comes, sometimes, good result will come, sometimes evil result will come. Because this is reality. Our everyday life. This is human activity we do. The activity itself of building the temple, and educating the people. What do you mean, educating people? I educate you, but if I believe I educate people. I train you. What do you mean, “I train you?” Of course I am training, because I have a training system. But if we’re training, according to the Buddha’s teaching, probably there must be something good as a result. Merit, must be. Because you must be trained. Perhaps there’s merit(?). How can I say? How much do you believe that you have been trained? How much? How much are you training?
+Emperor Wu says, “What is the merit?” Because he built lots of temples, educated monks; what is the merit? If you do something good, just like Emperor Wu, of course, according to language, according to costumes and images, some prepossessions, there will be something good as a result. But sometimes there’s not. Even though you do something good, [the] result, when it comes, sometimes a good result will come, sometimes evil result will come. Because this is reality; our everyday life. 
+
+This is [the] human activity we do, the activity itself of building the temple and educating the people. What do you mean, educating people? I educate you; I believe I educate people, I train you. What do you mean, “I train you?” Of course I am training, because I have a training system. But if we’re training according to the Buddha’s teaching, probably there must be something good as a result. Merit, must be, because you must be trained. Perhaps there’s merit. How can I say [it]? How much do you believe that you have been trained? How much? How much are you training?
 
 ##### 16:26
 
-But reality is very complicated, very complicated. You cannot pin down what it is. What is merit? What is activity of building the temple and educating the people? What do you mean? What is education? 
+But reality is very complicated, very complicated. You cannot pin down what it is. What is merit? What is [the] activity of building the temple and educating the people? What do you mean? What is education? 
 
-Because this is the language. By the language we are discussing so much about something. And language could have point out something, what seems to be real. But language cannot point out something real. There’s a little gap. Something real which exists from moment to moment, and something which language points out. There’s a gap between. Finally, if you see something real which exists, right now, right here, well, finally you cannot say anything by the words. 
+Because this is language. By the language we are discussing so much about something. And language [can] point out something which seems to be real. But language cannot point out something real. There’s a little gap. Something real which exists from moment to moment, and something which language points out; [there’s a] little gap between. Finally, if you see something real which exists, right now, right here, well, finally you cannot say anything by the words. 
 
 ##### 17:45
 
-For instance, I had bad news from Zen Center in San Francisco last night. Some person ... bad news. One of our friends, this person died. So I don’t have, I didn’t have much more information, except, just died. Well it is said that he was murdered by somebody, they didn’t know yet. But he was pretty young, 21 years old. But if you say, “we are, I am 21 years old, it is young.” What do you mean, young? “I am 60 years old, I am 70 years,” it is old age. What do you mean? Old age, old man should die first. Young man should live longer. Of course, there is, we hope. But reality doesn’t agree with this understanding. Even though you believe “I am young, so I can live long,” of course there is, but reality is not. Reality doesn’t agree with. At any time, what is reality? Where you, at 20 years old, live. What is reality? You can say, you are ... you can live long, or you have to die tomorrow - maybe so, maybe not. You can live tomorrow, longer… maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
+For instance, I had bad news from Zen Center in San Francisco last night. Some person *[unintelligible]* bad news. One of our friends, this person died. So I don’t have, I didn’t have much more information, except, just died. Well it is said that he was murdered by somebody, they didn’t know yet. But he was pretty young, 21 years old. But if you say, “we are, I am 21 years old, it is young.” What do you mean, young? “I am 60 years old, I am 70 years,” it is old age. What do you mean? Old age, old man should die first. Young man should live longer. Of course, there is, we hope. But reality doesn’t agree with this understanding. Even though you believe “I am young, so I can live long,” of course there is, but reality is not. Reality doesn’t agree with. At any time, what is reality? Where you, at 20 years old, live. What is reality? You can say, you are ... you can live long, or you have to die tomorrow - maybe so, maybe not. You can live tomorrow, longer… maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
 
 ##### 19:56
 
@@ -282,5 +284,7 @@ Is that okay?
 That’s why he says he doesn’t know the great illumination shines from under his own feet. 
 
 Commentary is very helpful for you; so if you have time, read the commentary. From now on, if I have time, I would like to explain one by one. 
+
+[Next Talk: Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
 
 [Home](index.md)
