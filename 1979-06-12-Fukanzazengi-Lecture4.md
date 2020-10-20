@@ -199,7 +199,9 @@ So if you use zazen like this, as a means like this, it doesn't make sense. Even
 
 ##### 1:00:02
 
-But we don't do that. Taking away all delusions, *and then* I want to be one – it's too late; you cannot do this. You have to be one anyway. If you're one, all delusions drop off very naturally. But we don't believe [it], because we get use of always keeping a certain distance and hearing the sound ... and believing that is [the] real world. And [we] continue to follow after that. That's why we are inverted. Perverted.
+But we don't do that. Taking away all delusions, *and then* I want to be one – it's too late; you cannot do this. You have to be one anyway. If you're one, all delusions drop off very naturally. But we don't believe [it], because we get use of always keeping a certain distance and hearing the sound ... and believing that is [the] real world. And [we] continue to follow after that. That's why we are inverted. Perverted. 
+
+(Katagiri may mean "we get used to" rather than "we get use of" above, but it's hard to be sure, and "we get use of" is such an interesting statement that I kept it intact.)
 
 ##### 1:00:57
 
