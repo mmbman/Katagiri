@@ -93,13 +93,20 @@ So, don’t be tanpankan, okay? The life characterized by suffering is not somet
 
 ##### 27:01
 
-Even though believe for yourself, “I am bad boy,” you cannot believe all the time, “bad boy.” If you say to somebody, “I am bad boy, I am bad boy” – I don’t think it is exactly, actually. Not “I am bad boy.” Because if you are really bad boy, it is not necessary to say [it] to somebody. So keep quiet. Just “chill” yourself. How bad you are. [laughter] How evil you are. Nothing to say. Because if you continue to say to somebody, “I am bad boy, I am bad boy,” you enjoy yourself very much, showing the bad boy. Because, behind the bad boy, there is a good boy. You see also [the] image of good boy, behind the bad boy, don’t you think so? That’s why you have to say to somebody, “I am bad boy, I am bad boy,” – because people believe you, or people seem to believe you, you are bad boy. But actually not. You believe yourself in that way. That is prepossession. By your prepossession, you believe yourself, “I am bad boy.” So finally, you cannot say anything. If you really believe you are “bad boy,” you have nothing to say, nothing. Reality makes everything ask; question mark. Just wonderful.
+Even though believe for yourself, “I am bad boy,” you cannot believe always, “bad boy.” If you say to somebody, “I am bad boy, I am bad boy” – I don’t think [you are], exactly, actually, not “I am bad boy.” Because if you are really bad boy, it is not necessary to say [it] to somebody. So keep quiet. Just “chill” yourself. How *bad* you are. [laughter] How evil you are. Nothing to say. Because if you continue to say to somebody, “I am bad boy, I am bad boy,” you enjoy yourself very much, showing the bad boy. Because, behind the bad boy, there is a good boy. You see always [the] image of [the] good boy behind the bad boy, don’t you think so? That’s why you have to say to somebody, “I am bad boy, I am bad boy” – because people believe you, or people seem to believe you, [that] you are bad boy, but actually not. You believe yourself in that way. That is prepossession. By your prepossession, you believe yourself, “I am bad boy.” 
+
+So finally, you cannot say anything. If you really believe you are “bad boy,” you have nothing to say, nothing. Reality makes everything [an] ask, [a] question mark. Just, wonderful.
 
 ##### 28:32
 
 You know I’ve told you before in my lectures, the inscription on [Ryōkan’s?] tombstone says: 
 
-> “Rose. Oh! Pure contradiction. Under layers of ivy, there is peaceful sleep, with joy. No one touches.”
+> Rose. Oh! 
+> Pure contradiction. 
+> Under layers of ivy, 
+> there is peaceful sleep, 
+> with joy. 
+> No one touches.
 
 This is inscription on [Ryōkan’s?] tombstone. *[he repeats it]*
 
@@ -113,17 +120,19 @@ This is my translation; do you understand this?
 
 (Note: It took many listenings to get the words of the inscription, and it still might not be 100% right.)
 
-This is language, okay? You don’t understand, but I understand. So that is my individual understanding, okay? But I understand pretty well. [laughter] …
+This is language, okay? *[laughter]* You don’t understand, but *I* understand. *[laughter]* So that is my individual understanding, okay? But I understand pretty well. *[laughter]* But using my pronunciation, you don't understand. 
 
 ##### 30:40
 
-[unintelligible question]
+*[inaudible question]*
 
-So, what I want to… I don’t want to explain this poem. You should just take it. What I want to tell you is: it says “rose” and then “oh!” And rose is very being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just rose. The next “oh!” is completely no word, completely no word, because rose blooms. In reality from moment to moment, completely beyond the human verbalization. Nothing to say. When word, language completely disappears, at that time, you cannot say anything, just “oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. Then if you really want to explain this, you cannot stay there, you cannot stay there always. In the realm of material existence, which is called... Do you remember Vimalakirti? He kept silent, when the bodhisattva ask, the bodhisattva ask, “Then, what is the truth? Which is the one and undivided? What is it?” And then Vimalakirti kept silent. This silence is really implication of glancing at … pure nature of existence, beauty of existence. When language completely drops off; at that time, how can you say? Just the sound, “oh”. But you cannot stay there always, in the realm of silence, so finally you have to say something in words, coming from this silence. You have to say, otherwise you cannot educate somebody. So language must be dropped off, finally, and finally language must come from silence again. And then, that’s why this inscription says, right after “oh,” “pure contradiction.” This is philosophical explanation. So, if you really want to explain “oh” as the beauty of existence, nothing to say, language drops off. And then language comes back again, explaining about this beauty of existence in terms of, you can say, pure contradiction. Or, in terms of poet. You can say, “Under layers of ivy, peaceful sleep with joy. No one touches.” This is poet.
+**Katagiri**: I don’t want to explain this poem, okay? You should just take it as is.
 
-##### 34:44
+What I want to tell you is: it says “Rose” and next, “Oh!” And rose is really [the] being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just "rose". But next, “Oh!” is completely no word, completely no word – because [the] rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything, just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
 
-But this is still explanation, which is told in terms a poet, in terms of language; in terms of philosophy. But really, if you really see the reality of ... everyone’s shared experience at this point, when language drops off. At that time, nothing to say. 
+And then if you really want to explain this, you cannot stay there always, in the realm of material existence. Do you remember Vimalakirti? He kept silent, when the bodhisattva asked him, “What is the truth? Which is the one and undivided? What is it?” And then Vimalakirti kept silent. This silence is really [the] implication of glancing at [the] pure nature of existence, beauty of existence. When language completely drops off; at that time, how can you say? Just the sound, “Oh.” But you cannot stay there always in the realm of silence, so finally you have to say something in words, coming from this silence. You have to say [something], otherwise you cannot educate somebody. So language must be dropped off, finally, and finally language must come from silence again. And then, that’s why the inscription says, right after “Oh,” “Pure contradiction.” This is [the] philosophical explanation. So, if you really want to explain “oh” as the beauty of existence, nothing to say, language drops off. And then language comes back again, explaining about this beauty of existence in terms of, you can say, pure contradiction. Or, in terms of [poetry]. You can say, “Under layers of ivy, peaceful sleep with joy. No one touches.” This is poetry.
+
+But this is still [an] explanation, which is told in terms a poet, in terms of language, in terms of philosophy. But really, if you really see the reality of [the rose], everyone should experience this point when language drops off. At that time, nothing to say. 
 
 ##### 35:16
 
