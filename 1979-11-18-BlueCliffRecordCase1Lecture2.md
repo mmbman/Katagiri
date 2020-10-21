@@ -142,19 +142,25 @@ And then [after that] the main subject starts, from this question.
 
 > Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?”
 
-He didn’t understand “no merit,” because he took this “no merit” in ??? taste vile. Life is characterized by suffering. Don’t fret(?) Because if you take this, … valid… you don’t want to accept. So finally, you have to see … the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering. Completely beyond suffering, or pleasure, whatever it is. But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” [laughter] ... That note by Engo Zen Master is very ... picking him out(?), not the usual note in Western note style, very picking him out(?) Sometime he praise somebody very well, but in many ways, not always directly, by looking down somebody, and place(?) ... in many ways. That’s why the notes in Blue Cliff Record are very interesting, very tripping(?) him up, piercing the human heart directly. So “Emperor Wu of Liang asked the great master Bodhidharma,” commenter says, “How dull fellow speaking up.” “What is the highest meaning of the holy truths?” The note says, “What a donkey-tethering stake this is.” [laughter] We are always tethered; tethered your body and mind; with what? Well, preconceptions, prepossessions, images, conditioning, and customs, and heredity. Created by what? Form, perceptions, consciousness. So, stop the chain.(?)
+He didn’t understand “no merit,” because he took this “no merit” at face value. 
 
-##### 39:24
+For instance, "Life is characterized by suffering." Don’t fret. Because if you take this at it's face value, you don’t want to accept [it]. Finally, you have to see the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering, completely beyond suffering or pleasure, whatever it is. 
 
-So what is the highest meaning of the holy truths? Holy truth is ... [tape change]
+But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” *[laughter]* That note by Engo Zen Master is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometime he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in Blue Cliff Record are *very* interesting, [really picking on him], piercing the human heart directly. 
+
+So “Emperor Wu of Liang asked the great master Bodhidharma," [the] commenter says, “This dull fellow speaks up.” And “What is the highest meaning of the holy truths?” the note says, “What a donkey-tethering stake this is.” *[he laughs along with the group]* We are always tethered: your body and mind [is tethered] with what? Well, preconceptions, prepossessions, images, conditioning, and customs, and heredity. Created by what? Form, perceptions, consciousness. So – stop the chain.
+
+So what is the highest meaning of the holy truths? Holy truth is... 
+
+*[tape change]*
 
 ... that’s why he is completely tied up with rope. He is just like a donkey. 
 
-And then the Bodhidharma says, “Empty, without holiness.” D.T. Suzuki says, “Vastness and nothing holy.” This translation says, “Empty, without holiness.” If you are empty, means vast. Nothing there, but it’s vast. Without holiness. Nothing holy, nothing not holy. Completely nothing.
+##### 39:44
 
-##### 40:22
+And then Bodhidharma says, “Empty, without holiness.” D.T. Suzuki [translated it as], “Vastness and nothing holy.” This translation says, “Empty, without holiness.” Anyway empty means vast. Nothing there, but it’s vast. Without holiness. Nothing holy, nothing not holy. Completely nothing.
 
-So, commentary says, Engo Zen Master says, “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” Wu considered... anyway, Emperor Wu took this answer, his answer, “no merit,” at face value. So he didn’t understand. That’s why if there is no merit, do you believe there is no divinity, or God, or Buddha, or universal energy, which link everything possible to this. There is nothing? There is no truth? Which is completely almighty. To help in your life, et cetera. That’s why he said, next moment he asked, “What is the truth?”
+So, Engo Zen Master says [in the commentary], “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” Wu considered... anyway, Emperor Wu took this answer, his answer, “no merit,” at face value. So he didn’t understand. That’s why if there is no merit, do you believe there is no divinity, or God, or Buddha, or universal energy, which link everything possible to this. There is nothing? There is no truth? Which is completely almighty. To help in your life, et cetera. That’s why he said, next moment he asked, “What is the truth?”
 
 ##### 41:29
 
