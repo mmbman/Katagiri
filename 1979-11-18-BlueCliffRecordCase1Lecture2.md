@@ -212,7 +212,13 @@ So this “I don’t know” seems to be the same answer Bodhidharma gave, “I 
 
 ##### 47:52
 
-Well, Bodhidharma says “I don’t know” when he was asked who you are, but he is not spooky, he is not a ghost. He exists; he has a body and a mind. He knows pretty well “I am existing.” Right now, right here. But, how can understand. He is Bodhidharma? Or he is another person? Or he is a god? Or he is a bodhisattva? No. He is Bodhidharma. He came to China to teach, and is teaching as a what? Bodhidharma? No. Bodhisattva. So he is bodhisattva. He is really bodhisattva? No. Bodhidharma. He is very Bodhidharma? No, he is Bodhidharma. So finally, language completely drops off. What, who he is. That's why you say, “I don’t know.” But “I don’t know” is really looking at the directly reality. Reality, where or which Bodhidharma really exists, from day to day. Why he comes to China to teach Buddhism. At that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is very systematical understanding of human activity. Of course, we should know this. But we cannot judge reality in that way. Sometimes, even though you teach for long, how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of zazen for 15 (50?) years. I don’t know how many people I give instruction. But you remind me, how many people come back after that? Clearly, one or two. 
+Well, Bodhidharma says “I don’t know” when he was asked who you are, but he is not spooky, he is not a ghost. He exists; he has a body and a mind. He knows pretty well, “I am existing, right now, right here."
+
+But how can [we] understand? He is Bodhidharma? Or he is another person? Or he is a god? Or he is a bodhisattva? No. He is Bodhidharma. So he came to China to teach Buddha's teaching as a what? Bodhidharma? No. Bodhisattva. So he is bodhisattva. He is really bodhisattva? No. Bodhidharma. He is really Bodhidharma? No, he is bodhisattva. 
+
+So finally, language completely drops off; what [or] who he is. That's why he said, “I don’t know.” But “I don’t know” is really looking at the direct reality, [the] reality in which Bodhidharma really exists from day to day. 
+
+Why he comes to China to teach Buddhism – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. [For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of zazen for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
 
 ##### 50:17
 
