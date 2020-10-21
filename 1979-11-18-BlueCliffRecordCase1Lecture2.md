@@ -55,57 +55,61 @@ So, anyway, whatever you do in the human world, there is language. Without langu
 
 Emperor Wu says, “What is the merit?” Because he built lots of temples, educated monks; what is the merit? If you do something good, just like Emperor Wu, of course, according to language, according to costumes and images, some prepossessions, there will be something good as a result. But sometimes there’s not. Even though you do something good, [the] result, when it comes, sometimes a good result will come, sometimes evil result will come. Because this is reality; our everyday life. 
 
-This is [the] human activity we do, the activity itself of building the temple and educating the people. What do you mean, educating people? I educate you; I believe I educate people, I train you. What do you mean, “I train you?” Of course I am training, because I have a training system. But if we’re training according to the Buddha’s teaching, probably there must be something good as a result. Merit, must be, because you must be trained. Perhaps there’s merit. How can I say [it]? How much do you believe that you have been trained? How much? How much are you training?
+This is [the] human activity we do, the activity itself of building the temple and educating the people. "What do you mean, educating people?" I educate you; I believe I educate people, I train you. "What do you mean, 'I train you?'” Of course I am training, because I have a training system. But if we’re training according to the Buddha’s teaching, probably there must be something good as a result. Merit, must be, because you must be trained. Perhaps there’s merit. How can I say [it]? How much do you believe that you have been trained? How much? How much are you training?
 
-##### 16:26
-
-But reality is very complicated, very complicated. You cannot pin down what it is. What is merit? What is [the] activity of building the temple and educating the people? What do you mean? What is education? 
+Reality is very complicated. You cannot pin down what it is. What is merit? What is [the] activity of building the temple and educating the people? What do you mean? What is education? 
 
 Because this is language. By the language we are discussing so much about something. And language [can] point out something which seems to be real. But language cannot point out something real. There’s a little gap. Something real which exists from moment to moment, and something which language points out; [there’s a] little gap between. Finally, if you see something real which exists, right now, right here, well, finally you cannot say anything by the words. 
 
 ##### 17:45
 
-For instance, I had bad news from Zen Center in San Francisco last night. Some person *[unintelligible]* bad news. One of our friends, this person died. So I don’t have, I didn’t have much more information, except, just died. Well it is said that he was murdered by somebody, they didn’t know yet. But he was pretty young, 21 years old. But if you say, “we are, I am 21 years old, it is young.” What do you mean, young? “I am 60 years old, I am 70 years,” it is old age. What do you mean? Old age, old man should die first. Young man should live longer. Of course, there is, we hope. But reality doesn’t agree with this understanding. Even though you believe “I am young, so I can live long,” of course there is, but reality is not. Reality doesn’t agree with. At any time, what is reality? Where you, at 20 years old, live. What is reality? You can say, you are ... you can live long, or you have to die tomorrow - maybe so, maybe not. You can live tomorrow, longer… maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
+For instance, I had bad news from Zen Center in San Francisco last night. Some person *[unintelligible]* bad news. One of our friends, this person died. I didn’t have much more information, except, just died. Well it is said that he was murdered by somebody, they didn’t know yet. But he was pretty young, 21 years old. 
 
-##### 19:56
+But if you say, “I am 21 years old; it is young.” What do you mean, young? “I am 60 years old, I am 70 years; it is old age." What do you mean? "Old age, old man should die first. Young man should live longer." Of course, there is, we hope. But reality doesn’t agree with this understanding. Even though you believe “I am young, so I can live long,” of course there is, but reality is not. Reality doesn’t agree with. At any time, what is [the] reality where you, at 20 years old, live. What is reality? You can say you can live long, or you have to die tomorrow – maybe so, maybe not. You can live tomorrow, even longer – maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
 
-This is reality you watch, ... exist… anyway is living, day to day. Whoever you are, young, or old age, it doesn’t matter. That’s why Buddha says, life and death, old age and sickness are possible(?)
+This is reality in which everyone is living, day to day. Whoever you are, young, or old age, it doesn’t matter. That’s why Buddha says, life and death, old age and sickness are suffering.
 
-Well, I told you before: without language, we cannot exist. We cannot understand the world, we cannot communicate with each other. So, we can come from language, and enter into your language. Through the language, I can come out myself. I can show myself through the language, and I can enter into your heart, through the language. This is understanding each other. But what do you mean, understanding? Truth is there is question. 
+##### 20:20
 
-##### 21:06
+Well, I told you before: without language, we cannot exist; we cannot understand the world, we cannot communicate with each other. So, we can come from language, and enter into your language. Through the language, I can come out [of] myself. I can show myself through the language, and I can enter into your heart through the language. This is understanding each other. But what do you mean, understanding? Still there is a question. 
 
-Finally, language disappears. Completely disappears. If you look at the reality, there’s nothing to say. I am young, I am old; you cannot put a certain label on you, “I am young.” Who can live long? No you cannot say. It is reality. 
+Finally, language disappears. Completely disappears. If you look at the reality, there’s nothing to say. I am young, I am old; you cannot put a certain label on you, “I am young, who can live long." No, you cannot say. This is reality. 
 
 ##### 21:30
 
-If you believe you’re young and live long, such a person is what is called Tanpankan in Japanese. Tan means to tie, pan means board, long board. Kan means self, man. Tanpankan means a fellow who ties a board on his shoulder. If you carry the board on (your) shoulder, you cannot see the back. You can see just a little side. You cannot see the back. That is prejudice. It is this very narrow understanding. That is called tanpankan. 
+If you believe you’re young and live long, such a person is what is called tanpankan in Japanese. Tan means to tie. Pan means board, long board. Kan means fellow, man. Tanpankan means a fellow who ties a board on his shoulder. If you carry the board on [your] shoulder, you cannot see the board; you can see just one side, but you cannot see the back. That is prejudice. It is this very narrow understanding. That is called tanpankan. 
 
-##### 22:24
+So we are studying something according to the Four Noble Truths. You don’t want to believe life is characterized by suffering, because you hate suffering. But that suffering means, really suffering opposed to pleasure. But suffering and pleasure, whatever you say, those are just words, apart from [the] reality itself [in which] you exist from day to day. 
 
-So we are studying something according to Four Noble Truths. You don’t want to believe life is characterized by suffering, because you hate suffering. But that suffer means, really suffering opposed to pleasure. But suffering and pleasure, whatever you say, those are just words. Apart from reality itself, you exist from day to day. Of course, we are very lucky; we are living in a lucky, wonderful world. It is called modern civilization. Lots of food, lots of things we can have. 
+Of course, we are very lucky; we are living in a lucky, wonderful world; it is called modern civilization. Lots of food, lots of things we can have. Of course, we are happy. But we cannot say we are always happy. Or we cannot believe that life is characterized by suffering. If you look at the reality in which human beings exist, you know pretty well what’s going on in the human world. You cannot judge human life in terms of just pleasure, or in terms of just suffering, pain. If you see the pain, suffering, immediately there is pleasure. If you see the pleasure there is immediately suffering, because this is reality. Suffering and pleasure live in peace and harmony as good friends. You cannot separate [them]. 
 
-But of course, we are happy. But we cannot say we are always happy. Or we cannot believe that the life is characterized by suffering. If you look at the reality in which human beings exist, you know pretty well what’s going on in the human world. You cannot judge human life in terms of just pleasure, or in terms of just suffering, pain. If you see the pain, suffering, immediately there is pleasure. If you see the pleasure there is immediately suffering, because this is reality. Suffering and pleasure live in peace and harmony as good friends. You cannot say what. Then if you believe this human life according to pleasure, that is tanpankan. I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist. But, suffering and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy very much. If you become Buddhist, Buddha says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say (this) to somebody, you are really troublemakers. So, don’t be tanpankan, okay? The suffering characterized by… The life characterized by suffering is not something like that. That’s why suffering must be true, okay? True. If the suffering becomes true, that means completely the language, what is called suffering, disappears. Nothing to say. Because even though you say in the word, “life is perfect,” can you say, “life is happy?” No. There is pleasure. If it is true, can you say “life is pleasure?” You cannot say so either. The use of the words always points out reality in which we exist. But, there is some gap. And then when reality itself, in which pleasure and suffering co-exist, with language, completely disappears. Nothing to say. Everything because question, question mark. Nothing to say.
+Then if you believe this human life according to pleasure, that is tanpankan. 
+
+##### 24:40
+
+I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; suffering and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy very much. If you become Buddhist, Buddha says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say [this] to somebody, you are really troublemakers. 
+
+So, don’t be tanpankan, okay? The life characterized by suffering is not something like that. That’s why suffering must be true, okay? If the suffering becomes true, that means completely the language which is called suffering disappears. Nothing to say. Because even though you say in [words?], “life is perfect,” can you say, “life is happy?” No. There is pleasure; if it is true, can you say “life is pleasure?” You cannot say so either. The using of words always points out the reality in which we exist. But, there is some gap. And then reality itself, in which pleasure and suffering both co-exist – with the language, [it] completely disappears. Nothing to say. Everything becomes a question mark. Nothing to say.
 
 ##### 27:01
 
-Even though believe for yourself, “I am bad boy,” you cannot believe all the time, “bad boy.” If you say to somebody, “I am bad boy, I am bad boy” - I don’t think it is exactly, actually. Not “I am bad boy.” Because if you are really bad boy, it is not necessary to say to somebody. So keep quiet. Just “chill” yourself. How bad you are. [laughter] How evil you are. Nothing to say. Because if you continue to say to somebody, “I am bad boy, I am bad boy,” you enjoy very much yourself. Showing the bad boy. Because, behind the bad boy, there is a good boy. You see also image of good boy, behind the bad boy, don’t you think so? That’s why you have to say to somebody, “I am bad boy, I am bad boy,” because people believe you, or people seem (cease?) to believe you, you are bad boy. But actually not. You believe yourself in that way. That is prepossession. By your prepossession, you believe yourself, “I am bad boy.” So finally, you cannot say anything. If you really believe you are “bad boy,” you have nothing to say, nothing. Reality makes everything ask; question mark. Just wonderful.
+Even though believe for yourself, “I am bad boy,” you cannot believe all the time, “bad boy.” If you say to somebody, “I am bad boy, I am bad boy” – I don’t think it is exactly, actually. Not “I am bad boy.” Because if you are really bad boy, it is not necessary to say [it] to somebody. So keep quiet. Just “chill” yourself. How bad you are. [laughter] How evil you are. Nothing to say. Because if you continue to say to somebody, “I am bad boy, I am bad boy,” you enjoy yourself very much, showing the bad boy. Because, behind the bad boy, there is a good boy. You see also [the] image of good boy, behind the bad boy, don’t you think so? That’s why you have to say to somebody, “I am bad boy, I am bad boy,” – because people believe you, or people seem to believe you, you are bad boy. But actually not. You believe yourself in that way. That is prepossession. By your prepossession, you believe yourself, “I am bad boy.” So finally, you cannot say anything. If you really believe you are “bad boy,” you have nothing to say, nothing. Reality makes everything ask; question mark. Just wonderful.
 
 ##### 28:32
 
-You know I’ve told you before in my lectures, the inscription on Ryōkan’s(?) tombstone says: 
+You know I’ve told you before in my lectures, the inscription on [Ryōkan’s?] tombstone says: 
 
-“Rose. Oh! Pure contradiction. Under layers of ivy, there is peaceful sleep, with joy. No one touches.”
+> “Rose. Oh! Pure contradiction. Under layers of ivy, there is peaceful sleep, with joy. No one touches.”
 
-This is inscription on Ryōkan’s(?) tombstone. [repeats]
+This is inscription on [Ryōkan’s?] tombstone. *[he repeats it]*
 
 This is my translation; do you understand this?
 
-[Someone says “no.” Laughter.]
+*[Someone says “no.” Laughter.]*
 
-[discussion about the words]
+*[discussion about the words]*
 
-[more laughter]
+*[more laughter]*
 
 (Note: It took many listenings to get the words of the inscription, and it still might not be 100% right.)
 
