@@ -101,12 +101,12 @@ So finally, you cannot say anything. If you really believe you are “bad boy,�
 
 You know I’ve told you before in my lectures, the inscription on [Ryōkan’s?] tombstone says: 
 
-> Rose. Oh! 
-> Pure contradiction. 
-> Under layers of ivy, 
-> there is peaceful sleep, 
-> with joy. 
-> No one touches.
+> Rose. Oh!  
+> Pure contradiction.  
+> Under layers of ivy,  
+> there is peaceful sleep,  
+> with joy.  
+> No one touches.  
 
 This is inscription on [Ryōkan’s?] tombstone. *[he repeats it]*
 
