@@ -128,7 +128,7 @@ This is language, okay? *[laughter]* You don’t understand, but *I* understand.
 
 **Katagiri**: I don’t want to explain this poem, okay? You should just take it as is.
 
-What I want to tell you is: it says “Rose” and next, “Oh!” And rose is really [the] being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just "rose". But next, “Oh!” is completely no word, completely no word – because [the] rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything, just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
+What I want to tell you is: it says “Rose” and next, “Oh!” And rose is really [the] being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just, "Rose." But next, “Oh!” is completely no word – because [the] rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything, just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
 
 And then if you really want to explain this, you cannot stay there always, in the realm of material existence. Do you remember Vimalakirti? He kept silent, when the bodhisattva asked him, “What is the truth? Which is the one and undivided? What is it?” And then Vimalakirti kept silent. This silence is really [the] implication of glancing at [the] pure nature of existence, beauty of existence. When language completely drops off; at that time, how can you say? Just the sound, “Oh.” But you cannot stay there always in the realm of silence, so finally you have to say something in words, coming from this silence. You have to say [something], otherwise you cannot educate somebody. So language must be dropped off, finally, and finally language must come from silence again. And then, that’s why the inscription says, right after “Oh,” “Pure contradiction.” This is [the] philosophical explanation. So, if you really want to explain “oh” as the beauty of existence, nothing to say, language drops off. And then language comes back again, explaining about this beauty of existence in terms of, you can say, pure contradiction. Or, in terms of [poetry]. You can say, “Under layers of ivy, peaceful sleep with joy. No one touches.” This is poetry.
 
@@ -138,7 +138,7 @@ That’s why [when] Bodhidharma first met Emperor Wu, the emperor asked, “I ha
 
 ##### 36:29
 
-And then [after that] the main subject starts, from this question:
+And then [after that] the main subject starts, from this question.
 
 > Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?”
 
