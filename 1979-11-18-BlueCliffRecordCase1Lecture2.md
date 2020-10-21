@@ -148,7 +148,11 @@ For instance, "Life is characterized by suffering." Don’t fret. Because if you
 
 But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” *[laughter]* That note by Engo Zen Master is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometime he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in Blue Cliff Record are *very* interesting, [really picking on him], piercing the human heart directly. 
 
-So “Emperor Wu of Liang asked the great master Bodhidharma," [the] commenter says, “This dull fellow speaks up.” And “What is the highest meaning of the holy truths?” the note says, “What a donkey-tethering stake this is.” *[he laughs along with the group]* We are always tethered: your body and mind [is tethered] with what? Well, preconceptions, prepossessions, images, conditioning, and customs, and heredity. Created by what? Form, perceptions, consciousness. So – stop the chain.
+So “Emperor Wu of Liang asked the great master Bodhidharma," [the] commenter says, “This dull fellow speaks up.”
+
+##### 38:42
+
+And, “What is the highest meaning of the holy truths?” The note says, “What a donkey-tethering stake this is.” *[he laughs along with the group]* We are always *tethered*: your body and mind [is tethered] with what? Well, preconceptions, prepossessions, images, conventions, and customs, and heredity. Created by what? Form, perceptions, consciousness. So – stop the chain.
 
 So what is the highest meaning of the holy truths? Holy truth is... 
 
