@@ -146,7 +146,7 @@ He didn’t understand “no merit,” because he took this “no merit” at fa
 
 For instance, "Life is characterized by suffering." Don’t fret. Because if you take this at it's face value, you don’t want to accept [it]. Finally, you have to see the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering, completely beyond suffering or pleasure, whatever it is. 
 
-But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” *[laughter]* That note by Engo Zen Master is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometime he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in Blue Cliff Record are *very* interesting, [really picking on him], piercing the human heart directly. 
+But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” *[laughter]* That note by Engo Zen Master is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometime he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in Blue Cliff Record are *very* interesting, really [picking on people], piercing the human heart directly. 
 
 So “Emperor Wu of Liang asked the great master Bodhidharma," [the] commenter says, “This dull fellow speaks up.”
 
@@ -180,7 +180,9 @@ And then, still Emperor Wu doesn’t understand, so [he asks], “Who is facing 
 
 If the essence of the truth in this sense is nothing, or empty, or nothing holy, completely beyond holiness, or the ordinary person *[unintelligible]* – *who* are you, standing in front of me? 
 
-The note says, “Wu is filled with embarrassment, forcing himself to be astute. As it turns out, he gropes without finding.” According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied Buddhism [for a long time], and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
+The note says, “Wu is filled with embarrassment, forcing himself to be astute. As it turns out, he gropes without finding.” 
+
+According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied Buddhism [for a long time], and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
 
 ##### 44:44
 
@@ -200,7 +202,7 @@ Ah, too bad. Anyway, too bad. *[laughter]*
 
 The Engo Zen Master [note] says, “Oh, poor man. He thinks about an old debt.” *[he chuckles]* This commentary note is very pithy! *[laughter]*
 
-Well, if you don’t understand, you want to bring up the same question, and ask somebody. But he says, it is not useful; it looks like to remember [an] old debt. 
+Well, if you don’t understand, you want to bring up the same question, and ask somebody. But he says it is not useful; it looks like [remembering an] old debt. 
 
 So, “Oh poor man. He thinks about an old debt. The bystander has eyes.” The Zen master knows pretty well that he is just a bystander – but he knows pretty well. 
 
@@ -208,7 +210,9 @@ So, “Oh poor man. He thinks about an old debt. The bystander has eyes.” The 
 
 Then, "Master Chih asked, 'Does your majesty know who this man is?' The Emperor said, 'I don’t know.'" *[he laughs]*
 
-So this “I don’t know” seems to be the same answer Bodhidharma gave, “I don’t know,” when he was asked by Emperor Wu, "Who are you, standing in front of me?" He said, “I don’t know.” But [Bodhidharma's] “I don’t know” is completely different from [the] “I don’t know” Emperor Wu said. His “I don’t know” is completely “I don’t know.” *[laughter]*  So Bodhidharma’s “I don’t know” is completely beyond “I don’t know" or "I know". This is Bodhidharma’s way. 
+So this “I don’t know” seems to be the same answer Bodhidharma gave, “I don’t know,” when he was asked by Emperor Wu, "Who are you, standing in front of me?" He said, “I don’t know.” But [Bodhidharma's] “I don’t know” is completely different from [the] “I don’t know” Emperor Wu said. His “I don’t know” is *completely* “I don’t know.” *[laughter]*  
+
+So Bodhidharma’s “I don’t know” is completely beyond “I don’t know" or "I know". This is Bodhidharma’s way. 
 
 ##### 47:52
 
@@ -218,20 +222,21 @@ But how can [we] understand? He is Bodhidharma? Or he is another person? Or he i
 
 So finally, language completely drops off; what [or] who he is. That's why he said, “I don’t know.” But “I don’t know” is really looking at the direct reality, [the] reality in which Bodhidharma really exists from day to day. 
 
-Why he comes to China to teach Buddhism – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. [For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of zazen for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
+Why he comes to China to teach Buddhism – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. 
+
+[For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of zazen for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
 
 ##### 50:17
 
-So, Master Chih asks, “Does your majesty know who this man is?” The Emperor says, “I don’t know.”
+So, "Master Chih asks, 'Does your majesty know who this man is?' The Emperor says, “I don’t know.” Master Chih said, 'He is the Mahasattva Avalokitesvara, transmitting the Buddha Mind Seal.'” 
 
-Master Chih said, “He is the Mahasattva Avalokitesvara, transmitting the Buddha Mind Seal.” 
+*[he laughs]* Really Zen Master Chih was treating Emperor Wu badly *[laughter]* ... because this Zen Master knew that Emperor Wu believed very strongly [in] Avalokiteshvara. So completely in that expression, without complaint, ... expressing his respect to Avalokiteshvara, *[he laughs]* the Zen Master teased Emperor Wu: “He is Mahasattva Avalokiteshvara.” Mahasattva means Avalokiteshvara is not the usual Avalokiteshvara, but seems to be a “god” or divinity, which has sort of a strong power to control human beings. “Maha sattva” means "great being". Completely beyond the discussion of Avalokitshvara *[unintelligible]*. This is Avalokitshvara; that’s a mahasattva. He put the Mahasattva to Avalokiteshvara. 
 
-[laughs] Really Zen Master Chih was treating badly Emperor Wu [laughter], because he loves, the Zen Master knew, the Emperor Wu who believed very strongly Avalokiteshvara. So completely we got ... expression without complaint, anyway he believes Avalokitshvara, expressing his respect to Avalokiteshvara. [laughs] The Master teased Emperor Wu: “He is Mahasattva Avalokiteshvara.” Mahasattva means Avalokiteshvara is not usual Avalokiteshvara, but seems to be a “god,” or divinity, who has sort of a strong power to control human beings. That is “Maha sattva”; means great being. Completely beyond the discussion of Avalokitshvara. Has … power over … ???????? This is Avalokitshvara. That’s a mahasattva. He put the Mahasattva to Avalokiteshvara. 
 (51:55) Bodhidharma is not Bodhidharma, Bodhidharma is Avalokiteshvara. So, I really wanted to know how, to see, how Emperor Wu was surprised to hear that, immediately as the great Zen Master Chih expressed it. As Emperor Wu said, 
 
 The Emperor felt regretful, so he wanted to send an emissary to go invite Bodhidharma to return.
 
-So, he was, “Oh... Oh, Avalokiteshvara. Oh, I missed it.” [laughter] So he tried to send an emissary to invite again. So, Zen Master says,
+So, he was [like], “Oh! Oh, Avalokiteshvara. Oh, I missed it.” *[laughter]* So he tried to send an emissary to invite again. So, Zen Master says,
 
 “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.”
 
