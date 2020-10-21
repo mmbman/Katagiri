@@ -108,17 +108,17 @@ You know I’ve told you before in my lectures, the inscription on [Ryōkan’s?
 > with joy.  
 > No one touches.  
 
-This is inscription on [Ryōkan’s?] tombstone. *[he repeats it]*
+This is [the] inscription on [Ryōkan’s?] tombstone. *[he repeats it]*
 
 This is my translation; do you understand this?
 
 *[Someone says “no.” Laughter.]*
 
+(Note: It took many listenings to get the words of the inscription, and the above still might not be 100% right.)
+
 *[discussion about the words]*
 
 *[more laughter]*
-
-(Note: It took many listenings to get the words of the inscription, and it still might not be 100% right.)
 
 This is language, okay? *[laughter]* You don’t understand, but *I* understand. *[laughter]* So that is my individual understanding, okay? But I understand pretty well. *[laughter]* But using my pronunciation, you don't understand. 
 
@@ -134,15 +134,13 @@ And then if you really want to explain this, you cannot stay there always, in th
 
 But this is still [an] explanation, which is told in terms a poet, in terms of language, in terms of philosophy. But really, if you really see the reality of [the rose], everyone should experience this point when language drops off. At that time, nothing to say. 
 
-##### 35:16
-
-That’s why Bodhidharma, first met Emperor Wu; the emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma says, “There is no merit.” The merit Emperor Wu understood is just image of merit. Looking at his reality... looking at the image. Coming from the image, coming from prepossession, coming from the conventional, coming from customs. But reality doesn’t agree sometimes. So Bodhidharma says “no merit,” means, to lead him to open his eyes, to look at beauty of existence when language drops off completely. That’s why he said “no merit.” But he didn’t understand.
+That’s why [when] Bodhidharma first met Emperor Wu, the emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma says, “There is no merit.” The merit Emperor Wu understood is just [the] image of merit. Looking at his reality, looking at [the] image. Coming from the image, coming from prepossession, coming from the conventional, coming from customs. But reality doesn’t agree sometimes. So Bodhidharma [saying] “no merit” means to lead him to open his eyes, to look at [the] beauty of existence when language drops off completely. That’s why [Bodhidharma] said “No merit.” But [the Emperor] didn’t understand.
 
 ##### 36:29
 
-And then in the main subject, says, from this question,
+And then [after that] the main subject starts, from this question:
 
-Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?”
+> Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?”
 
 He didn’t understand “no merit,” because he took this “no merit” in ??? taste vile. Life is characterized by suffering. Don’t fret(?) Because if you take this, … valid… you don’t want to accept. So finally, you have to see … the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering. Completely beyond suffering, or pleasure, whatever it is. But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” [laughter] ... That note by Engo Zen Master is very ... picking him out(?), not the usual note in Western note style, very picking him out(?) Sometime he praise somebody very well, but in many ways, not always directly, by looking down somebody, and place(?) ... in many ways. That’s why the notes in Blue Cliff Record are very interesting, very tripping(?) him up, piercing the human heart directly. So “Emperor Wu of Liang asked the great master Bodhidharma,” commenter says, “How dull fellow speaking up.” “What is the highest meaning of the holy truths?” The note says, “What a donkey-tethering stake this is.” [laughter] We are always tethered; tethered your body and mind; with what? Well, preconceptions, prepossessions, images, conditioning, and customs, and heredity. Created by what? Form, perceptions, consciousness. So, stop the chain.(?)
 
