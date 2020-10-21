@@ -13,7 +13,9 @@
 
 ##### 1:05
 
-In the history of Bodhidharma, it is said that Bodhidharma went to China in about 520 (AD). Of course there are several different opinions about the definite year when Bodhidharma went to China, but anyway, about 520 he went to China to teach Buddhism. So that was the first time which the seed of Zen Buddhism was planted in China. That’s why this event was very important for Zen Buddhism. That’s why, if you read the Zen koans, the Zen monks always bring up the question, “What is the meaning of Bodhidharma coming to China [to] teach Zen Buddhism?” What for? [Why] did Bodhidharma go to China and teach? For many, many years, this question is very important in Zen Buddhism. Many monks discuss about this. It looks like the same question according to Christianity, for instance, “Why is it that God is incarnated as a human, named Jesus?” Same question. I don’t want to explain this today. But, that’s why in Zen Buddhism, this is very important for a Zen teacher.
+In the history of Bodhidharma, it is said that Bodhidharma went to China in about 520 (AD). Of course there are several different opinions about the definite year when Bodhidharma went to China, but anyway, about 520 he went to China to teach Buddhism. So that was the first time which the seed of Zen Buddhism was planted in China. That’s why this event was very important for Zen Buddhism. 
+
+That’s why, if you read the Zen koans, the Zen monks always bring up the question, “What is the meaning of Bodhidharma coming to China [to] teach Zen Buddhism?” What for? [Why] did Bodhidharma go to China and teach? For many, many years, this question is very important in Zen Buddhism. Many monks discuss about this. It looks like the same question according to Christianity, for instance, “Why is it that God is incarnated as a human, named Jesus?” Same question. I don’t want to explain this today. But, that’s why in Zen Buddhism, this is very important for a Zen teacher.
 
 ##### 3:33
 
