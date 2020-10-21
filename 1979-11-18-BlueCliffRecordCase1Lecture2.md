@@ -176,18 +176,39 @@ So, Engo Zenji’s note says, “Hey, anyway the ancient Bodhidharma shot the ar
 
 ##### 43:28
 
-And then, still Emperor Wu doesn’t understand, so Emperor Wu says, “Who is facing me?” If the essence of the truth in Buddhism is nothing or empty, or nothing holy, completely beyond holiness, or the ordinary person...  who are you, standing in front of me? The note says, “Wu is filled with embarrassment, forcing himself to be astute. As it turns out, he gropes without finding.” According to the Emperor’s feeling, maybe he tried to be astute. I have, because he believed, he trust in himself; he had studied for long, Buddhism. And building the temples, educating the monks, that’s why he’s proud of himself, so much. Still, he is continuing acting. Try to be smart. So, he says, “Who is facing me?” Bodhidharma replied, “I don’t know.” The note says, “Bah! His second reply isn’t worth half a cent.” [laughter] Who is facing? Bodhidharma says, “I don’t know.” And, “the emperor didn’t understand,” after this. He didn’t understand. The note says, Engo Zen Master says, “Too bad! Still, he’s gotten somewhere.” Uh, too bad. Anyway, too bad. [laughter]
+And then, still Emperor Wu doesn’t understand, so [he asks], “Who is facing me?” 
 
-After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
+If the essence of the truth in this sense is nothing, or empty, or nothing holy, completely beyond holiness, or the ordinary person *[unintelligible]* – *who* are you, standing in front of me? 
 
-Later the Emperor brought this up to Master Chih and asked him about it.
+The note says, “Wu is filled with embarrassment, forcing himself to be astute. As it turns out, he gropes without finding.” According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied Buddhism [for a long time], and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
 
-But still he didn’t understand, so he brought up this question again to another Zen Master. The Engo Zen Master says, “Oh, poor man. He thinks about an old debt.” [chuckles] This comment is not very pretty. [laughter] Well, if you don’t understand, you want to bring up the same question, and ask somebody. But he says, it is not useful(?) It looks like to remember old debt. So, “Oh poor man. He thinks about an old debt. The bystander has eyes.” The Zen master knows pretty well that he is just bystander, but he knows pretty well, he knows pretty well. Then: 
+##### 44:44
 
-Master Chih asked, “Does your majesty know who this man is?” 
-The Emperor said, “I don’t know.” 
+So, he says, “Who is facing me?” Bodhidharma replied, “I don’t know.” 
 
-[laughs] So this “I don’t know” seems to be the same answer Bodhidharma did, “I don’t know,” when he was asked by Emperor Wu who you are, standing in front of me; he says, “I don’t know.” But his “I don’t know” is completely different from “I don’t know” Emperor Wu said. His “I don’t know” is completely “I don’t know.” [Louder laughter] (Perhaps worth noting, that part wasn’t a joke.) So Bodhidharma’s “I don’t know” is completely beyond “I don’t know,” I know. This is Bodhidharma’s way. 
+The note says, “Bah! His second reply isn’t worth half a cent.” *[laughter]* 
+
+Who is facing? Bodhidharma says, “I don’t know.” And after this [it says], “The emperor didn’t understand.” He didn’t understand. Engo Zen Master says, “Too bad! Still, he’s gotten somewhere.” 
+
+Ah, too bad. Anyway, too bad. *[laughter]*
+
+"After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei."
+
+##### 45:55
+
+"Later the Emperor brought this up to Master Chih and asked him about it." Still he didn’t understand, so he brought up this question again to another Zen Master. 
+
+The Engo Zen Master [note] says, “Oh, poor man. He thinks about an old debt.” *[he chuckles]* This commentary note is very pithy! *[laughter]*
+
+Well, if you don’t understand, you want to bring up the same question, and ask somebody. But he says, it is not useful; it looks like to remember [an] old debt. 
+
+So, “Oh poor man. He thinks about an old debt. The bystander has eyes.” The Zen master knows pretty well that he is just a bystander – but he knows pretty well. 
+
+##### 47:06
+
+Then, "Master Chih asked, 'Does your majesty know who this man is?' The Emperor said, 'I don’t know.'" *[he laughs]*
+
+So this “I don’t know” seems to be the same answer Bodhidharma gave, “I don’t know,” when he was asked by Emperor Wu, "Who are you, standing in front of me?" He said, “I don’t know.” But [Bodhidharma's] “I don’t know” is completely different from [the] “I don’t know” Emperor Wu said. His “I don’t know” is completely “I don’t know.” *[laughter]*  So Bodhidharma’s “I don’t know” is completely beyond “I don’t know" or "I know". This is Bodhidharma’s way. 
 
 ##### 47:52
 
