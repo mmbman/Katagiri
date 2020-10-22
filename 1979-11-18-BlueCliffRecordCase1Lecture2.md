@@ -160,9 +160,9 @@ For instance, "Life is characterized by suffering." Don’t fret. Because if you
 
 But Emperor Wu didn’t understand, that’s why Engo Zen Master says, “This dull fellow speaks up.” *[laughter]* 
 
-That note by Engo Zen Master is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometime he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in Blue Cliff Record are *very* interesting, really [picking on people], piercing the human heart directly. 
+That note by Engo Zen Master is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometimes he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in Blue Cliff Record are *very* interesting, really [picking on people], piercing the human heart directly. 
 
-So “Emperor Wu of Liang asked the great master Bodhidharma," [the] commenter says, “This dull fellow speaks up.”
+So [when] “Emperor Wu of Liang asked the great master Bodhidharma," [the] commenter says, “This dull fellow speaks up.”
 
 ##### 38:42
 
@@ -184,7 +184,7 @@ D.T. Suzuki [translated it as], “Vastness and nothing holy.” This translatio
 
 So, Engo Zen Master says [in the Notes], “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” 
 
-Emperor Wu took [the previous] answer, “no merit,” at face value, so he didn’t understand. If there is no merit, do you believe there is no divinity, or God, or Buddha, or universal energy, which makes everything possible to exist? There is nothing? There is no truth? Which is completely almighty, to help in your life, et cetera? That’s why, next moment he asked, “What is the truth?”
+Emperor Wu took [the previous] answer, “No merit,” at face value, so he didn’t understand. If there is no merit, do you believe there is no divinity, or God, or Buddha, or universal energy, which makes everything possible to exist? There is nothing? There is no truth, which is completely almighty, to help in your life? Et cetera. That’s why, next moment he asked, “What is the truth?”
 
 Emperor Wu expected a wonderful answer from Bodhidharma about the truth. Maybe, "Truth [is] almighty, giving compassion to you always, wherever you may go, helping you in the compassionate time when we are always smiling, smile always." 
 
@@ -204,7 +204,7 @@ If the essence of the truth in this sense is nothing, or empty, or nothing holy,
 
 The note says, “Wu is filled with embarrassment, forcing himself to be astute. As it turns out, he gropes without finding.” 
 
-According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied Buddhism [for a long time], and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
+According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied Buddhism for a long time, and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
 
 ##### 44:44
 
@@ -212,7 +212,9 @@ So, he says, “Who is facing me?” Bodhidharma replied, “I don’t know.”
 
 The note says, “Bah! His second reply isn’t worth half a cent.” *[laughter]* 
 
-Who is facing? Bodhidharma says, “I don’t know.” And after this [it says], “The emperor didn’t understand.” He didn’t understand. Engo Zen Master says, “Too bad! Still, he’s gotten somewhere.” 
+Who is facing? Bodhidharma says, “I don’t know.” And after this [it says], “The emperor didn’t understand.” 
+
+He didn’t understand. Engo Zen Master says, “Too bad! Still, he’s gotten somewhere.” 
 
 Ah, too bad. Anyway, too bad. *[laughter]*
 
@@ -260,11 +262,11 @@ Mahasattva means Avalokiteshvara is not the usual Avalokiteshvara, but seems to 
 
 So, Mahasattva Avalokiteshvara. Bodhidharma is not Bodhidharma, Bodhidharma is Avalokiteshvara! All of you really wanted to know how surprised Emperor Wu was to hear that, immediately as the great Zen Master Chih expressed it. 
 
-It says: "The Emperor felt regretful, so he wanted to send an emissary to go invite Bodhidharma to return." So, he was [like], “Oh! Oh, Avalokiteshvara? Oh, I missed it!” *[laughter]* So he tried to send an emissary to invite again. 
+"The Emperor felt regretful, so he wanted to send an emissary to go invite Bodhidharma to return." So, he was [like], “Oh! Oh, Avalokiteshvara? Oh, I missed it!” *[laughter]* So he tried to send an emissary to invite [him] again. 
 
 So, the Zen Master says, “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.” 
 
-Because, the Zen Master knows pretty well, that is Emperor Wu’s understanding of Buddhism: the essence of the truth is always someplace, somewhere apart from his life. Building up the temples? "Oh, there is merit. Buddha’s merit, there. Buddha and Avalokiteshvara exist there." And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
+Because, the Zen Master knows pretty well, that is Emperor Wu’s understanding of Buddhism: the essence of the truth is always someplace, somewhere apart from his life. Building up the temples? "Oh, there is merit, Buddha’s merit, there. Buddha and Avalokiteshvara exist there." And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
 
 So that’s why the Zen Master said, “Bodhidharma is not Bodhidharma, Bodhidharma is Avalokiteshvara!” [The Emperor] was very surprised: “Oh, I missed [it]!” So he immediately tried to send someone to get him back. But the Zen Master says, “Don’t do that. Don’t do that.” Because if you do this, you are looking for the truth outside. The truth never comes back; never goes away. Even though you say, “I don’t want the truth.” 
 
@@ -290,15 +292,15 @@ For instance, Zen stories; there are lots of Zen stories like this. A Zen master
 
 And then the Zen Master ... He’s put the picture here, and then asks the monks, “You cannot say this is picture; you cannot say this is not picture. Don’t use your words; say something!” And he’ll pick up somebody, and then shaking him like, “Say something!” 
 
-Can you say so? This is [the] Zen world. This is Rinzai; Rinzai always attacks somebody, and "no words". If you realize the truth, then nothing to say. But Rinzai doesn’t want you to stay [there]. So immediately, you have to say something.
+Can you say so? This is [the] Zen world. This is Rinzai; Rinzai always attacks somebody, and [says] "no words". If you realize the truth, then nothing to say. But Rinzai doesn’t want you to stay [there]. So immediately, you have to say something.
 
 ##### 59:53
 
-But Soto Zen is a little different. We know pretty well you have to say something; say something, shake him, “Say something, say something!” Even though you say something, it doesn’t connect; it has nothing to do with your daily living. *[he laughs]* [Your] daily living is very stinky, even though, “I pass the koan.” 
+But Soto Zen is a little different. We know pretty well, "You have to say something here, say something," shaking [him], “Say something, say something!” – Even though you say something, it doesn’t connect; it has nothing to do with your daily living. *[he laughs]* [Your] daily living is very stinky, even though, “I pass the koan.” 
 
-So demonstrating, kicking out the picture, break it. And then the Zen Master says, “You pass the koan.” Then, you will be given a [certificate?], which is called [kenshō?]. You passed one koan. Well of course, it’s very nice, it’s very nice. We know this pretty well; Dogen-zenji knows [it] pretty well. But it has nothing to do with this man who is right in the middle of reality! Nothing! 
+So demonstrate, kicking out the picture, break it. And then the Zen Master says, “You pass the koan.” Then, you will be given a [certificate?], which is called [kenshō?]. You passed one koan. Well of course, it’s very nice, it’s very nice. We know this pretty well; Dogen-zenji knows [it] pretty well. But it has nothing to do with this man who is right in the middle of reality! Nothing! 
 
-Even though I pass the koan, kicking out the pictures, and then showing my truth. Seems one of the Zen masters... *[unintelligible]* “I am completely enlightened, then.” Maybe so, but reality doesn’t agree with you. Still Katagiri is Katagiri. So in a sense, Katagiri is a person who passed the examination of a koan. But reality doesn’t agree with this. Katagiri is still Katagiri. 
+Even though I pass the koan, kicking out the pictures, and then showing my truth. *[unintelligible]* one of the Zen masters *[unintelligible]* “I am completely enlightened, then.” Maybe so, but reality doesn’t agree with you. Still Katagiri is Katagiri. So in a sense, Katagiri is a person who passed the examination of a koan. But reality doesn’t agree with this. Katagiri is still Katagiri. 
 
 So, again, you have to keep silent. Then, just do it. “Just do it” is also expression in words, even though you cannot say anything. Then Dogen says, “This silence not really silence; silence is one of the expressions in the world.”
 
@@ -306,15 +308,17 @@ There are, I told you, three things. Speech: this is to manifest yourself in wor
 
 ##### 1:03:09
 
-So, finally, we have to just do. Dogen says in Zuimonki, [in] “Nansen Kills The Cat” ... he said, “Give a word of Zen; I let the cat go.” I let go of the cat because the monk didn’t say anything, just kept silent; silence is already [an] answer, [a] real answer. Silence is not silence, silence is [a] real answer; expression, manifesting yourself in the world. That’s why Dogen then says, “I would let go of the cat.” 
+So, finally, we have to just do. Dogen says in Zuimonki, [in] “Nansen Kills The Cat” ... he said, “Give a word of Zen; I let the cat go.” 
+
+I let go of the cat because the monk didn’t say anything, just kept silent. [Because] silence is already [an] answer, [a] real answer. Silence is not silence, silence is [a] real answer; expression, manifesting yourself in the world. That’s why Dogen then says, “I would let go of the cat.” 
 
 It’s not necessary to kill the cat. But in a sense, “to kill the cat” is great [effort?], experience to awaken the monk, because [it's] very powerful. To help somebody, say something. “This is a picture. You don’t say the picture, you don’t say not picture, but don’t use the real worlds, I mean say something about it." It’s very powerful. Completely you come to the demand, something you have to say, but finally, you can say nothing.
 
 ##### 1:04:55
 
-Even in shikantaza, just doing the sitting doesn’t mean that you ignore such experience of Zen Buddhism. That’s why we have to study; we have to understand Blue Cliff Record. Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything. But this silence is not silence. Kenshō. 
+Even in shikantaza, just doing the sitting doesn’t mean that you ignore such experience of Zen Buddhism. That’s why we have to study; we have to understand Blue Cliff Record. Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything, but this silence is not silence. We can show.
 
-That’s why Zen always denies the words, always points out the world beyond verbal explanation. But it doesn’t mean ignoring the words, because it’s not necessary to be bogged down with words. Without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words – kind of the words – because we get are used to understanding ourselves pretty easily through the words. But anyway, we have to come to our experience of no words. At that time, nothing to say. You have to experience it. 
+That’s why Zen always denies the words, always points out the world beyond verbal explanation. But it doesn’t mean ignoring the words, because it’s not necessary to be bogged down with words. Without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words – kind of the words – because we get used to understanding ourselves pretty easily through the words. But anyway, we have to come to our experience of no words. At that time, nothing to say. You have to experience it. 
 
 And then, nevertheless, you cannot stay there. You have to say [something]. Because you cannot exist alone; you have to communicate with people. How can you communicate? Just using the words in the usual way, that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always [what] Zen emphasizes. 
 
@@ -334,9 +338,9 @@ Questions?
 
 **Same person**: Well, no, but the commentator thought he deserved it. Isn’t that what this was?
 
-**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, and then attend a week or so. But because I hated the monks life and temple life, finally my teacher says, [coming] into my room, “Dainin, get up. When the time comes, everyone gets up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is at least thirty blows. *[he laughs]* I actually deserved thirty blows. That’s why I couldn’t stay there. I felt shaky, my shaky, my mind is shaking, anyway. But I gave up; I didn’t strike. Next day, I did it, anyway; get up in the morning, and *[unintelligible]* anyway, fixing meals. Still I hated it, *[laughter]* but anyway, I did it. But this is monk. 
+**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, [after I had attended?] a week or so ... because I hated the monks life and temple life. Finally my teacher says, coming into my room, “Dainin, get up. When the time comes, everyone gets up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is these thirty blows. *[he laughs]* I actually deserved thirty blows. That’s why I couldn’t stay there; I felt shaky, my body and mind is shaky, anyway. But I gave up; I didn’t strike. Next day, I did it, anyway; get up in the morning, and *[unintelligible]* anyway, fixing meals. Still I hated it, *[laughter]* but anyway, I did it. But this is monk. 
 
-So that is really thirty blows. But if you’re not ready to open your eyes, even though what he's suggesting is very gentle. "Dainin," he didn’t scold me, "Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again." That's it. Very simple. If you’re not ready to accept this as thirty blows, well, that's a pretty usual *[unintelligible]* suggestion. But anyway, that was really thirty blows for me. 
+So that is really thirty blows. But if you’re not ready to open your eyes, even though what he's suggesting is very gentle – "Dainin," he didn’t scold me, "Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again." That's it. Very simple. If you’re not ready to accept this as thirty blows, well, that's a pretty usual *[unintelligible]* suggestion. But anyway, that was really thirty blows for me. 
 
 Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but anyway, that is Engo Zen Master’s comment.
 
