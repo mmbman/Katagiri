@@ -55,11 +55,15 @@ If usually we do all this, what is the bar before you jump into it? And then we 
 
 ##### 18:10
 
-So, you should use your consciousness, and understand what the bar is, what you … to the minimum (?) And then, for sure, what you have to do is, anyway, release, forget yourself and throw yourself into the bar. What you have to do, this is … the point … This is ontology, but Buddhism is not ontology. Buddhism is, what do you call, etiology(?) (etiology: “the study of causation or origination” https://en.wikipedia.org/wiki/Etiology - not sure if this what he is saying, but etymology makes less sense). Do you understand? The study of recognition(?) That means the bar, and …. Not to research … the bar objectively. Right now how you can understand, recognize the bar, that is what you call Buddhist psychology, Buddhist philosophy, okay? And then…  this is still something objective. Final goal is, you should communicate with the bar; this is Zen. Directly practice. So, that means… you should get 100 points. How? It is not the study of recognition(?), is not the study of ontology, what you have to do right now is grasp the bar. … Not 90 percent, not 99 percent. You have to grasp. This is always the main point that Buddhism emphasizes.
+So, you should use your consciousness and understand what the bar is *to the minimum*. And then what you have to do is *release*, forget yourself and throw yourself into the bar; this is the point. But we always research what the bar is – this is ontology. But Buddhism is not ontology, Buddhism is [etiology?], the study of [recognition?]. That means the bar and you – not to research the bar objectively, [but] right now right here how you can understand [or] recognize the bar. That is what is called Buddhist psychology, Buddhist philosophy. And then, [that] is still something objective. The final goal is, you should communicate with the bar; this is *Zen*. Directly practice. 
 
-##### 20:24
+	([Etiology](https://en.wikipedia.org/wiki/Etiology): "the study of causation or origination" – I'm not sure if this what he is trying to say, but it makes more sense than "etymology", the study of the origin of words. It's also not clear what he means by "recognition". Possibly "understanding of causation"?)
 
-Then, for instance, if you have a TV set, or if you have an electric machine, whatever kind; what you have to do is, to communicate with them, ??? instead of studying what the TV set is ???  . Well you have to know what the TV is, but what you have to know is how to handle, how to deal with the TV set. This is also study of etymology (?) the condition(?).
+So, that means you should get 100 points. How? It is not the study of [causation?], is not the study of ontology, what you have to do, right now, right here, you have to grasp the bar, 100 percent. Not 90 percent, not 99 percent. You have to *grasp*. This is always the main point that Buddhism emphasizes.
+
+##### 20:22
+
+For instance, if you have a TV set, or if you have an electric machine, whatever kind; what you have to do is, to communicate with them in your daily living, instead of studying what the TV set is by your knowledge – well you have to know what the TV is, but what you have to know is how to deal with the TV set. This is sort of the study of [etiology?], [causation?].
 
 The final goal is communicate, get 100 points. That means turn on the TV. That’s a very simple practice. At that time, you can see the picture. But this picture is not the picture on the TV set; that picture is universal picture. Don’t you think so? Universal.
 
