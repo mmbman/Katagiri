@@ -27,11 +27,13 @@ This is the main case. This morning I would like to read the pointer for the mai
 
 In this pointer, Engo Zen master emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
 
-##### 5:32
+Plainly speaking, this is the truth, or original nature of existence, or dharma. Dogen-zenji said in Fukanzazengi, “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dogen uses the term “dharma vehicle”. You know, the truth is explained in many ways; if you use a word, whatever you say, all expressions of the truth comes into just one term, “truth”. Many kinds of religions use different a term, but all come into the truth.
 
-Plainly speaking, this is the truth, or original nature of existence, or dharma. Dogen-zenji said in Fukanzazengi, “the dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dogen uses the term “dharma vehicle”. The truth is explained in many ways; if you use a word, whatever you say, all expression of the truth comes into just one term, “truth”. Many kinds of religions use different term, but all come into, anyway, the truth.
+##### 7:30
 
-The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. Well we know pretty well, truth is not something which we try to invent … but we get used to understanding thinking of something objectively, philosophically, psychologically. Very naturally, that’s why, even though we understand it, it’s very difficult to get rid of that. So very naturally, whenever you say truth, Buddha, or impermanence, or the dependent origination - are immediately something objectified by you. This is very natural. It’s very natural, but the problem is, we believe it; we believe in such a way of life, immediately. So patriarchs and buddhas constantly say it is your understanding, it’s not your universal truth beyond human speculation. But we don’t believe it. We don’t believe because … intellectual sense ... (?)
+The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, Buddha, or impermanence, or dependent origination – all are immediately something objectified by you. This is very natural. 
+
+It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So patriarchs and Buddhas constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
 
 ##### 09:00
 
