@@ -87,31 +87,53 @@ So, vehicle is 100 points. You can get. At that time, it’s really perfect. Tha
 
 ##### 25:40
 
-Zen is sometimes misunderstood by the people because we don’t have a particular object which is called divine entity, which is called God, which is called soul, or whatever you say. No object. So, very naturally, in Buddhistic world, it might be easier for us to lose the faith… pretty easy because there is nothing to depend on. We want. But usually if you see something you want to depend on objectively, that is something different from your daily life, because we have to research... what it is. Buddha or Avalokiteshvara, whatever it is, you very naturally want to research what it is. That is ontology, philosophy, psychology. What is it? All this question comes up. That question really prevents you from releasing and forgetting you and throwing into Buddha’s home. Very natural. But it’s important that you cannot be obsessed with. That’s why buddhas and patriarchs constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, what should you do? Jump in. This is very practical. That is, because it is not ontological project, it is something you have to communicate very closely with your daily life. What should you do? Jump into it. Throw yourself into Buddha’s home. Without this, it’s very difficult. 
+Zen is sometimes misunderstood by people because we don’t have a particular object which is called divine entity, which is called God, which is called soul, or whatever you say. No object. 
+
+So, very naturally, in [the] Buddhistic world, it might be easier for us to lose what is called faith ... [it's] pretty easy, because there is nothing to depend on. We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. Buddha or Avalokiteshvara, whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
+
+[The question] is important, but you cannot be obsessed with [it]. That’s why Buddhas and [ancestors] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
+
+What should you do? Jump into it. Throw yourself into Buddha’s home. Without this, it’s very difficult. 
 
 ##### 28:14
 
-Particularly when you do zazen, this is very fundamental path… That’s why we have to throw into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. I always tell you, zazen must be pure zazen. You have to get 100 points. We have to grab zazen. Perfectly. If you can’t, that is zero, completely zero. No 99 points. But we don’t believe it, but this is very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, which is called zazen, blooms. That is called Buddha, Buddha’s home. 
+Particularly when you do zazen, this is [the] very fundamental path, *[unintelligible]*. That’s why we have to throw into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
 
-But if you believe zazen as like this, well you believe zazen is particular practice; so Zen says, zazen is not a particular practice. Your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this which is called shikan. At that time, your daily life becomes vehicle. … path is the fundamental vehicle of transcendence. Transcendence means completely, there is no need for your effort. Something comes from Buddha’s world. Something takes care of you, if you do it. And if you create your circumstance, which is called zazen; perfect zazen takes care of you, even though you don’t want. If you always see the zazen from your viewpoint, always there is a question. Nothing to get. So that’s why you are faced with the question, “Should I spend my whole life doing zazen, which is useless?” Nothing to get, nothing to develop? Ridiculous. You cannot do that. 
+I always tell you, zazen must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, [what] is called zazen blooms. That is called Buddha, Buddha’s home. 
 
-##### 31:05
+##### 29:22
 
-But even though you don’t know, or you don’t know how much your life or your personality develops or not, well, get someone with open eyes, that know pretty much how well you have been developing. 
+But if you believe zazen [is] like this, well, you believe zazen is [a] particular practice. So Zen says, zazen is not a particular practice; your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this which is called *shikan*.
 
-At that time, there is no need for you particular effort, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into zazen. At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do(?)
+At that time, your daily life becomes *vehicle*. What you call the task, is "the task of the fundamental vehicle of transcendence". Transcendence means completely there is no need of your effort; something comes from Buddha’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect zazen, [then] perfect zazen takes care of you – even though you don’t want. 
 
-So that’s why that is the path of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right there, right on this vehicle. 100 points. That is really fast. Nothing holy or not holy; nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
+##### 30:34
+
+If you always see the zazen from your viewpoint, always there is a question. [There is] nothing to get; so that’s why you are faced with the question, “Should I spend my whole life doing zazen, which is useless? Nothing to get, nothing to develop?" Ridiculous. You cannot do that. 
+
+But even though you don’t know, or you don’t know how much your life or your personality develops or not, well, get someone with open eyes, that knows pretty much how well you have been developing. 
+
+At that time, there is no need for your particular effort, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into zazen. At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
+
+That’s why that is the path of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right there, right on this vehicle, 100 points. That is really vast; nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
 
 ##### 32:44
 
-So, let’s read, one by one. Heaven and earth are narrow... incompatible with this task of … fundamental vehicle of transcendence which is called vastness. Vastness, and the truth. If you actualize it, this is actual practice. What is that? Throw yourself into it, into the bar, that means do something with wholeheartedness. At that time … you can create vastness. If you compare with this vastness which is called truth … even the heaven and earth are very narrow. Even the earth and any other planets… whatever you see, you can picture the human world, including other planets. That is still pretty narrow, because it is still something you can think, you can envision. In comparison with vastnesss and the truth, even the heavens and earth are too narrow. And sun and moon and stars all at once go dark. Even the planets, even the moon, even the stars - all are still dark, because that vastness is completely clear. But you cannot stay here, but it’s very clear. Even the sun; it’s bright, very bright in this world, brightest being in this world - it’s still dark. That is what Engo Zen master wants to say. 
+So, let’s read [the pointer], one by one. 
+
+> Heaven and earth are narrow; sun, moon, and stars all at once go dark.
+
+"Heaven and earth are narrow": incompatible with this task of that fundamental vehicle of transcendence, which is called vastness, and the truth. If you actualize it, this is actual practice. What is that? Throw yourself into it, into the bar; that means do something with wholeheartedness. At that time, you can create vastness. 
+
+If you compare [them] with this vastness which is called truth, even the heaven and earth are very narrow. Even the earth and any other planets; whatever you see [or] you can picture [in] the human world, including other planets, that is still pretty narrow, because it is still something you can think, you can envision. In comparison with vastnesss and the truth, even the heavens and earth are too narrow. 
+
+And "sun and moon and stars all at once go dark". Even the planets, even the moon, even the stars - all are still dark, because that vastness is completely clear. You cannot stay there; but it’s very clear. Even the sun – it’s bright, very bright in this world, brightest being in this world – it’s still dark. That is what Engo Zen master wants to say. 
 
 ##### 34:52
 
-“Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence.” “Even if blows of the staff fall like rain“: that means, Rinzai zen masters or other zen masters uses a staff, stick, hitting the monks, in order to encourage insight. That hitting, the blows to the monks, are just like rain, falling rain, constantly hitting; but still you can’t live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means shout like thunder... big shouting, which makes everybody wake up... Still you can’t live up to the truth. It’s still something explained, demonstrated. 
+> Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. 
 
-##### 36:28
+“Even if blows of the staff fall like rain“: that means, Rinzai zen masters or other zen masters uses a staff, stick, hitting the monks, in order to encourage insight. That hitting, the blows to the monks, are just like rain, falling rain, constantly hitting; but still you can’t live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means shout like thunder... big shouting, which makes everybody wake up... Still you can’t live up to the truth. It’s still something explained, demonstrated. 
 
 So that’s why he says he says, “Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves.” Even the Buddhas of the three times: past, present, future; all buddhas, can only know it for themselves. What, just for themselves? Not for the good of all beings? Even the buddhas, to the past, to the present, to the future, all buddhas can only know this truth just for themselves. Because it’s vast. Because universal, the truth, open to everybody, is not individual understanding. Even the buddha says, “I” know it. That “I” is Buddha; Buddha’s understanding. Particular personal understanding. So it’s not universal. 
 
