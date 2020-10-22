@@ -134,7 +134,7 @@ This is language, okay? *[laughter]* You don’t understand, but *I* understand.
 
 *[inaudible question]*
 
-**Katagiri**: I don’t want to explain this poem, okay? You should just take it as is.
+I don’t want to explain this poem, okay? You should just take it as is.
 
 What I want to tell you is: it says “Rose” and next, “Oh!” And rose is really [the] being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just, "Rose." But next, “Oh!” is completely no word – because [the] rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything, just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
 
@@ -332,7 +332,7 @@ Questions?
 
 **Katagiri**: Mmm hmm. 
 
-**Person 1**: That’s why. 
+**Same person**: That’s why. 
 
 **Katagiri**: But thirty blows doesn’t mean that the Zen Master gave the thirty blows actually. 
 

@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-**Katagiri**: ... what I mentioned yesterday. Whatever kind of question you have, this morning I would like to discuss about the subject I mentioned yesterday. 
+... what I mentioned yesterday. Whatever kind of question you have, this morning I would like to discuss about the subject I mentioned yesterday. 
 
 Do you remember? You don't understand? Did you have some questions while I was talking about that yesterday?
 

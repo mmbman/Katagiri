@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-**Katagiri**: [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." I would like to explain a little more about same subject, from [a] different angle today, because this is very important characteristic of [the] zazen we do, which is called shikantaza.
+[I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." I would like to explain a little more about same subject, from [a] different angle today, because this is very important characteristic of [the] zazen we do, which is called shikantaza.
 
 Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become Buddha. This [was the] first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
 

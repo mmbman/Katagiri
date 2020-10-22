@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-**Katagiri**: [The] last sentence of the main subject of Fukanzazengi – Universal Recommendation for Zazen – says, "For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." [*he repeats the quote*] 
+[The] last sentence of the main subject of Fukanzazengi – Universal Recommendation for Zazen – says, "For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside." [*he repeats the quote*] 
 
 This is a sort of conclusion of [the] main subject in Fukanzazengi. It means that, if you do zazen, in zazen, "right dharma is manifesting itself" means original nature of the self is manifested, very naturally. And also that "from the first, dullness and distraction are struck aside": from the first, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. This is the real meaning of shikantaza. It's pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
 

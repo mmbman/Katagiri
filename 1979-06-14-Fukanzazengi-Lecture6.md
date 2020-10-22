@@ -413,7 +413,7 @@ Is that clear? That is aprapti: force to separate from something.
 
 *[tape change]*
 
-**Katagiri***: Well, the Abhidharmakosha, [that] is an outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world [is] created, just like creation of world mentioned by Christianity.
+**Katagiri**: Well, the Abhidharmakosha, [that] is an outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world [is] created, just like creation of world mentioned by Christianity.
 
 According to [that] ... I told you, right in the middle of the Universe there is the huge [Mount Sumeru](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism)). At top of the mountain, the gods exists; eightfold kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. *[unintelligible]* is human world. 
 
