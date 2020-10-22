@@ -55,21 +55,35 @@ If usually we do all this, what is the bar before you jump into it? And then we 
 
 ##### 18:10
 
-So, you should use your consciousness and understand what the bar is *to the minimum*. And then what you have to do is *release*, forget yourself and throw yourself into the bar; this is the point. But we always research what the bar is – this is ontology. But Buddhism is not ontology, Buddhism is [etiology?], the study of [recognition?]. That means the bar and you – not to research the bar objectively, [but] right now right here how you can understand [or] recognize the bar. That is what is called Buddhist psychology, Buddhist philosophy. And then, [that] is still something objective. The final goal is, you should communicate with the bar; this is *Zen*. Directly practice. 
+So, you should use your consciousness and understand what the bar is *to the minimum*. And then what you have to do is *release*, forget yourself and throw yourself into the bar; this is the point. But we always research what the bar is; this is ontology. Buddhism is not ontology, Buddhism is [etiology?], the study of [recognition?]. That means the bar and you – not to research the bar objectively, [but] right now right here how you can understand [or] recognize the bar. That is what is called Buddhist psychology, Buddhist philosophy. And then, [that] is still something objective. The final goal is, you should communicate with the bar; this is *Zen*. Directly practice. 
 
-  ([Etiology](https://en.wikipedia.org/wiki/Etiology): "the study of causation or origination" – I'm not sure if this what he is trying to say, but it makes more sense than "etymology", the study of the origin of words. It's also not clear what he means by "recognition". Possibly "understanding of causation"?)
+([Etiology](https://en.wikipedia.org/wiki/Etiology): "the study of causation or origination" – I'm not sure if this what he is trying to say, but it makes more sense than "etymology", the study of the origin of words. It's also not clear what he means by "recognition". Possibly "understanding causation"?)
 
 So, that means you should get 100 points. How? It is not the study of [causation?], is not the study of ontology, what you have to do, right now, right here, you have to grasp the bar, 100 percent. Not 90 percent, not 99 percent. You have to *grasp*. This is always the main point that Buddhism emphasizes.
 
 ##### 20:22
 
-For instance, if you have a TV set, or if you have an electric machine, whatever kind; what you have to do is, to communicate with them in your daily living, instead of studying what the TV set is by your knowledge – well you have to know what the TV is, but what you have to know is how to deal with the TV set. This is sort of the study of [etiology?], [causation?].
+For instance, if you have a TV set, or if you have an electric machine of whatever kind; what you have to do is, to communicate with them in your daily living, instead of studying what the TV set is by your knowledge. Well, you have to know what the TV is, but what you have to know is how to deal with the TV set. This is sort of the study of [etiology?], [causation?].
 
-The final goal is communicate, get 100 points. That means turn on the TV. That’s a very simple practice. At that time, you can see the picture. But this picture is not the picture on the TV set; that picture is universal picture. Don’t you think so? Universal.
+But the final goal is [to] *communicate*, get 100 points. That means *turn on the TV*. That’s a very simple practice. At that time, you can see the picture. 
 
-... by the help of energy, human effort…  then simultaneously you can see the picture, and at that time you are completely released and forgotten by this picture, and you become one with it. So, Buddhism is always emphasizing, particularly Zen always emphasizes that point. So, finally, where is the Buddha? How to throw yourself into the Buddha’s house. Buddha is not something else apart from us. But if you think Buddha as something particular, at that time Buddha is something you handle as ontology. So obviously you have to ask, what is a buddha. You don’t do. Whatever you say… even though we don’t use a particular term, well, original nature or existence… what is original nature of existence? We don’t know. What is the truth? Always the question comes up. But this is not the main point of which Buddhism emphasizes. Our main purpose is, Buddha says, how can you throw away Buddha. That is... the point which you have to communicate with the Buddha. How? That is release, and forget yourself, throw yourself into the bar. At that time, there is completely Buddha’s world…  that is called gymnastics, performance of gymnastics. Becoming one. All things become one. Gymnastics.
+But this picture is not the picture on the TV set; that picture is [the] universal picture. Don’t you think so? Universal. By the help of energy, human effort, and *[unintelligible]*, then simultaneously you can see the picture, and at that time you are completely released and forgotten by this picture, and you become one with it. 
 
-That’s why Engo zen master and Dogen used the term vehicle, dharma vehicle. Vehicle is not something your intellectual sense should be on. Vehicle is that which you yourself must be on, what you are at peace and harmony with. That is the vehicle. So, where is the vehicle? That vehicle means Buddha, Buddha’s world. So which, the (subject) and the object are .. perfectly at peace and harmony; you and the bar and gymnastics are all working dynamically. That is called vehicle. So, vehicle is 100 points. You can get. At that time, it’s really perfect. That is called vehicle. 
+##### 22:20
+
+Buddhism, particularly Zen, is always emphasizing that point. Finally, where is the Buddha? How to throw yourself into the Buddha’s house?Buddha is not something *else* apart from us. But if you think [of] Buddha as something particular, at that time Buddha is something you handle as ontology; so always you have to ask, "What is the Buddha?" You don’t do.
+
+Whatever you say, even though we don’t use a particular term – well, "original nature or existence". What is original nature of existence? We don’t know. What is the truth? Always the question comes up. 
+
+But this is not the main point which Buddhism emphasizes. Our main purpose is, Buddha says, "How can you throw away Buddha?" That is the point which you have to communicate with the Buddha: "How?" That is: release, and forget yourself, throw yourself into the bar. At that time, there is completely Buddha’s world at the bar. That is called gymnastics: performance of gymnastics, becoming one. All things become one in gymnastics.
+
+##### 24:16
+
+That’s why Engo Zen Master and Dogen used the term "vehicle", dharma vehicle. Vehicle is not something your intellectual sense should be on; vehicle is that which you yourself must be on, working in peace and harmony with [the] passengers. That is the vehicle. 
+
+So, where is the vehicle? That vehicle means Buddha, Buddha’s world, [in] which the subject and the object work perfectly in peace and harmony. You and the bar and gymnastics are all working dynamically; that is what is called vehicle. 
+
+So, vehicle is 100 points. You can get. At that time, it’s really perfect. That is called vehicle. 
 
 ##### 25:40
 
