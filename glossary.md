@@ -1,55 +1,55 @@
 # Glossary
 
-### Avatamsaka Sutra
+## Avatamsaka Sutra
 
 The Flower Ornament Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Avatamsaka_Sutra))
 
-### Diamond Sutra
+## Diamond Sutra
 
-### Lotus Sutra
+## Lotus Sutra
 
 Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
 
-### Mahayana
+## Mahayana
 
-### Nagarjuna
+## Nagarjuna
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nagarjuna)
 
-### Prajnaparamita
+## Prajnaparamita
 
 Wisdom beyond wisdom, or The Perfection of Wisdom.
 [Wikipedia](https://en.wikipedia.org/wiki/Prajnaparamita)
 
-### Saddharma Pundarīka Sutra
+## Saddharma Pundarīka Sutra
 
 The Lotus Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
-### Sandhinirmocana Sutra
+## Sandhinirmocana Sutra
 
 Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana_Sutra)
 
-### Sanskrit
+## Sanskrit
 
 [Wikipedia](https://en.wikipedia.org/wiki/Sanskrit)
 
-### Srimaladevi Simhanada Sutra
+## Srimaladevi Simhanada Sutra
 
 Śrīmālādevī Siṃhanāda - Sanskrit
 
 [Wikipedia](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
 
-### Sukhavativyuha Sutra
+## Sukhavativyuha Sutra
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
 
-### Sutra
+## Sutra
 
-### Vasubandhu
+## Vasubandhu
 
 [Wikipedia](https://en.wikipedia.org/wiki/Vasubandhu)
 
-### Vimalakirti Sutra
+## Vimalakirti Sutra
 
-### Yogacara
+## Yogacara
 
