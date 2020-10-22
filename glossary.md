@@ -1,10 +1,22 @@
 # Glossary
 
+## Aryadeva
+
+[Wikipedia](https://en.wikipedia.org/wiki/Aryadeva)
+
+## Asanga
+
+[Wikipedia](https://en.wikipedia.org/wiki/Asanga)
+
 ## Avatamsaka Sutra
 
 The Flower Ornament Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Avatamsaka_Sutra))
 
 ## Diamond Sutra
+
+## Emptiness
+
+Also "vastness" or "boundlessness"; lack of independent existence. Emptiness is frequently discussed in Zen Buddhism; the most important first thing to understand is that it is not the nihilistic kind of emptiness, but it really means unlimited potential, and it underlies existence.
 
 ## Lotus Sutra
 
@@ -15,6 +27,10 @@ Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of th
 ## Nagarjuna
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nagarjuna)
+
+## Prajna
+
+Sanskrit: prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection. [Wikipedia](https://en.wikipedia.org/wiki/Prajñā_(Buddhism)
 
 ## Prajnaparamita
 
@@ -42,6 +58,10 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 ## Sukhavativyuha Sutra
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
+
+## Sunyata
+
+[Sanskrit](#sanskrit): śūnyatā. Usually translated as [emptiness](#emptiness). [Wikipedia](https://en.wikipedia.org/wiki/Śūnyatā)
 
 ## Sutra
 
