@@ -312,13 +312,19 @@ It’s not necessary to kill the cat. But in a sense, “to kill the cat” is g
 
 ##### 1:04:55
 
-We have to, given the shikantaza, just doing the sitting doesn’t mean that you ignore your experience of Zen Buddhism. So, that’s why we have to study; we have to understand Blue Cliff Record. Not understand it; we have to… This Blue Cliff Record, there are hundreds of stories that penetrate… Penetrate your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything. But this silence is not silence. Kenshō. So that’s why, Zen obviously deny the words, always point out the world beyond verbal explanation. But it doesn’t mean ignoring the words. Because it’s not necessary to be bogged down with words. But without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words. Kind of, the words, because we are used to understanding… through the words. But anyway, we have to come to our experience no words. At that time, nothing to say. You have to experience it. And then, never the less, you cannot stay there. You have to say. Because you cannot exist alone. You have to communicate with people. How can you communicate? Just using the words in usual way; that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always, Zen emphasizes. If you study Blue Cliff Record, maybe you can grab that real spirit of Zen Buddhism. Beyond denomination; Rinzai, Soto. Anyway out of general Buddhism, we have to understand Zen path. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of zazen in terms of general Buddhism mentioned by Buddha. 
+Even in shikantaza, just doing the sitting doesn’t mean that you ignore such experience of Zen Buddhism. That’s why we have to study; we have to understand Blue Cliff Record. Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything. But this silence is not silence. Kenshō. 
 
-##### 1:07:55
+That’s why Zen always denies the words, always points out the world beyond verbal explanation. But it doesn’t mean ignoring the words, because it’s not necessary to be bogged down with words. Without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words – kind of the words – because we get are used to understanding ourselves pretty easily through the words. But anyway, we have to come to our experience of no words. At that time, nothing to say. You have to experience it. 
+
+And then, nevertheless, you cannot stay there. You have to say [something]. Because you cannot exist alone; you have to communicate with people. How can you communicate? Just using the words in the usual way, that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always [what] Zen emphasizes. 
+
+If you study Blue Cliff Record, maybe you can grab that real spirit of Zen Buddhism. Beyond denomination: Rinzai, Soto. Anyway, out of general Buddhism, we have to understand [the] Zen path. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of zazen in terms of general Buddhism mentioned by Buddha. 
 
 Questions? 
 
-**Person 1**: The commentator was saying that the Zen Master who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
+##### 1:08:03
+
+**Question**: Roshi? The commentator was saying that the Zen Master who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
 
 **Katagiri**: Mmm hmm. 
 
@@ -326,67 +332,69 @@ Questions?
 
 **Katagiri**: But thirty blows doesn’t mean that the Zen Master gave the thirty blows actually. 
 
-**Person 1**: Well, no, but the commentator thought he deserved it. Isn’t that what this was?
+**Same person**: Well, no, but the commentator thought he deserved it. Isn’t that what this was?
 
-**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, and then a week or so. But because I hated the monks life, … life, finally my teacher says, come into my room, “Dainin, get up. When the time comes, everyone get up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is at least thirty blows. I actually deserved thirty blows. That’s why I couldn’t stay there. I start shaking, my body and mind is shaking, anyway. But I got up. I didn’t strike. Next day, I did it. Anyway, get up in the morning, and… anyway… Still I hate it [laughter] but anyway, I did it. But this is monk. 
+**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, and then attend a week or so. But because I hated the monks life and temple life, finally my teacher says, [coming] into my room, “Dainin, get up. When the time comes, everyone gets up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is at least thirty blows. *[he laughs]* I actually deserved thirty blows. That’s why I couldn’t stay there. I felt shaky, my shaky, my mind is shaking, anyway. But I gave up; I didn’t strike. Next day, I did it, anyway; get up in the morning, and *[unintelligible]* anyway, fixing meals. Still I hated it, *[laughter]* but anyway, I did it. But this is monk. 
 
-So that is really thirty blows. But if you don’t have.. If you’re not ready to open your eyes… but even … very gentle, Dainin, he didn’t scold me, Dainin. When the time comes everyone get up, please get up. If you feel sick, after that you can go to bed again. Very simple. If you’re now ready to accept this as thirty blows, don’t … the usual. … But anyway, that was really thirty blows for me. 
+So that is really thirty blows. But if you’re not ready to open your eyes, even though what he's suggesting is very gentle. "Dainin," he didn’t scold me, "Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again." That's it. Very simple. If you’re not ready to accept this as thirty blows, well, that's a pretty usual *[unintelligible]* suggestion. But anyway, that was really thirty blows for me. 
 
-Well, I don’t know if Emperor Wu deserved, accepted thirty blows, I don’t know. But anyway, that is Engo Zen Master’s comment.
+Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but anyway, that is Engo Zen Master’s comment.
 
-##### 1:10:58
+**Same person**: Excuse me, I thought that the commentator was saying that the Zen Master who was speaking to Emperor Wu deserved the blows. That’s what I thought it meant; isn’t that right?
 
-**Person 1**: Excuse me, I thought that the Engo… the commentator was saying that the Zen Master who was speaking to Emperor Wu deserved the blows. That’s what I thought it meant; isn’t that right? … [crosstalk]
+*[some crosstalk]*
 
-**Katagiri**: Master Chih. Oh oh - Master Chih deserved thirty blows. Oh, right! [laughter] Probably, huh? [laughs]
+**Katagiri**: Master Chih. Oh oh - Master Chih deserved thirty blows. Oh, right! *[laughter]* Probably, huh? *[he laughs]*
 
 And he doesn’t know that the great illumination shines forth from under his own feet. This is the Engo Zen Master really playing with Zen Master Chih. Saying the opposite, completely opposite. He’s really playing. Do you understand? 
 
-**Person 1**: He says he deserves thirty blows… ?
+**Same person**: When he says he deserves thirty blows for his phrase?
 
-**Katagiri**: Yes, because he says “ridiculous,” you cannot get him back, get Bodhidharma back again. But if you go there and ask Bodhidharma “please come back again”… maybe so. Don’t you think so? But he says, don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But after that, it is very great. Do you understand? 
+**Katagiri**: Yes. *[he laughs]* Because he says, “Ridiculous. You cannot get him back, get Bodhidharma back again." But if we go there and ask Bodhidharma, “Please come back again" – maybe so, don’t you think so? But he says, don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But after that, it is really great. Do you understand? 
 
 ##### 1:12:38
 
-**Person 2**: What you’re saying… Why didn’t Bodhidharma in the first place, you know, explain to Emperor Wu what he was saying, if the Emperor didn’t understand…
+**Question**: What you’re saying... Why didn’t Bodhidharma in the first place, you know, explain to Emperor Wu what he was saying, if the Emperor didn’t understand, wouldn't that have been...
 
-**Katagiri**: [cackles] 
+**Katagiri**: *[he cackles]* 
 
-[audience laughs] 
+*[the group laughs]* 
 
-Thank you very much. [laughter] I appreciate your imagination of creating a beautiful scene. I … conversations between Emperor Wu and…. 
+Thank you very much. *[laughter]* I appreciate your imagination of creating a beautiful scene *[unintelligible]* conversation between Emperor Wu and *[unintelligible]*.
 
-Well, that is one way of understanding, but sometimes there is no way to discuss, don’t you think so? For instance, even though I explain it again and again; if you don’t understand, can I continue to explain again and again? Well, stop it! And then… [tap tap tap tap] if you are here, you can understand. Even though I stop it. 
+Well, that is one way of understanding, but sometimes there is no way to discuss, don’t you think so? For instance, even though I explain it again and again; if you don’t understand, can I continue to explain again and again? Well, stop it! And then… *[tap tap tap tap]* if you are here, you can understand, okay? Even though I stop it. 
 
-Of course, we should explain, but sometimes, time comes to… ???? 
+Of course, we should explain, but sometimes, time comes to ... *[unintelligible]* 
 
-##### 1:13:49
+Well, [for] Emperor Wu [it] is very hard to stand up in no explanation. And also, [for] Bodhidharma, it’s very hard for him to stand up in front of such a person, [trying his patience?]. He really wants to give compassion to him, tries to stand up, [but] ... no way. Do you experience such a thing in your human life? Maybe you can experience,  sooner or later.
 
-But, Emperor Wu, is very hard to stand up in no explanation. And also, Bodhidharma, it’s very hard for him to stand up in front of such a person. … He really wants to give compassion to him; tries to extend but… no way. Do you experience such a thing in your human life? Maybe you can experience…
+*[long pause]*
 
-##### 1:14:36
-
-It’s because explanation is mine, Bodhidharma’s explanation, not Emperor’s explanation. So my explanation is mine, not yours. You should find your explanation, through my explanation, okay? That’s all. So sometimes, even though my explanation is going again and again, if you’re not ready to accept this my explanation, you don’t understand, would you say so? 
+It’s because [the] explanation is Bodhidharma’s explanation, not [the] Emperor’s explanation. So my explanation is mine, not yours. You should find your explanation, through my explanation. That’s all. So sometimes, even though my explanation is going again and again, if you’re not ready to accept this my explanation, well you don’t understand. Don't you think so?
 
 Is that okay?
 
 ##### 1:15:19
 
-**Person 3**: … When you tell the story about picking up the teacher, was that the story from your house, was that your experience? 
+**Question**: When you tell the story about picking up the teacher, was that the story from your house, was that your experience? 
 
-**Katagiri**: A zen story… Happened… 
+**Katagiri**: Well a Zen story *[unintelligible]*
 
-**Person 3**: … Master Chih… [unintelligible]
+##### 1:15:50
+
+**Question**: Why is it *[unintelligible]* that Master Chih *[unintelligible]*
 
 **Katagiri**: Don’t take this at face value, okay? 
 
-**Person 3**: Is it like a joke?
+**Same person**: Is it like a joke?
 
-**Katagiri**: It’s not a joke. It’s not a joke. It’s not a joke; it’s very true. But, it means that the Engo Zen Master not directly praised Zen Master Chih. Exactly. You cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu don’t send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih what the truth, where truth is. So finally, nothing to say. How great his way is. Completely beyond human explanation; that’s what he says, very easily. He says he plays intellectually(?), saying that his way is against common way. So, from this point he should deserve thirty blows. But this is wonderful.
+**Katagiri**: It’s not a joke. It’s not a joke; it’s very true. But, it means that the Engo Zen Master indirectly praised Zen Master Chih. Because, you cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu [shouldn't] send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih what the truth, where truth is. So finally, nothing to say. How great his way is, completely beyond human explanation; that’s what he says, very easily. He says he plays [intellectually?], saying that his way is against common way. So, from this point he should deserve thirty blows. But, this is wonderful.
 
 That’s why he says he doesn’t know the great illumination shines from under his own feet. 
 
-Commentary is very helpful for you; so if you have time, read the commentary. From now on, if I have time, I would like to explain one by one. 
+[The] commentary is very helpful for you, so if you have time, read the commentary. From now on, if I have time, I would like to explain one by one, Blue Cliff Record.
+
+##### 1:18:32 end of recording
 
 [Next Talk: Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
 
