@@ -89,7 +89,9 @@ So, vehicle is 100 points. You can get. At that time, it’s really perfect. Tha
 
 Zen is sometimes misunderstood by people because we don’t have a particular object which is called divine entity, which is called God, which is called soul, or whatever you say. No object. 
 
-So, very naturally, in [the] Buddhistic world, it might be easier for us to lose what is called faith ... [it's] pretty easy, because there is nothing to depend on. We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. Buddha or Avalokiteshvara, whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
+So, very naturally, in [the] Buddhistic world, it might be easier for us to lose what is called faith ... [it's] pretty easy, because there is nothing to depend on. 
+
+We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. Buddha or Avalokiteshvara, whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
 
 [The question] is important, but you cannot be obsessed with [it]. That’s why Buddhas and [ancestors] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
 
@@ -99,13 +101,17 @@ What should you do? Jump into it. Throw yourself into Buddha’s home. Without t
 
 Particularly when you do zazen, this is [the] very fundamental path, *[unintelligible]*. That’s why we have to throw into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
 
-I always tell you, zazen must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, [what] is called zazen blooms. That is called Buddha, Buddha’s home. 
+I always tell you, zazen must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
+
+We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, [what] is called zazen blooms. That is called Buddha, Buddha’s home. 
 
 ##### 29:22
 
 But if you believe zazen [is] like this, well, you believe zazen is [a] particular practice. So Zen says, zazen is not a particular practice; your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this which is called *shikan*.
 
-At that time, your daily life becomes *vehicle*. What you call the task, is "the task of the fundamental vehicle of transcendence". Transcendence means completely there is no need of your effort; something comes from Buddha’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect zazen, [then] perfect zazen takes care of you – even though you don’t want. 
+At that time, your daily life becomes *vehicle*. What you call the task, is "the task of the fundamental vehicle of transcendence". 
+
+Transcendence means completely there is no need of your effort; something comes from Buddha’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect zazen, [then] perfect zazen takes care of you – even though you don’t want. 
 
 ##### 30:34
 
@@ -133,47 +139,101 @@ And "sun and moon and stars all at once go dark". Even the planets, even the moo
 
 > Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. 
 
-“Even if blows of the staff fall like rain“: that means, Rinzai zen masters or other zen masters uses a staff, stick, hitting the monks, in order to encourage insight. That hitting, the blows to the monks, are just like rain, falling rain, constantly hitting; but still you can’t live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means shout like thunder... big shouting, which makes everybody wake up... Still you can’t live up to the truth. It’s still something explained, demonstrated. 
+“Even if blows of the staff fall like rain“: that means, Rinzai Zen masters or other Zen Masters use a staff [or] stick, hitting the monks in order to encourage insight. That giving the blows to the monks is just like rain, falling rain, constantly hitting – but still you can’t live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means shouting just like thunder, a big shout which makes everybody wake up. Even though you use this, still you cannot live up to the truth. It’s still something explained, demonstrated. 
 
-So that’s why he says he says, “Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves.” Even the Buddhas of the three times: past, present, future; all buddhas, can only know it for themselves. What, just for themselves? Not for the good of all beings? Even the buddhas, to the past, to the present, to the future, all buddhas can only know this truth just for themselves. Because it’s vast. Because universal, the truth, open to everybody, is not individual understanding. Even the buddha says, “I” know it. That “I” is Buddha; Buddha’s understanding. Particular personal understanding. So it’s not universal. 
+So that’s why he says he says, “Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence."
+
+##### 36:45
+
+> Even the Buddhas of the three times can only know it for themselves; the successive generations of patriarchs have not been able to bring it up in its entirety. 
+
+"Even the Buddhas of the three times..." – Past, present, future; all Buddhas.
+
+"... can only know it for themselves." What, just for themselves? Not for the good of all beings? 
+
+Even the Buddhas, through the past, to the present, to the future, all Buddhas can only know this truth just for themselves. *Because it’s vast*. Because Universal, the truth, open to everybody, is not individual understanding. Even the Buddha says, “I” know it; at that time that that is *Buddha’s* understanding; particular personal understanding. So, it’s not universal. 
 
 ##### 38:00
 
-And also he said, “the successive generations of patriarchs have not been able to bring it up in its entirety”…  Originally it says, “even the successive generations of patriarchs haven’t pulled it down entirely as it is, and stand up there.” That means  - you know, patriarchs are the practitioners - even the many patriarchs understand the truth, that means pulled down toward the patriarchs. “I” understand the truth; so you say, that means you pull it back, pull it down, toward you. And stand up. “I” understand; “I” am enlightened. Well, it is not a real truth. That’s why he said, “successive generations of patriarchs haven’t been able to bring it back in its entirety.” What I’ve been saying, “I” understand, well that truth “you” understand is something you have pulled down toward you; that is personal experience. That’s why Buddhism always says “no God, no Buddha, no Avalokiteshvara”; there’s nothing, completely nothing. Because it’s pretty easy for us to say “I” understand it, “I” experience always; particularly when the people respect you and other great persons; you believe, “yes, I understand; I understand everything better than you, so I am great.” This is not the final goal Buddhism emphasizes. Because, life must be alive, from moment to moment, under all circumstances. Whenever people put a certain label on you, advanced or beginner, or “top class,” it doesn’t matter; anyway, your life must be alive, day to day. If you’re really obsessed with personal experience, it is not the real truth; it is not the real teaching of Buddhism. That’s why he says “the successive generations of patriarchs haven’t been able to bring it up in its entirety,” because there are patriarchs like that, constantly alive in their daily life. 
+And also he said, “the successive generations of patriarchs have not been able to bring it up in its entirety.” 
+
+Originally it says, “Even the successive generations of patriarchs haven’t pulled it down entirely as it is, and stood up there.” That means – you know, "patriarchs" are the practicers – the many patriarchs understand the truth, that means pulled down toward the patriarchs. “I” understand the truth, so you say; that means you pull it down toward you. And stand up: “I understand", which is called “I am enlightened person". Well, it is not a real truth. That’s why he said, “the successive generations of patriarchs haven’t been able to bring it back in its entirety.” 
+
+Whatever you say – “I” understand – that truth you understand is something you have pulled down toward you; that is a personal experience. That’s why Buddhism always says, “No God, no Buddhas, no Avalokiteshvara” – nothing, completely nothing. Because it’s pretty easy for us to say “I” understand it, “I” experience always. 
+
+Particularly when the people respect you and other great persons, you believe, “Yes, I understand. I understand everything better than you... so I am great.” This is not the final goal Buddhism emphasizes. 
+
+Because, life must be alive, from moment to moment, under all circumstances. Whenever people put a certain label on you, "advanced," or "beginner," or “top class,” it doesn’t matter; anyway your life must be alive, day to day. If you’re really obsessed with personal experience, it is not the real truth; it is not the real teaching of Buddhism. 
+
+That’s why he says, “the successive generations of patriarchs haven’t been able to bring it up in its entirety” – because there are patriarchs like that, constantly alive in their daily life. 
 
 ##### 41:23
 
-Look at … the Zen histories. If Buddhism were completely destroyed by the “politics,” the Chinese politics; if all monks were completely destroyed, and … government kicked them out of the temples; wherever the Zen monks went, either fishermen, either boatmen; still Zen (is) alive, in their life. Now when the world became peaceful, harmonious, all the Zen monks come back to Buddhism. It’s very strange, but it is very true. All the Zen monks come back very naturally when the war gets peace. But when the government is excited and angry, well they can live any time, anywhere. “Goodbye”; but it doesn’t mean that Zen Buddhism dies; it’s still alive in their life. That’s why when the time comes, conditions are right, it comes back. 
+Look at the Chinese Zen histories. If Buddhism were completely destroyed by the “politics,” the Chinese politics; if all monks were completely destroyed, and the government kicked them out of the temples – wherever the Zen monks went, either fishermen, either boatmen, still Zen [is] alive, in their life. Now when the world becomes peaceful, harmonious, all the Zen monks come back to Buddhism. It’s very strange, but it is very true. Only the Zen monks come back very naturally when the war gets peace. But when the government is excited and gets angry – well they can live any time, anywhere. “Goodbye”; but it doesn’t mean that Zen Buddhism dies; it’s still alive in their life. That’s why when the time comes, conditions are right: it comes back. 
 
 ##### 43:00
 
-Next, “The treasury of teachings of the whole age cannot explain it thoroughly.” “The treasury of teachings of the whole age” that means of all Buddhist scriptures, from generation to generation, for 2500 years. We try to … collect all the Buddhist scriptures, and try to explain what the truth is. It doesn’t hit the mark(?).
+> The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patchrobed monks cannot save themselves completely.
 
-##### 43:37
+Next, “The treasury of teachings of the whole age cannot explain it thoroughly.” 
 
-“Clear eyed patchrobed monks cannot save themselves completely” (??) … How? (??) Because even patch robed monks full of enlightenment, cannot themselves match it(?)
+“The treasury of teachings of the whole age” – that means all Buddhist scriptures, from generation to generation, for 2500 years. We try to collect all the Buddhist scriptures, and try to explain what the truth is. It doesn’t hit the mark.
 
-There is very interesting story of one of Japanese famous scholars… uh, not famous scholar; well yes, we was a scholar and also a communist. One day ... he practiced under the guidance of Gempo Yamamoto, who was teacher of Sōen Nakagawa... And one day, the gentleman works in the kitchen as a clerk, so Gempo-roshi passed by, passed through the kitchen, and saw this gentleman; he asked him, “What for do you practice Zen?” He said, “I am practicing Zen to save all sentient beings.” Then Gempo-roshi said, “Oh, is that so.” Then he left. And in a few days, when he passed through the kitchen, and he saw him making the rice on the stove, so he asked, “What for do you practice zazen?” He said, “I want to save all sentient beings.” He said, “Oh.” He left... Next time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” So immediately, Gempo-roshi screamed, “Stupid!” [laughs] “That practice is just for you!”
+##### 43:41
+
+“Clear eyed patchrobed monks cannot save themselves completely.”
+
+*[unintelligible]* How? Much as they cannot save others. Because even patch robed monks full of enlightenment, cannot themselves *[unintelligible]* how they can save all sentient beings.
+
+##### 44:30
+
+There is a very interesting story of one of the famous Japanese scholars – he was a scholar and also he was a communist. He practiced under the guidance of Gempo Yamamoto, who was teacher of Sōen Nakagawa. This gentleman worked in the kitchen as a clerk. 
+
+One day, Gempo-roshi passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” He said, “I am practicing Zen to save all sentient beings.” Then Gempo-roshi said, “Oh, is that so.” Then he left. 
+
+And in a few days, when he passed through the kitchen, and he saw him making the rice on the stove, he asked, “What for do you practice zazen?” He said, “I want to save all sentient beings.” He said, “Oh.” He left.
+
+Next time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” 
+
+So immediately, Gempo-roshi screamed, “*Stupid*!” *[he laughs]* “That practice is just for you!”
 
 *[tape change]*
 
-##### 46:50
+... because my practice is evaluated in [a] great way, so you should be patient, please take care of me. 
 
-... because my practice is evaluated in great way, so you should be patient, please take care of me. Well, if you have a family, “I want to go to zazen, so you should stay here and take care”. This is off. Don’t you think so? It’s really cause of fighting. It’s very true. That’s why Gempo-roshi crashed that idea: “Stupid! Your practice is just for you.” I don’t think practice is just for you, but don’t touch it, okay? Don’t get one setting for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
+Well, if you have a family, “I want to go to zazen, so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s very true. That’s why Gempo-roshi crashed that idea: “Stupid! Your practice is just for you.” 
+
+I don’t think practice is just for you – but don’t touch it, okay? Don’t get one "setting" for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 
 ##### 47:58
 
-Anyway, what for do you practice? Do you practice for the good of all sentient beings? It is still one-sided. Because your practice is limited by this. Or on the other hand if you say, “I practice for myself,” this is also, your practice is limited by certain ideas. So, release and forget yourself and throw yourself into zazen means, “What is that?” It is perfect practice. Practice beyond saving all sentient beings, or saving yourself; they are just ideas. Anyway, practice must be alive. At that time, that practice is completely, you simply cannot perceive(?), but it is very universal. That is called ??? practice. That is throw yourself into the Buddha’s home.
+Anyway, what for do you practice? Do you practice for the good of all sentient beings? It is still one-sided; because your practice is limited by this. 
+
+Or on the other hand if you say, “I practice for myself” – this is also, your practice is limited by certain ideas. So, "release, forget yourself, and throw yourself into zazen," means, "What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself. They are just ideas; practice must be alive. At that time ... you simply cannot perceive that practice, but it is really universal. 
+
+That is called *[unintelligible]* practice. That is, throw yourself into the Buddha’s home.
 
 ##### 49:15
 
-So, even the clear eyed patchrobed monks cannot save themselves completely. “When you get here, how will you ask for more instruction?” Well, when you get there, when you get real truth, how will you ask for more instruction? Do you want to get some more instruction from me? Do you understand? How can you get instruction? Because you are there already. If you get … some information or instruction from there, it is already something … objectively, you can see. At that time, it is not truth. Truth is the way it should be, right on, at the vehicle. It is very true then(?) At that time … Zen blooms. How can zazen touch tip of the zazen by itself? No way. But if you see, even slightly, something else around zazen, it is something seen objectively, for you to touch. If you can touch means, to get instruction or information from. Zazen, chanting, gassho. So … zen master says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means you simply cannot continue. Where you are, what you are doing. But, it’s really work, it’s really work. If you don’t know, you feel restless. But this restlessness comes from your interest in Zen. Understanding. Restlessness is a part of your life, so, don’t worry, don’t be obsessed (upset?) with restlessness. All you have to do is, just continue to do it. But finally, your life is yours, pretty much.
+> When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. 
+
+So, even the clear eyed patchrobed monks cannot save themselves completely. “When you get here, how will you ask for more instruction?” 
+
+When you get there, when you get the real truth – how will you ask for more instruction? Do you want to get some more instruction from me? Do you understand? How can you get instruction? Because you are there already. 
+
+If you get some information or instruction from there, it is already something picked up objectively, you can see. At that time, it is not truth. Truth is where it should be, right on the vehicle. It is very true Zen. 
+
+At that time only, the zazen blooms. How can zazen touch [the] tip of the zazen by itself? No way. But if you see, even slightly, something *else* around zazen, it is something seen objectively, for you to touch. "You can touch" means, to get instruction or information from; zazen, chanting, gassho, whatever.
+
+So Engo Zen Master says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means, you simply cannot continue, where you are, what you are doing. 
+
+But – it’s really work. If you don’t know, you feel restless. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life, so don’t worry; don’t be obsessed  with restlessness. All you have to do is, just continue to do it. But finally, your life works pretty well.
 
 ##### 52:05
 
-And, “When you get here, how will you ask for more instruction?” then says: “To say the word “Buddha” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. For that reason he says, in other words … “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the cat. Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. So, covered with mud, that means gargle yourself with water. 
+And, “When you get here, how will you ask for more instruction?” then [adds]: “To say the word “Buddha” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
 
-##### 54:00
+Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the cat. Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. So, covered with mud, that means gargle yourself with water. 
 
 But even though to say the word “Buddha” immediately you are covered with mud, just like a sewer rat. I mean, you enjoy very much, “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
 
