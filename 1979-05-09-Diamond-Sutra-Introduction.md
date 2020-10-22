@@ -9,9 +9,9 @@
 
 [*recording fades in*]
 
-**Katagiri**: ... one of the Mahayana scriptures: [the] Diamond Sutra. This is quite different from [the] Vimalakirti Sutra we studied, that was compiled almost in the same century. During the first and the second centuries, most of the Mahayana Buddhist scriptures were compiled. So, the completion of Mahayana sutras – Buddhist scriptures – is classified into three periods.
+**Katagiri**: ... one of the [Mahayana](glossary#mahayana) scriptures: [the] [Diamond Sutra](glossary#diamond-sutra). This is quite different from [the] Vimalakirti Sutra we studied, that was compiled almost in the same century. During the first and the second centuries, most of the Mahayana Buddhist scriptures were compiled. So, the completion of Mahayana sutras – Buddhist scriptures – is classified into three periods.
 
-The first period ... is the period in which a group of Prajnaparamita sutras ([The Perfection of Wisdom](https://en.wikipedia.org/wiki/Prajnaparamita)), or a group of Saddharmapundarīka sutras ([The Lotus Sutra](https://en.wikipedia.org/wiki/Lotus_Sutra)), and a group of Avatamsaka sutras ([Flower Ornament Scripture](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)), or one more group is a group of Sukhāvatīvyūha sutras ([Infinite Life Sutra; Pure Land](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)) - were all compiled during 150-270 (AD). This is first period of the completion of Mahayana Buddhist scriptures.
+The first period ... is the period in which a group of [Prajnaparamita](glossary#prajnaparamita) sutras, or a group of [Saddharmapundarīka](glossary#saddharmapundarika) sutras, and a group of [Avatamsaka](glossary#avatamsaka) sutras , or one more group is a group of Sukhāvatīvyūha sutras – were all compiled during 150-270 (AD). This is first period of the completion of Mahayana Buddhist scriptures.
 
 The second is a period in which a group of Nirvana sutras, a group of [Śrīmālādevī Siṃhanāda sutras](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra), a group of [Sandhinirmocana sutras](https://en.wikipedia.org/wiki/Sandhinirmocana_Sutra) were all compiled, during 210-400. 
 
