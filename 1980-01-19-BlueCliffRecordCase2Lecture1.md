@@ -7,27 +7,29 @@
 
 ##### 0:00 start of recording
 
-At this time, I would like to study with you the second case of The Blue Cliff Record, “The Ultimate Path is Without Difficulty”. Our main case, let me read first the main case:
+At this time, I would like to study with you the second case of The Blue Cliff Record, “The Ultimate Path is Without Difficulty”. Let me read first the main case:
 
->Chao Chou, teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
+> Chao Chou, teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
->At that time a certain monk asked, “Since you do not abide within clarity, what do you preserve?”
+> At that time a certain monk asked, “Since you do not abide within clarity, what do you preserve?”
 >
->Chao Chou replied, “I don’t know either.”
+> Chao Chou replied, “I don’t know either.”
 >
->The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
+> The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
 >
->Chao Chou said, “It is enough to ask about the matter; bow and withdraw.”
+> Chao Chou said, “It is enough to ask about the matter; bow and withdraw.”
 
 ##### 02:00
 
-This is the main case. This morning I would like to read the pointer for main case. Pointing out the most important key is main case… mentioned by the Engo Zen Master. (Engo Kokugon is the Japanese name for Ch’an teacher Yuan Wu K’e Ch’in (1063–1135), who compiled the Blue Cliff Record)
+This is the main case. This morning I would like to read the pointer for the main case, pointing out the most important key in the main case [which is] mentioned by Engo Zen Master. (Engo Kokugon is the Japanese name for Ch’an teacher Yuan Wu K’e Ch’in (1063–1135), who compiled the Blue Cliff Record and added the pointers, notes and commentaries.)
 
->Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves; the successive generations of patriarchs haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
+> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves; the successive generations of patriarchs haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
 
-In this pointer the Engo Zen master emphasizes the significance of the task (path?) of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the mountain(?) path. He uses different term, which is called the path of the fundamental vehicle of transcendence. This is the main point in this pointer. Path of the fundamental vehicle of transcendence. 
+In this pointer, Engo Zen master emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
 
-Plainly speaking, this is the truth, or original nature of (?) … or dharma. Dogen-zenji said in Fukanzazengi, “the dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dogen uses the term “dharma vehicle”. The truth is explained in many ways; if you use a word, whatever you say, all expression of the truth comes into just one term, “truth”. Many kinds of religions use different term, but all come into, anyway, the truth.
+##### 5:32
+
+Plainly speaking, this is the truth, or original nature of existence, or dharma. Dogen-zenji said in Fukanzazengi, “the dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dogen uses the term “dharma vehicle”. The truth is explained in many ways; if you use a word, whatever you say, all expression of the truth comes into just one term, “truth”. Many kinds of religions use different term, but all come into, anyway, the truth.
 
 The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. Well we know pretty well, truth is not something which we try to invent … but we get used to understanding thinking of something objectively, philosophically, psychologically. Very naturally, that’s why, even though we understand it, it’s very difficult to get rid of that. So very naturally, whenever you say truth, Buddha, or impermanence, or the dependent origination - are immediately something objectified by you. This is very natural. It’s very natural, but the problem is, we believe it; we believe in such a way of life, immediately. So patriarchs and buddhas constantly say it is your understanding, it’s not your universal truth beyond human speculation. But we don’t believe it. We don’t believe because … intellectual sense ... (?)
 
