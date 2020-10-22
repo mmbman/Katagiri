@@ -16,7 +16,7 @@ The Flower Ornament Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Avatamsaka_
 
 ## Emptiness
 
-Also "vastness" or "boundlessness"; lack of independent existence. Emptiness is frequently discussed in Zen Buddhism; the most important first thing to understand is that it is not the nihilistic kind of emptiness, but it really means unlimited potential, and it underlies existence.
+See [Śūnyatā](glossary#sunyata).
 
 ## Lotus Sutra
 
@@ -61,7 +61,9 @@ Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipe
 
 ## Sunyata
 
-[Sanskrit](#sanskrit): śūnyatā. Usually translated as [emptiness](#emptiness). [Wikipedia](https://en.wikipedia.org/wiki/Śūnyatā)
+[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".
+
+Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of independent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism; the first thing to understand is that it is not a nihilistic kind of emptiness, but it really means unlimited potential, and it underlies existence. [Wikipedia](https://en.wikipedia.org/wiki/Śūnyatā)
 
 ## Sutra
 
