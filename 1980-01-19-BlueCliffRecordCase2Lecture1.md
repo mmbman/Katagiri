@@ -57,7 +57,7 @@ If usually we do all this, what is the bar before you jump into it? And then we 
 
 So, you should use your consciousness and understand what the bar is *to the minimum*. And then what you have to do is *release*, forget yourself and throw yourself into the bar; this is the point. But we always research what the bar is – this is ontology. But Buddhism is not ontology, Buddhism is [etiology?], the study of [recognition?]. That means the bar and you – not to research the bar objectively, [but] right now right here how you can understand [or] recognize the bar. That is what is called Buddhist psychology, Buddhist philosophy. And then, [that] is still something objective. The final goal is, you should communicate with the bar; this is *Zen*. Directly practice. 
 
-	([Etiology](https://en.wikipedia.org/wiki/Etiology): "the study of causation or origination" – I'm not sure if this what he is trying to say, but it makes more sense than "etymology", the study of the origin of words. It's also not clear what he means by "recognition". Possibly "understanding of causation"?)
+  ([Etiology](https://en.wikipedia.org/wiki/Etiology): "the study of causation or origination" – I'm not sure if this what he is trying to say, but it makes more sense than "etymology", the study of the origin of words. It's also not clear what he means by "recognition". Possibly "understanding of causation"?)
 
 So, that means you should get 100 points. How? It is not the study of [causation?], is not the study of ontology, what you have to do, right now, right here, you have to grasp the bar, 100 percent. Not 90 percent, not 99 percent. You have to *grasp*. This is always the main point that Buddhism emphasizes.
 
