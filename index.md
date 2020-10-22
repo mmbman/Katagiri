@@ -30,9 +30,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [1979-11-17 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1)
 
-### Talks below here are still in rough draft form:
-
 [1979-11-18 Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2)
+
+### Talks below here are still in rough draft form:
 
 [1980-01-19 Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
 
