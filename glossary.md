@@ -6,6 +6,10 @@ The Flower Ornament Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Avatamsaka_
 
 ## Diamond Sutra
 
+## Lotus Sutra
+
+Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
+
 ## Mahayana
 
 ## Nagarjuna
@@ -25,6 +29,10 @@ The Lotus Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
 Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana_Sutra)
 
+## Sanskrit
+
+[Wikipedia](https://en.wikipedia.org/wiki/Sanskrit)
+
 ## Srimaladevi Simhanada Sutra
 
 Śrīmālādevī Siṃhanāda - Sanskrit
@@ -36,6 +44,10 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
 
 ## Sutra
+
+## Vasubandhu
+
+[Wikipedia](https://en.wikipedia.org/wiki/Vasubandhu)
 
 ## Vimalakirti Sutra
 
