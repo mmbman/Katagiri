@@ -74,7 +74,7 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 
 ## Blue Cliff Record
 
-
+See the [Blue Cliff Record Koan Index](BCR)
 
 ## Bodhidharma
 
@@ -278,6 +278,13 @@ Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen
 
 Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
 
+## Kyosei
+
+Chinese name Ching Ch’ing or Jingqing. 863–937. Successor to Hsueh Feng.
+
+See:
+[Blue Cliff Record Case 46: "Ching Ch’ing’s Sound of Raindrops"](BCR#case-46)
+
 ## Lotus
 
 See:
@@ -389,6 +396,7 @@ The Soto Zen temple in San Francisco, where Katagiri worked with Suzuki Roshi in
 
 See:
 [Fukanzazengi Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
+[Fukanzazengi Lecture 4 (54:16)](1979-06-12-Fukanzazengi-Lecture4#5416)
 
 ## Sanskrit
 
