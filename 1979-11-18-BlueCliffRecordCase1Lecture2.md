@@ -186,7 +186,7 @@ So, Engo Zen Master says [in the Notes], “Wu considered this answer rather ext
 
 Emperor Wu took [the previous] answer, “No merit,” at face value, so he didn’t understand. If there is no merit, do you believe there is no divinity, or God, or Buddha, or universal energy, which makes everything possible to exist? There is nothing? There is no truth, which is completely almighty, to help in your life? Et cetera. That’s why, next moment he asked, “What is the truth?”
 
-Emperor Wu expected a wonderful answer from Bodhidharma about the truth. Maybe, "Truth [is] almighty, giving compassion to you always, wherever you may go, helping you in the compassionate time when we are always smiling, smile always." 
+Emperor Wu expected a wonderful answer from Bodhidharma about the truth. Maybe, "Truth [is] almighty, giving compassion to you always, wherever you may go, helping you in the compassionate time when we are always smiling, smile always!" 
 
 But, he doesn’t say [that]. “Nothing holy. Empty.” 
 

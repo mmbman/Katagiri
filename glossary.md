@@ -40,6 +40,12 @@ Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures
 
 [Wikipedia](https://en.wikipedia.org/wiki/Asanga)
 
+## Avalokiteshvara
+
+The Bodhisattva of Compassion. [Manjushri](manjushri) and Avalokiteshvara are two primary symbolic figures in [Zen Buddhism](glossary#zen), representing Wisdom and Compassion.
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Avalokiteśvara)
+
 ## Avatamsaka Sutra
 
 The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower Ornament Scripture. Known for (naturally?) it's grandiose, "flowery" prose, describing a quest to meet a series of [Bodhisattvas](glossary#bodhisattva) who explain reality.
@@ -49,6 +55,11 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 ## Bodhisattva
 
 (Sanskrit) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
+
+## Bowing
+
+See:<br>
+[Fukanzazengi Lecture 1 (8:39)](1979-06-09-Fukanzazengi-Lecture1#839)
 
 ## Buddha
 
@@ -60,11 +71,21 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 
 ## Buddha Nature
 
+The original nature of existence, perfect and all pervading. 
+
+See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Buddha-nature)
+
 ## Buddha Way
 
 ## Chan
 
 A Chinese word meaning the same as "Zen" in Japanese.
+
+## Dainin
+
+Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#Katagiri).
 
 ## Dharma
 
@@ -76,13 +97,38 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Universal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is Shōbōgenzō. 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Universal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
+
+Katagiri Roshi often refers to him as "Dogen Zenji".
 
 [Wikipedia](https://en.wikipedia.org/wiki/Dōgen)
+
+## Dogen Zenji
+
+Means "Zen Master Dogen". See [Dogen](#dogen)
+
+## Dullness
+
+See:<br>
+[Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
+
+## Distraction
+
+See:<br>
+[Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
+
+## Egolessness
+
+See:<br>
+[Fukanzazengi Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)
 
 ## Eihei Dogen 
 
 See [Dogen](#dogen)
+
+## Eiheiji
+
+Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
 ## Emptiness
 
@@ -98,7 +144,17 @@ See: [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#
 
 ## Fukanzazengi
 
-Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. 
+Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the cannonical guidance for practicing [zazen](#zazen) in the Soto Zen school.
+
+See: [Fukanzazengi Lecture 1](1979-06-09-Fukanzazengi-Lecture1), etc.
+
+## Hinayana
+
+## Karma
+
+## Katagiri
+
+Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen) Buddhism to America. His Buddhist name, Jikai Dainin, means "Compassion Ocean Great Patience". In these talks he is usually addressed as [Roshi](glossary#roshi) or Hojo-san, but he often refers to himself as "Katagiri". 
 
 ## Koan
 
@@ -121,6 +177,12 @@ Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of th
 Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group of Buddhist traditions, texts, philosophies, and practices. Mahāyāna is considered one of the two main existing branches of Buddhism (the other being Theravada). Mahāyāna Buddhism developed in India (c. 1st century BCE onwards). It accepts the main scriptures and teachings of early Buddhism, but also adds various new doctrines and texts such as the Mahāyāna Sūtras.[1]
 
 [Wikipedia](https://en.wikipedia.org/wiki/Mahayana)
+
+## Manjushri
+
+The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](#zendo). 
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Manjushri)
 
 ## Masao Abe
 
@@ -170,9 +232,18 @@ According to Edward Conze, the Prajñāpāramitā Sutras are "a collection of ab
 
 See [Prajnaparamita](glossary#prajnaparamita) 
 
+
+## Rinzai Zen
+
+## Roshi
+
 ## Saddharma Puṇḍarīka Sutra
 
 The Lotus Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Lotus_Sutra)
+
+## Samadhi
+
+One-pointedness, usually achieved in meditation.
 
 ## Sandhinirmocana Sutra
 
@@ -182,13 +253,27 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 [Wikipedia](https://en.wikipedia.org/wiki/Sanskrit)
 
+## Sesshin
+
 ## Shakyamuni Buddha
+
+## Sitting
+
+"Sitting" is often short for "doing zazen" or "seated meditation".
+
+## Shikantaza
+
+"Just sitting" – not "just" in a casual sense, but with emphasis: **JUST** **sitting**. 
+
+See: [Fukanzazengi Lecture 2 (25:09)](1979-06-10-Fukanzazengi-Lecture2#2509), etc.
 
 ## Shobogenzo
 
 Shōbōgenzō
 
 [Wikipedia](https://en.wikipedia.org/wiki/Shōbōgenzō)
+
+## Soto Zen
 
 ## Śrīmālādevī Siṃhanāda Sutra
 
@@ -202,6 +287,15 @@ Shōbōgenzō
 ## Sukhāvatīvyūha Sutra
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
+
+## Suki
+
+suki (Japanese): gap; space.
+
+[jisho.org link]([](https://jisho.org/search/suki))
+
+See:<br>
+[Fukanzazengi Lecture 2 (7:52)](1979-06-10-Fukanzazengi-Lecture2#752)
 
 ## Shunyata
 
@@ -226,6 +320,14 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 [Wikipedia](https://en.wikipedia.org/wiki/Yogachara)
 
 ## Zazen
+
+"Seated meditation"
+
+## Zendo
+
+## Zenji
+
+Japanese word meaning "Zen Master".
 
 ----
 [Home](index.md)
