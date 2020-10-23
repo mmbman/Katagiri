@@ -22,7 +22,7 @@ It particularly focuses on analyzing and synthesizing what the agama sutras ment
 
 [Wikipedia](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
 
-## Āgama
+## Agama
 
 Sanskrit: āgama: sacred work or scripture.
 
@@ -30,11 +30,11 @@ The Āgamas are collections of the teachings of Shakyamuni Buddha, originally tr
 
 [Wikipedia](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
 
-## Āryadeva
+## Aryadeva
 
 Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in Chan Buddhism, and as "Bodhisattva Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
 
-## Asaṅga
+## Asanga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of Mahayana Buddhism and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana Abhidharma, Vijñanavada (awareness only) thought and Mahayana teachings on the bodhisattva path.
 
@@ -74,19 +74,19 @@ Truth, universal law, phenomena.
 
 Vajracchedikā Prajñāpāramitā Sūtra
 
-## Dōgen
+## Dogen
 
 Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Universal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is Shōbōgenzō. 
 
 [Wikipedia](https://en.wikipedia.org/wiki/Dōgen)
 
-## Eihei Dōgen 
+## Eihei Dogen 
 
-See [Dōgen](#dōgen)
+See [Dogen](#dogen)
 
 ## Emptiness
 
-See [śūnyatā](glossary#sunyata).
+See [shunyata](glossary#shunyata).
 
 ## Four Dharma Seals
 
@@ -100,6 +100,8 @@ See: [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#
 
 Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. 
 
+## Koan
+
 ## Kuei Shan Lingyu
 
 Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
@@ -109,6 +111,10 @@ Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
 Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
 
 ## Madhyamaka
+
+
+## Mahaprajnaparamita
+
 
 ## Mahayana
 
@@ -121,13 +127,13 @@ Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group
 pronounced "Ah-bay"
 [Wikipedia](https://en.wikipedia.org/wiki/Masao_Abe)
 
-## Nāgārjuna
+## Nagarjuna
 
 Nāgārjuna
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nagarjuna)
 
-## Nikāya
+## Nikaya
 
 Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
 
@@ -146,7 +152,9 @@ Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word 
 
 ## Prajna
 
-Sanskrit: prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection. [Wikipedia](https://en.wikipedia.org/wiki/Prajñā_(Buddhism)
+Sanskrit: prajna. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
+
+[Wikipedia](https://en.wikipedia.org/wiki/Prajñā_(Buddhism)
 
 ## Prajnaparamita
 
@@ -157,6 +165,10 @@ Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna
 According to Edward Conze, the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
 [Wikipedia](https://en.wikipedia.org/wiki/Prajnaparamita)
+
+## Prajnaparamita Sutra
+
+See [Prajnaparamita](glossary#prajnaparamita) 
 
 ## Saddharma Puṇḍarīka Sutra
 
@@ -172,7 +184,9 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 ## Shakyamuni Buddha
 
-## Shōbōgenzō
+## Shobogenzo
+
+Shōbōgenzō
 
 [Wikipedia](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
@@ -189,7 +203,7 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
 
-## Śūnyatā
+## Shunyata
 
 [Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".
 
