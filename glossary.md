@@ -164,7 +164,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Universal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
 
 Katagiri Roshi often refers to him as "Dogen Zenji".
 
@@ -251,7 +251,7 @@ See
 
 ## Hashimoto Roshi
 
-Abbot of Eiheiji when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
+Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
 
 See 
 [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),
@@ -384,7 +384,7 @@ The Lotus Sutra.
 
 ## Samadhi
 
-One-pointedness, usually achieved in meditation.
+One-pointedness. Often the kind achieved in meditation, but it can refer to complete absorption in any activity.
 
 ## Sandhinirmocana Sutra
 
@@ -392,7 +392,7 @@ Sandhinirmocana Sutra. [Wikipedia link](https://en.wikipedia.org/wiki/Sandhinirm
 
 ## San Francisco Zen Center
 
-The Soto Zen temple in San Francisco, where Katagiri worked with Suzuki Roshi in the 60's. 
+The Soto Zen temple in San Francisco where Katagiri worked with Suzuki Roshi in the 60's. 
 
 See:
 [Fukanzazengi Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
@@ -412,7 +412,7 @@ See:
 
 ## Shikantaza
 
-A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: **Just** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in Soto Zen, so Katagiri discusses it frequently.
+A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in Soto Zen, so Katagiri discusses it frequently.
 
 See: 
 [Fukanzazengi Lecture 2 (25:09)](1979-06-10-Fukanzazengi-Lecture2#2509),
@@ -421,7 +421,7 @@ See:
 
 ## Shobogenzo
 
-Shōbōgenzō
+(Japanese) Shōbōgenzō: "Treasury of the True Dharma Eye". A collection of essays by [Eihei Dogen](#eihei-dogen), his most well-known work.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
