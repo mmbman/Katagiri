@@ -28,6 +28,13 @@ Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of th
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nagarjuna)
 
+## Nirvana
+
+
+## Nirvana Sutra
+
+[Wikipedia](glossary#nirvana-sutra)
+
 ## Prajna
 
 Sanskrit: prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection. [Wikipedia](https://en.wikipedia.org/wiki/Prajñā_(Buddhism)
