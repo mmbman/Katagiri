@@ -29,15 +29,15 @@ So, the number nine sutra, among those 16 sutras, is the Diamond Sutra. It's ful
 
 This sutra sets forth the doctrine of [śūnyatā](glossary#sunyata) and [prajñā](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in Zen Buddhism. 
 
-We don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by Buddha Shakyamuni. All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](https://en.wikipedia.org/wiki/Āgama_(Buddhism)), [or] [Nikāyas](https://en.wikipedia.org/wiki/Nikāya) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
+We don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](glossary#agama), [or] [Nikāyas](glossary#nikaya) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
 
 ##### 10:17
 
-At the first conference and the second conference and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they [had] memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. [Those are the] *agamas*.
+At the first conference and the second conference and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they [had] memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. [Those are the] [agamas](glossary#agama).
 
 Within [the] agamas, it was based on Buddha's teaching: philosophical, psychological teachings, mentioning impermanence, and suffering, no-self, and nirvana. Those four are called [the] Four Dharma Seals, mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
 
-So in [the] agama sutras, those four dharma seals were described. And then [within] the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named Abhidharmakosha ([Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in [the] agama sutras, those four dharma seals were described. And then [within] the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
@@ -45,7 +45,7 @@ But during the first and the second centuries, lots of the Mahayana Buddhist scr
 
 Even though those Buddhist scriptures were not mentioned directly by Buddha, Indian people believe those scriptures are really Buddha's teaching. They don't have any doubt. They accept perfectly those scriptures as Buddha's teachings. That's why we don't know who wrote [them]. But it doesn't matter; it doesn't matter.
 
-Even the Vimalakirti sutra, we don't know who wrote that one. Traditionally, Vimalakirti wrote [it] – but we are "suspicious" whether such a person was existing or not. Well anyway, we don't know who wrote it. But huge Buddhist scriptures exist. 
+Even the Vimalakirti Sutra, we don't know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote [it] – but we are "suspicious" whether such a person was existing or not. Well anyway, we don't know who wrote it. But huge Buddhist scriptures exist. 
 
 So those authors were really genuine religious persons, who understood [the] religious spirit mentioned by Buddha, and also [the] tendency of the religious thought and philosophical thought of those days. 
 
@@ -61,7 +61,7 @@ The group of Prajnaparamita sutras were compiled in the beginning of A.D. by Ind
 
 So Prajnaparamita is what is called The Perfection of Wisdom. [The] Indian people try to explain what wisdom is, according to concept. So, for instance, in Diamond Sutra, it says: 
 
-> Subhuti asked: What then, O Lord, is this discourse on dharma, and how should I bear it in mind? – The Lord replied: This discourse on dharma, Subhuti, is called "Wisdom which has gone beyond," and as such should you bear it in mind!
+> [Subhuti](glossary#subhuti) asked: What then, O Lord, is this discourse on [dharma](glossary#dharma), and how should I bear it in mind? – The Lord replied: This discourse on dharma, Subhuti, is called "Wisdom which has gone beyond," and as such should you bear it in mind!
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 49)
 
@@ -73,7 +73,7 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
-In the latest Udambara, Professor Abe ([Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe), pronounced "Ah-bay") explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain Prajnaparamita not conceptually, [but] very practically. 
+In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain Prajnaparamita not conceptually, [but] very practically. 
 
 ##### 23:12
 
@@ -81,7 +81,7 @@ For instance, you know the koan; Zen Buddhists always use a koan, but this koan 
 
 ##### 24:10
 
-Oh, yes, here is a very good example. [A] Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called Isan; his name was Isan. (Probably Isan Reiyū; Chinese: Kuei Shan Lingyu or Guishan Lingyou, 771-853.) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
+Oh, yes, here is a very good example. [A] Zen Master said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called Isan; his name was Isan. (Probably Isan Reiyū; Chinese: [Kuei Shan Lingyu](glossary#kuei-shan-lingyu)) So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
 
 For instance, there is a Katagiri. But this is not Katagiri, this is cow. *[he laughs]* But you say "cow"; it's not cow. 
 
@@ -127,11 +127,11 @@ That is a great chance for you to practice, to continue to do it.
 
 This is the very important point Diamond Sutra says. There are lots of ... contradictory expressions. "A is A, but A is not A, that's why we call A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. But even though you don't like your life, or you like your life – a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say, you don't like, or you like: what is life? What are you? You are still you. And your life is existent. How can you judge? 
 
-So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called emptiness, philosophically speaking, and if you experience that emptiness it is called Buddha nature. Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
+So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called emptiness, philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
 ##### 43:16
 
-And sometimes, vastness is personalized, and it's called Buddha. Because we realize vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
+And sometimes, vastness is personalized, and it's called [Buddha](glossary#buddha). Because we realize vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
 ##### 43:50
 
@@ -197,7 +197,7 @@ Okay, do you have any questions?
 
 **Katagiri**: *[quietly]* Uh, before that, what did I say? 
 
-**Same person**: Well, you were talking – I think it was about sitting zazen just to sit zazen, and not to have expectations or goals, or... I'm not sure... *[unintelligible]* But that sentence really struck me. 
+**Same person**: Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I'm not sure... *[unintelligible]* But that sentence really struck me. 
 
 **Katagiri**: *[quietly]* Yeah. *[laughter]*
 

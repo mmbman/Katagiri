@@ -1,5 +1,16 @@
 # Glossary
 
+## Abhidharma
+
+## Abhidharmakosha
+
+Abhidharmakośakārikā
+[Wikipedia](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
+
+## Agama
+
+Sanskrit: āgamas. [Wikipedia](https://en.wikipedia.org/wiki/Āgama_(Buddhism)
+
 ## Aryadeva
 
 [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva)
@@ -12,11 +23,26 @@
 
 The Flower Ornament Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Avatamsaka_Sutra))
 
+## Buddha
+
+## Buddha Nature
+
+
+
+## Dharma
+
+
 ## Diamond Sutra
+
+Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Emptiness
 
 See [Śūnyatā](glossary#sunyata).
+
+## Kuei Shan Lingyu
+
+Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
 
 ## Lotus Sutra
 
@@ -24,9 +50,17 @@ Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of th
 
 ## Mahayana
 
+## Masao Abe
+
+pronounced "Ah-bay"
+[Wikipedia](https://en.wikipedia.org/wiki/Masao_Abe)
+
 ## Nagarjuna
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nagarjuna)
+
+## Nikaya
+Nikāyas. [Wikipedia](https://en.wikipedia.org/wiki/Nikāya)
 
 ## Nirvana
 
@@ -56,11 +90,18 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 [Wikipedia](https://en.wikipedia.org/wiki/Sanskrit)
 
+## Shakyamuni Buddha
+
+
+
 ## Srimaladevi Simhanada Sutra
 
 Śrīmālādevī Siṃhanāda - Sanskrit
 
 [Wikipedia](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
+
+## Subhuti
+
 
 ## Sukhavativyuha Sutra
 
@@ -81,4 +122,6 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 ## Vimalakirti Sutra
 
 ## Yogacara
+
+## Zazen
 
