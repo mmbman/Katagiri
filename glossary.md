@@ -20,7 +20,8 @@ The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [A
 
 It particularly focuses on analyzing and synthesizing what the agama sutras mentioned from a psychological and philosophical viewpoint.
 
-[Wikipedia](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
+[Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā), 
+[encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
 ## Agama
 
@@ -100,7 +101,7 @@ See [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 See 
-[Fukanzazengi Lecture 2 (27:00)][1979-06-10-Fukanzazengi-Lecture2#2700]
+[Fukanzazengi Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
 
 ## Chan
 
@@ -191,7 +192,8 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 Abbot of Eiheiji when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
 
-See [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
+See [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),
+[Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000)
 
 ## Hinayana
 
@@ -317,7 +319,7 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 ## Shikantaza
 
-"Just sitting" – not "just" in a casual sense, but with emphasis: **JUST** **sitting**. 
+"Just sitting" – not "just" in a casual sense, but with emphasis: **Just** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in Soto Zen and Katagiri discusses it frequently.
 
 See: [Fukanzazengi Lecture 2 (25:09)](1979-06-10-Fukanzazengi-Lecture2#2509), etc.
 
