@@ -44,7 +44,7 @@ Sanskrit: prajñā. Usually translated as "wisdom", not not conventional wisdom,
 Wisdom beyond wisdom, or The Perfection of Wisdom.
 [Wikipedia](https://en.wikipedia.org/wiki/Prajnaparamita)
 
-## Saddharma Pundarīka Sutra
+## Saddharma Pundarika Sutra
 
 The Lotus Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
