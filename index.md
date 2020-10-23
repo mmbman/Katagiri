@@ -58,9 +58,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 ...
 
-----------
-
 [Glossary](glossary) - in progress.
+
+[Blue Cliff Record Koan Index](BCR) - in progress.
 
 You can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
