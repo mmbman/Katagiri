@@ -1,8 +1,8 @@
 # Glossary
 
-Note: This is a work in progress! Please don't rely on this as definitive or complete, or even necessarily accurate, for the moment.
-
 [Home](index.md)
+
+**Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
 ## Abhidharma
 
@@ -72,6 +72,16 @@ Truth, universal law, phenomena.
 
 Vajracchedikā Prajñāpāramitā Sūtra
 
+## Dōgen
+
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Universal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is Shōbōgenzō. 
+
+[Wikipedia](https://en.wikipedia.org/wiki/Dōgen)
+
+## Eihei Dogen 
+
+See [Dogen](#dogen)
+
 ## Emptiness
 
 See [Śūnyatā](glossary#sunyata).
@@ -83,6 +93,10 @@ The Four Dharma Seals are impermanence, suffering, no-self, and nirvana. It is s
 See: [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
 
 [Wikipedia](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
+
+## Fukanzazengi
+
+Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. 
 
 ## Kuei Shan Lingyu
 
@@ -145,7 +159,9 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 ## Shakyamuni Buddha
 
+## Shōbōgenzō
 
+[Wikipedia](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
 ## Srimaladevi Simhanada Sutra
 

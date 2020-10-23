@@ -33,7 +33,7 @@ So, if it is true, even though you don't understand, why don't you express the d
 
 Before you bow, you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, ego consciousness. Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely Buddha, when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
 
-That is [what] Dogen Zenji says. So first, if you do zazen according to Dogen's mention, or [what the] patriarchs mention, or Buddha's suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the dharma, original nature of the self, is manifest. Manifesting itself, and also, dullness and distraction from the first [are] struck aside. It's going away. 
+That is [what] [Dogen](glossary#dōgen) Zenji says. So first, if you do zazen according to Dogen's mention, or [what the] patriarchs mention, or Buddha's suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the dharma, original nature of the self, is manifest. Manifesting itself, and also, dullness and distraction from the first [are] struck aside. It's going away. 
 
 ##### 12:45
 
