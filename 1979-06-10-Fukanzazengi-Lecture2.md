@@ -123,7 +123,7 @@ That's what I said, yesterday. So, if you have questions about this case, please
 
 ##### 27:00
 
-So, that's why yesterday I said, as [Dogen Zenji](glossary#dogen) says, [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. How can you do it? If you practice like this, immediately, dullness and distractions from the first are struck aside. Leading away. Drops off, very naturally. So very naturally, total personality appears. But [the] problem is, you cannot perceive what it is. That's a problem. Because mind is always wanting to poke its head into the hole always, whatever you do. Like a cat! That is characteristic of mind: analyze. This is us. 
+So, that's why yesterday I said, as [Dogen Zenji](glossary#dogen) says, [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. How can you do it? If you practice like this, immediately, dullness and distractions from the first are struck aside. Leading away. Drops off, very naturally. So very naturally, total personality appears. But [the] problem is, you cannot perceive what it is. That's a problem. Because mind is always wanting to poke its head into the hole always, whatever you do. Like a [cat](glossary#cat)! That is characteristic of mind: analyze. This is us. 
 
 Do you have any questions?
 
