@@ -1,6 +1,8 @@
 # Glossary
 
-Note: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate.
+Note: This is a work in progress! Please don't rely on this as definitive or complete, or even necessarily accurate, for the moment.
+
+[Home](index.md)
 
 ## Abhidharma
 
@@ -178,3 +180,5 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 ## Zazen
 
+----
+[Home](index.md)
