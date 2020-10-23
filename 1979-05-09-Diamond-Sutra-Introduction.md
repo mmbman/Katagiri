@@ -11,9 +11,9 @@
 
 **Katagiri**: ... one of the [Mahayana](glossary#mahayana) scriptures: [the] [Diamond Sutra](glossary#diamond-sutra). This is quite different from [Vimalakirti Sutra](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. During the first and the second centuries, most of the Mahayana Buddhist scriptures were compiled. So, the completion of Mahayana sutras – Buddhist scriptures – is classified into three periods.
 
-The first period ... is the period in which a group of [Prajnaparamita](glossary#prajnaparamita) sutras, or a group of [Saddharmapundarīka](glossary#saddharmapundarika) sutras, and a group of [Avatamsaka](glossary#avatamsaka) sutras , or one more group is a group of [Sukhāvatīvyūha](glossary#sukhavativyuha) sutras – were all compiled during 150-270 (AD). This is first period of the completion of Mahayana Buddhist scriptures.
+The first period ... is the period in which a group of [Prajnaparamita](glossary#prajnaparamita) sutras, or a group of [Saddharmapundarīka](glossary#saddharmapundarika-sutra) sutras, and a group of [Avatamsaka](glossary#avatamsaka-sutra) sutras , or one more group is a group of [Sukhāvatīvyūha](glossary#sukhavativyuha-sutra) sutras – were all compiled during 150-270 (AD). This is first period of the completion of Mahayana Buddhist scriptures.
 
-The second is a period in which a group of Nirvana sutras, a group of [Śrīmālādevī Siṃhanāda](glossary#srimaladevi-simhanada) sutras, a group of [Sandhinirmocana](glossary#sandhinirmocana) sutras were all compiled, during 210-400. 
+The second is a period in which a group of Nirvana sutras, a group of [Śrīmālādevī Siṃhanāda](glossary#srimaladevi-simhanada-sutra) sutras, a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210-400. 
 
 The third is the period in which a group of [Yogacara](glossary#yogacara) sutras and a group of esoteric sutras were all compiled, after 480. 
 
