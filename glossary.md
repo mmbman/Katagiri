@@ -14,25 +14,27 @@ Sanskrit: Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
 
 ## Abhidharmakosha
 
-Sanskirt: Abhidharmakośakārikā
+Sanskrit: Abhidharmakośa
 
-An [Abhidharma](glossary#abhidharma) text particularly focused on analyzing and synthesizing what the agama sutras mentioned from a psychological and philosophical viewpoint.
+The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [Abhidharma](glossary#abhidharma) written in Sanskrit by Vasubandhu in the 4th or 5th century. 
+
+It particularly focuses on analyzing and synthesizing what the agama sutras mentioned from a psychological and philosophical viewpoint.
 
 [Wikipedia](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
 
-## Agama
+## Āgama
 
 Sanskrit: āgama: sacred work or scripture.
 
-The Agamas are collections of the teachings of Shakyamuni Buddha, originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
+The Āgamas are collections of the teachings of Shakyamuni Buddha, originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
 
 [Wikipedia](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
 
-## Aryadeva
+## Āryadeva
 
 Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in Chan Buddhism, and as "Bodhisattva Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
 
-## Asanga
+## Asaṅga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of Mahayana Buddhism and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana Abhidharma, Vijñanavada (awareness only) thought and Mahayana teachings on the bodhisattva path.
 
@@ -46,7 +48,7 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 
 ## Bodhisattva
 
-(Sanskrit) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also be used to denote any being who is following the [Buddha Way](glossary#buddha-way).
+(Sanskrit) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
 
 ## Buddha
 
@@ -78,13 +80,13 @@ Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Universal 
 
 [Wikipedia](https://en.wikipedia.org/wiki/Dōgen)
 
-## Eihei Dogen 
+## Eihei Dōgen 
 
-See [Dogen](#dogen)
+See [Dōgen](#dōgen)
 
 ## Emptiness
 
-See [Śūnyatā](glossary#sunyata).
+See [śūnyatā](glossary#sunyata).
 
 ## Four Dharma Seals
 
@@ -110,18 +112,24 @@ Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of th
 
 ## Mahayana
 
+Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group of Buddhist traditions, texts, philosophies, and practices. Mahāyāna is considered one of the two main existing branches of Buddhism (the other being Theravada). Mahāyāna Buddhism developed in India (c. 1st century BCE onwards). It accepts the main scriptures and teachings of early Buddhism, but also adds various new doctrines and texts such as the Mahāyāna Sūtras.[1]
+
+[Wikipedia](https://en.wikipedia.org/wiki/Mahayana)
+
 ## Masao Abe
 
 pronounced "Ah-bay"
 [Wikipedia](https://en.wikipedia.org/wiki/Masao_Abe)
 
-## Nagarjuna
+## Nāgārjuna
+
+Nāgārjuna
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nagarjuna)
 
-## Nikaya
+## Nikāya
 
-Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word [āgama](glossary#agama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
+Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
 
 [Wikipedia](https://en.wikipedia.org/wiki/Nikāya)
 
@@ -142,10 +150,15 @@ Sanskrit: prajñā. Usually translated as "wisdom", not not conventional wisdom,
 
 ## Prajnaparamita
 
-Wisdom beyond wisdom, or The Perfection of Wisdom.
+"Wisdom beyond wisdom", or The Perfection of Wisdom.
+
+Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the Sanskrit words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (Shunyata) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
+
+According to Edward Conze, the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
+
 [Wikipedia](https://en.wikipedia.org/wiki/Prajnaparamita)
 
-## Saddharma Pundarika Sutra
+## Saddharma Puṇḍarīka Sutra
 
 The Lotus Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
@@ -163,7 +176,7 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 
 [Wikipedia](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
-## Srimaladevi Simhanada Sutra
+## Śrīmālādevī Siṃhanāda Sutra
 
 Śrīmālādevī Siṃhanāda - Sanskrit
 
@@ -172,11 +185,11 @@ Sandhinirmocana Sutra. [Wikipedia](https://en.wikipedia.org/wiki/Sandhinirmocana
 ## Subhuti
 
 
-## Sukhavativyuha Sutra
+## Sukhāvatīvyūha Sutra
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. [Wikipedia](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
 
-## Sunyata
+## Śūnyatā
 
 [Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".
 
@@ -192,7 +205,11 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 ## Vimalakirti Sutra
 
-## Yogacara
+## Yogachara
+
+Yogācāra; literally "yoga practice" is an influential tradition of Buddhist philosophy and psychology emphasizing the study of cognition, perception, and consciousness through the interior lens of meditative and yogic practices.
+
+[Wikipedia](https://en.wikipedia.org/wiki/Yogachara)
 
 ## Zazen
 

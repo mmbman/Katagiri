@@ -11,15 +11,15 @@
 
 **Katagiri**: ... one of the [Mahayana](glossary#mahayana) scriptures: [the] [Diamond Sutra](glossary#diamond-sutra). This is quite different from [Vimalakirti Sutra](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. During the first and the second centuries, most of the Mahayana Buddhist scriptures were compiled. So, the completion of Mahayana sutras – Buddhist scriptures – is classified into three periods.
 
-The first period ... is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Pundarīka sutras](glossary#saddharma-pundarika-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more group is a group of [Sukhāvatīvyūha sutras](glossary#sukhavativyuha-sutra) – were all compiled during 150-270 (AD). This is first period of the completion of Mahayana Buddhist scriptures.
+The first period ... is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more group is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150-270 (AD). This is first period of the completion of Mahayana Buddhist scriptures.
 
-The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#srimaladevi-simhanada-sutra) sutras, a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210-400. 
+The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210-400. 
 
-The third is the period in which a group of [Yogacara](glossary#yogacara) sutras and a group of esoteric sutras were all compiled, after 480. 
+The third is the period in which a group of [Yogachara](glossary#yogachara) sutras and a group of esoteric sutras were all compiled, after 480. 
 
 ##### 3:18
 
-During the first and the second centuries, there were several great organizers and philosophers of Mahayana Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150-250. And the second person was [Aryadeva](glossary#aryadeva), who lived 170-270. And the third one is [Asanga](glossary#asanga), who lived 310-390. Particularly Asanga compiled Buddhist psychology at that time. [Fourth,] [Vasubandhu](glossary#vasubandhu), who lived 320-400. So, we can imagine all Buddhist scriptures were compiled by those four greater organizers and philosophers of Buddhist scriptures. 
+During the first and the second centuries, there were several great organizers and philosophers of Mahayana Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nāgārjuna](glossary#nāgārjuna), who lived from 150-250. And the second person was [Āryadeva](glossary#āryadeva), who lived 170-270. And the third one is [Asaṅga](glossary#asaṅga), who lived 310-390. Particularly Asanga compiled Buddhist psychology at that time. [Fourth,] [Vasubandhu](glossary#vasubandhu), who lived 320-400. So, we can imagine all Buddhist scriptures were compiled by those four greater organizers and philosophers of Buddhist scriptures. 
 
 ##### 5:24
 
@@ -27,13 +27,13 @@ During the first and the second centuries, there were several great organizers a
 
 So, the number nine sutra, among those 16 sutras, is the Diamond Sutra. It's full name is Vajracchedikā Prajñāpāramitā Sūtra.
 
-This sutra sets forth the doctrine of [śūnyatā](glossary#sunyata) and [prajñā](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in Zen Buddhism. 
+This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in Zen Buddhism. 
 
-We don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](glossary#agama), [or] [Nikāyas](glossary#nikaya) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
+We don't know who wrote this Diamond Sutra. We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](glossary#āgama), [or] [Nikāyas](glossary#nikāyas) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
 
 ##### 10:17
 
-At the first conference and the second conference and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they [had] memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. [Those are the] [agamas](glossary#agama).
+At the first conference and the second conference and the third conference after Buddha's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they [had] memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. [Those are the] [agamas](glossary#āgama).
 
 Within [the] agamas, it was based on Buddha's teaching: philosophical, psychological teachings, mentioning impermanence, suffering, no-self, and nirvana. Those four are called [the] Four Dharma Seals, mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
 
