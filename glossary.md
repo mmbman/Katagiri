@@ -63,7 +63,7 @@ See:<br>
 
 ## Buddha
 
-(Sanskrit) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. Finally, "buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha".
+(Sanskrit) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
 
 [Wikipedia](https://en.wikipedia.org/wiki/Buddhahood)
 
@@ -79,6 +79,29 @@ See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
 ## Buddha Way
 
+## Buddhism
+
+## Buddhistic
+
+"Of, relating to, or supporting [Buddhism](#buddhism)." (It turns out,) this is a real word, and so is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might also connote that something is "like Buddhism," without implying that "Buddhism" is a fixed concept or object.
+
+See [Fukanzazengi Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026), etc.
+
+## Calligraphy
+
+A traditional art practiced by Zen priests and monks.
+
+See [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Hitsuzendō)
+
+## Cat
+
+An enigmatic being that sometimes appears in Katagiri Roshi's talks.
+
+See 
+[Fukanzazengi Lecture 2 (27:00)][1979-06-10-Fukanzazengi-Lecture2#2700]
+
 ## Chan
 
 A Chinese word meaning the same as "Zen" in Japanese.
@@ -86,6 +109,8 @@ A Chinese word meaning the same as "Zen" in Japanese.
 ## Dainin
 
 Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#Katagiri).
+
+## Demon
 
 ## Dharma
 
@@ -107,6 +132,9 @@ Katagiri Roshi often refers to him as "Dogen Zenji".
 
 Means "Zen Master Dogen". See [Dogen](#dogen)
 
+## Dualism
+
+
 ## Dullness
 
 See:<br>
@@ -119,7 +147,7 @@ See:<br>
 
 ## Egolessness
 
-See:<br>
+See: 
 [Fukanzazengi Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)
 
 ## Eihei Dogen 
@@ -130,9 +158,16 @@ See [Dogen](#dogen)
 
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
+See [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
+
+
 ## Emptiness
 
 See [shunyata](glossary#shunyata).
+
+## Enlightenment
+
+
 
 ## Four Dharma Seals
 
@@ -148,7 +183,20 @@ Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the
 
 See: [Fukanzazengi Lecture 1](1979-06-09-Fukanzazengi-Lecture1), etc.
 
+## Genjokoan
+
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
+
+## Hashimoto Roshi
+
+Abbot of Eiheiji when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
+
+See [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
+
 ## Hinayana
+
+## Kapleau Roshi
+
 
 ## Karma
 
@@ -208,9 +256,15 @@ Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word 
 
 [Wikipedia](glossary#nirvana-sutra)
 
+## Nondualism
+
 ## Pali
 
 ## Pali Cannon
+
+## Patriarch
+
+Ancestor
 
 ## Prajna
 
@@ -306,6 +360,9 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 ## Sutra
 
 ## Tathagata
+
+## Tibetan Buddhism
+
 
 ## Vasubandhu
 
