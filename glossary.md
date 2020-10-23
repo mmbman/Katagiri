@@ -72,6 +72,17 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
+## Blue Cliff Record
+
+
+
+## Bodhidharma
+
+The First Ancestor of Chan (Zen) Buddhism in China.
+
+See:
+[Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
+
 ## Bodhisattva
 
 (Sanskrit) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
@@ -107,7 +118,7 @@ See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
 ## Buddhistic
 
-"Of, relating to, or supporting [Buddhism](#buddhism)." (It turns out,) this is an actual word, so is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism," without implying that "Buddhism" is a fixed concept or object.
+"Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism," without implying that "Buddhism" is a fixed concept or object.
 
 See:
 [Fukanzazengi Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
@@ -133,9 +144,15 @@ Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese.
 
 ## Dainin
 
-Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#Katagiri).
+Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagiri).
 
 ## Demon
+
+## Denkoroku
+
+(Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Denkoroku)
 
 ## Dharma
 
@@ -292,7 +309,11 @@ The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](
 
 pronounced "Ah-bay"
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Masao_Abe)
+[Wikipedia link](https://en.wikipedia.org/wiki/Masao_Abe)<br>
+[Translation of Fukanzazengi by Norman Waddell and Masao Abe on terebess.hu](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
+
+See:
+[Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
 
 ## Nagarjuna
 
@@ -321,7 +342,7 @@ Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word 
 
 ## Patriarch
 
-Ancestor
+The Zen Ancestors
 
 ## Prajna
 

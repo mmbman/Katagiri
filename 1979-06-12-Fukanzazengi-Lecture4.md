@@ -7,11 +7,15 @@
 
 ##### 0:00 start of recording
 
-Toward the end of Fukanzazengi, as a conclusion, Dogen Zenji explains how important shikantaza is from a different angle, from [a] various way. So, little by little, we try to learn. "In surveying the past, we find that transcendence of both unenlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen." *[he repeats the quote]*
+Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen-zenji) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from [a] various way. So, little by little, we try to learn. 
 
-The notes given by Professor Abe ([Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe); see [translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](https://en.wikipedia.org/wiki/Denkoroku) that Bodhidharma and the fourth, fifth and sixth Chinese Zen patriarchs died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the Zen histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are, they died.
+> In surveying the past, we find that transcendence of both unenlightenment and [enlightenment](glossary#enlightenment), and dying while either [sitting](glossary#sitting) or standing, have all depended entirely on the strength of [zazen](glossary#zazen)." 
 
-So, Dogen Zenji really wants to [speak] about how important zazen is. That zazen is shikantaza. In shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
+*[he repeats the quote]*
+
+The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](glossary#denkoroku) that [Bodhidharma](glossary#bodhidharma) and the fourth, fifth and sixth Chinese Zen [patriarchs](glossary#patriarch) died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the [Zen](glossary#zen) histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are, they died.
+
+So, Dogen Zenji really wants to [speak] about how important zazen is. That zazen is [shikantaza](glossary#shikantaza). In shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
 
 ##### 4:37
 
@@ -41,13 +45,13 @@ This is very common. Very common.
 
 ##### 13:43
 
-So, for such people, they never thought [of the] significance of zazen, which causes all delusions to drop off from the first. They never thought [of] even glancing once at such a wonderful world. They don't care. That is okay. 
+So, for such people, they never thought [of the] significance of [zazen](glossary#zazen), which causes all delusions to drop off from the first. They never thought [of] even glancing once at such a wonderful world. They don't care. That is okay. 
 
 But it is not bad to glance at that wonderful world. Even once in your whole life; that's great. It's not bad. Even [if] you cannot have a chance to glance at this wonderful world even once in your whole life, [still] if you want to pursue this, it's not bad for us. Because life is going on. So life after life, we can do it. 
 
 ##### 15:14
 
-There is a Zen story in The Blue Cliff Record, the 46th case, this is a very famous Zen koan: 
+There is a [Zen](glossary#zen) story in [The Blue Cliff Record](glossary#blue-cliff-record), the 46th case, this is a very famous Zen [koan](glossary#koan): 
 
 > “Kyosei Zen Master (Chinese name Jingqing; Ching Ch’ing) asked a monk, “What sound is that outside the gate?” 
 > 
