@@ -28,7 +28,7 @@ It particularly focuses on analyzing and synthesizing what the [agama](glossary#
 
 (Sanskrit) āgama: sacred work or scripture.
 
-The Āgamas are collections of the teachings of Shakyamuni Buddha, originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
+The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
 
@@ -49,7 +49,7 @@ See
 
 ## Asanga
 
-Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of Mahayana Buddhism and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
+Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Asanga)
 
@@ -168,7 +168,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
@@ -246,7 +246,7 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 
 ## Fukanzazengi
 
-Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the cannonical guidance for practicing [zazen](#zazen) in the Soto Zen school.
+Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the cannonical guidance for practicing [zazen](#zazen) in the [Soto Zen](glossary#soto-zen ) school.
 
 See: [Fukanzazengi Lecture 1](1979-06-09-Fukanzazengi-Lecture1), etc.
 
@@ -281,7 +281,7 @@ See:
 
 ## Green Gulch
 
-Green Gulch Farm near San Francisco, California, one of the Soto Zen practice centers established by [Suzuki Roshi](#suzuki-roshi).
+Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#soto-zen ) practice centers established by [Suzuki Roshi](#suzuki-roshi).
 
 See 
 [Fukanzazengi Lecture 3 (59:40)](1979-06-11-Fukanzazengi-Lecture3#5940)
@@ -414,6 +414,7 @@ According to Edward Conze, the Prajñāpāramitā Sutras are "a collection of ab
 See [Prajnaparamita](glossary#prajnaparamita) 
 
 
+## Primitive Buddhism
 ## Rinzai Zen
 
 ## Roshi
@@ -434,7 +435,7 @@ Sandhinirmocana Sutra. [Wikipedia link](https://en.wikipedia.org/wiki/Sandhinirm
 
 ## San Francisco Zen Center
 
-The Soto Zen temple in San Francisco where Katagiri worked with Suzuki Roshi in the 60's. 
+The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with Suzuki Roshi in the 60's. 
 
 See:
 [Fukanzazengi Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
@@ -473,7 +474,7 @@ See:
 
 ## Shikantaza
 
-A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in Soto Zen, so Katagiri discusses it frequently.
+A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
 
 See: 
 [Fukanzazengi Lecture 2 (25:09)](1979-06-10-Fukanzazengi-Lecture2#2509),
@@ -566,9 +567,10 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 "Seated meditation"
 
 ## Zen
-
+## Zen Buddhism
 ## Zen Master
 
+## Zen Practice
 ## Zendo
 
 ## Zenji

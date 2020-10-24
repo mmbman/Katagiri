@@ -85,7 +85,7 @@ You are already under this core, under this huge tree. It's vast; *huge* tree. B
 
 ##### 28:39
 
-So that is [what is] called [Buddha Nature](glossary#buddha-nature) . And also, what is Buddha Nature? If you want to know psychologically, that is called alayavijñāna, in Buddhist psychology. Or sometimes, primitive Buddhism says that [it] is karma. Karma is completely beyond good or bad, right and wrong. But simultaneously, karma is something which is very powerful to carry your life in [the] samsaric world. But on the other hand, karma is – anyway, if you want to know karma, you have to go back into beginning-less past, and endless future. Finally, no [object?]. What is karma? No [object?]. But karma is [real?]. How do you know? [*unintelligible*] You [can? can't?] know. 
+So that is [what is] called [Buddha Nature](glossary#buddha-nature) . And also, what is Buddha Nature? If you want to know psychologically, that is called alayavijñāna, in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that [it] is karma. Karma is completely beyond good or bad, right and wrong. But simultaneously, karma is something which is very powerful to carry your life in [the] samsaric world. But on the other hand, karma is – anyway, if you want to know karma, you have to go back into beginning-less past, and endless future. Finally, no [object?]. What is karma? No [object?]. But karma is [real?]. How do you know? [*unintelligible*] You [can? can't?] know. 
 
 ##### 30:00
 

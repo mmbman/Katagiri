@@ -7,17 +7,17 @@
 
 ##### 0:00 start of recording
 
-[The] main subject [of] Case 1, I read already yesterday. This is a very famous story in Zen Buddhism, so I think most of you know [it] pretty well. 
+[The] main subject [of] Case 1, I read already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism ), so I think most of you know [it] pretty well. 
 
 > Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma), “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
 
 ##### 1:05
 
-In the history of [Bodhidharma](glossary#bodhidharma), it is said that Bodhidharma went to China in about 520 (AD). Of course there are several different opinions about the definite year when Bodhidharma went to China, but anyway, about 520 he went to China to teach Buddhism. So that was the first time which the seed of Zen Buddhism was planted in China. That’s why this event was very important for Zen Buddhism. 
+In the history of [Bodhidharma](glossary#bodhidharma), it is said that Bodhidharma went to China in about 520 (AD). Of course there are several different opinions about the definite year when Bodhidharma went to China, but anyway, about 520 he went to China to teach [Buddhism](glossary#buddhism). So that was the first time which the seed of [Zen Buddhism](glossary#zen-buddhism ) was planted in China. That’s why this event was very important for Zen Buddhism. 
 
-That’s why, if you read the Zen koans, the Zen monks always bring up the question, “What is the meaning of [Bodhidharma](glossary#bodhidharma) coming to China [to] teach Zen Buddhism?” What for? [Why] did Bodhidharma go to China and teach? For many, many years, this question is very important in Zen Buddhism. Many monks discuss about this. 
+That’s why, if you read the Zen koans, the Zen monks always bring up the question, “What is the meaning of [Bodhidharma](glossary#bodhidharma) coming to China [to] teach [Zen Buddhism](glossary#zen-buddhism )?” What for? [Why] did Bodhidharma go to China and teach? For many, many years, this question is very important in Zen Buddhism. Many monks discuss about this. 
 
-It looks like the same question according to Christianity, for instance, “Why is it that God is incarnated as a human, named Jesus?” Same question. I don’t want to explain this today. But, that’s why in Zen Buddhism, this is very important for a Zen teacher.
+It looks like the same question according to Christianity, for instance, “Why is it that God is incarnated as a human, named Jesus?” Same question. I don’t want to explain this today. But, that’s why in [Zen Buddhism](glossary#zen-buddhism ), this is very important for a Zen teacher.
 
 ##### 3:33
 
@@ -29,7 +29,7 @@ Well, while this is a very natural question, his natural question has a lot of m
 
 ##### 6:13
 
-In not only Zen Buddhism, [but] in general Buddhism, [the] most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not [the] *most* important. If you have individual questions and understanding or experience, the most important [point] in Buddhism [is] how you must be free from this individual experience [and] individual understanding. You have to break through the barrier of individual, personal understanding. That is a Buddhistic way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even [if] you believe you experience [a] religious state of what is divinity, or Buddha, or [Avalokiteshvara](glossary#avalokiteshvara), through zazen – whatever you say, well that is [just] that. That is not important. [The] most important point is, you have to break through this barrier of personal, individual experience or understanding.
+In not only [Zen Buddhism](glossary#zen-buddhism ), [but] in general [Buddhism](glossary#buddhism), [the] most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not [the] *most* important. If you have individual questions and understanding or experience, the most important [point] in Buddhism [is] how you must be free from this individual experience [and] individual understanding. You have to break through the barrier of individual, personal understanding. That is a [Buddhistic](glossary#buddhistic ) way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even [if] you believe you experience [a] religious state of what is divinity, or Buddha, or [Avalokiteshvara](glossary#avalokiteshvara), through zazen – whatever you say, well that is [just] that. That is not important. [The] most important point is, you have to break through this barrier of personal, individual experience or understanding.
 
 Because, there is always a language by which a world is established and understood. Without words, without language, there is no world you can understand. Only through language, we can establish a [style] of human life, we can establish the human world, we can communicate with each other. Without words or language ... there is no way to communicate. 
 
@@ -204,7 +204,7 @@ If the essence of the truth in this sense is nothing, or empty, or nothing holy,
 
 The note says, “Wu is filled with embarrassment, forcing himself to be astute. As it turns out, he gropes without finding.” 
 
-According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied Buddhism for a long time, and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
+According to the Emperor’s feeling, maybe he tried to be astute ... because he trusts in himself. He has studied [Buddhism](glossary#buddhism) for a long time, and building the temples, educating the monks; that’s why he’s proud of himself, so much. Still, he is continuing acting, trying to be smart. 
 
 ##### 44:44
 
@@ -246,7 +246,7 @@ But how can [we] understand? He is [Bodhidharma](glossary#bodhidharma)? Or he is
 
 So finally, language completely drops off; what [or] who he is. That's why he said, “I don’t know.” But “I don’t know” is really looking at the direct reality, [the] reality in which [Bodhidharma](glossary#bodhidharma) really exists from day to day. 
 
-Why he comes to China to teach Buddhism – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. 
+Why he comes to China to teach [Buddhism](glossary#buddhism) – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. 
 
 [For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of zazen for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
 
@@ -266,7 +266,7 @@ So, Mahasattva [Avalokiteshvara](glossary#avalokiteshvara). [Bodhidharma](glossa
 
 So, the [Zen Master](glossary#zen-master) says, “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.” 
 
-Because, the [Zen Master](glossary#zen-master) knows pretty well, that is Emperor Wu’s understanding of Buddhism: the essence of the truth is always someplace, somewhere apart from his life. Building up the temples? "Oh, there is merit, Buddha’s merit, there. Buddha and [Avalokiteshvara](glossary#avalokiteshvara) exist there." And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
+Because, the [Zen Master](glossary#zen-master) knows pretty well, that is Emperor Wu’s understanding of [Buddhism](glossary#buddhism): the essence of the truth is always someplace, somewhere apart from his life. Building up the temples? "Oh, there is merit, Buddha’s merit, there. Buddha and [Avalokiteshvara](glossary#avalokiteshvara) exist there." And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
 
 So that’s why the [Zen Master](glossary#zen-master) said, “[Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is [Avalokiteshvara](glossary#avalokiteshvara)!” [The Emperor] was very surprised: “Oh, I missed [it]!” So he immediately tried to send someone to get him back. But the Zen Master says, “Don’t do that. Don’t do that.” Because if you do this, you are looking for the truth outside. The truth never comes back; never goes away. Even though you say, “I don’t want the truth.” 
 
@@ -292,11 +292,11 @@ For instance, Zen stories; there are lots of Zen stories like this. A [Zen Maste
 
 And then the [Zen Master](glossary#zen-master) ... He’s put the picture here, and then asks the monks, “You cannot say this is picture; you cannot say this is not picture. Don’t use your words; say something!” And he’ll pick up somebody, and then shaking him like, “Say something!” 
 
-Can you say so? This is [the] Zen world. This is Rinzai; Rinzai always attacks somebody, and [says] "no words". If you realize the truth, then nothing to say. But Rinzai doesn’t want you to stay [there]. So immediately, you have to say something.
+Can you say so? This is [the] Zen world. This is [Rinzai](glossary#rinzai-zen ); Rinzai always attacks somebody, and [says] "no words". If you realize the truth, then nothing to say. But Rinzai doesn’t want you to stay [there]. So immediately, you have to say something.
 
 ##### 59:53
 
-But Soto Zen is a little different. We know pretty well, "You have to say something here, say something," shaking [him], “Say something, say something!” – Even though you say something, it doesn’t connect; it has nothing to do with your daily living. *[he laughs]* [Your] daily living is very stinky, even though, “I pass the koan.” 
+But [Soto Zen](glossary#soto-zen ) is a little different. We know pretty well, "You have to say something here, say something," shaking [him], “Say something, say something!” – Even though you say something, it doesn’t connect; it has nothing to do with your daily living. *[he laughs]* [Your] daily living is very stinky, even though, “I pass the koan.” 
 
 So demonstrate, kicking out the picture, break it. And then the [Zen Master](glossary#zen-master) says, “You pass the koan.” Then, you will be given a [certificate?], which is called [kenshō?]. You passed one koan. Well of course, it’s very nice, it’s very nice. We know this pretty well; [Dogen](glossary#dogen) [Zenji](glossary#zenji) knows [it] pretty well. But it has nothing to do with this man who is right in the middle of reality! Nothing! 
 
@@ -316,13 +316,13 @@ It’s not necessary to kill the cat. But in a sense, “to kill the cat” is g
 
 ##### 1:04:55
 
-Even in shikantaza, just doing the sitting doesn’t mean that you ignore such experience of Zen Buddhism. That’s why we have to study; we have to understand [Blue Cliff Record](glossary#blue-cliff-record). Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything, but this silence is not silence. We can show.
+Even in shikantaza, just doing the sitting doesn’t mean that you ignore such experience of [Zen Buddhism](glossary#zen-buddhism ). That’s why we have to study; we have to understand [Blue Cliff Record](glossary#blue-cliff-record). Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything, but this silence is not silence. We can show.
 
 That’s why Zen always denies the words, always points out the world beyond verbal explanation. But it doesn’t mean ignoring the words, because it’s not necessary to be bogged down with words. Without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words – kind of the words – because we get used to understanding ourselves pretty easily through the words. But anyway, we have to come to our experience of no words. At that time, nothing to say. You have to experience it. 
 
 And then, nevertheless, you cannot stay there. You have to say [something]. Because you cannot exist alone; you have to communicate with people. How can you communicate? Just using the words in the usual way, that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always [what] Zen emphasizes. 
 
-If you study [Blue Cliff Record](glossary#blue-cliff-record), maybe you can grab that real spirit of Zen Buddhism. Beyond denomination: Rinzai, Soto. Anyway, out of general Buddhism, we have to understand [the] Zen path. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of zazen in terms of general Buddhism mentioned by Buddha. 
+If you study [Blue Cliff Record](glossary#blue-cliff-record), maybe you can grab that real spirit of [Zen Buddhism](glossary#zen-buddhism ). Beyond denomination: [Rinzai](glossary#rinzai-zen ), [Soto](glossary#soto-zen ). Anyway, out of general Buddhism, we have to understand [the] Zen path. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of zazen in terms of general Buddhism mentioned by Buddha. 
 
 Questions? 
 

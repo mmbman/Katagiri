@@ -155,7 +155,7 @@ But not always; we cannot [always] believe in that way. For instance, even thoug
 
 According to empathy ... that understanding is a mistake, a misunderstanding, because... if morning sunlight makes you happy, at that time you believe a morning sun rising has a mind, as your mind. According to empathy, psychology, this is a misunderstanding, this is a delusion. Because, you project yourself into the morning sun and then you believe that it seems to have a mind, but actually it is the morning sun, apart from you. [That] is [the] psychological understanding, but [that] is a misunderstanding ... broadly speaking, because we distinguish between subject and object. If you see or accept subject and object separately, always there is ... not [a] warm feeling of the world, not [a] feeling of warmness communicating between the subject and object. 
 
-So [an] important point is, if you see the morning sun and the morning sun makes you happy, at that time, whatever you think intellectually, morning sun has mind, has a feeling. That feeling is completely universal. That feeling is something through which we can have mutual rapport between morning sun and you. Psychologically, this is universal consciousness, or according to Buddhism, that is Buddha nature. 
+So [an] important point is, if you see the morning sun and the morning sun makes you happy, at that time, whatever you think intellectually, morning sun has mind, has a feeling. That feeling is completely universal. That feeling is something through which we can have mutual rapport between morning sun and you. Psychologically, this is universal consciousness, or according to Buddhism, that is [Buddha Nature](glossary#buddha-nature). 
 
 So, the morning sun, the subject, trees, all sentient beings, have feeling, universal feeling, as well as we have. That's why we can communicate with each other. 
 
@@ -183,11 +183,11 @@ Through the wisdom, you don't participate in your object, but, through the wisdo
 
 ... another one is, aesthetic contemplation. This is kind of [a] religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
 
-Religiously, particularly in Buddhism... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because ... you merge yourself into your object with your wisdom. Not carelessly; you don't participate at random. You participate in [it] very carefully, with wisdom. [You] merge yourself into your object.
+Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because ... you merge yourself into your object with your wisdom. Not carelessly; you don't participate at random. You participate in [it] very carefully, with wisdom. [You] merge yourself into your object.
 
 So, even though you participate, this participation is not *defiled* participation [or] human activity. This is *undefiled* human activity. So this is religious activity. 
 
-That's why, according to Buddhism, the subject is no perception of subject, [and the] object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means [the] object is nothing but provisional being. 
+That's why, according to [Buddhism](glossary#buddhism), the subject is no perception of subject, [and the] object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means [the] object is nothing but provisional being. 
 
 But provisional being is not to defile [the] object, not to ignore [the] existence of your object. You should take care of your object. *How*? This is the practice, how. 
 
@@ -265,7 +265,7 @@ But if we say [it] like this, immediately we say there is something which exists
 
 Finally, self is broad, but what is that? I cannot explain. But, it's there. It's there, but it is not something which exists eternally, because you cannot pin down what it is. 
 
-Buddhism is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. That means, understanding everything working dynamically leads you to touch the core of real life. Which is fully alive. Fully alive.
+[Buddhism](glossary#buddhism) is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. That means, understanding everything working dynamically leads you to touch the core of real life. Which is fully alive. Fully alive.
 
 ##### 1:05:11 end of recording
 

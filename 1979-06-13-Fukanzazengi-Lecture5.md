@@ -34,7 +34,7 @@ After that, [a] little moment, immediately you can hear the sound of raindrops, 
 
 I have a scar here *[indicating a place on his head]*. When I was a child, I struck my head on the corner of a rock. I played with one of my friends two years older than I. So I jump in, and that is [the] foundation of the house, almost more than ten square foundation rocks there, exactly square. So I played with him, jumping [on them] one by one. And then I missed, stumbled over, [and] hit here. But when I hit – I didn't feel anything. I couldn't cry; just hit. That means I felt just a big shock – *boom*, that's all, around here. Then a few minutes later I touch it here, and then feel a big bump here, and also, blood comes out. And then I started crying. *[he laughs]* I was nine years old or so. I touched it here because I got the big shock here; so, what happened? [I] touched [it] here, and then I realized a big bump [was] here, looked up, and blood comes. So, I cried. 
 
-This looks like watching a slow-motion movie. But, when you experience [it], human experience simultaneously happens. But Zen Buddhism always focuses on, not before, not after: right in the middle of. Hitting rock. At that time, there is no pain. Completely no pain, no suffering. Just happens.
+This looks like watching a slow-motion movie. But, when you experience [it], human experience simultaneously happens. But [Zen Buddhism](glossary#zen-buddhism ) always focuses on, not before, not after: right in the middle of. Hitting rock. At that time, there is no pain. Completely no pain, no suffering. Just happens.
 
 ##### 12:04
 
@@ -52,7 +52,7 @@ For instance, if you do [zazen](glossary#zazen), you feel [a person?]. And then 
 
 Or sometimes, lots of emotions come up: hatred, anger; [so] you cannot stand up in [zazen](glossary#zazen) such as religious zazen. But this is really your life, don't you think so? It's really your life. That's why you can see your life through zazen. And then this is not your .... life in the zazen. It is not your life in zazen, it is your *whole* life, in the past, in the future, if you deal with your life in that way. So if you see your zazen with ... anger, hatred, and [boredom?], lots of emotions: this is your life. And also you should realize how you handled your life. You handled your life just like this in the past. And you have handled [it] so far [like this]. And also you will [handle it like this] – if you don't realize. 
 
-And also, sometimes, even though you don't understand what [zazen](glossary#zazen) is, you really believe zazen, and jump into it, believing zazen is Buddha. This is great; so, in a sense, you can create [a] new life. That is, in your life, you handled in the past like this, and also you have handled so far like this, and you will handle in that way. 
+And also, sometimes, even though you don't understand what [zazen](glossary#zazen) is, you really believe zazen, and jump into it, believing zazen is [Buddha](glossary#buddha). This is great; so, in a sense, you can create [a] new life. That is, in your life, you handled in the past like this, and also you have handled so far like this, and you will handle in that way. 
 
 ##### 17:07
 
@@ -94,9 +94,9 @@ That's why ... if [Seppō](glossary#seppō-gison) asked him, "Who are you? What 
 
 ##### 26:10
 
-And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So [Seppō](glossary#seppō-gison) [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach Buddhism. This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some [Zen Master](glossary#zen-master) says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
+And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So [Seppō](glossary#seppō-gison) [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach [Buddhism](glossary#buddhism). This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some [Zen Master](glossary#zen-master) says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
 
-So completely [the] answer is, all of the questions. Because Buddhism is focused on [zazen](glossary#zazen) itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
+So completely [the] answer is, all of the questions. Because [Buddhism](glossary#buddhism) is focused on [zazen](glossary#zazen) itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
 
 ##### 29:06
 
@@ -476,27 +476,27 @@ Okay?
 
 ##### 1:25:31
 
-**Question**: Roshi? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach [zazen](glossary#zazen) is what I would call a very pure point of view. Like, if you're going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us by ... saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in Tibetan Buddhism, how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
+**Question**: Roshi? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach [zazen](glossary#zazen) is what I would call a very pure point of view. Like, if you're going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us by ... saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in [Tibetan Buddhism](glossary#tibetan-buddhism ), how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
 
 **Katagiri**: Well, I don't know; I'm talking about the [zazen](glossary#zazen) in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. *[he laughs]* Now ... I don't mean that I try to escape. Because we have to be centered. If you're not centered, whatever kind of [thing] you do, you are confused. So important point is, you must be centered. If you are centered, you can handle many things in [a] proper way. So, my focus is ... the zazen in which we must be free, perfectly free. 
 
-So, *[he laughs]* if you're involved in lots of things, [lots of] techniques – well, that's endless. Endlessly, there are lots of techniques. So of course, Buddhism teaches in that way, but [the] main focus of Buddhism, [the] Buddhist system, is not being constantly involved in the technique like this. So if you're interested in that sort of technique, you must go someplace [else]. Yoga [for example], because Yoga is better than Buddhism [for that].
+So, *[he laughs]* if you're involved in lots of things, [lots of] techniques – well, that's endless. Endlessly, there are lots of techniques. So of course, [Buddhism](glossary#buddhism) teaches in that way, but [the] main focus of Buddhism, [the] Buddhist system, is not being constantly involved in the technique like this. So if you're interested in that sort of technique, you must go someplace [else]. Yoga [for example], because Yoga is better than Buddhism [for that].
 
 **Same person**: But it seems like it would be encouraging to...
 
 **Katagiri**: Of course; that's why I suggest you to go to the Yoga and study. But I don't know that Yoga perfectly allows you to be free. I don't know.
 
-**Same person**: Yeah, I believe that. For me, I believe that Zen is the most direct and purest...
+**Same person**: Yeah, I believe that. For me, I believe that [Zen](glossary#zen ) is the most direct and purest...
 
 **Katagiri**: No, I don't believe so. *[he laughs]* [If] you believe [it], that's okay. *[group laughter]*
 
 **Same person**: Okay.
 
-Well, how about, for instance, some of these Rinzai teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from dualism; that's "me" having satori, and so that's dualistic satori, that's not real satori.
+Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from dualism; that's "me" having satori, and so that's dualistic satori, that's not real satori.
 
 **Katagiri**: Yes, yes. Okay, sure.
 
-**Same person**: But it might be encouraging to have dualistic satori, just to understand it. In Rinzai they say, it's important to have that understanding, to know what's going on.
+**Same person**: But it might be encouraging to have dualistic satori, just to understand it. In [Rinzai](glossary#rinzai-zen ) they say, it's important to have that understanding, to know what's going on.
 
 **Katagiri**: Right, right. Right.
 
@@ -504,7 +504,7 @@ Well, how about, for instance, some of these Rinzai teachers, like Kapleau and s
 
 *[there is some crosstalk]*
 
-**Katagiri**: Yes, beautiful. That's why Rinzai emphasizes, "Why don't you attain enlightenment?" So, if the enlightenment is beautiful, it's okay. 
+**Katagiri**: Yes, beautiful. That's why [Rinzai](glossary#rinzai-zen ) emphasizes, "Why don't you attain enlightenment?" So, if the enlightenment is beautiful, it's okay. 
 
 **Same person**: But you're still saying that that's dualistic enlightenment, and so that's unnecessary. 
 

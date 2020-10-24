@@ -35,7 +35,7 @@ Also number six is, I told you yesterday ... the whole personality, or total per
 
 So, total personality. The total personality has [a] double face. One is karma; you have carried [this] from the past. And also, the other face is that total personality [which] is completely beyond human criticism. That is really [Buddha Nature](glossary#buddha-nature). 
 
-So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is Buddha Nature. If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
+So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is [Buddha Nature](glossary#buddha-nature). If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
 
 ##### 6:20
 
@@ -99,7 +99,7 @@ So when you see the breath: long breath, you should take your long breath. Short
 
 ##### 21:39
 
-So, this regulation of the mind doesn't connect with this. Of course, it connects, because this is regulation of the mind, it is really close relation with number three, regulation of the body. The body and mind are one; so that's why it's very close. But if you completely practice the regulation of the mind based on samadhi and egolessness, and no design on having any reward – at that time, you don't know. You cannot perceive what total personality is. What is it that Buddha nature is? You can see it. But you don't know what it is.
+So, this regulation of the mind doesn't connect with this. Of course, it connects, because this is regulation of the mind, it is really close relation with number three, regulation of the body. The body and mind are one; so that's why it's very close. But if you completely practice the regulation of the mind based on samadhi and egolessness, and no design on having any reward – at that time, you don't know. You cannot perceive what total personality is. What is it that [Buddha Nature](glossary#buddha-nature) is? You can see it. But you don't know what it is.
 
 So ... it doesn't connect. In a sense it connects; but it doesn't connect totally. So you don't know what it is.
 
@@ -111,7 +111,7 @@ This is [shikantaza](glossary#shikantaza). Shikan taza. *[he writes it on the bo
 
 ##### 25:09
 
-That is really Buddha's zazen. As a religion – not philosophical, not psychological. That [shikantaza](glossary#shikantaza) is Buddha's zazen, religious zazen. "Taza" is just to hit, right in the middle of [the] head, of zazen. Completely beyond ... whether you can know or you can't know, it's completely beyond. You have to hit [it]. That is just the practice. "Taza" is just do it, *actually you have to do* [it], right now. That's it. 
+That is really [Buddha](glossary#buddha)'s zazen. As a religion – not philosophical, not psychological. That [shikantaza](glossary#shikantaza) is Buddha's zazen, religious zazen. "Taza" is just to hit, right in the middle of [the] head, of zazen. Completely beyond ... whether you can know or you can't know, it's completely beyond. You have to hit [it]. That is just the practice. "Taza" is just do it, *actually you have to do* [it], right now. That's it. 
 
 So, that is shikantaza. "Shikan" is egolessness, or samadhi. If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; [a] mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[unintelligible]* we have to practice samadhi in zazen. 
 
@@ -151,7 +151,7 @@ So all things, anyway, cut off. Cut off means [in their place], put them aside. 
 
 **Same person**: Where do they appear?
 
-**Katagiri**: Well, that is, the regulation of body, regulation of the breath, regulation of mind – the teaching of [Zen Buddhism](glossary#zen), the practice of [zazen](glossary#zazen), through regulation. So that's why I want to explain that. [Those] six categories [are] very common category according to psychology. *[unintelligible]*
+**Katagiri**: Well, that is, the regulation of body, regulation of the breath, regulation of mind – the teaching of [Zen Buddhism](glossary#zen-buddhism), the practice of [zazen](glossary#zazen), through regulation. So that's why I want to explain that. [Those] six categories [are] very common category according to psychology. *[unintelligible]*
 
 **Same person**: I see.
 
@@ -179,7 +179,7 @@ So that's why the regulation of the mind, that is very important.
 
 ##### 37:18
 
-So from this point, it's pretty easy. No difficulty. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, there is faith – if you believe total personality, or Buddha nature, whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no suffering. No suffering, no confusion, no agitation, et cetera. Completely perfect. 
+So from this point, it's pretty easy. No difficulty. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, there is faith – if you believe total personality, or [Buddha Nature](glossary#buddha-nature), whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no suffering. No suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 So it's pretty easy, in a sense. But in a sense, according to [the] six consciousnesses, it's pretty hard. Because, in the six consciousnesses, we can understand our life according to [the] huge pile of experiences which you have accumulated. That's why it's pretty hard. 
 
@@ -269,7 +269,7 @@ That's a point, but in daily living, [it's] a little different. For instance a w
 
 **Question**: Well, how does this compare with... Let's say you read [Kapleau Roshi](glossary#kapleau-roshi)'s books, and a [Rinzai](glossary#rinzai-zen) approach is to just force yourself continually to break through and find some kind of enlightenment. Do you see any merit in that, or are you saying that that isn't necessary? 
 
-**Katagiri**: Yes, it's necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, this and that, [samadhi](glossary#samadhi), you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen; through zazen you have to attain enlightenment, that's why teachers push you so hard. That means, you are [Buddha](glossary#buddha), but you are not Buddha *now*, so why don't you attain enlightenment? *[there are a couple "mmm's" of understanding in the group]* So, the subject is already seen in the dualistic world. And also, zazen is seen in the dualistic world. 
+**Katagiri**: Yes, it's necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, this and that, [samadhi](glossary#samadhi), you can attain enlightenment. According to [Rinzai](glossary#rinzai-zen ), maybe that is the main purpose of zazen; through zazen you have to attain enlightenment, that's why teachers push you so hard. That means, you are [Buddha](glossary#buddha), but you are not Buddha *now*, so why don't you attain enlightenment? *[there are a couple "mmm's" of understanding in the group]* So, the subject is already seen in the dualistic world. And also, zazen is seen in the dualistic world. 
 
 Well of course, it is okay. But final stage is not [that] zazen and subject and object [should] be seen in the dualistic world. We have to take care of subject and object according to the total personality. We have to settle ourselves in total personality, from the beginning to end. 
 
@@ -337,7 +337,7 @@ Is that clear? Is that okay?
 
 ##### 1:03:07
 
-**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher ... and his teaching; [Dogen](glossary#dogen), Buddha; again and again you're doing the calligraphy, until it's like the teacher's calligraphy?
+**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher ... and his teaching; [Dogen](glossary#dogen), [Buddha](glossary#buddha); again and again you're doing the calligraphy, until it's like the teacher's calligraphy?
 
 **Katagiri**: Mmm hmm. I think so; that is the best way. 
 
@@ -345,15 +345,15 @@ Is that clear? Is that okay?
 
 *Katagiri*: Yes. That is, well, you can attain enlightenment, that is but poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, [there are] many kinds of enlightenment. 
 
-So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by Buddha, and [Dogen](glossary#dogen), et cetera.
+So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by [Buddha](glossary#buddha), and [Dogen](glossary#dogen), et cetera.
 
-**Same person**: Our connection to [Dogen](glossary#dogen) and Buddha is for you...
+**Same person**: Our connection to [Dogen](glossary#dogen) and [Buddha](glossary#buddha) is for you...
 
-**Katagiri**: Teacher is Buddha, and [Dogen](glossary#dogen), and [patriarch](glossary#patriarch), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
+**Katagiri**: Teacher is [Buddha](glossary#buddha), and [Dogen](glossary#dogen), and [patriarch](glossary#patriarch), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
 
 ##### 1:05:15
 
-**Question**: Roshi? Is that why you don't see Zen emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva), and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that. And like [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
+**Question**: Roshi? Is that why you don't see [Zen](glossary#zen ) emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva), and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that. And like [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
 
 **Katagiri**: Sure. Even though I don't emphasize, right, we are within [them] already. Don't you think so?
 
@@ -509,7 +509,7 @@ So if you are always with first grade child who is master of calligraphy, you be
 
 ##### 1:27:20
 
-**Question**: Is that true on various levels? Like right now, we're working at the level of discussion and lecture; but does the Zen teacher work with the students at deeper levels of mind as well? In other words, as we sit and practice with you year after year, are we talking about more subtle and deeper qualities too? 
+**Question**: Is that true on various levels? Like right now, we're working at the level of discussion and lecture; but does the [Zen](glossary#zen ) teacher work with the students at deeper levels of mind as well? In other words, as we sit and practice with you year after year, are we talking about more subtle and deeper qualities too? 
 
 **Katagiri**: That means, teacher... 
 
@@ -519,9 +519,9 @@ So if you are always with first grade child who is master of calligraphy, you be
 
 **Same person**: I mean, just sitting with you in zazen, hour after hour, my feeling is that there are deeper levels of being that also go on during [sesshin](glossary#sesshin).
 
-**Katagiri**: Uh-huh. Uh, no. You cannot say that the teacher is always having the Zen exactness and wonderful zazen – no. [What] even the teacher has to do, is to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even [for] the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
+**Katagiri**: Uh-huh. Uh, no. You cannot say that the teacher is always having the [Zen](glossary#zen ) exactness and wonderful zazen – no. [What] even the teacher has to do, is to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even [for] the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
 
-**Same person**: Yeah, I hear you saying that about your own zazen, it sounds like. But I'm asking, I guess: doesn't the teacher, when you're sitting with 30 of us, doesn't the Zen teacher also work with the students at deeper levels of mind?
+**Same person**: Yeah, I hear you saying that about your own zazen, it sounds like. But I'm asking, I guess: doesn't the teacher, when you're sitting with 30 of us, doesn't the [Zen](glossary#zen ) teacher also work with the students at deeper levels of mind?
 
 Or is that something that you don't want to talk about?
 

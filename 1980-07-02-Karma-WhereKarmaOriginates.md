@@ -119,7 +119,7 @@ In daily life, we don’t… the consciousness… we don’t know, we don’t ha
 
 ##### 39:55
 
-But problem is, maybe you think, return to home is pretty easy. I don’t think it’s pretty easy. If you return home, maybe you will complain for months. Because if you return you, return home - completely nothing. Nothing. That’s why you complain, grumble at such a situation. And then finally, what you are doing, when you come back home, you are always thinking. You are checking out the thoughts, and you are roaming around. According to Buddhism.
+But problem is, maybe you think, return to home is pretty easy. I don’t think it’s pretty easy. If you return home, maybe you will complain for months. Because if you return you, return home - completely nothing. Nothing. That’s why you complain, grumble at such a situation. And then finally, what you are doing, when you come back home, you are always thinking. You are checking out the thoughts, and you are roaming around. According to [Buddhism](glossary#buddhism).
 
 First stage of Zen… There are four stages of Zen… In the first stage of Zen, all unwholesome dharma - unwholesome dharma means unwholesome things, including physical and mental, or whatever it is - if you get into zazen meditation, in the first stage of zazen, you can experience no unwholesome thing. Because you don’t bring up; it’s really true, if you sit down like this. Maybe you cannot do anything, because your legs are cross-legged, crossing each other; your hands are like, you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, so you can’t see anybody, facing wall. And also your thinking is coming and sitting in zazen. So all things come back to zazen; nothing you can do. You cannot do. 
 
@@ -135,7 +135,7 @@ Well, if you return home exactly, you can experience, because this is what Buddh
 
 *[tape change]* 
 
-You start to poke ahead into that joy. Because you don’t know, you don’t know, but you feel something. So you start to poke your head into joy. That is pīti in Sanskrit (see https://en.wikipedia.org/wiki/Pīti); joyful interest (or intellect?). But joyful interest is still your six consciousness always walking; that’s why you start to poke your head into joyful interest. But happiness is not next, still you can experience happiness. Happiness is completely… Happiness means samādhi, being one with zazen. That is what is called happiness, in Buddhism. 
+You start to poke ahead into that joy. Because you don’t know, you don’t know, but you feel something. So you start to poke your head into joy. That is pīti in Sanskrit (see https://en.wikipedia.org/wiki/Pīti); joyful interest (or intellect?). But joyful interest is still your six consciousness always walking; that’s why you start to poke your head into joyful interest. But happiness is not next, still you can experience happiness. Happiness is completely… Happiness means samādhi, being one with zazen. That is what is called happiness, in [Buddhism](glossary#buddhism). 
 
 ##### 47:33
 

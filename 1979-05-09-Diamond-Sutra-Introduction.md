@@ -27,9 +27,9 @@ During the first and the second centuries, there were several great organizers a
 
 So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossary#diamond-sutra). It's full name is Vajracchedikā Prajñāpāramitā Sūtra.
 
-This sutra sets forth the doctrine of [shunyata](glossary#shunyata) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in Zen Buddhism. 
+This sutra sets forth the doctrine of [shunyata](glossary#shunyata) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism ). 
 
-We don't know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in Buddhism, strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [agamas](glossary#agama), \[or] [Nikayas](glossary#nikaya) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
+We don't know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and patriarchs. So absolutely no direct Buddha's teaching mentioned. Even the [agamas](glossary#agama), \[or] [Nikayas](glossary#nikaya) – [there are] four kinds of agamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those agamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
 
 ##### 10:17
 
@@ -37,7 +37,7 @@ At the first conference and the second conference and the third conference after
 
 Within the [agamas](glossary#agama), it was based on [Buddha](glossary#shakyamuni-buddha) 's teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), no-self, and nirvana. Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
 
-So in [the] [agama](glossary#agama) sutras, those four dharma seals were described. And then [within] the development of Buddhism, you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in [the] [agama](glossary#agama) sutras, those four dharma seals were described. And then [within] the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
@@ -74,12 +74,12 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 [Prajnaparamita](glossary#prajnaparamita): wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
-In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when Buddhism is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain [Prajnaparamita](glossary#prajnaparamita) 
+In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain [Prajnaparamita](glossary#prajnaparamita) 
  not conceptually, [but] very practically. 
 
 ##### 23:12
 
-For instance, you know the koan; Zen Buddhists always use a koan, but this koan is really based on Buddhist philosophy mentioned by [Prajnaparamita](glossary#prajnaparamita) 
+For instance, you know the koan; [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on Buddhist philosophy mentioned by [Prajnaparamita](glossary#prajnaparamita) 
  sutra: "Mountain is mountain, mountain is not mountain, but mountain is mountain." Very practically they explain [it using the example of] Zen monks, just like this, for instance... 
 
 ##### 24:10
@@ -104,7 +104,7 @@ Existential fact is very vast, very vast. Which is never limited by a certain th
 
 ##### 31:11 
 
-For instance, here is a paper, white paper. At that time you say immediately, "this is white paper." But, we don't say "white paper". If we say "this is white paper," ... you understand only white paper. Buddhism immediately says, "this is not white." "Not white" means to bring the other colors into your mind. "Not white" doesn't mean to destroy white; "not white" means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means, white paper, white color, doesn't exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. That is negation. That's why we have to negate first. White is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
+For instance, here is a paper, white paper. At that time you say immediately, "this is white paper." But, we don't say "white paper". If we say "this is white paper," ... you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, "this is not white." "Not white" means to bring the other colors into your mind. "Not white" doesn't mean to destroy white; "not white" means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means, white paper, white color, doesn't exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. That is negation. That's why we have to negate first. White is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
 
 ##### 33:04
 
@@ -116,9 +116,9 @@ If you understand eyes are eyes, this is [the] first stage; this is very concept
 
 ##### 35:44
 
-I told you always, in Zen practice: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
+I told you always, in [Zen practice](glossary#zen-practice ): Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
-... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands. You have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don't think that "Oh, I can play guitar." Buddhism says, "No. You cannot play the guitar." – "But I can play the guitar!" – "It's not good enough." *[he chuckles]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
+... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands. You have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don't think that "Oh, I can play guitar." [Buddhism](glossary#buddhism ) says, "No. You cannot play the guitar." – "But I can play the guitar!" – "It's not good enough." *[he chuckles]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
 
 Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, you are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" Simple question: "How come? I am poet. I am writer." Of course you are writer, you are musician. But – *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do [it]. 
 

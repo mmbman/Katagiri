@@ -13,13 +13,13 @@
 
 ##### 2:38
 
-I think you remember, the Buddha asked Subhuti before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the dharma?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached." 
+I think you remember, the Buddha asked Subhuti before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the dharma?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the [Buddha Shakyamuni](glossary#shakyamuni-buddha ) has experienced, no dharma which the Buddha Shakyamuni has preached." 
 
 If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā).
 
 ##### 4:45
 
-In Buddhism usually there are three kinds of giving, the perfection of giving. One is material gifts. Second is dharma gifts. Third is the giving of fearlessness. 
+In [Buddhism](glossary#buddhism) usually there are three kinds of giving, the perfection of giving. One is material gifts. Second is dharma gifts. Third is the giving of fearlessness. 
 
 Material gifts, dharma gifts – but if you don't have any material gifts, or if you don't have any capability to preach dharma, what should you give?
 
@@ -53,7 +53,7 @@ So, it's not always scolding, using [harsh?] words, but it's not always to use s
 
 The fourth: giving with body. That means to help people with body first. 
 
-Sometimes, most people think something with their head, saying, "I want to help the people," or, "I think I can believe." If you think – in Buddhism, to think is not to think, to think is to do something with [your] body. So to believe is to practice with your body. To believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do [it] with [your] body. 
+Sometimes, most people think something with their head, saying, "I want to help the people," or, "I think I can believe." If you think – in [Buddhism](glossary#buddhism), to think is not to think, to think is to do something with [your] body. So to believe is to practice with your body. To believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do [it] with [your] body. 
 
 ##### 14:24
 
@@ -93,17 +93,17 @@ The dharma gifts are, I told you, direct cause of leading people to reach spirit
 
 ##### 23:57
 
-In Buddhism, buddha body is divided into three. One is dharma body. The second is Nirmanakaya, nirmana body. The third is Sambhogakaya Buddha. Nirmanakaya Buddha, Sambhogakaya Buddha, and Dharmakaya Buddha.
+In [Buddhism](glossary#buddhism), buddha body is divided into three. One is dharma body. The second is Nirmanakaya, nirmana body. The third is Sambhogakaya Buddha. Nirmanakaya Buddha, Sambhogakaya Buddha, and Dharmakaya Buddha.
 
 Dharmakaya Buddha means dharma body, or dharma itself, or the essential nature of dharmas. That is Buddha himself. That is [the] essential characteristic and character of the Buddha. So we call [the] essential nature of dharma the Buddha himself. That is called Dharmakaya Buddha. 
 
-The second, Nirmanakaya Buddha, is a visible Buddha. [For] example, Shakyamuni Buddha who was born 2500 years ago in India as a human; this is Nirmanakaya Buddha. 
+The second, Nirmanakaya Buddha, is a visible Buddha. [For] example, [Shakyamuni Buddha](glossary#shakyamuni-buddha ) who was born 2500 years ago in India as a human; this is Nirmanakaya Buddha. 
 
 The third, Sambhogakaya Buddha, that is ... we can reach at the stage of the Buddha as a result, through one's virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. (Katagiri says something like "virtual quality," but "virtual" has a different meaning than he probably intended, so I'm substituting "virtuous quality".)
 
 ##### 26:35
 
-So, Dharmakaya Buddha – dharma itself, or [the] essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That's why the no-dharmas (are those) through which Shakyamuni Buddha has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as human tries to teach dharma itself, but that dharma explained by Shakyamuni as a human is no-dharma. It's not real dharma, because dharma is completely beyond human speculation. 
+So, Dharmakaya Buddha – dharma itself, or [the] essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That's why the no-dharmas (are those) through which [Shakyamuni Buddha](glossary#shakyamuni-buddha ) has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as human tries to teach dharma itself, but that dharma explained by Shakyamuni as a human is no-dharma. It's not real dharma, because dharma is completely beyond human speculation. 
 
 But on the other hand: Real dharma, dharma itself mentioned by, explained by Buddha, is no-dharma. That's why in Diamond Sutra [it] always says "Dharma is no-dharma. This is dharma." It's so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, where this body and mind as a human, the truth mentioned [or] explained by you is no-truth. It's far from real truth. 
 
@@ -187,11 +187,11 @@ That's why Rilke said to us what we do usually: "never not for a single day, we 
 
 ##### 52:54
 
-So, that is ... the explanation of the buddhadharma, or merit, in the negative sense in the Diamond Sutra. [The] negative sense, no-merit [or] no-buddhadharma, doesn't mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma, is attachment to individual merit, individual buddhadharma we experienced. This is [a] suggestion [or] hint Buddhism always does, always criticizing human life like this; because we don't realize [it], usually. 
+So, that is ... the explanation of the buddhadharma, or merit, in the negative sense in the Diamond Sutra. [The] negative sense, no-merit [or] no-buddhadharma, doesn't mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma, is attachment to individual merit, individual buddhadharma we experienced. This is [a] suggestion [or] hint [Buddhism](glossary#buddhism) always does, always criticizing human life like this; because we don't realize [it], usually. 
 
 ##### 54:04
 
-If Buddhism uses the negative sense, you will get the big shock. *Why*? "Life is characterized by suffering." "*What's that*?" We don't like it. That is [a] really big shock to your mind. That's very good medicine for you. It is [the] bitterness of good medicine. That's why Buddhism always uses unusual terms, in the negative sense. But it's not [a] real negative. It's positive, really positive. 
+If [Buddhism](glossary#buddhism) uses the negative sense, you will get the big shock. *Why*? "Life is characterized by suffering." "*What's that*?" We don't like it. That is [a] really big shock to your mind. That's very good medicine for you. It is [the] bitterness of good medicine. That's why Buddhism always uses unusual terms, in the negative sense. But it's not [a] real negative. It's positive, really positive. 
 
 Because that is such a human [quality?]. Humans [are] very stubborn [with] ego. Because, [the] human is pretty weak. If you're strong, it's not necessary to be stubborn; you can open pretty easily. But we are weak. That's why in order to perfect weakness, we have to be stubborn. *[he chuckles]* Do you understand? We always do. 
 

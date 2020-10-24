@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-Yesterday I mentioned, the important point in Buddhism is that we have to feel deeply and directly who you are. Such as, tasting, realizing manas, psychologically speaking. At that time, the realization of manas guides you to touch, what would you say, karmic life, coming from past life. That is alayavijñāna. 
+Yesterday I mentioned, the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who you are. Such as, tasting, realizing manas, psychologically speaking. At that time, the realization of manas guides you to touch, what would you say, karmic life, coming from past life. That is alayavijñāna. 
 
 Then, I think is not good enough to feel, to taste of who you are, deeply or directly - it's not good enough for us. By meditation, you have to reach alayavijñāna, so called karmic consciousness, karmic life. But at that time, there is still problem: that we are stuck in the concept of karmic life. The alayavijñāna is characterized by the... something going in perpetual series, from the past, through present, to future. So, nothing pinned down, nothing to grasp, nothing to let you be stuck there. So, all that's going. So finally, if you really feel what your karmic life is, finally there is no concept of *your own* karmic life. Finally what you can see is, just flow of energy. That's it. That is called tathāgata-garbha.
 
@@ -17,7 +17,7 @@ And then from this, I think religious ascertainment(?) and relaxation, or relief
 
 ##### 3:49
 
-So, main purpose of Buddhist practice is to taste the ego consciousness, deeply who you are, through the meditation - but, it's not good enough. The more practice, farther practice, is to taste alayavijñāna, karmic life, not only conceptually, but directly you should participate in alayavijñāna. What direct participation in alayavijñāna is, that is just movement. Flow, movement. Perpetual flow of energy, to live, to be present - not only for you. With all sentient beings. That is final purpose of Buddhism.
+So, main purpose of Buddhist practice is to taste the ego consciousness, deeply who you are, through the meditation - but, it's not good enough. The more practice, farther practice, is to taste alayavijñāna, karmic life, not only conceptually, but directly you should participate in alayavijñāna. What direct participation in alayavijñāna is, that is just movement. Flow, movement. Perpetual flow of energy, to live, to be present - not only for you. With all sentient beings. That is final purpose of [Buddhism](glossary#buddhism).
 
 ##### 4:57
 
@@ -27,7 +27,7 @@ But yesterday I mentioned, individually, if you see your life, under all circums
 
 So, you should remain there, from the beginning. You should appreciate this energy; you should appreciate this life force gifted to you, from the beginning-less past. Anyway, you have already great capacity.
 
-That is temporarily, (what) we call buddha nature. Or, 2500 years ago, Buddha Shakyamuni mentioned, "all are buddha." That is, temporarily, we call buddha. Buddha is a person who realize that perpetual flow of energy, flow of existence, constantly beginning from the beginning-less past, to the endless future. You should participate directly in it.
+That is temporarily, (what) we call [Buddha Nature](glossary#buddha-nature). Or, 2500 years ago, [Buddha Shakyamuni](glossary#shakyamuni-buddha ) mentioned, "all are buddha." That is, temporarily, we call buddha. Buddha is a person who realize that perpetual flow of energy, flow of existence, constantly beginning from the beginning-less past, to the endless future. You should participate directly in it.
 
 So, what is that? Just be here. And then, manifest it. So, strictly speaking, I think everyone is, anyway, in Buddha's world. Great world. 
 
@@ -35,7 +35,7 @@ So, what is that? Just be here. And then, manifest it. So, strictly speaking, I 
 
 So I think even though you are not enlightened person, it is not discrimination between Buddha and ordinary people. You are not enlightened person, but originally you are enlightened person. Because, you already survive; you are living from day to day - by who? By your effort? Yes it is; but something more than that. By the help of the grasses, rains, sunshine, humidity, the air; by all sentient beings, you can survive. This is the true reality. 
 
-So you should live in the vast, expansive realm of the world, surrounded by all sentient beings. But usually, we always see the world narrower, in the narrow way. "This is my world," "that is your world," - separately. But first of all, we should live in that expansive, enormously expansive realm of existence. That is called buddha nature. We are Buddha.
+So you should live in the vast, expansive realm of the world, surrounded by all sentient beings. But usually, we always see the world narrower, in the narrow way. "This is my world," "that is your world," - separately. But first of all, we should live in that expansive, enormously expansive realm of existence. That is called [Buddha Nature](glossary#buddha-nature). We are Buddha.
 
 ##### 9:40
 
@@ -44,7 +44,7 @@ So, let's see the Genjōkōan. Do you have Genjōkōan? [rustling of papers in g
 And, last sentence, there is a conclusion there. Last one. 
 [more page turning in group]
 
-Last sentence, it says: "Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth's being gold, and by participation, develops the long river into butter."
+Last sentence, it says: "Because the nature of wind is eternal, the wind of [Buddhism](glossary#buddhism) causes the manifestation of the earth's being gold, and by participation, develops the long river into butter."
 
 > Brazier:
 > 
@@ -68,7 +68,7 @@ Last sentence, it says: "Because the nature of wind is eternal, the wind of Budd
 
 ##### 10:45
 
-The wind of Buddhism: I think... in this case [Dogen](glossary#dogen) [Zenji](glossary#zenji) uses 'wind' because he quoted the story of [Zen Master](glossary#zen-master) Hōtetsu of Mount Mayoku using a fan, et cetera. That's why he is talking about the wind, created by fan. That's why we uses the "wind of Buddhism"; (it) means Buddha's family. So in this case,  wind means lifestyle; refined lifestyle of the Buddha's family. All sentient beings are nothing but Buddha's family, okay? So, their life has really refined lifestyle they're on. What is this? That is, to manifest the earth. "The earth" means alayavijñāna, karmic life. "Being gold": turn earth, turn alayavijñāna, into gold, means tathāgata-garbha. "And then, by participation": you have to participate in this practice, directly. And then at that time you can develop - long river means the human life. "Long river": human life, human world, handed down from century after century; long, long river. "Into butter": sweet butter, sweet milk, wonderful milk - means Buddha's world; peaceful, harmonious world. 
+The wind of [Buddhism](glossary#buddhism): I think... in this case [Dogen](glossary#dogen) [Zenji](glossary#zenji) uses 'wind' because he quoted the story of [Zen Master](glossary#zen-master) Hōtetsu of Mount Mayoku using a fan, et cetera. That's why he is talking about the wind, created by fan. That's why we uses the "wind of Buddhism"; (it) means Buddha's family. So in this case,  wind means lifestyle; refined lifestyle of the Buddha's family. All sentient beings are nothing but Buddha's family, okay? So, their life has really refined lifestyle they're on. What is this? That is, to manifest the earth. "The earth" means alayavijñāna, karmic life. "Being gold": turn earth, turn alayavijñāna, into gold, means tathāgata-garbha. "And then, by participation": you have to participate in this practice, directly. And then at that time you can develop - long river means the human life. "Long river": human life, human world, handed down from century after century; long, long river. "Into butter": sweet butter, sweet milk, wonderful milk - means Buddha's world; peaceful, harmonious world. 
 
 ##### 13:01
 
@@ -102,7 +102,7 @@ Let's divide Genjōkōan into eleven sections...
 
 First paragraph. Would you read first paragraph?
 
-**Reader**: "When all things are Buddha's teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings. When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death. Because the buddha way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them."
+**Reader**: "When all things are Buddha's teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings. When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death. Because the [Buddha Way](glossary#buddha-way) originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them."
 
 > Brazier:
 >     
@@ -113,16 +113,16 @@ First paragraph. Would you read first paragraph?
 > 
 > Okumura:
 >     
-> (1) When all dharmas are the Buddha Dharma, there is delusion and realization, practice, life and death, buddhas and living beings.  
+> (1) When all dharmas are the [Buddha Dharma](glossary#buddha-dharma), there is delusion and realization, practice, life and death, buddhas and living beings.  
 > (2) When the ten thousand dharmas are without [fixed] self, there is no delusion and no realization, no buddhas and no living beings, no birth and no death.  
-> (3) Since the Buddha Way by nature goes beyond [the dichotomy of] abundance and deficiency, there is arising and perishing, delusion and realization, living beings and buddhas.  
+> (3) Since the [Buddha Way](glossary#buddha-way) by nature goes beyond [the dichotomy of] abundance and deficiency, there is arising and perishing, delusion and realization, living beings and buddhas.  
 > (4) Therefore flowers fall even though we love them; weeds grow even though we dislike them.  
 > 
 > Tanahashi:
 > 
-> (1) As all things are buddha dharma, there is delusion, realization, practice, birth [life] and death, buddhas and sentient beings.  
+> (1) As all things are [buddha dharma](glossary#buddha-dharma), there is delusion, realization, practice, birth [life] and death, buddhas and sentient beings.  
 > (2) As myriad things are without an abiding self, there is no delusion, no realization, no buddha, no sentient being, no birth and death.  
-> (3) The buddha way, in essence, is leaping clear of abundance and lack; thus there is birth and death, delusion and realization, sentient beings and buddhas.  
+> (3) The [buddha way](glossary#buddha-way), in essence, is leaping clear of abundance and lack; thus there is birth and death, delusion and realization, sentient beings and buddhas.  
 > (4) Yet in attachment blossoms fall, and in aversion weeds spread.  
 > 
 > Nishijima & Cross:
@@ -138,7 +138,7 @@ First paragraph. Would you read first paragraph?
 
 Second: When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth and no death. 
 
-Third: Because the buddha way originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. 
+Third: Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. 
 
 And then last: Moreover, although this is so, flowers fall when we cling to them, and weeds only grow when we dislike them. 
 
@@ -170,7 +170,7 @@ And then, next, "When the myriad dharma are all not self, there is no delusion, 
 
 That's why myriad dharmas are all not self. When you see the world in universal perspective, all don't have it's own ego-sense. No; exactly flow of energy, nothing but the flow of energy, penetrating, exchanging their own position with somebody else. I change my position with somebody's position. In other words, I can talk with a bird, I can talk with a wok(?). I can talk with an Indian elephant. ... The elephant can shake hands with the Indian ... monkey. Do you understand that one? Intellectually you don't understand this, but this is a buddha's world. Buddha's world is shaking hand: if you pick up this one, whole world pick up. You don't believe it, but this is really true. This is outlook on human world in terms of buddha's eye. Because you live with all sentient beings. Without all sentient beings, how can (you) survive? No possibility.
 
-So in the next, if so, what is true reality? He said, "Because the buddha way originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." What are the all sentient beings you can see, with your naked eye? They are not all sentient beings, seen with your naked eye; something more than abundance and paucity, being or not being. Completely beyond this one. That is what? Buddha? I can see the trees, I can see the birds. But birds doesn't have their own nature, their own ego; tree doesn't have its own ego; and then, that is a true picture of the trees and birds. Saying, going beyond being and not being, like or dislike, paucity and abundance. That is true reality, of everything. So, complete different world, coming up. 
+So in the next, if so, what is true reality? He said, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." What are the all sentient beings you can see, with your naked eye? They are not all sentient beings, seen with your naked eye; something more than abundance and paucity, being or not being. Completely beyond this one. That is what? Buddha? I can see the trees, I can see the birds. But birds doesn't have their own nature, their own ego; tree doesn't have its own ego; and then, that is a true picture of the trees and birds. Saying, going beyond being and not being, like or dislike, paucity and abundance. That is true reality, of everything. So, complete different world, coming up. 
 
 ##### 35:12
 

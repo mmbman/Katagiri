@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-... talked about zazen based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to see this from a pretty different angle, that is sort of from the psychological point of view. You know pretty well [that] in primitive Buddhism, there are the categories of existence which are called [the] five skandhas. Among the five skandhas, there is [a] very interesting concept which is called samskara. In the Prajnaparamita Sutra, it is translated as "impulses". According to Doctor Conze ([Edward Conze](https://en.wikipedia.org/wiki/Edward_Conze)) it is regarded as "together-maker". That concept of samskara is a very interesting teaching. In the development of Buddhism, this concept, samskara, is divided into many [things].
+... talked about zazen based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to see this from a pretty different angle, that is sort of from the psychological point of view. You know pretty well [that] in [primitive Buddhism](glossary#primitive-buddhism ), there are the categories of existence which are called [the] five skandhas. Among the five skandhas, there is [a] very interesting concept which is called samskara. In the Prajnaparamita Sutra, it is translated as "impulses". According to Doctor Conze ([Edward Conze](https://en.wikipedia.org/wiki/Edward_Conze)) it is regarded as "together-maker". That concept of samskara is a very interesting teaching. In the development of [Buddhism](glossary#buddhism), this concept, samskara, is divided into many [things].
 
 ##### 2:22
 
@@ -21,7 +21,7 @@ In [Abhidharmakosha](glossary#abhidharmakosha), samskara is divided into many th
 >
 >(From "The Central Conception of Buddhism and the Meaning of the Word Dharma" by Theodore Stcherbatsky – [archive.org link](https://archive.org/stream/in.ernet.dli.2015.189881/2015.189881.The-Central-Conception-Of-Buddhism_djvu.txt); [Google Books link](https://books.google.com/books?id=C4HSakZwijIC&pg=PA18&lpg=PA18&dq=%22This+is+samskara+in+the+Buddhist+system%22&source=bl&ots=5i_tVITDm8&sig=ACfU3U2sXeTWnfGnSqQzvOecj4Vb2F04rQ&hl=en&sa=X&ved=2ahUKEwihipGzq9DrAhUYK80KHQTICW8Q6AEwAXoECAIQAQ#v=onepage&q=%22This%20is%20samskara%20in%20the%20Buddhist%20system%22&f=false))
 
-So, samskara as a force shouldn't be regarded as [a] mere influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects. But mainly these conditions are what is called origination and decay – according to primitive Buddhism, that is impermanence or constant change. Appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
+So, samskara as a force shouldn't be regarded as [a] mere influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects. But mainly these conditions are what is called origination and decay – according to [primitive Buddhism](glossary#primitive-buddhism ), that is impermanence or constant change. Appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 
 Anyway, force is not a real force, but a condition, a conditioned element which occurs between two objects. And also this conditioned element has a certain power to concert two things, to exist. So that's why this author says, "simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself." This is samskara. 
 
@@ -87,7 +87,7 @@ So, this is oneness. [The] same applies to our zazen. First of all, mind is alwa
 
 So how can you stop the functioning of your mind? You cannot stop it. So the most important point is, let's return to [the] origin, which is called samskara's world, which is called elements which are not associated with mind and truth, completely nothing. Let's return to conditioned elements. How can we return to conditioned elements? ... I told you before, conditioned elements is characterized by unifying two beings perfectly. That means, one object is used perfectly, fitting into its object. This is conditioned element. So, let's return to this, using your body and breath ... perfectly, fitting into zazen. 
 
-At that time, something happens. That is zazen as an event. So mind immediately catches it. That's, "I got it." You catch it. The moment when you "catch" it, there is attachment. So, that's why regulation of the mind is important. That is, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Throw away good or bad, right and wrong. Have no designs of becoming a Buddha." Through and through ... we have to practice having no design of becoming Buddha. No reward there. Just return to conditioned element, using your body, perfectly fitting into object, zazen. At that time, your body becomes one naturally with zazen. So your body is made as zazen. That's all. 
+At that time, something happens. That is zazen as an event. So mind immediately catches it. That's, "I got it." You catch it. The moment when you "catch" it, there is attachment. So, that's why regulation of the mind is important. That is, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Throw away good or bad, right and wrong. Have no designs of becoming a [Buddha](glossary#buddha)." Through and through ... we have to practice having no design of becoming Buddha. No reward there. Just return to conditioned element, using your body, perfectly fitting into object, zazen. At that time, your body becomes one naturally with zazen. So your body is made as zazen. That's all. 
 
 ##### 37:57
 
@@ -97,7 +97,7 @@ But on the other hand, if you see that zazen from the back, which is called clay
 
 ##### 39:00
 
-Shikantaza, based on dropping off body and mind, is not [a] new idea mentioned by [Dogen](glossary#dogen). It's really Buddhism. Well, you can explain [it] according to Buddhist psychology, but we don't understand [the] real meaning of samskara, and also about the elements which are not associated with mind. That's why we understand it just as a concept, apart from human life. That's why we don't understand.
+Shikantaza, based on dropping off body and mind, is not [a] new idea mentioned by [Dogen](glossary#dogen). It's really [Buddhism](glossary#buddhism). Well, you can explain [it] according to Buddhist psychology, but we don't understand [the] real meaning of samskara, and also about the elements which are not associated with mind. That's why we understand it just as a concept, apart from human life. That's why we don't understand.
 
 ##### 39:44 
 
@@ -109,7 +109,7 @@ There are sort of three kinds of obtaining and getting. Obtaining is to obtain a
 
 [One] is, you can sew a seed of the truth. Even though your body and mind exist in the dualistic world, you can sew a seed. [Sewing] a seed is completely [a] seed, not prapti; seed.
 
-And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete prapti. Even though you are in [the] dualistic world, you can ... complete Buddha's world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
+And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete prapti. Even though you are in [the] dualistic world, you can ... complete [Buddha](glossary#buddha)'s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
 
 And then, on the other hand, is seed. You don't actualize, but you can sew a seed. For instance, shikantaza ... in the shikantaza, all delusions drop off and you don't understand. But, if you do zazen, anyway you can sew a seed, in your mind, in your life. But it doesn't appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it's actualization of zazen itself. So even though you don't understand, you gain something and complete something, as a truth. Even though you are [in the] dualistic world, you can do [this].
 
@@ -143,7 +143,7 @@ Well, we have to make every possible effort to do that, because we have a mind. 
 
 ##### 48:25
 
-[Dogen](glossary#dogen) [Zenji](glossary#zenji) says that's why "... it cannot be fully known by the practicing or realizing of supernatural power either." Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[he laughs]* Or, Dogen Zenji says, "It must be deportment beyond man's hearing and seeing." If you see zazen after your zazen, that is [an] image of zazen, it is not real zazen. Deportment means the behavior which is called zazen. In Japanese we call it igi. (Pronounced "ee-jee", more or less. Probably [igi 威儀](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html) – dignity; dignified manner; majesty.) The "i" of igi means "majestic and awe-inspiring". Majestic, very majestic. "Gi" of Igi means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says "deportment", but originally we use "igi". Usually we use "behavior", but that behavior is "igi" in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the [wisdom or rhythm] of the truth. That is your behavior.
+[Dogen](glossary#dogen) [Zenji](glossary#zenji) says that's why "... it cannot be fully known by the practicing or realizing of supernatural power either." Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[he laughs]* Or, Dogen Zenji says, "It must be deportment beyond man's hearing and seeing." If you see zazen after your zazen, that is [an] image of zazen, it is not real zazen. Deportment means the behavior which is called zazen. In Japanese we call it igi. (Pronounced "ee-jee", more or less. Probably [igi 威儀](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html) – dignity; dignified manner; majesty.) The "i" of igi means "majestic and awe-inspiring". Majestic, very majestic. "Gi" of Igi means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says "deportment", but originally we use "igi". Usually we use "behavior", but that behavior is "igi" in [Buddhism](glossary#buddhism), because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the [wisdom or rhythm] of the truth. That is your behavior.
 
 ##### 50:30
 
@@ -323,7 +323,7 @@ So picky mind, monkey mind, is small mind. But original nature of the mind is bi
 
 **Same person**: You're talking about big mind.
 
-**Katagiri**: Yes, big mind. But we cannot ignore small mind. Because, right after [an] event occurs, mind associates with [it], so you can't ignore [it]. That's why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no planning of having a reward, [no design of] becoming Buddha. [We have to] continually do [this], otherwise, we cannot use our body and mind perfectly, fitting into zazen. 
+**Katagiri**: Yes, big mind. But we cannot ignore small mind. Because, right after [an] event occurs, mind associates with [it], so you can't ignore [it]. That's why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no planning of having a reward, [no design of] becoming [Buddha](glossary#buddha). [We have to] continually do [this], otherwise, we cannot use our body and mind perfectly, fitting into zazen. 
 
 ##### 1:22:10
 
@@ -359,7 +359,7 @@ But [the] important point is, when we practice, we have to practice zazen not as
 
 **Question**: Roshi? Is aprapti always present when prapti is present? 
 
-**Katagiri**: That is a very conceptualized term. There are lots of terms there; but in Mahayana Buddhism we don't believe [they are] really something which exist. If you say something which exists, it has substance. 
+**Katagiri**: That is a very conceptualized term. There are lots of terms there; but in [Mahayana Buddhism](glossary#mahayana) we don't believe [they are] really something which exist. If you say something which exists, it has substance. 
 
 **Same person**: Okay, well in the story that you gave us as an example of prapti and aprapti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and aprapti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
@@ -393,11 +393,11 @@ Is that clear? That is aprapti: force to separate from something.
 
 ##### 1:31:53
 
-**Question**: So are these functions that function in people that are actively engaged in practicing the Buddha's way? Or anyone?
+**Question**: So are these functions that function in people that are actively engaged in practicing the [Buddha](glossary#buddha)'s way? Or anyone?
 
 **Katagiri**: Who?
 
-**Question**: Aprapti and prapti. With the two in the example you gave, both of those people were monks, they were practicing the Buddha's way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
+**Question**: Aprapti and prapti. With the two in the example you gave, both of those people were monks, they were practicing the [Buddha](glossary#buddha)'s way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
 
 **Katagiri**: Sure. *[laugher]* Universal. Yes.
 
