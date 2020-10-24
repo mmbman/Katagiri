@@ -10,7 +10,7 @@ Sanskrit: Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
 
 "an abstract and highly technical systemization of the [Buddhist] doctrine"
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Abhidharma)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Abhidharma)
 
 ## Abhidharmakosha
 
@@ -20,9 +20,8 @@ The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [A
 
 It particularly focuses on analyzing and synthesizing what the [agama](glossary#agama) sutras mentioned from a psychological and philosophical viewpoint.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
-
-[encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
+- [encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
 ## Agama
 
@@ -30,37 +29,40 @@ It particularly focuses on analyzing and synthesizing what the [agama](glossary#
 
 The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
 
 ## Aprapti
 
 Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
 
-[Vaibhāṣika on Wikipedia](https://en.wikipedia.org/wiki/Vaibhāṣika)
+- [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
+- [Vaibhāṣika on Wikipedia](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
-See:
-[Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)<br>
+-------
 
 ## Arhat
 
 (Sanskrit) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
 
-References:
-- [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),<br>
-- [Ibid (1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800),<br>
-- [Ibid (1:36:06) (definition)](1979-06-11-Fukanzazengi-Lecture3#13606)
+- [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
+[(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800)
+- Definition: [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606) 
 
 - [Wikipedia link](https://en.wikipedia.org/wiki/Arhat)
+
+-------
 
 ## Aryadeva
 
 Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
 
+-------
+
 ## Asanga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Asanga)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Asanga)
 
 ## Auddhatya
 
@@ -74,13 +76,13 @@ Japanese: Kannon
 
 The [Bodhisattva](#bodhisattva) of Compassion. [Manjushri](manjushri) and Avalokiteshvara are two primary symbolic figures in [Zen Buddhism](glossary#zen), representing Wisdom and Compassion.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Avalokiteśvara)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Avalokiteśvara)
 
 ## Avatamsaka Sutra
 
 The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower Ornament Scripture. Known for (naturally?) it's grandiose, "flowery" prose, describing a quest to meet a series of [Bodhisattvas](glossary#bodhisattva) who explain reality.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 ## Blue Cliff Record
 
@@ -99,20 +101,18 @@ See:
 
 (Sanskrit) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
 
-See:
-[Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606),
+- [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606),
 etc.
 
 ## Bowing
 
-See:
-[Fukanzazengi Lecture 1 (8:39)](1979-06-09-Fukanzazengi-Lecture1#839)
+- [Fukanzazengi Lecture 1 (8:39)](1979-06-09-Fukanzazengi-Lecture1#839)
 
 ## Buddha
 
 (Sanskrit) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Buddhahood)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Buddhahood)
 
 ## Buddha Dharma
 
@@ -120,7 +120,7 @@ See:
 
 The original nature of existence, perfect and all pervading. 
 
-See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
+- e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Buddha-nature)
 
@@ -130,31 +130,29 @@ See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
 ## Buddhist Psychology
 
-References:
 - [Fukanzazengi Lecture 6 39:00](1979-06-14-Fukanzazengi-Lecture6#3900)
 
 ## Buddhistic
 
 "Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism," without implying that "Buddhism" is a fixed concept or object.
 
-See:
-[Fukanzazengi Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
-[Fukanzazengi Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
+- [Fukanzazengi Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
+- [Fukanzazengi Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
 
 ## Calligraphy
 
 A traditional art practiced by Zen priests and monks.
 
-See [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
+- [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Hitsuzendō)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Hitsuzendō)
 
 ## Cat
 
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 See:
-[Fukanzazengi Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
+- [Fukanzazengi Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
 
 ## Chan
 
@@ -174,7 +172,7 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Denkoroku)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Denkoroku)
 
 ## Dependent Origination
 
@@ -192,26 +190,23 @@ Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Pe
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Dōgen)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Dōgen)
 
 ## Dualism
 
 
 ## Dullness
 
-See:
-[Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
+- [Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
 
 ## Distraction
 
-See:
-[Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
+- [Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
 
 ## Edward Conze
 ## Egolessness
 
-See: 
-[Fukanzazengi Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)
+- [Fukanzazengi Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)
 
 ## Eihei Dogen 
 
@@ -221,10 +216,9 @@ See [Dogen](#dogen)
 
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
-See 
-[Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),<br>
-[Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000),<br>
-[Ibid (1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
+- [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),<br>
+- [Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000),<br>
+- [Ibid (1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
 
 ## Emptiness
 
@@ -238,10 +232,9 @@ See [shunyata](glossary#shunyata).
 
 The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering), [no-self](no-self), and [nirvana](no-self). It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
-See: 
-[Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
+- [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
 
 ## Impermanence
 
