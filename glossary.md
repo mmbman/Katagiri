@@ -568,8 +568,11 @@ Sanskrit: prāpti. "To get, to obtain." A 'force' between conditioned elements. 
 
 Katagiri Roshi sometimes uses them term "Primitive Buddhism" – possibly to refer to early Buddhist teachings, which were probably heavily influenced by Brahmanism in India. Or, it might refer to Pre-sectarian Buddhism, "Buddhism as theorized to have existed before the various subsects of Buddhism came into being"  – which is not exactly the same thing. Either way, it is something somewhat distinct from [Mahayana Buddhism](glossary#mahayana). However, the term is probably not meant to be perjorative; Katagiri often mentions that we need to understand our Zen practice in terms of general Buddhism, "mentioned by Buddha."
 
-I'm tracking references to "Primitive Buddhism" to try to get a better sense of what Katagiri Roshi does mean – because it's pretty interesting.
+I'm tracking references to "Primitive Buddhism" to try to get a better sense of what Katagiri Roshi does mean (because it's pretty interesting).
 
+- [Fukanzazengi Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
+- [Fukanzazengi Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6)
+- [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 - [Pre-sectarian Buddhism on Wikipedia](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
 -------
