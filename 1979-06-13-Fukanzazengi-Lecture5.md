@@ -7,14 +7,14 @@
 
 ##### 0:00 start of recording
 
-There was a famous Zen Master named Gensha Shibi ([Chinese: Xuansha Shibei 玄沙師備](https://terebess.hu/zen/xuansha.html)) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master Seppō ([Seppō Gison; Chinese: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)), who was 12-15 years older than Gensha Shibi. This story occurs in the Shobogenzo [in the fascicle] "The One Bright Pearl"; you can find this story there.
+There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous [Zen Master Seppō](glossary#seppō), who was 12-15 years older than [Gensha Shibi](glossary#gensha-shibi). This story occurs in the Shobogenzo [in the fascicle] "The One Bright Pearl"; you can find this story there.
 
-Gensha Shibi Zen Master used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained enlightenment, so he left the boat and he became a monk immediately after that. 
+[Gensha Shibi Zen Master](glossary#gensha-shibi) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained enlightenment, so he left the boat and he became a monk immediately after that. 
 
 ##### 2:26
 
-Then, in history, Gensha Shibi Zen Master practiced under the guidance of Seppō, who was also one the outstanding Zen Masters in China. It is a very interesting story. According to Shobogenzo, alluded to by Dogen ... he finally went to Seppō mountain and placed himself under the guidance of 
-Shinkaku – that [is] another name of Seppō Zen Master – practicing day and night. (Seppō Shinkaku – see ["One Bright Pearl" at shastaabbey.org](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf)) 
+Then, in history, [Gensha Shibi](glossary#gensha-shibi) Zen Master practiced under the guidance of [Seppō](glossary#seppō), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to Shobogenzo, alluded to by Dogen ... he finally went to Seppō mountain and placed himself under the guidance of 
+Shinkaku – that [is] another name of [Seppō Zen Master](glossary#seppō) – practicing day and night.
 
 One day, to visit masters widely in other areas and perfect his practice, he took up his traveling pouch and was leaving the mountain. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails of his toes. Immediately, of course, blood appears, and he screams, "Ouch!" And then, amidst the intense pain, he had an abrupt self-realization, saying, "This body doesn't exist. Where is the pain coming from?" And he returned immediately to Seppō Zen Master.
 
@@ -78,23 +78,23 @@ So, that's why we have to see zazen directly, zazen itself. This is shikantaza. 
 
 ##### 22:10
 
-That's why [in] that story, Gensha Shibi Zen Master immediately had an abrupt self realization, saying, "This body doesn't exist; where is the pain coming from?" And then he returned immediately to Seppō's temple, and Seppō asked him, "What is this, mendicant Pei?" "Mendicant Pei" means his name (another name for Gensha Shibi). And then, Gensha replied, "I will never deceive others." If you always really are involved in before zazen, after zazen, you are always deceived, you are taken in. That means, "I never deceive." 
+That's why [in] that story, [Gensha Shibi](glossary#gensha-shibi) Zen Master immediately had an abrupt self realization, saying, "This body doesn't exist; where is the pain coming from?" And then he returned immediately to [Seppō](glossary#seppō)'s temple, and Seppō asked him, "What is this, mendicant Pei?" "Mendicant Pei" means his name (another name for [Gensha Shibi](glossary#gensha-shibi)). And then, [Gensha](glossary#gensha-shibi) replied, "I will never deceive others." If you always really are involved in before zazen, after zazen, you are always deceived, you are taken in. That means, "I never deceive." 
 
 ##### 23:22
 
-So, who is this, right in the middle of certain actions? When Gensha struck his toes on a rock – who is there? Who tried to cheat him? No one; nothing. Even the rock: rock doesn't want to cheat him. Rock doesn't set up a trap. Rock is rock. His toes don't care: just the rock, supports his whole life. All circumstances, mountains and temples, his consciousness – all exist as they really are. Nothing to cheat him; nothing to cheat others.
+So, who is this, right in the middle of certain actions? When [Gensha](glossary#gensha-shibi) struck his toes on a rock – who is there? Who tried to cheat him? No one; nothing. Even the rock: rock doesn't want to cheat him. Rock doesn't set up a trap. Rock is rock. His toes don't care: just the rock, supports his whole life. All circumstances, mountains and temples, his consciousness – all exist as they really are. Nothing to cheat him; nothing to cheat others.
 
 And then, at certain times, when the time and occasions are ripe and the conditions arranged: something happens. That something happens right in the middle of occurrence. No pain, no prejudice; [it] just occurs. 
 
 ##### 24:50
 
-So no one cheats. Even Gensha himself cannot cheat, cannot find anything to cheat himself. Because ... if he looks at himself before he struck, or after he struck, whatever scene ... all of which he could be cheated, [he cannot find anything].
+So no one cheats. Even [Gensha](glossary#gensha-shibi) himself cannot cheat, cannot find anything to cheat himself. Because ... if he looks at himself before he struck, or after he struck, whatever scene ... all of which he could be cheated, [he cannot find anything].
 
-That's why ... if Seppō asked him, "Who are you? What is this monk?" then Gensha says, "I never cheat others." [It] means, "I understand." "I" is really "I". This "I" doesn't come from rock, this "I" doesn't come from pain; this "I" doesn't come from any particular place. Nothing to cheat myself; just be here.
+That's why ... if [Seppō](glossary#seppō) asked him, "Who are you? What is this monk?" then [Gensha](glossary#gensha-shibi) says, "I never cheat others." [It] means, "I understand." "I" is really "I". This "I" doesn't come from rock, this "I" doesn't come from pain; this "I" doesn't come from any particular place. Nothing to cheat myself; just be here.
 
 ##### 26:10
 
-And then, this answer greatly pleased Seppō, who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So Seppō [asks], "Why don't you go there? Why aren't you going on pilgrimage?" Gensha said, "Bodhidharma didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before zazen, we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach Buddhism. This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some Zen master says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
+And then, this answer greatly pleased [Seppō](glossary#seppō), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So Seppō [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before zazen, we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach Buddhism. This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some Zen master says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
 
 So completely [the] answer is, all of the questions. Because Buddhism is focused on zazen itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
 
@@ -116,9 +116,9 @@ But we don't understand. That's why we say, "Let's accumulate merit and virtue."
 
 ##### 33:44
 
-Dogen Zenji really admired Gensha Shibi and Seppō Zen Master in this story. 
+Dogen Zenji really admired [Gensha Shibi](glossary#gensha-shibi) and Seppō Zen Master in this story. 
 
-So, "Gensha said, 'Bodhidharma didn't come to the East. The Second Patriarch didn't go to the West.' This gained Seppō's special praise." Seppō really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, zazen itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] dualistic world. So all we have to do is focus on just right here. 
+So, "Gensha said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West.' This gained Seppō's special praise." Seppō really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, zazen itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] dualistic world. So all we have to do is focus on just right here. 
 
 ##### 35:29
 

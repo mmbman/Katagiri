@@ -242,6 +242,13 @@ See
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
+## Gensha Shibi 
+
+Chinese: Hsuan Sha Shih Pei or Xuansha Shibei 玄沙師備 835 - 908. Japanese: Gensha Shibi. Successor of Hsueh Feng.
+
+See:
+[Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
+
 ## Green Gulch
 
 Green Gulch Farm near San Francisco, California, one of the Soto Zen practice centers established by [Suzuki Roshi](#suzuki-roshi).
@@ -280,7 +287,7 @@ Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
 
 ## Kyosei
 
-Chinese name Ching Ch’ing or Jingqing. 863–937. Successor to Hsueh Feng.
+Chinese name Ching Ch’ing or Jingqing. 863–937. Successor of Hsueh Feng. Famous for his discipline.
 
 See:
 [Blue Cliff Record Case 46: "Ching Ch’ing’s Sound of Raindrops"](BCR#case-46)
@@ -402,6 +409,21 @@ See:
 
 [Wikipedia](https://en.wikipedia.org/wiki/Sanskrit)
 
+## Seppō
+
+Chinese: 雪峰义存;
+Wade-Giles: Hsueh-feng I-ts'un; 
+pinyin: Xuefeng Yicun; 
+Japanese: Seppō Gison
+Also Seppō Shinkaku (see ["One Bright Pearl" at shastaabbey.org](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf)) 
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
+
+[terebess.hu link](https://terebess.hu/zen/xuefeng.html)
+
+See:
+[Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
+
 ## Sesshin
 
 ## Shakyamuni Buddha
@@ -501,6 +523,10 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 ## Zazen
 
 "Seated meditation"
+
+## Zen
+
+## Zen Master
 
 ## Zendo
 
