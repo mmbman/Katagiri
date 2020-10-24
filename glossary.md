@@ -12,7 +12,7 @@ Sanskrit: Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
 
 "an abstract and highly technical systemization of the [Buddhist] doctrine"
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Abhidharma)
+- [Wikipedia: Abhidharma](https://en.wikipedia.org/wiki/Abhidharma)
 
 -------
 
@@ -24,7 +24,7 @@ The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [A
 
 It particularly focuses on analyzing and synthesizing what the [agama](glossary#agama) sutras mentioned from a psychological and philosophical viewpoint.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
+- [Wikipedia: Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
 - [encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
 -------
@@ -35,7 +35,7 @@ It particularly focuses on analyzing and synthesizing what the [agama](glossary#
 
 The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
+- [Wikipedia: Āgama (Buddhism)](https://en.wikipedia.org/wiki/Āgama_(Buddhism))
 
 -------
 
@@ -44,7 +44,7 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
 
 - [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
-- [Vaibhāṣika on Wikipedia](https://en.wikipedia.org/wiki/Vaibhāṣika)
+- [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 -------
 
@@ -54,14 +54,16 @@ Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditione
 
 - [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
 [(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800)
-- Definition: [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606) 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Arhat)
+- [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606) – definition
+- [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
 -------
 
 ## Aryadeva
 
-Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
+Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
+
+- [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
 
 -------
 
@@ -69,7 +71,7 @@ Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditione
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Asanga)
+- [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
 
 -------
 
@@ -87,7 +89,7 @@ Japanese: Kannon
 
 The [Bodhisattva](#bodhisattva) of Compassion. [Manjushri](manjushri) and Avalokiteshvara are two primary symbolic figures in [Zen Buddhism](glossary#zen), representing Wisdom and Compassion.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Avalokiteśvara)
+- [Wikipedia: Avalokiteśvara](https://en.wikipedia.org/wiki/Avalokiteśvara)
 
 -------
 
@@ -95,7 +97,7 @@ The [Bodhisattva](#bodhisattva) of Compassion. [Manjushri](manjushri) and Avalok
 
 The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower Ornament Scripture. Known for (naturally?) it's grandiose, "flowery" prose, describing a quest to meet a series of [Bodhisattvas](glossary#bodhisattva) who explain reality.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
+- [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 -------
 
@@ -103,7 +105,7 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 
 Japanese: Hekiganroku
 
-See the [Blue Cliff Record Koan Index](BCR)
+- [Blue Cliff Record Koan Index](BCR)
 
 -------
 
@@ -133,7 +135,7 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 (Sanskrit) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Buddhahood)
+- [Wikipedia: Buddhahood](https://en.wikipedia.org/wiki/Buddhahood)
 
 -------
 
@@ -147,7 +149,7 @@ The original nature of existence, perfect and all pervading.
 
 - e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Buddha-nature)
+[Wikipedia: Buddha nature](https://en.wikipedia.org/wiki/Buddha-nature)
 
 -------
 
@@ -179,8 +181,7 @@ The original nature of existence, perfect and all pervading.
 A traditional art practiced by Zen priests and monks.
 
 - [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
-
-- [Wikipedia link](https://en.wikipedia.org/wiki/Hitsuzendō)
+- [Wikipedia: Hitsuzendō](https://en.wikipedia.org/wiki/Hitsuzendō)
 
 -------
 
@@ -188,7 +189,6 @@ A traditional art practiced by Zen priests and monks.
 
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
-See:
 - [Fukanzazengi Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
 
 -------
@@ -217,7 +217,7 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Denkoroku)
+- [Wikipedia: Denkoroku](https://en.wikipedia.org/wiki/Denkoroku)
 
 -------
 
@@ -243,7 +243,7 @@ Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Pe
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Dōgen)
+- [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
 
 -------
 
@@ -303,7 +303,7 @@ See [shunyata](glossary#shunyata).
 The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering), [no-self](no-self), and [nirvana](no-self). It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
 - [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
-- [Wikipedia link](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
+- [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
 -------
 
@@ -327,7 +327,7 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 771-853 CE.
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Guishan_Lingyou)
+- [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
 -------
 
@@ -390,9 +390,8 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 
 Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
  
-- [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),
-- [Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000),
-- [Ibid (1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
+- [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
+- [Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
 
 -------
 
@@ -456,7 +455,7 @@ Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of th
 
 Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group of Buddhist traditions, texts, philosophies, and practices. Mahāyāna is considered one of the two main existing branches of Buddhism (the other being Theravada). Mahāyāna Buddhism developed in India (c. 1st century BCE onwards). It accepts the main scriptures and teachings of early Buddhism, but also adds various new doctrines and texts such as the Mahāyāna Sūtras.[1]
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Mahayana)
+- [Wikipedia: Mahayana](https://en.wikipedia.org/wiki/Mahayana)
 
 -------
 
@@ -464,7 +463,7 @@ Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group
 
 The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](#zendo). 
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Manjushri)
+- [Wikipedia: Manjushri](https://en.wikipedia.org/wiki/Manjushri)
 
 -------
 
@@ -473,8 +472,8 @@ The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](
 pronounced "Ah-bay"
 
 - [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
-- [Wikipedia link](https://en.wikipedia.org/wiki/Masao_Abe)
-- [Translation of Fukanzazengi by Norman Waddell and Masao Abe on terebess.hu](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
+- [Wikipedia: Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe)
+- [terebess.hu: Translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
 
 -------
 
@@ -486,7 +485,7 @@ pronounced "Ah-bay"
 
 Nāgārjuna
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Nagarjuna)
+- [Wikipedia: Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna)
 
 -------
 
@@ -494,7 +493,7 @@ Nāgārjuna
 
 Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Nikāya)
+- [Wikipedia: Nikāya](https://en.wikipedia.org/wiki/Nikāya)
 
 -------
 
@@ -505,8 +504,6 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 -------
 
 ## Nirvana Sutra
-
-- [Wikipedia link](glossary#nirvana-sutra)
 
 -------
 
@@ -532,7 +529,7 @@ Ancestor
 
 Sanskrit: prajna. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Prajñā_(Buddhism)
+- [Wikipedia: Prajñā (Buddhism](https://en.wikipedia.org/wiki/Prajñā_(Buddhism))
 
 -------
 
@@ -544,7 +541,7 @@ Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna
 
 According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Prajnaparamita)
+- [Wikipedia: Prajnaparamita](https://en.wikipedia.org/wiki/Prajnaparamita)
 
 -------
 
@@ -560,7 +557,7 @@ Sanskrit: prāpti. "To get, to obtain." A 'force' between conditioned elements. 
 
 - [Fukanzazengi Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)<br>
 - [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)<br>
-- [Vaibhāṣika on Wikipedia](https://en.wikipedia.org/wiki/Vaibhāṣika)
+- [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 -------
 
@@ -573,7 +570,7 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 - [Fukanzazengi Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
 - [Fukanzazengi Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6)
 - [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
-- [Pre-sectarian Buddhism on Wikipedia](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
+- [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
 -------
 
@@ -595,7 +592,7 @@ Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 
 The Lotus Sutra. 
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Lotus_Sutra)
+- [Wikipedia: Lotus Sutra](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
 -------
 
@@ -614,7 +611,7 @@ One of the [five skandhas](glossary#skandhas); often translated as 'formations',
 
 As "together-maker": see [Fukanzazengi Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Saṅkhāra)
+- [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
 -------
 
@@ -622,7 +619,7 @@ As "together-maker": see [Fukanzazengi Lecture 6](1979-06-14-Fukanzazengi-Lectur
 
 Sandhinirmocana Sutra.
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Sandhinirmocana_Sutra)
+- [Wikipedia: Sandhinirmocana Sutra](https://en.wikipedia.org/wiki/Sandhinirmocana_Sutra)
 
 -------
 
@@ -637,7 +634,7 @@ The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked
 
 ## Sanskrit
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Sanskrit)
+- [Wikipedia: Sanskrit](https://en.wikipedia.org/wiki/Sanskrit)
 
 -------
 
@@ -654,9 +651,9 @@ Chinese: Xuefeng Yicun (Hsueh-feng I-ts'un) 雪峰义存<br>
 also Seppō Shinkaku
 
 - [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
-- [Wikipedia link](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
-- [terebess.hu link](https://terebess.hu/zen/xuefeng.html)
-- ["One Bright Pearl" at shastaabbey.org](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf)) 
+- [Wikipedia: Xuefeng Yicun](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
+- [terebess.hu: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)
+- [shastaabbey.org: "One Bright Pearl" PDF](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf))
 
 -------
 
@@ -682,7 +679,7 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 (Japanese) Shōbōgenzō: "Treasury of the True Dharma Eye". A collection of essays by [Eihei Dogen](#eihei-dogen), his most well-known work.
 
 - [Shobogenzo Reference Index](shobogenzo).
-- [Wikipedia link](https://en.wikipedia.org/wiki/Shōbōgenzō)
+- [Wikipedia: Shōbōgenzō](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
 -------
 
@@ -692,7 +689,7 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 
 Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of independent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism; the first thing to understand is that it is not a nihilistic kind of emptiness, but it really means unlimited potential, and it underlies existence. 
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Śūnyatā)
+- [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
 
 -------
 
@@ -720,7 +717,7 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 Śrīmālādevī Siṃhanāda - Sanskrit
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
+- [Wikipedia: Śrīmālādevī Siṃhanāda Sūtra](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
 
 -------
 
@@ -744,7 +741,7 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. 
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
+- [Wikipedia: Longer Sukhāvatīvyūha Sūtra](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
 
 -------
 
@@ -753,7 +750,7 @@ Sukhāvatīvyūha: Infinite Life Sutra; Pure Land.
 suki (Japanese): gap; space.
 
 - [Fukanzazengi Lecture 2 (7:52)](1979-06-10-Fukanzazengi-Lecture2#752)
-- [jisho.org link]([](https://jisho.org/search/suki))
+- [jisho.org: suki]([](https://jisho.org/search/suki))
 
 -------
 
@@ -775,7 +772,7 @@ A title applied to a Buddha, meaning "thus come, thus gone."
 
 ## Vasubandhu
 
-- [Wikipedia link](https://en.wikipedia.org/wiki/Vasubandhu)
+- [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
 
 -------
 
@@ -787,7 +784,7 @@ A title applied to a Buddha, meaning "thus come, thus gone."
 
 Yogācāra; literally "yoga practice" is an influential tradition of Buddhist philosophy and psychology emphasizing the study of cognition, perception, and consciousness through the interior lens of meditative and yogic practices.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Yogachara)
+[Wikipedia: Yogachara](https://en.wikipedia.org/wiki/Yogachara)
 
 -------
 
