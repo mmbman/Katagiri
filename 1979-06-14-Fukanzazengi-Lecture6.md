@@ -65,7 +65,7 @@ So why [did] he attain [enlightenment](glossary#enlightenment)? *[the sound of a
 
 ##### 25:44
 
-For instance: sound comes up. So your ears hear the sound outside. When your ears completely use [it] perfectly, fitting into [the] sound, at that time you can hear. By what? Well, conditioned elements, which is called source, together-maker. That conditioned element, from where [does] it come? We don't know. It's there. Well, according to Buddhist philosophy, that is called dependent origination – or, change, constant change. The function of the conditioned elements [is change], always – and interdependence: always connected. 
+For instance: sound comes up. So your ears hear the sound outside. When your ears completely use [it] perfectly, fitting into [the] sound, at that time you can hear. By what? Well, conditioned elements, which is called source, together-maker. That conditioned element, from where [does] it come? We don't know. It's there. Well, according to Buddhist philosophy, that is called [dependent origination](glossary#dependent-origination) – or, change, constant change. The function of the conditioned elements [is change], always – and interdependence: always connected. 
 
 The sound is completely used for your ear, fitting into your ear perfectly. At that time, your ear becomes one with sound. And then, something happens. That is sound. 
 
@@ -73,7 +73,7 @@ The sound is completely used for your ear, fitting into your ear perfectly. At t
 
 At that time, that is *event*. Then immediately, mind associates with this siren, or your ear. And then, that is a gate. Which [way] would you like to go: this way, or that way? Very quick, very quick. And also, mind is very tricky. If you realize, "Hey, mind is very tricky," then you are already tricked. *[he laughs with the group]* You're already tricked. "I understand mind, how tricky mind is" – you are already tricked by your understanding of how tricky mind is. So always, again and again, snowballing, first of all. Then finally what you have to do is, stop it, stop it. How can you stop it? You cannot stop the mind. So, first important thing: in order to stop your mind, first your body must be used perfectly, fitting into your object. At that time, very naturally, mind stops. Because, my body and breath becomes one with [zazen](glossary#zazen). At that time, my body [is] completely one with zazen. And then, problem is, mind associates with and attaches to it; at that time, you cannot see the oneness. And then, the mind misunderstands oneness. For instance, [the mind understands that] oneness is just like "the moon reflected in the water." [That is a] combination of two things. But it is not one, because, two different things exist. So it's not [oneness].
 
-So [Dogen](glossary#dogen) [Zenji](glossary#zenji) says it in the Genjokoan like this: "Oneness is not like moon reflected in the water, water in which moon is reflected." So, what is oneness? Oneness appears, oneness manifests itself, only when your body is perfectly used and fitting into your object. At that time, your body merges itself in [zazen](glossary#zazen). So, your body doesn't appear; just zazen. When you see zazen, just zazen. 
+So [Dogen](glossary#dogen) [Zenji](glossary#zenji) says it in the [Genjokoan](shobogenzo#genjokoan) like this: "Oneness is not like moon reflected in the water, water in which moon is reflected." So, what is oneness? Oneness appears, oneness manifests itself, only when your body is perfectly used and fitting into your object. At that time, your body merges itself in [zazen](glossary#zazen). So, your body doesn't appear; just zazen. When you see zazen, just zazen. 
 
 ##### 30:18
 
@@ -101,15 +101,15 @@ Shikantaza, based on dropping off body and mind, is not [a] new idea mentioned b
 
 ##### 39:44 
 
-And also, one of the conditioned elements which are not associated with mind is "obtaining" or "getting". Between the two [objects] there is a conditioned element which is called obtain[ing], getting. In Sanskrit we say "prapti" *[he spells it]*: meaning to get, to obtain.
+And also, one of the conditioned elements which are not associated with mind is ‘obtaining’ or ‘getting’. Between the two [objects] there is a conditioned element which is called obtain[ing], getting. In Sanskrit we say ‘[prapti](glossary#prapti)’ *[he spells it]*: meaning to get, to obtain.
 
 ##### 40:40
 
 There are sort of three kinds of obtaining and getting. Obtaining is to obtain and complete something. That is a characteristic of conditioned element: to get and complete. There are three kinds of getting and completing. 
 
-[One] is, you can sew a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sew a seed. [Sewing] a seed is completely [a] seed, not prapti; seed.
+[One] is, you can sew a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sew a seed. [Sewing] a seed is completely [a] seed, not [prapti](glossary#prapti); seed.
 
-And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete prapti. Even though you are in [the] [dualistic](glossary#dualistic) world, you can ... complete [Buddha](glossary#buddha)'s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
+And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prapti](glossary#prapti). Even though you are in [the] [dualistic](glossary#dualistic) world, you can ... complete [Buddha](glossary#buddha)'s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
 
 And then, on the other hand, is seed. You don't actualize, but you can sew a seed. For instance, shikantaza ... in the shikantaza, all delusions drop off and you don't understand. But, if you do [zazen](glossary#zazen), anyway you can sew a seed, in your mind, in your life. But it doesn't appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it's actualization of zazen itself. So even though you don't understand, you gain something and complete something, as a truth. Even though you are [in the] [dualistic](glossary#dualistic) world, you can do [this].
 
@@ -155,17 +155,17 @@ Do you have questions?
 
 ##### 52:33
 
-**Question**: Roshi? In *[unintelligible]* Buddhism, I remember reading in a couple places where he talked about prapti and it's, well not exactly opposite, but *[unintelligible]* apropti. And he talked about prapti different than you. He called it a force that keeps positives together in one being. 
+**Question**: Roshi? In *[unintelligible]* Buddhism, I remember reading in a couple places where he talked about [prapti](glossary#prapti) and it's, well not exactly opposite, but *[unintelligible]* apropti. And he talked about prapti different than you. He called it a force that keeps positives together in one being. 
 
 **Katagiri**: Positives, yes.
 
-**Same person**: And aprapti is some force that keeps away.
+**Same person**: And [aprapti](glossary#aprapti) is some force that keeps away.
 
 **Katagiri**: Yes.
 
 **Same person**: Could you say a little more about that?
 
-**Katagiri**: Well that is, changing: function of change, stream of change, broadly speaking. So we analyze that function of change, dividing [it] into several things. Again, prapti and aprapti – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
+**Katagiri**: Well that is, changing: function of change, stream of change, broadly speaking. So we analyze that function of change, dividing [it] into several things. Again, [prapti](glossary#prapti) and [aprapti](glossary#aprapti) – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
 
 **Same person**: Could you develop a specific example, of, just, something in everyday life that comes up and where...
 
@@ -357,19 +357,19 @@ But [the] important point is, when we practice, we have to practice [zazen](glos
 
 ##### 1:27:50
 
-**Question**: Roshi? Is aprapti always present when prapti is present? 
+**Question**: Roshi? Is [aprapti](glossary#aprapti) always present when [prapti](glossary#prapti) is present? 
 
 **Katagiri**: That is a very conceptualized term. There are lots of terms there; but in [Mahayana Buddhism](glossary#mahayana) we don't believe [they are] really something which exist. If you say something which exists, it has substance. 
 
-**Same person**: Okay, well in the story that you gave us as an example of prapti and aprapti, it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and aprapti was the earthquake. And they were both present at that time. I think; if I understand the terms.
+**Same person**: Okay, well in the story that you gave us as an example of [prapti](glossary#prapti) and [aprapti](glossary#aprapti), it seemed to me, if I understand it right, prapti was the force that brought your friend back to the monastery, and aprapti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
-**Katagiri**: Aprapti is kind of a force which kept my friend [at] [Eiheiji](glossary#eiheiji) monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprapti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprapti.
+**Katagiri**: [Aprapti](glossary#aprapti) is kind of a force which kept my friend [at] [Eiheiji](glossary#eiheiji) monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprapti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprapti.
 
 **Question**: Do you mean, Roshi, because he changed his mind?
 
-**Katagiri***: Aprapti is not obtaining or not getting. That is a force, a kind of force. That means a conditioned element. So, before your mind is exercised, there is some kind of force, to attach to, or to separate from. To put together, or to separate. That is total dynamic working.
+**Katagiri***: [Aprapti](glossary#aprapti) is not obtaining or not getting. That is a force, a kind of force. That means a conditioned element. So, before your mind is exercised, there is some kind of force, to attach to, or to separate from. To put together, or to separate. That is total dynamic working.
 
-Is that clear? That is aprapti: force to separate from something. 
+Is that clear? That is [aprapti](glossary#aprapti): force to separate from something. 
 
 **Same person**: Is that like inertia, Roshi?
 
@@ -383,11 +383,11 @@ Is that clear? That is aprapti: force to separate from something.
 
 **Katagiri**: No, if you say force, that force has a certain kind of power, to penetrate into another.
 
-**Same person**: No, that's not *[unintelligible]* ... So things that, like what you're talking about prapti and aprapti, things that at rest tend to stay at rest unless something...
+**Same person**: No, that's not *[unintelligible]* ... So things that, like what you're talking about [prapti](glossary#prapti) and [aprapti](glossary#aprapti), things that at rest tend to stay at rest unless something...
 
 **Katagiri**: No.
 
-**Another person**: Roshi? What simplified it for me was when you explained in the book that aprapti was more a force that kept away the negatives, and prapti was the force that brought towards you positives. Is that correct understanding?
+**Another person**: Roshi? What simplified it for me was when you explained in the book that [aprapti](glossary#aprapti) was more a force that kept away the negatives, and [prapti](glossary#prapti) was the force that brought towards you positives. Is that correct understanding?
 
 **Katagiri**: Towards you or towards your object. 
 
@@ -397,15 +397,15 @@ Is that clear? That is aprapti: force to separate from something.
 
 **Katagiri**: Who?
 
-**Question**: Aprapti and prapti. With the two in the example you gave, both of those people were monks, they were practicing the [Buddha](glossary#buddha)'s way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
+**Question**: [Aprapti](glossary#aprapti) and [prapti](glossary#prapti). With the two in the example you gave, both of those people were monks, they were practicing the [Buddha](glossary#buddha)'s way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
 
 **Katagiri**: Sure. *[laugher]* Universal. Yes.
 
 ##### 1:31:51
 
-**Question**: Are they simultaneous, Roshi? Prapti and aprapti? Do they operate simultaneously? 
+**Question**: Are they simultaneous, Roshi? [Prapti](glossary#prapti) and [aprapti](glossary#aprapti)? Do they operate simultaneously? 
 
-**Katagiri**: Sometimes together, sometimes different, okay? Because sometimes you can see them both. Say "I want to go there," "I don't want to go there," simultaneously, so you don't know what to do. The sort of original nature of such a feeling comes from prapti and aprapti. Intellectually, you know pretty well you should choose this one, but actually you don't know what to do, so you can see them both. So sometimes both work together, sometimes separately. 
+**Katagiri**: Sometimes together, sometimes different, okay? Because sometimes you can see them both. Say "I want to go there," "I don't want to go there," simultaneously, so you don't know what to do. The sort of original nature of such a feeling comes from [prapti](glossary#prapti) and [aprapti](glossary#aprapti). Intellectually, you know pretty well you should choose this one, but actually you don't know what to do, so you can see them both. So sometimes both work together, sometimes separately. 
 
 ##### 1:33:42
 

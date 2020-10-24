@@ -31,7 +31,7 @@ Plainly speaking, this is the truth, or original nature of existence, or dharma.
 
 ##### 7:30
 
-The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, Buddha, or [impermanence](glossary#impermanence), or dependent origination – all are immediately something objectified by you. This is very natural. 
+The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, Buddha, or [impermanence](glossary#impermanence), or [dependent origination](glossary#dependent-origination) – all are immediately something objectified by you. This is very natural. 
 
 It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So patriarchs and Buddhas constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
 

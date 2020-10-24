@@ -9,7 +9,7 @@
 
 I talked, in the first early morning [zazen](glossary#zazen), I said, “to deport oneself in samadhi.” I have to correct this term: “to deport,” not “deport.” (Sounds like the same word.) That’s why, maybe I explained after that, “playing freely.” That is deport. Okay?
 
-Today, I would like to explain what part of one’s life karma occupies. What part of one’s life does karma occupy. This is pretty difficult to explain, but anyway, let’s return to twelve chain causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of Dependent Origination, or Arising, et cetera.)
+Today, I would like to explain what part of one’s life karma occupies. What part of one’s life does karma occupy. This is pretty difficult to explain, but anyway, let’s return to twelve chain causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
 
 ##### 1:24
 

@@ -32,6 +32,15 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Āgama_%28Buddhism%29)
 
+## Aprapti
+
+Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
+
+[Vaibhāṣika on Wikipedia](https://en.wikipedia.org/wiki/Vaibhāṣika)
+
+See:
+[Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)<br>
+
 ## Arhat
 
 (Sanskrit) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
@@ -161,6 +170,8 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Denkoroku)
+
+## Dependent Origination
 
 ## Dharma
 
@@ -417,6 +428,16 @@ According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutra
 
 See [Prajnaparamita](glossary#prajnaparamita) 
 
+
+## Prapti
+
+Sanskrit: prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprapti](glossary#aprapti).
+
+[Vaibhāṣika on Wikipedia](https://en.wikipedia.org/wiki/Vaibhāṣika)
+
+See:
+[Fukanzazengi Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)<br>
+[Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)<br>
 
 ## Primitive Buddhism
 ## Reb Anderson
