@@ -23,7 +23,7 @@ Next, consciousness, and name and form. (#3 Vijñāna is consciousness; #4 Nāma
 
 Fifth, this is six consciousness, six senses. (Āyatana)
 
-Next, sixth, is tangibility; touch. (Sparśa in Sanskrit, or phassa in Pali; more commonly, “contact.”)
+Next, sixth, is tangibility; touch. (Sparśa in [Sanskrit](glossary#sanskrit), or phassa in Pali; more commonly, “contact.”)
 
 Seventh is reception, or feeling. (Vedanā)
 
@@ -31,7 +31,7 @@ Eighth is craving. (Taṇhā in Pali)
 
 Ninth is, what would you say, grasp. (Grasping: Upādāna; also “clinging” or “attachment”; literally, “fueling the fires”)
 
-Tenth is existence. In Sanskrit we say, “Bhava”. Bhava means, in Sanskrit is, “being.” When you say being, that being consists of, already system of subject and object; this is picture of being. Do you understand? This is a being; we call being, or existence. If you use a term, ‘existence’ or ‘being’, it’s already something consisting of subject and object. In other words, [dualism](glossary#dualism). This existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here; that’s why I can see that here is a table; that’s why I can see the table itself. So that means already existence. So table always is something existent. Something being. That means subject object [dualism](glossary#dualism). That is tenth; I will explain this one too.
+Tenth is existence. In [Sanskrit](glossary#sanskrit) we say, “Bhava”. Bhava means, in Sanskrit is, “being.” When you say being, that being consists of, already system of subject and object; this is picture of being. Do you understand? This is a being; we call being, or existence. If you use a term, ‘existence’ or ‘being’, it’s already something consisting of subject and object. In other words, [dualism](glossary#dualism). This existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here; that’s why I can see that here is a table; that’s why I can see the table itself. So that means already existence. So table always is something existent. Something being. That means subject object [dualism](glossary#dualism). That is tenth; I will explain this one too.
 
 And the others (are) birth (Jāti), and last one is old age and death (Jarāmaraṇa).
 
@@ -39,7 +39,7 @@ And in this twelve chain causations, karma is the second one, saṃskāra, and a
 
 ##### 5:35
 
-And also mumyo (Japanese word for avidyā or ignorance); first one, ignorance, and also craving and grasping: those three are klesha, in Sanskrit; delusion. Klesha means affliction. Because yesterday I told you the mumyo, ignorance, avidyā, is that which we are - what would you say - doomed - doomed means fated - (we are) doomed not to understand; not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are doomed not to understand truth as it is. This is what is called “pain”; affliction. Is that clear? Do you understand? That’s why Buddha says life is characterized by [suffering](glossary#suffering). This is really suffering. But we cannot stop it; because we are already there. So even though intellectually we don’t understand, still we feel, anyway. And also we want to know. That’s what we want to know, but we cannot understand. That’s why that is affliction. Suffering. This is a basic, basic nature of human being. That’s why first avidyā, ignorance. 
+And also mumyo (Japanese word for avidyā or ignorance); first one, ignorance, and also craving and grasping: those three are klesha, in [Sanskrit](glossary#sanskrit); delusion. Klesha means affliction. Because yesterday I told you the mumyo, ignorance, avidyā, is that which we are - what would you say - doomed - doomed means fated - (we are) doomed not to understand; not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are doomed not to understand truth as it is. This is what is called “pain”; affliction. Is that clear? Do you understand? That’s why Buddha says life is characterized by [suffering](glossary#suffering). This is really suffering. But we cannot stop it; because we are already there. So even though intellectually we don’t understand, still we feel, anyway. And also we want to know. That’s what we want to know, but we cannot understand. That’s why that is affliction. Suffering. This is a basic, basic nature of human being. That’s why first avidyā, ignorance. 
 
 ##### 7:40
 
@@ -83,7 +83,7 @@ So karma is very difficult to understand. Where table is and where Katagiri is. 
 
 There is… So, do you understand? What I want to tell you is, what portion of one’s life karma occupies. So, karma occupies the very original nature, very basic portion of one’s life. In other words, that is the source. That is something you can depend on; one’s life depends on. That is karma. 
 
-Here, in the Buddhist scriptures it explains in a different way, like this; very interesting point. I don’t know how I can say, how I can translate, but: The scripture explains, karma is… We have karma, but karma is sort of like this; karma is once-around. In Sanskrit we say karmavaca(?). Karmavaca(?) means having one’s own actions as one’s property. This is, we have karma as what is called one’s own property. That property is a place where you live in; so that’s very basic. 
+Here, in the Buddhist scriptures it explains in a different way, like this; very interesting point. I don’t know how I can say, how I can translate, but: The scripture explains, karma is… We have karma, but karma is sort of like this; karma is once-around. In [Sanskrit](glossary#sanskrit) we say karmavaca(?). Karmavaca(?) means having one’s own actions as one’s property. This is, we have karma as what is called one’s own property. That property is a place where you live in; so that’s very basic. 
 
 And next, it says karma is karmadāyāda (see https://www.wisdomlib.org/definition/karmadayada) - dāyāda means inheritance of action. Inheritance of action means karma has been lasting since beginning past; it’s going on. And also you are inheritor, successor, of karma. This is what is called karmadāyāda; it means inheritance of an action. 
 
@@ -125,7 +125,7 @@ First stage of Zen… There are four stages of Zen… In the first stage of Zen,
 
 But you think still, “I am a bad boy.” But that is already imagination, so you can think. Imagination is imagination. Imagination is completely, if you don’t know (remember?) anything, imagination disappears. So notice, so notice. You cannot put a label on that imagination. If you like you can chase after, but all you have to do is just to exhaust, that’s all. So, in [zazen](glossary#zazen) you should return to you; all unwholesome things stop. This is … 
 
-And then, next, there are three important things still left. That is, which is called vitarka in Sanskrit; vitarka and also vicāra. Vitarka means thought. Thought consists in set the human consciousness to object. This is thought. In other words, we are all thinking something. I see this; table sees all that there is. So, the thought consists in setting human consciousness to one subject. This is thought. That is which is called vitarka. So in other words, in [zazen](glossary#zazen), still you attach to the object. Well, I told you later. And also vitarka means discursive thinking. You can realize this, don’t you think so? Your thinking is going, on and on, in zazen. 
+And then, next, there are three important things still left. That is, which is called vitarka in [Sanskrit](glossary#sanskrit); vitarka and also vicāra. Vitarka means thought. Thought consists in set the human consciousness to object. This is thought. In other words, we are all thinking something. I see this; table sees all that there is. So, the thought consists in setting human consciousness to one subject. This is thought. That is which is called vitarka. So in other words, in [zazen](glossary#zazen), still you attach to the object. Well, I told you later. And also vitarka means discursive thinking. You can realize this, don’t you think so? Your thinking is going, on and on, in zazen. 
 
 Well, if you sit down, completely nothing to do, nothing to do for you; but you can do many things. What (do) you do? Chasing all the thoughts, or roaming around thinking. But thinking and thoughts are completely something you do in [dualistic](glossary#dualistic) world, and also problem is, they are all imagination, just imagination. Don’t you think so? What do you think? All imagination. So, in [zazen](glossary#zazen), you’re really playing with imagination… But finally, nothing to do. Because you realize how stupid you are, if you are chasing after plane (there is the loud sound of a plane in background) with thoughts, imagination, how stupid you are. Finally you think: how stupid zazen is. [laughter] It’s not thought of zazen, you thought, don’t you think so? You thought it; because you are chasing after thought, imagination. And then finally you criticize zazen; how stupid zazen. I don’t think so; you are stupid. *[laughter]* Don’t you think so? ... *[unintelligible]* *[laughter]*
 
@@ -135,7 +135,7 @@ Well, if you return home exactly, you can experience, because this is what Buddh
 
 *[tape change]* 
 
-You start to poke ahead into that joy. Because you don’t know, you don’t know, but you feel something. So you start to poke your head into joy. That is pīti in Sanskrit (see https://en.wikipedia.org/wiki/Pīti); joyful interest (or intellect?). But joyful interest is still your six consciousness always walking; that’s why you start to poke your head into joyful interest. But happiness is not next, still you can experience happiness. Happiness is completely… Happiness means samādhi, being one with [zazen](glossary#zazen). That is what is called happiness, in [Buddhism](glossary#buddhism). 
+You start to poke ahead into that joy. Because you don’t know, you don’t know, but you feel something. So you start to poke your head into joy. That is pīti in [Sanskrit](glossary#sanskrit) (see https://en.wikipedia.org/wiki/Pīti); joyful interest (or intellect?). But joyful interest is still your six consciousness always walking; that’s why you start to poke your head into joyful interest. But happiness is not next, still you can experience happiness. Happiness is completely… Happiness means samādhi, being one with [zazen](glossary#zazen). That is what is called happiness, in [Buddhism](glossary#buddhism). 
 
 ##### 47:33
 

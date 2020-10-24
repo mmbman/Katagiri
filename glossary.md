@@ -8,7 +8,7 @@
 
 ## Abhidharma
 
-Sanskrit: Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
+[Sanskrit](glossary#sanskrit): Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
 
 "an abstract and highly technical systemization of the [Buddhist] doctrine"
 
@@ -18,9 +18,9 @@ Sanskrit: Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
 
 ## Abhidharmakosha
 
-Sanskrit: Abhidharmakośa
+[Sanskrit](glossary#sanskrit): Abhidharmakośa
 
-The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [Abhidharma](glossary#abhidharma) written in Sanskrit by Vasubandhu in the 4th or 5th century. 
+The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [Abhidharma](glossary#abhidharma) written in [Sanskrit](glossary#sanskrit) by Vasubandhu in the 4th or 5th century. 
 
 It particularly focuses on analyzing and synthesizing what the [agama](glossary#agama) sutras mentioned from a psychological and philosophical viewpoint.
 
@@ -31,7 +31,7 @@ It particularly focuses on analyzing and synthesizing what the [agama](glossary#
 
 ## Agama
 
-(Sanskrit) āgama: sacred work or scripture.
+([Sanskrit](glossary#sanskrit)) āgama: sacred work or scripture.
 
 The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
 
@@ -41,7 +41,7 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 
 ## Aprapti
 
-Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
+[Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
 
 - [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
@@ -50,7 +50,7 @@ Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditione
 
 ## Arhat
 
-(Sanskrit) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
+([Sanskrit](glossary#sanskrit)) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
 
 - [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
 [(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800)
@@ -69,7 +69,7 @@ Sanskrit: aprāpti. "To separate"; non-acquisition. A 'force' between conditione
 
 ## Asanga
 
-Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
+Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian [Sanskrit](glossary#sanskrit) exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
 - [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
 
@@ -77,13 +77,13 @@ Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures
 
 ## Auddhatya
 
-(Sanskrit) Usually translated as "distraction". Restlessness or agitation, restlessness of mind, or frivolity. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
+([Sanskrit](glossary#sanskrit)) Usually translated as "distraction". Restlessness or agitation, restlessness of mind, or frivolity. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
 
 -------
 
 ## Avalokiteshvara
 
-Sanskrit: Avalokiteśvara,
+[Sanskrit](glossary#sanskrit): Avalokiteśvara,
 Chinese: Guanyin, Guan Yin, or Kuan Yin,
 Japanese: Kannon
 
@@ -119,7 +119,7 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 ## Bodhisattva
 
-(Sanskrit) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
+([Sanskrit](glossary#sanskrit)) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
 
 - [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
 
@@ -133,7 +133,7 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 ## Buddha
 
-(Sanskrit) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
+([Sanskrit](glossary#sanskrit)) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
 
 - [Wikipedia: Buddhahood](https://en.wikipedia.org/wiki/Buddhahood)
 
@@ -195,13 +195,13 @@ An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 ## Chan
 
-Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese. Both words derive from the Sanskrit *dyana*.
+Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese. Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
 
 -------
 
 ## Chan Buddhism
 
-Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word for "Chan". Both words derive from the Sanskrit *dyana*.
+Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word for "Chan". Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
 
 -------
 
@@ -354,7 +354,7 @@ Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the
 
 ## Fukutoku
 
-(Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to Sanskrit "punya".
+(Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to [Sanskrit](glossary#sanskrit) "punya".
 
 - [Fukanzazengi Lecture 3 (39:28)](1979-06-11-Fukanzazengi-Lecture3#3928)
 - [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
@@ -439,7 +439,7 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 
 ## Lotus Sutra
 
-Sanskrit: Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
+[Sanskrit](glossary#sanskrit): Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
 
 -------
 
@@ -491,7 +491,7 @@ Nāgārjuna
 
 ## Nikaya
 
-Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
+Nikāya: a Pāli word meaning "volume". It is often used like the [Sanskrit](glossary#sanskrit) word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
 
 - [Wikipedia: Nikāya](https://en.wikipedia.org/wiki/Nikāya)
 
@@ -527,7 +527,7 @@ Ancestor
 
 ## Prajna
 
-Sanskrit: prajna. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
+[Sanskrit](glossary#sanskrit): prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
 
 - [Wikipedia: Prajñā (Buddhism](https://en.wikipedia.org/wiki/Prajñā_(Buddhism))
 
@@ -537,7 +537,7 @@ Sanskrit: prajna. Usually translated as "wisdom", not not conventional wisdom, b
 
 "Wisdom beyond wisdom", or The Perfection of Wisdom.
 
-Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the Sanskrit words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (Shunyata) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
+Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the [Sanskrit](glossary#sanskrit) words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (Shunyata) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
 
 According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
@@ -553,7 +553,7 @@ See [Prajnaparamita](glossary#prajnaparamita)
 
 ## Prapti
 
-Sanskrit: prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprapti](glossary#aprapti).
+[Sanskrit](glossary#sanskrit): prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprapti](glossary#aprapti).
 
 - [Fukanzazengi Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)<br>
 - [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)<br>
@@ -604,7 +604,7 @@ One-pointedness. Often the kind achieved in meditation, but it can refer to comp
 
 ## Samskara
 
-Sanskrit: saṃskāra संस्कार<br>
+[Sanskrit](glossary#sanskrit): saṃskāra संस्कार<br>
 Pali: Saṅkhāra सङ्खार<br>
 
 One of the [five skandhas](glossary#skandhas); often translated as 'formations', 'mental formations', or 'impulses'. 
@@ -715,7 +715,7 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 ## Śrīmālādevī Siṃhanāda Sutra
 
-Śrīmālādevī Siṃhanāda - Sanskrit
+Śrīmālādevī Siṃhanāda - [Sanskrit](glossary#sanskrit)
 
 - [Wikipedia: Śrīmālādevī Siṃhanāda Sūtra](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
 
@@ -733,7 +733,7 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 ## Styāna
 
-(Sanskrit) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
+([Sanskrit](glossary#sanskrit)) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
 
 -------
 

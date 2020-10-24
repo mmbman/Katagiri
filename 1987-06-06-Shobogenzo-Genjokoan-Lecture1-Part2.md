@@ -27,7 +27,7 @@ So that’s why your mind is working very broadly, *very* broadly. Even though y
 
 ##### 8:41
 
-And then seventh consciousness is called manas [spells it out: m-a-n-a-s]: manas-vijnana. [(Manas-vijnana on Wikipedia)](https://en.wikipedia.org/wiki/Manas-vijnana) Vijnana is consciousness in Sanskrit. So, manas consciousness. Manas consciousness is one the unconsciousness(es); regarded as, what would you say, a foundation? A foundation for six consciousnesses. Is that clear? Foundation from where six consciousness exist; that is a foundation. So manas means ego consciousness. If you translate it into English, you say ‘ego consciousness’. That ego consciousness is a very deep kind of ego consciousness. So called manas-vijnana as one of the unconsciousness. 
+And then seventh consciousness is called manas [spells it out: m-a-n-a-s]: manas-vijnana. [(Manas-vijnana on Wikipedia)](https://en.wikipedia.org/wiki/Manas-vijnana) Vijnana is consciousness in [Sanskrit](glossary#sanskrit). So, manas consciousness. Manas consciousness is one the unconsciousness(es); regarded as, what would you say, a foundation? A foundation for six consciousnesses. Is that clear? Foundation from where six consciousness exist; that is a foundation. So manas means ego consciousness. If you translate it into English, you say ‘ego consciousness’. That ego consciousness is a very deep kind of ego consciousness. So called manas-vijnana as one of the unconsciousness. 
 
 ##### 10:12
 

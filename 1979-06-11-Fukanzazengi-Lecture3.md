@@ -15,7 +15,7 @@ Briefly speaking, I told you yesterday and the day before yesterday: if you do [
 
 Particularly according to [dullness](glossary#dullness) and [distraction](glossary#distraction): dullness and distraction here are meant to exemplify all kinds of delusion. But according to [Abhidharmakosha](glossary#abidharmakosha), dullness and distraction are just [two] of the delusions. So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in [Sanskrit](glossary#sanskrit), [styāna](glossary#styāna) *[he spells it out]*, this is dullness. Translation says: torpor; or stiffness, or [obduracy?] *[he tries to pronounce that]*, and [sterility?], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
 
-This is dullness, and the other one is distraction. They present it as, in Sanskrit, [auddhatya](glossary#auddhatya) *[he spells it]* – that means, restlessness. Or, agitation, restlessness of mind, reckless[ness], or frivolity. Et cetera.
+This is dullness, and the other one is distraction. They present it as, in [Sanskrit](glossary#sanskrit), [auddhatya](glossary#auddhatya) *[he spells it]* – that means, restlessness. Or, agitation, restlessness of mind, reckless[ness], or frivolity. Et cetera.
 
 ##### 5:18
 

@@ -101,7 +101,7 @@ Shikantaza, based on dropping off body and mind, is not [a] new idea mentioned b
 
 ##### 39:44 
 
-And also, one of the conditioned elements which are not associated with mind is ‘obtaining’ or ‘getting’. Between the two [objects] there is a conditioned element which is called obtain[ing], getting. In Sanskrit we say ‘[prapti](glossary#prapti)’ *[he spells it]*: meaning to get, to obtain.
+And also, one of the conditioned elements which are not associated with mind is ‘obtaining’ or ‘getting’. Between the two [objects] there is a conditioned element which is called obtain[ing], getting. In [Sanskrit](glossary#sanskrit) we say ‘[prapti](glossary#prapti)’ *[he spells it]*: meaning to get, to obtain.
 
 ##### 40:40
 
