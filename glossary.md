@@ -83,8 +83,8 @@ Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures
 
 ## Avalokiteshvara
 
-[Sanskrit](glossary#sanskrit): Avalokiteśvara,
-Chinese: Guanyin, Guan Yin, or Kuan Yin,
+[Sanskrit](glossary#sanskrit): Avalokiteśvara<br>
+Chinese: Guanyin, Guan Yin, or Kuan Yin<br>
 Japanese: Kannon
 
 The [Bodhisattva](#bodhisattva) of Compassion. [Manjushri](manjushri) and Avalokiteshvara are two primary symbolic figures in [Zen Buddhism](glossary#zen), representing Wisdom and Compassion.
@@ -307,51 +307,6 @@ The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering)
 
 -------
 
-## Impermanence
-
-Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
-
-- [Fukanzazengi Lecture 6 (5:12)](1979-06-14-Fukanzazengi-Lecture6#512)
-
--------
-
-## Impulses
- 
-See [samskara](glossary#samskara).
-
--------
-
-## Isan Reiyū
-Japanese: Isan Reiyū<br>
-Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
-771-853 CE.
-
-- [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
-- [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
-
--------
-
-## Suffering
-
-One of the [Four Dharma Seals](#four-dharma-seals).
-
--------
-
-## No-self
-
-One of the [Four Dharma Seals](#four-dharma-seals).
-
--------
-
-## Fukanzazengi
-
-Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the cannonical guidance for practicing [zazen](#zazen) in the [Soto Zen](glossary#soto-zen ) school.
-
-- [Fukanzazengi Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
-- etc.
-
--------
-
 ## Fukutoku
 
 (Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to [Sanskrit](glossary#sanskrit) "punya".
@@ -364,6 +319,8 @@ Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the
 ## Genjokoan
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
+
+- [Shobogenzo Index: Genjokoan](shobogenzo#genjokoan).
 
 -------
 
@@ -400,6 +357,30 @@ Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Kat
 -------
 
 ## Hinayana
+
+-------
+
+## Impermanence
+
+Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
+
+- [Fukanzazengi Lecture 6 (5:12)](1979-06-14-Fukanzazengi-Lecture6#512)
+
+-------
+
+## Impulses
+ 
+See [samskara](glossary#samskara).
+
+-------
+
+## Isan Reiyū
+Japanese: Isan Reiyū<br>
+Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
+771-853 CE.
+
+- [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+- [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
 -------
 
@@ -504,6 +485,20 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 -------
 
 ## Nirvana Sutra
+
+-------
+
+## No-Self
+
+One of the [Four Dharma Seals](#four-dharma-seals).
+
+-------
+
+## Fukanzazengi
+
+Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the cannonical guidance for practicing [zazen](#zazen) in the [Soto Zen](glossary#soto-zen ) school.
+
+- [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
 
 -------
 
@@ -725,6 +720,12 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 -------
 
+## Suffering
+
+One of the [Four Dharma Seals](#four-dharma-seals).
+
+-------
+
 ## Suzuki Roshi
 
 - [Fukanzazengi Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
@@ -792,7 +793,7 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 
 "Seated meditation"
 
-For detailed information on how to practice zazen, see [Fukanzazengi](#fukanzazengi).
+For detailed guidance on how to practice zazen, see [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
 
 -------
 
