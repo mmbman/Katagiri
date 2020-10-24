@@ -20,7 +20,8 @@ The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [A
 
 It particularly focuses on analyzing and synthesizing what the agama sutras mentioned from a psychological and philosophical viewpoint.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā), 
+[Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
+
 [encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
 ## Agama
@@ -38,8 +39,8 @@ The Āgamas are collections of the teachings of Shakyamuni Buddha, originally tr
 [Wikipedia link](https://en.wikipedia.org/wiki/Arhat)
 
 See
-[Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
-[Ibid (1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800),
+[Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),<br>
+[Ibid (1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800),<br>
 [Ibid (1:36:06) (definition)](1979-06-11-Fukanzazengi-Lecture3#13606)
 
 ## Aryadeva
@@ -188,6 +189,7 @@ See:
 See:
 [Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
 
+## Edward Conze
 ## Egolessness
 
 See: 
@@ -202,8 +204,8 @@ See [Dogen](#dogen)
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
 See 
-[Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),
-[Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000),
+[Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),<br>
+[Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000),<br>
 [Ibid (1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
 
 ## Emptiness
@@ -216,11 +218,33 @@ See [shunyata](glossary#shunyata).
 
 ## Four Dharma Seals
 
-The Four Dharma Seals are impermanence, suffering, no-self, and nirvana. It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
+The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering), [no-self](no-self), and [nirvana](no-self). It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
-See: [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
+See: 
+[Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
+
+## Impermanence
+
+One of the [Four Dharma Seals](#four-dharma-seals).
+
+## Isan Reiyū
+Japanese: Isan Reiyū
+Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Guishan_Lingyou)
+
+See:
+[Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+
+## Suffering
+
+One of the [Four Dharma Seals](#four-dharma-seals).
+
+## No-self
+
+One of the [Four Dharma Seals](#four-dharma-seals).
 
 ## Fukanzazengi
 
@@ -272,6 +296,8 @@ See
 [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550),
 [Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000),
 [Ibid (1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
+
+## Heart Sutra
 
 ## Hinayana
 
@@ -331,12 +357,14 @@ The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](
 
 pronounced "Ah-bay"
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Masao_Abe)<br>
+[Wikipedia link](https://en.wikipedia.org/wiki/Masao_Abe)
+
 [Translation of Fukanzazengi by Norman Waddell and Masao Abe on terebess.hu](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
 
 See:
 [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
 
+## Minnesota Zen Meditation Center
 ## Nagarjuna
 
 Nāgārjuna
@@ -351,6 +379,7 @@ Nikāya: a Pāli word meaning "volume". It is often used like the Sanskrit word 
 
 ## Nirvana
 
+One of the [Four Dharma Seals](#four-dharma-seals).
 
 ## Nirvana Sutra
 
@@ -423,11 +452,9 @@ See [Seppō Gison](seppō-gison)
 
 ## Seppō Gison
 
-Japanese: Seppō Gison;
-Chinese: 雪峰义存;
-Wade-Giles: **Hsueh-feng I-ts'un**; 
-pinyin: **Xuefeng Yicun**; 
-also Seppō Shinkaku.
+Japanese: Seppō Gison<br>
+Chinese: Xuefeng Yicun (Hsueh-feng I-ts'un) 雪峰义存<br>
+also Seppō Shinkaku
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
 
