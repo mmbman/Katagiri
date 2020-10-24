@@ -239,7 +239,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](shobogenzo). 
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
@@ -307,6 +307,12 @@ The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering)
 
 -------
 
+## Fukanzazengi
+
+See [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
+
+-------
+
 ## Fukutoku
 
 (Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to [Sanskrit](glossary#sanskrit) "punya".
@@ -318,9 +324,7 @@ The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering)
 
 ## Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
-
-- [Shobogenzo Index: Genjokoan](shobogenzo#genjokoan).
+See [Shobogenzo Index: Genjokoan](shobogenzo#genjokoan).
 
 -------
 
@@ -494,14 +498,6 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 
 -------
 
-## Fukanzazengi
-
-Dogen's "Universal Recommendation for Zazen" chapter in Shobogenzo. Provides the cannonical guidance for practicing [zazen](#zazen) in the [Soto Zen](glossary#soto-zen ) school.
-
-- [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
-
--------
-
 ## Nondualism
 
 -------
@@ -670,8 +666,6 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 -------
 
 ## Shobogenzo
-
-(Japanese) Shōbōgenzō: "Treasury of the True Dharma Eye". A collection of essays by [Eihei Dogen](#eihei-dogen), his most well-known work.
 
 - [Shobogenzo Reference Index](shobogenzo).
 - [Wikipedia: Shōbōgenzō](https://en.wikipedia.org/wiki/Shōbōgenzō)

@@ -485,7 +485,7 @@ Is that okay?
 
 **Different person**: If you have a very good teacher, always you feel like there's something lacking in yourself. You are living up to that great [calligraphy](glossary#calligraphy). 
 
-**Katagiri**: Ah, ah. I see. Right, right. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says [that] in [Genjokoan](glossary#genjokoan), always says [that]. So that's why you don't understand it. So, lack of achievement. 
+**Katagiri**: Ah, ah. I see. Right, right. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says [that] in [Genjokoan](shobogenzo#genjokoan), always says [that]. So that's why you don't understand it. So, lack of achievement. 
 
 **Question**: You'd rather keep doing... 
 

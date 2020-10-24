@@ -19,7 +19,7 @@
 
 ##### 1:20
 
-Chao Chou was one of the greatest Zen teachers in China, in the 8th century. They said that he became a monk at 60 years old. And until his death, he practiced again and again. [Dogen](glossary#dogen) really admired this Chao Chou [Zen Master](glossary#zen-master). In Shobogenzo, he mentioned about Chao Chou very much. And also he, Chao Chou, was the great Zen Master who belonged to [Rinzai](glossary#rinzai-zen ) line but he never used the shout and the stick, the hitting the monks. He used very common words; he lived in usual way. But each statement was very sharp; to pierce all monks’ heart(?). That’s why everyone admired him very much. 
+Chao Chou was one of the greatest Zen teachers in China, in the 8th century. They said that he became a monk at 60 years old. And until his death, he practiced again and again. [Dogen](glossary#dogen) really admired this Chao Chou [Zen Master](glossary#zen-master). In [Shobogenzo](shobogenzo), he mentioned about Chao Chou very much. And also he, Chao Chou, was the great Zen Master who belonged to [Rinzai](glossary#rinzai-zen ) line but he never used the shout and the stick, the hitting the monks. He used very common words; he lived in usual way. But each statement was very sharp; to pierce all monks’ heart(?). That’s why everyone admired him very much. 
 
 ##### 3:24
 
