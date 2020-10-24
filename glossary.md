@@ -18,7 +18,7 @@ Sanskrit: Abhidharmakośa
 
 The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [Abhidharma](glossary#abhidharma) written in Sanskrit by Vasubandhu in the 4th or 5th century. 
 
-It particularly focuses on analyzing and synthesizing what the agama sutras mentioned from a psychological and philosophical viewpoint.
+It particularly focuses on analyzing and synthesizing what the [agama](glossary#agama) sutras mentioned from a psychological and philosophical viewpoint.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
 
@@ -45,11 +45,11 @@ See
 
 ## Aryadeva
 
-Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in Chan Buddhism, and as "Bodhisattva Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
+Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in Chan Buddhism, and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
 
 ## Asanga
 
-Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of Mahayana Buddhism and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana Abhidharma, Vijñanavada (awareness only) thought and Mahayana teachings on the bodhisattva path.
+Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of Mahayana Buddhism and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian Sanskrit exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Asanga)
 
@@ -74,6 +74,8 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 [Wikipedia link](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 ## Blue Cliff Record
+
+Japanese: Hekiganroku
 
 See the [Blue Cliff Record Koan Index](BCR)
 
@@ -168,13 +170,9 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of Soto Zen Buddhism in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](glossary#shobogenzo). 
 
-Katagiri Roshi often refers to him as "Dogen Zenji".
+Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Dōgen)
-
-## Dogen Zenji
-
-Means "Zen Master Dogen". See [Dogen](#dogen)
 
 ## Dualism
 
@@ -575,7 +573,7 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 
 ## Zenji
 
-Japanese word meaning "Zen Master".
+Japanese word meaning "Zen Master ". E.g., [Dogen Zenji](#dogen).
 
 ----
 [Home](index.md)

@@ -19,7 +19,7 @@ This is dullness, and the other one is distraction. They present it as, in Sansk
 
 ##### 5:18
 
-But in Fukanzazengi, [the] dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
+But in Fukanzazengi, [the] dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
 
 ##### 6:00
 
@@ -167,9 +167,9 @@ So, first of all, "let's sew the good seed" means, completely beyond good or bad
 
 But he suffered a lot. And he likes [it] very much here. So he came a single time to see me, and he sat a few times here. He lives here, but he doesn't have a particular home. Every day, he has to move, and he has to do something secretly. He wants to come here, but, the government, FBI, everybody follows him. So he cannot walk in sunshine, daytime; he has to walk in the darkness. He wants to come here because zazen starts in the dark. *[the group laughs]* So, in the morning, that's why he wanted to come. And he came once. He has a small passport; that passport is a completely special passport issued by the government. This is a secret passport. Any time, any place, he can go. At any time, any where, he can kill anybody. *[some laughter]* That means, he is also, any time, any where, killed by somebody. Don't you think so? That is his job. Any time.
 
-And also, if he killed somebody, his task is successful, and government gives asylum to him. He doesn't want government, FBI, to look for him, always look for him. But he came here. And then I asked, "I [would like to] give a Buddha statue [to you]." [A statue] carved in ivory, from India – so that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: "Please keep this." And I [asked] him, "How about this Buddhist statue? Can you feel something?" Or, I showed him the Bodhisattva picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I told him – because I want to know his soft, gentle mind – so, [I asked,] "How do you feel there?" He said, "No, I don't like him." "How come?" He said, "He's a strict teacher." Maybe so, maybe so. 
+And also, if he killed somebody, his task is successful, and government gives asylum to him. He doesn't want government, FBI, to look for him, always look for him. But he came here. And then I asked, "I [would like to] give a Buddha statue [to you]." [A statue] carved in ivory, from India – so that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: "Please keep this." And I [asked] him, "How about this Buddhist statue? Can you feel something?" Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I told him – because I want to know his soft, gentle mind – so, [I asked,] "How do you feel there?" He said, "No, I don't like him." "How come?" He said, "He's a strict teacher." Maybe so, maybe so. 
 
-And also, that [other] Buddha statue. "How about this? Do you feel something quiet, or calmness?" He said, "No." "How come?" "He's too [soft?]" I think so; he's very sharp. Because Kannon Bodhisattva, [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, which is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion, or Buddha Nature? So, let's touch that Buddha's compassion through [a] human shape. That is [a] [Bodhisattva](glossary#bodhisattva). That's why Avalokiteshvara has [a] double face: human body, and also on the other hand, compassion. That's why he sees suffering. To see suffering is Avalokiteshvara, of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. That is the art of [the] Buddhist statue. So we have to see the double face. 
+And also, that [other] Buddha statue. "How about this? Do you feel something quiet, or calmness?" He said, "No." "How come?" "He's too [soft?]" I think so; he's very sharp. Because Kannon [Bodhisattva](glossary#bodhisattva), [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, which is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion, or Buddha Nature? So, let's touch that Buddha's compassion through [a] human shape. That is [a] [Bodhisattva](glossary#bodhisattva). That's why Avalokiteshvara has [a] double face: human body, and also on the other hand, compassion. That's why he sees suffering. To see suffering is Avalokiteshvara, of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. That is the art of [the] Buddhist statue. So we have to see the double face. 
 
 ##### 56:42
 
@@ -207,7 +207,7 @@ If you want to stop it, we have to sew a good seed, right now, right here. That 
 
 ##### 1:05:31
 
-That's why Dogen Zenji says, Universal Recommendation for Zazen – *Universal* Recommendation. It's really universal, not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
+That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, Universal Recommendation for Zazen – *Universal* Recommendation. It's really universal, not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
 But, if you do it by yourself, it's pretty hard. Because, making arrangement is done by your sense. That's all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means sensory world, movement system, internal organs, and also brain and nervous system. We have to arrange [them] according to a certain way. And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality, Buddha nature. At that time, very naturally, all delusions drop off, just like a lotus flower blooms through mud water.
 
@@ -227,7 +227,7 @@ That is very important. At that time, completely all delusions drop off.
 
 ##### 1:09:49
 
-This is shikantaza. So, shikantaza is arrangement of all things, and then sit down. That's all. This is really [the] Bodhisattva path, to help all sentient beings. If you practice this, your life [is] really helpful, for you and for others. It is very true. Even though you don't say [anything], somebody realizes. You have something to tell him, or her. 
+This is shikantaza. So, shikantaza is arrangement of all things, and then sit down. That's all. This is really [the] [Bodhisattva](glossary#bodhisattva) path, to help all sentient beings. If you practice this, your life [is] really helpful, for you and for others. It is very true. Even though you don't say [anything], somebody realizes. You have something to tell him, or her. 
 
 So that is shikantaza. It's pretty difficult to understand for us intellectually, because we are getting the use of always analyzing [and] synthesizing everything, in the dualistic world. It's very difficult to stop immediately. That's why even though you stop for a while, you don't appreciate that practice. But this practice is only the best way. 
 
@@ -235,7 +235,7 @@ So that is shikantaza. Shikantaza, zazen you do, mentioned by Buddha. We can exp
 
 ##### 1:12:30
 
-You can do it, okay? Wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sew the seeds. Arrangement [of] circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right dharma is manifest. Dogen Zenji says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
+You can do it, okay? Wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sew the seeds. Arrangement [of] circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right dharma is manifest. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
 
 ##### 1:14:02
 
@@ -279,19 +279,19 @@ It [sees?] the [Buddha Nature](glossary#buddha-nature) of the second one. But, i
 
 ##### 1:18:00
 
-**Question**: Roshi, were you making a distinction between the enlightenment of the [arhat](glossary#arhat) versus the enlightenment of the bodhisattva? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+**Question**: Roshi, were you making a distinction between the enlightenment of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
-**Katagiri**: Uh, bodhisattva practice, yes... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next.
+**Katagiri**: Uh, [Bodhisattva](glossary#bodhisattva) practice, yes... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next.
 
 Then what he has to do is ... he practices. Continually, he practices. But [he] aims just to sew good time and occasion, and good conditions. Arrangement. 
 
 ##### 1:19:55
 
-That means, without entering nirvana, [the] bodhisattva just sews, arranging environment, and then just stands up there. But it ... immediately blooms his Buddha nature. That is Tathagata. The bodhisattva has double face – Bodhisattva and Buddha.
+That means, without entering nirvana, [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his Buddha nature. That is Tathagata. The bodhisattva has double face – Bodhisattva and Buddha.
 
-When the Buddha appears, it's quiet. Nothing. You cannot see it. But a Buddha is hidden behind the bodhisattva; bodhisattva walks, as a human being. Bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water.
+When the Buddha appears, it's quiet. Nothing. You cannot see it. But a Buddha is hidden behind the [Bodhisattva](glossary#bodhisattva); bodhisattva walks, as a human being. Bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water.
 
-**Same person**: But is the bodhisattva practice of the third kind? 
+**Same person**: But is the [Bodhisattva](glossary#bodhisattva) practice of the third kind? 
 
 **Katagiri**: Mmm hmm. Sure. Yes it is.
 
@@ -319,7 +319,7 @@ So finally, [the] third type of zazen doesn't have a goal. We can say so. But it
 
 **Same person**: Mmm-hmm.
 
-Well, I don't know, of course, but it seems like if a person practices so that he or she becomes an arhat, automatically it must move to the third type.
+Well, I don't know, of course, but it seems like if a person practices so that he or she becomes an [arhat](glossary#arhat), automatically it must move to the third type.
 
 **Katagiri**: Oh, of course, this is... Yes. Automatic.
 
@@ -327,7 +327,7 @@ Well, I don't know, of course, but it seems like if a person practices so that h
 
 **Katagiri**: Not automatic, sometimes. *[he chuckles]* Not automatic. No.
 
-It's not [automatically?] open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of zazen practice; that is, you can do [it]. But not everybody, because everybody has different karmas. But, it is not the object of criticism given by us, because, if I look [at the arhat's] life in this world, his life is happy, wonderful, because he entered nirvana. Wonderful. So, better than nothing. Wonderful. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
+It's not [automatically?] open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of zazen practice; that is, you can do [it]. But not everybody, because everybody has different karmas. But, it is not the object of criticism given by us, because, if I look [at the [arhat](glossary#arhat)'s] life in this world, his life is happy, wonderful, because he entered nirvana. Wonderful. So, better than nothing. Wonderful. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
 
 So [normally?] there is no chance to come back to the samsaric world. 
 
@@ -335,7 +335,7 @@ So [normally?] there is no chance to come back to the samsaric world.
 
 **Katagiri** No.
 
-So, they're just a river... practicing, waiting for death. But a bodhisattva and tathagata are a little different.
+So, they're just a river... practicing, waiting for death. But a [Bodhisattva](glossary#bodhisattva) and tathagata are a little different.
 
 ##### 1:27:13
 
@@ -395,7 +395,7 @@ How do you know? No way. Well, we have to aim at life after next life, and next 
 
 So, just arrange all circumstances, inwardly and outwardly, and stand up. Bloom. Your tree must bloom. And if you bloom, everyone looks at you. Everyone realizes. Okay?
 
-Because if you bloom, according to Buddhism, one is many, and many is one. You are connected with many thousand. So, if one tiny seed, tiny rose flower blooms here, immediately [the] whole world is connected. They will all be connected, directly or indirectly. It's very helpful for you, for others. So Dogen used the term, "Flower blooms, the world arises." Spring comes, flower blooms. Which of the two comes first? We don't know. *[unintelligible]*. Weed blooms. Flower blooms; that's you.... The world exists; look at the [flower] blooming.
+Because if you bloom, according to Buddhism, one is many, and many is one. You are connected with many thousand. So, if one tiny seed, tiny rose flower blooms here, immediately [the] whole world is connected. They will all be connected, directly or indirectly. It's very helpful for you, for others. So [Dogen](glossary#dogen) used the term, "Flower blooms, the world arises." Spring comes, flower blooms. Which of the two comes first? We don't know. *[unintelligible]*. Weed blooms. Flower blooms; that's you.... The world exists; look at the [flower] blooming.
 
 That blooming flower is very active life, carrying on in Spring. And the world exists. And also, in turn, the other seasons exist. You bloom; first of all, we have to bloom. If you bloom, you are not one, you are many.
 
@@ -439,7 +439,7 @@ But that death, we can see objectively, is nothing but flickering lights. Appear
 
 And he knows, on the other hand, flickering lights. "Hey Katagiri – all these flickering lights push you, poke you. Tap you." [It taps] your back. *[tapping sound]* "Do you like death?" – "No." – "Do you want to live more?" – "Yes, I want to live." – *[unintelligible]*  You don't like death. But death says, "I will take care of you." *[he laughs]* "I will take care of you, Katagiri. Even though you don't like [it], death is good for you. Death will take care of you." So finally I say, "Okay, okay; that's up to you." *[he laughs]* 
 
-Completely give up. *[unintelligible]* Because I, and death, and life, are all the same. Come and go – just the same. So, maybe for arhat, his life is very peaceful, his death is very peaceful. But for Zen master ... [someone] says, "Would you give me a certain wonderful message for disciples, because you are dying, please? We need final words." [The Zen Master] said, "I don't want to die." *[he laughs]* This is final words for him. That means, watch out; you should know flickering lights, right in the middle of death, tapping your back, always. But even your back, it is your life. So, all you have to do is, you please die. Death always tapping your back. That's what he expressed to him. There is kind of humor, but, it is really true.
+Completely give up. *[unintelligible]* Because I, and death, and life, are all the same. Come and go – just the same. So, maybe for [arhat](glossary#arhat), his life is very peaceful, his death is very peaceful. But for [Zen Master](glossary#zen-master) ... [someone] says, "Would you give me a certain wonderful message for disciples, because you are dying, please? We need final words." [The Zen Master] said, "I don't want to die." *[he laughs]* This is final words for him. That means, watch out; you should know flickering lights, right in the middle of death, tapping your back, always. But even your back, it is your life. So, all you have to do is, you please die. Death always tapping your back. That's what he expressed to him. There is kind of humor, but, it is really true.
 
 ##### 1:47:24
 

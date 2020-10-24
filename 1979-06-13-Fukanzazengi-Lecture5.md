@@ -9,14 +9,14 @@
 
 There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than [Gensha Shibi](glossary#gensha-shibi). This story occurs in the [Shobogenzo](glossary#shobogenzo) [in the fascicle] ["The One Bright Pearl"](shobogenzo#one-bright-pearl); you can find this story there.
 
-[Gensha Shibi Zen Master](glossary#gensha-shibi) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained enlightenment, so he left the boat and he became a monk immediately after that. 
+[Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained enlightenment, so he left the boat and he became a monk immediately after that. 
 
 ##### 2:26
 
-Then, in history, [Gensha Shibi](glossary#gensha-shibi) Zen Master practiced under the guidance of [Seppō](glossary#seppō-gison), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to [Shobogenzo](glossary#shobogenzo), alluded to by [Dogen](glossary#dogen) ... he finally went to Seppō mountain and placed himself under the guidance of 
-Shinkaku – that [is] another name of [Seppō](glossary#seppō) Zen Master – practicing day and night.
+Then, in history, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) practiced under the guidance of [Seppō](glossary#seppō-gison), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to [Shobogenzo](glossary#shobogenzo), alluded to by [Dogen](glossary#dogen) ... he finally went to Seppō mountain and placed himself under the guidance of 
+Shinkaku – that [is] another name of [Seppō](glossary#seppō) [Zen Master](glossary#zen-master) – practicing day and night.
 
-One day, to visit masters widely in other areas and perfect his practice, he took up his traveling pouch and was leaving the mountain. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails of his toes. Immediately, of course, blood appears, and he screams, "Ouch!" And then, amidst the intense pain, he had an abrupt self-realization, saying, "This body doesn't exist. Where is the pain coming from?" And he returned immediately to [Seppō](glossary#seppō-gison) Zen Master.
+One day, to visit masters widely in other areas and perfect his practice, he took up his traveling pouch and was leaving the mountain. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails of his toes. Immediately, of course, blood appears, and he screams, "Ouch!" And then, amidst the intense pain, he had an abrupt self-realization, saying, "This body doesn't exist. Where is the pain coming from?" And he returned immediately to [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master).
 
 ##### 5:14
 
@@ -78,7 +78,7 @@ So, that's why we have to see [zazen](glossary#zazen) directly, zazen itself. Th
 
 ##### 22:10
 
-That's why [in] that story, [Gensha Shibi](glossary#gensha-shibi) Zen Master immediately had an abrupt self realization, saying, "This body doesn't exist; where is the pain coming from?" And then he returned immediately to [Seppō](glossary#seppō-gison)'s temple, and Seppō asked him, "What is this, mendicant Pei?" "Mendicant Pei" means his name (another name for [Gensha Shibi](glossary#gensha-shibi)). And then, [Gensha](glossary#gensha-shibi) replied, "I will never deceive others." If you always really are involved in before [zazen](glossary#zazen), after zazen, you are always deceived, you are taken in. That means, "I never deceive." 
+That's why [in] that story, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) immediately had an abrupt self realization, saying, "This body doesn't exist; where is the pain coming from?" And then he returned immediately to [Seppō](glossary#seppō-gison)'s temple, and Seppō asked him, "What is this, mendicant Pei?" "Mendicant Pei" means his name (another name for [Gensha Shibi](glossary#gensha-shibi)). And then, [Gensha](glossary#gensha-shibi) replied, "I will never deceive others." If you always really are involved in before [zazen](glossary#zazen), after zazen, you are always deceived, you are taken in. That means, "I never deceive." 
 
 ##### 23:22
 
@@ -94,7 +94,7 @@ That's why ... if [Seppō](glossary#seppō-gison) asked him, "Who are you? What 
 
 ##### 26:10
 
-And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So [Seppō](glossary#seppō-gison) [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach Buddhism. This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some Zen master says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
+And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So [Seppō](glossary#seppō-gison) [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach Buddhism. This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some [Zen Master](glossary#zen-master) says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
 
 So completely [the] answer is, all of the questions. Because Buddhism is focused on [zazen](glossary#zazen) itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
 
@@ -116,7 +116,7 @@ But we don't understand. That's why we say, "Let's accumulate merit and virtue."
 
 ##### 33:44
 
-[Dogen Zenji](glossary#dogen-zenji) really admired [Gensha Shibi](glossary#gensha-shibi) and [Seppō](glossary#seppō-gison) Zen Master in this story. 
+[Dogen](glossary#dogen) [Zenji](glossary#zenji) really admired [Gensha Shibi](glossary#gensha-shibi) and [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master) in this story. 
 
 So, "Gensha said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West.' This gained [Seppō](glossary#seppō-gison)'s special praise." [Seppō](glossary#seppō-gison) really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, [zazen](glossary#zazen) itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] dualistic world. So all we have to do is focus on just right here. 
 
@@ -124,7 +124,7 @@ So, "Gensha said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. 
 
 In [zazen](glossary#zazen), I told you before, if you see yourself in zazen with emotions, with anger, with [dullness](glossary#dullness), with indulgence, with [boredom?], with sleepiness – and lots of things happen – but remember, that is exactly your life. Not in a certain period of time which is called zazen; it is really your life, your whole life, in the past, in the present. You handle it. Your life is just like this. 
 
-That's why when I was at Eiheiji monastery, [a] Zen master scolded us: "When you have to do [zazen](glossary#zazen), you have to do zazen right now. If you cannot do this, you cannot do *all* immediately." Because, one is many, many is one. If you can deal with one zazen exactly perfectly, it is your whole life, [and] you can handle your life. But if you don't, well, it is just exactly proof of your life: how you handle it, how you have been been handling it, and how you will. How you are handling that. It is true. But – don't be involved in such a feeling in zazen ... Still you can be free from such a feeling, emotions, your picture of your life. How you handle it, how you have handled [it], how you will handle [it], how you are handling [it] now; you can be completely free. For this, when you have to strike your toes on the rock, you *have* to. No way.
+That's why when I was at Eiheiji monastery, [a] [Zen master](glossary#zen-master) scolded us: "When you have to do [zazen](glossary#zazen), you have to do zazen right now. If you cannot do this, you cannot do *all* immediately." Because, one is many, many is one. If you can deal with one zazen exactly perfectly, it is your whole life, [and] you can handle your life. But if you don't, well, it is just exactly proof of your life: how you handle it, how you have been been handling it, and how you will. How you are handling that. It is true. But – don't be involved in such a feeling in zazen ... Still you can be free from such a feeling, emotions, your picture of your life. How you handle it, how you have handled [it], how you will handle [it], how you are handling [it] now; you can be completely free. For this, when you have to strike your toes on the rock, you *have* to. No way.
 
 This is [shikantaza](shikantaza). 
 
@@ -284,7 +284,7 @@ The pain. During the [zazen](glossary#zazen), you can feel pain physically. And 
 
 **Katagiri**: No pain. *[he laughs]* I'm sorry. No pain, no delusions. This is real [zazen](glossary#zazen).
 
-That's why [Dogen Zenji](glossary#dogen) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking Gensha's toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
+That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking Gensha's toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
 
 We get use [out] of looking at the before striking and after striking – that is very common. But we don't pay attention to the striking itself. Striking itself is no striking, because no thought. Striking from where? From where does the striking come? "I hear the striking come" [is] already [an] idea. [The] idea comes [as] the result of you [being] present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely unified. Perfect.
 
@@ -318,7 +318,7 @@ Outside observer also disappears.
 
 It is true. Don't you think so? 
 
-If Gensha Zen Master disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no suffering, no pain – just there. 
+If Gensha [Zen Master](glossary#zen-master) disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no suffering, no pain – just there. 
 
 **Same person**: But what if I'm in my room sitting [zazen](glossary#zazen), and I'm in samadhi, and so the universe disappears for me. But somebody walks up to my room. You know, to me, nothing is happening, but they'd be seeing me sitting on a cushion. I've never been able to straighten that out, you know, what...
 

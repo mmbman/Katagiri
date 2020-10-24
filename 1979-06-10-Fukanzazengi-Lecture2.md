@@ -35,13 +35,13 @@ Also number six is, I told you yesterday ... the whole personality, or total per
 
 So, total personality. The total personality has [a] double face. One is karma; you have carried [this] from the past. And also, the other face is that total personality [which] is completely beyond human criticism. That is really [Buddha Nature](glossary#buddha-nature). 
 
-So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen-zenji) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is Buddha Nature. If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
+So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is Buddha Nature. If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
 
 ##### 6:20
 
 That is really [the] total picture of our personal living, everyday life. Circumstances: that's why [for] circumstances, all we have to do is, first, we have to throw away all involvements, and also cease all affairs. At that time, we cut off, sit, [and] completely [we] are free from circumstances. But it doesn't mean we destroy circumstances. Circumstances are existent, but they don't bother you. So, circumstances just exist, just exist. 
 
-Point is, usually we are completely tossed away by circumstances. That's why Dogen [says that] in zazen, we have to first [be] free from circumstances. That's why we have to throw away, cease all affairs and all involvements. This is [the] first [thing] we have to do. 
+Point is, usually we are completely tossed away by circumstances. That's why [Dogen](glossary#dogen) [says that] in zazen, we have to first [be] free from circumstances. That's why we have to throw away, cease all affairs and all involvements. This is [the] first [thing] we have to do. 
 
 And then, second, [he] mentions that we have to make arrangement of [the] sensory world. So, let's fix [it]. Let's choose the room. Not dark, not bright. That is sensory world. 
 
@@ -123,7 +123,7 @@ That's what I said, yesterday. So, if you have questions about this case, please
 
 ##### 27:00
 
-So, that's why yesterday I said, as [Dogen Zenji](glossary#dogen) says, [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. How can you do it? If you practice like this, immediately, dullness and distractions from the first are struck aside. Leading away. Drops off, very naturally. So very naturally, total personality appears. But [the] problem is, you cannot perceive what it is. That's a problem. Because mind is always wanting to poke its head into the hole always, whatever you do. Like a [cat](glossary#cat)! That is characteristic of mind: analyze. This is us. 
+So, that's why yesterday I said, as [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. How can you do it? If you practice like this, immediately, dullness and distractions from the first are struck aside. Leading away. Drops off, very naturally. So very naturally, total personality appears. But [the] problem is, you cannot perceive what it is. That's a problem. Because mind is always wanting to poke its head into the hole always, whatever you do. Like a [cat](glossary#cat)! That is characteristic of mind: analyze. This is us. 
 
 Do you have any questions?
 
@@ -179,7 +179,7 @@ So that's why the regulation of the mind, that is very important.
 
 ##### 37:18
 
-So from this point, it's pretty easy. No difficulty. That's why Dogen Zenji says, there is faith – if you believe total personality, or Buddha nature, whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no suffering. No suffering, no confusion, no agitation, et cetera. Completely perfect. 
+So from this point, it's pretty easy. No difficulty. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, there is faith – if you believe total personality, or Buddha nature, whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no suffering. No suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 So it's pretty easy, in a sense. But in a sense, according to [the] six consciousnesses, it's pretty hard. Because, in the six consciousnesses, we can understand our life according to [the] huge pile of experiences which you have accumulated. That's why it's pretty hard. 
 
@@ -337,7 +337,7 @@ Is that clear? Is that okay?
 
 ##### 1:03:07
 
-**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher ... and his teaching; Dogen, Buddha; again and again you're doing the calligraphy, until it's like the teacher's calligraphy?
+**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher ... and his teaching; [Dogen](glossary#dogen), Buddha; again and again you're doing the calligraphy, until it's like the teacher's calligraphy?
 
 **Katagiri**: Mmm hmm. I think so; that is the best way. 
 
@@ -345,11 +345,11 @@ Is that clear? Is that okay?
 
 *Katagiri*: Yes. That is, well, you can attain enlightenment, that is but poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, [there are] many kinds of enlightenment. 
 
-So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by Buddha, and Dogen, et cetera.
+So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by Buddha, and [Dogen](glossary#dogen), et cetera.
 
-**Same person**: Our connection to Dogen and Buddha is for you...
+**Same person**: Our connection to [Dogen](glossary#dogen) and Buddha is for you...
 
-**Katagiri**: Teacher is Buddha, and Dogen, and [patriarch](glossary#patriarch), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
+**Katagiri**: Teacher is Buddha, and [Dogen](glossary#dogen), and [patriarch](glossary#patriarch), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
 
 ##### 1:05:15
 
@@ -417,7 +417,7 @@ I don't know other teachers, so, I just follow the, well, [Buddhistic](glossary#
 
 **Same person**: What does [samadhi](glossary#samadhi) mean?
 
-**Katagiri**: Samadhi is one-pointedness. To take care of. Dogen Zenji says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
+**Katagiri**: Samadhi is one-pointedness. To take care of. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
 
 ##### 1:13:17
 
@@ -485,7 +485,7 @@ Is that okay?
 
 **Different person**: If you have a very good teacher, always you feel like there's something lacking in yourself. You are living up to that great calligraphy. 
 
-**Katagiri**: Ah, ah. I see. Right, right. [Dogen Zenji](glossary#dogen-zenji) says [that] in [Genjokoan](glossary#genjokoan), always says [that]. So that's why you don't understand it. So, lack of achievement. 
+**Katagiri**: Ah, ah. I see. Right, right. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says [that] in [Genjokoan](glossary#genjokoan), always says [that]. So that's why you don't understand it. So, lack of achievement. 
 
 **Question**: You'd rather keep doing... 
 

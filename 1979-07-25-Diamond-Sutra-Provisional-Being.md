@@ -43,9 +43,9 @@ When you yawn, that is your karma. If you are rough, this is also karma. If you 
 
 ##### 9:54
 
-So, no ego consciousness. This kind of Bodhisattva, who exists under all circumstances, teaching the Buddha's teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
+So, no ego consciousness. This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the Buddha's teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
 
-There are four kinds of perceptions of object negatively, because according to Diamond Sutra, this Bodhisattva practiced four no-perceptions of object.
+There are four kinds of perceptions of object negatively, because according to Diamond Sutra, this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
 
 ##### 11:02
 
@@ -83,11 +83,11 @@ But it's very difficult to describe. But here is master of – as long as you ha
 
 Do you understand? This is no perception of soul, no perception of object. 
 
-So that is the particular practice for Bodhisattvas, for many years in his past life. No perception of the subject, no perception of the object.
+So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for many years in his past life. No perception of the subject, no perception of the object.
 
 ##### 20:52
 
-> And why? If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
+> And why? If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
 > 
 > (Quote from "Buddhist Wisdom: The Diamond Sutra and The Heart Sutra" by Edward Conze, pp. 27-28)
 
@@ -201,7 +201,7 @@ That's why Buddha always says, everything is emptiness. That means impermanence.
 
 So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
 
-That's why it says, "If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with the hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
+That's why it says, "If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with the hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
 
 [The] simile of [the] raft [occurs] in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. So that means, no perception of the subject, no perception of the object. That means, if you study at school in order to get a master degree or Ph.D. – get a degree! Study hard, get a degree. But it is not [a] final stage you have to ... stay with. You have to leave Ph.D. [for] the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that's not sharing your life with the poor people, with the suffering people. Because you are always proud [of] yourself too much: "I am doctor." You are not doctor. "I am doctor. Student, I am teacher. First, bow. Then, what do you want? I want to teach you. Give me money." *[laughter]*
 

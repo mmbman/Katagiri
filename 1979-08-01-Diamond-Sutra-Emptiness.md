@@ -101,7 +101,7 @@ You experience [this] in your daily living. I sometimes [take a] trip to Omaha b
 
 The original nature of existence is just like oneness right in the middle of [the] airplane. That's all. This is original nature of existence, in which you are present constantly. 
 
-But when you don't satisfy this, immediately you create psychic crack, consciousness starts [to] work. And then consciousness continually works, on and on. Finally, we create what is called Buddhist Psychology. *[a couple soft laughs]* Huge system of Buddhist Psychology, which is called Abhidharma. *[he chuckles]* Abhidharma –huge. 
+But when you don't satisfy this, immediately you create psychic crack, consciousness starts [to] work. And then consciousness continually works, on and on. Finally, we create what is called Buddhist Psychology. *[a couple soft laughs]* Huge system of Buddhist Psychology, which is called [Abhidharma](glossary#abhidharma). *[he chuckles]* Abhidharma –huge. 
 
 That's wonderful. But this is still something you play with, constantly. This is important too. But [the] most important point is, be one with [the] nature of existence, because [the] nature of existence is emptiness. Emptiness means no gap between you and original nature of existence. No gap. So all you have to do is, you must be present with original nature of existence. Constantly, whatever happens, under all circumstances, day after day: stand up there, take care of it. And then at that time, you can experience perfect stability.
 

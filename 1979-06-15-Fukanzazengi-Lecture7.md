@@ -19,7 +19,7 @@ So that was really [the] highest level of practice in those days, [a] practice [
 
 ##### 6:15
 
-Dogen commented on *[thunder]* this story with deepest respect, in the collection of Dogen's short preachings. Dogen Zenji says:
+[Dogen](glossary#dogen) commented on *[thunder]* this story with deepest respect, in the collection of Dogen's short preachings. Dogen [Zenji](glossary#zenji) says:
 
 > The Buddha enters samadhi with consciousness, and the thirty-four ways to sever delusions manifest themselves within it. The Buddha uses this from morning to night, and illuminates the quest of his body in the zendo.
 > 
@@ -29,11 +29,11 @@ Dogen commented on *[thunder]* this story with deepest respect, in the collectio
 
 ##### 8:02
 
-"The thirty-four ways to sever delusions manifested themselves within it." In those days, there were 34 techniques [or ways] to sever the delusions and ... attain enlightenment, enter nirvana. But if the Buddha did zazen with consciousness, at that time within it, the 34 ways to sever delusion and enter nirvana manifest themselves. That is Dogen's understanding. That's why [the] layman also said, "How excellent it is." *[thunder]* 
+"The thirty-four ways to sever delusions manifested themselves within it." In those days, there were 34 techniques [or ways] to sever the delusions and ... attain enlightenment, enter nirvana. But if the Buddha did zazen with consciousness, at that time within it, the 34 ways to sever delusion and enter nirvana manifest themselves. That is [Dogen](glossary#dogen)'s understanding. That's why [the] layman also said, "How excellent it is." *[thunder]* 
 
 ##### 9:14
 
-Also, Dogen Zenji said, in Bendowa: 
+Also, [Dogen](glossary#dogen) [Zenji](glossary#zenji) said, in Bendowa: 
 
 > Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon.
 
@@ -50,7 +50,7 @@ Well, I told you so far, if you do really real zazen – not before zazen, not a
 
 ##### 14:31
 
-So sometimes, right in the middle of zazen, still you can go in enlightenment or go out of enlightenment. But whatever you do – goes in, goes out – all are going on right in the middle of zazen. So, Dogen Zenji says, "Mind and its object both goes in, goes out of enlightenment within zazen itself, in the stillness of samadhi. Since it occurs [within] the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon." 
+So sometimes, right in the middle of zazen, still you can go in enlightenment or go out of enlightenment. But whatever you do – goes in, goes out – all are going on right in the middle of zazen. So, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Mind and its object both goes in, goes out of enlightenment within zazen itself, in the stillness of samadhi. Since it occurs [within] the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon." 
 
 "It doesn't disturb a single mote of dust," – that means object. If you do zazen, zazen becomes [the] object. But, your zazen ... doesn't disturb your object. Without moving even an inch to the left [or right,] or front [or] backward, anyway, you can completely become one with zazen itself. At that time, using your body, your breath, and your mind – in other words, by the regulation of your body, and breath, and mind – if this practice is exactly perfect, your whole body is exactly fitting into zazen, your object. So, at that time, your body and mind disappear. Where? Within zazen. So, it's not necessary to remove zazen from one "A" place, to "B" place, or forward and backward, or up and down. Nothing; just there. And all you have to do is make arrangement [of] your body, your breath and mind, and just fit into it. At that time, without moving, without disturbing even a single mote of dust, you can be one with [it], you can be right in the middle of samadhi. That is called samadhi, okay?
 
@@ -66,7 +66,7 @@ So zazen is you, you are zazen. At that time, I told you – I think on the seco
 
 And then, jijuyu: "since it occurs within the sphere of jijuyu" means, when you do zazen in that way, your body and mind become one with zazen, and then, zazen and all circumstances return to you. All circumstances exist simultaneously in peace and harmony. Sound of the car, sound of the thunder, exist. But your mind is here. But zazen and all circumstances return to you. That means, [when] we do zazen, everything exists in peace and harmony. Japan, the United States, sound of [the] car, sound of the cat, sound of the raindrops, lightning – whatever happens, all exist in peace, right in the middle of zazen. At that time it is called jijuyu, samadhi of jijuyu. "Ji" is "self". The "ju" of jijuyu means "receive". "Yu" is "to function, to work, or to take advantage of". So ... if you do zazen like this, you can receive freedom, very naturally, of itself. And, you can use it. 
 
-So that's why Dogen Zenji says, "Although in realization the mind and its object both arise and disappear within the stillness of samadhi, since it occurs within the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon." 
+So that's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Although in realization the mind and its object both arise and disappear within the stillness of samadhi, since it occurs within the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon." 
 
 ##### 22:34
 
@@ -74,13 +74,13 @@ So from this point, what the Buddha said, not to hear the sound of the thunder d
 
 ##### 25:10
 
-And also Dogen Zenji says, "the Buddha uses this from morning to night." Not only in the time of doing zazen, but also from morning to night, your mind must be attentive to all movement of behavior. Working in the kitchen, and walking in the hallways, walking in the zendo, picking [a] plant [or] grasses outside, [washing] something; whatever you do, your mind must be *there*, present with each movement.
+And also [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "the Buddha uses this from morning to night." Not only in the time of doing zazen, but also from morning to night, your mind must be attentive to all movement of behavior. Working in the kitchen, and walking in the hallways, walking in the zendo, picking [a] plant [or] grasses outside, [washing] something; whatever you do, your mind must be *there*, present with each movement.
 
 ##### 26:06
 
 So, zazen is always working in your daily living from morning to night, but it doesn't mean you should be nervous because you have to pay careful attention to your mind, checking whether your mind is always attentive to each movement. If you do that, you will be nervous. I don't mean that; because you cannot stop, you cannot disturb even a single mote of dust. In other words, you cannot stop the stream of time. You must be always right in the middle of the stream of time. Nevertheless, there is mind, present with activity. 
 
-That's why Dogen Zenji says, "The Buddha uses this from morning to night *[thunder]*, and culminates the quest of his body in the zendo." "Culminates the quest of his body" means, mind completely fit[s], [fills?] his body. In other words, I always use, "[With] your kind compassionate attention, penetrate from the top of your head, to the tip of your toes." That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can hold back; you can stand up with two hands; but usually you have to stand up with two feet. But [that] is not [the] real practice of Zen. You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, your all-circumstances. At that time, you can really culminate the quest of your body. And then you say, "Oh. This is stand[ing] up, perfectly." You feel good at that time. 
+That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The Buddha uses this from morning to night *[thunder]*, and culminates the quest of his body in the zendo." "Culminates the quest of his body" means, mind completely fit[s], [fills?] his body. In other words, I always use, "[With] your kind compassionate attention, penetrate from the top of your head, to the tip of your toes." That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can hold back; you can stand up with two hands; but usually you have to stand up with two feet. But [that] is not [the] real practice of Zen. You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, your all-circumstances. At that time, you can really culminate the quest of your body. And then you say, "Oh. This is stand[ing] up, perfectly." You feel good at that time. 
 
 ##### 28:56
 
@@ -90,7 +90,7 @@ And then, that is what is called "to culminate the quest of your body". And then
 
 So that's why finally, you will be a great guitar player. Even though you don't like it, even though you don't expect [it], finally, you will be a great guitar player.
 
-That's why Dogen Zenji says, "Buddha uses this from morning to night and culminates the quest of his body in the zendo." 
+That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Buddha uses this from morning to night and culminates the quest of his body in the zendo." 
 
 **Question**: Culminates?
 
@@ -100,7 +100,7 @@ That's why Dogen Zenji says, "Buddha uses this from morning to night and culmina
 
 That's why in Fukanzazengi, "Zazen must be deportment beyond man's hearing and seeing." But, of course it is hearing and seeing, because you cannot move even a single mote of dust, nor infringe upon a single phenomenon. So finally, you can manifest [the] beautiful flower of the total personality, right in the middle of zazen. So, at that time, "Is it not a principle that is prior to his knowledge and perceptions." And you have to use knowledge and perceptions – not no-mind. "No mind" means through and through, you have to use mind.
 
-So, that is [the] practice of regulation of your body, breath, and mind. We should know the mind is very picky. Monkey mind. That's why we need the practice of regulating the mind. But we have to use the mind. When you regulate your body and breath, there must be the mind, with your body, your breath. Otherwise, you become cats and dogs. Cat and dog and bird can do with their bodies, but no mind. But we are human beings. So first, we have to do something with your body, but there must be mind, constantly. So finally, [the] final goal of the practice [of] regulating the mind is to be free from mind, because mind is picky. That's why Dogen Zenji says, we have to practice samadhi, complete samadhi, becoming one; using your whole body and mind, in order to fit your object perfectly. Adjusting, regulating your body, and breath, and mind. And then, [if] everything is perfect at that time, very naturally, your body fits to your object. And then, something happens. Something happens. We don't know what it is. And then when we see it, when your mind [is] immediately there and picking that, then we say, "Oh, that's zazen." But before your mind picks [it] up, that zazen is no-name. Just, something happens. 
+So, that is [the] practice of regulation of your body, breath, and mind. We should know the mind is very picky. Monkey mind. That's why we need the practice of regulating the mind. But we have to use the mind. When you regulate your body and breath, there must be the mind, with your body, your breath. Otherwise, you become cats and dogs. Cat and dog and bird can do with their bodies, but no mind. But we are human beings. So first, we have to do something with your body, but there must be mind, constantly. So finally, [the] final goal of the practice [of] regulating the mind is to be free from mind, because mind is picky. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, we have to practice samadhi, complete samadhi, becoming one; using your whole body and mind, in order to fit your object perfectly. Adjusting, regulating your body, and breath, and mind. And then, [if] everything is perfect at that time, very naturally, your body fits to your object. And then, something happens. Something happens. We don't know what it is. And then when we see it, when your mind [is] immediately there and picking that, then we say, "Oh, that's zazen." But before your mind picks [it] up, that zazen is no-name. Just, something happens. 
 
 So, very naturally, zazen blooms. And also you bloom, as total personality, there. 
 
@@ -126,9 +126,9 @@ Okay, do you have any questions?
 
 **Katagiri**: Same. [The] expression is different, but same situation. 
 
-The Zen master [is] always right in the middle of real rain drops. But, it's not necessary to stay with it. That's why any time, anywhere, he can go to the right, to the left. That's why he said, "almost". Because if you say, "I am to the left; I am just here" – immediately: "Hey, hey!" another aspect [decides?], "Why don't you come this way?" So, "Okay, I will go." If you stay there, and then pop in, "I am here," another side says, "Why don't you come here?" That is dualistic. *[thunder]*
+The [Zen Master](glossary#zen-master) [is] always right in the middle of real rain drops. But, it's not necessary to stay with it. That's why any time, anywhere, he can go to the right, to the left. That's why he said, "almost". Because if you say, "I am to the left; I am just here" – immediately: "Hey, hey!" another aspect [decides?], "Why don't you come this way?" So, "Okay, I will go." If you stay there, and then pop in, "I am here," another side says, "Why don't you come here?" That is dualistic. *[thunder]*
 
-Basically, [a] Zen Master, right in the middle of real raindrops, he never moves. But even if he moves: [that is] flickering lights. Right side, left side. And then, in the realm of flickering lights: "I am in the right side" or "I am in the left side" – that is "almost". It's not a real place he has to stay. Anytime, he can move. That is freedom. 
+Basically, [a] [Zen Master](glossary#zen-master), right in the middle of real raindrops, he never moves. But even if he moves: [that is] flickering lights. Right side, left side. And then, in the realm of flickering lights: "I am in the right side" or "I am in the left side" – that is "almost". It's not a real place he has to stay. Anytime, he can move. That is freedom. 
 
 ##### 41:54
 
@@ -154,7 +154,7 @@ Before, I told you always, there is a scale. Now why don't you point out the *mi
 
 Is there anyone who attained enlightenment? No one? *[laughter]*
 
-Nakagawa Roshi ... at the last day of sesshin, he would say – He is very interesting Zen master. He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the Rinzai Zen style, so that's okay; beautiful, anyway. So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and *[he laughs]* he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained enlightenment. Do you know who it is?" *[everyone laughs]* That is a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" *[he loudly slams down a stick or something]* *[raucous laughter]* *[unintelligible]* That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who? Who?" ... "Maybe I?" *[laughter]* But he says, "No, no, no. I don't either." He's a nice guy, huh? Finally, all *[unintelligible]*. "Yes." *[laughter]*
+Nakagawa Roshi ... at the last day of sesshin, he would say – He is very interesting [Zen Master](glossary#zen-master). He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the Rinzai Zen style, so that's okay; beautiful, anyway. So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and *[he laughs]* he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained enlightenment. Do you know who it is?" *[everyone laughs]* That is a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" *[he loudly slams down a stick or something]* *[raucous laughter]* *[unintelligible]* That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who? Who?" ... "Maybe I?" *[laughter]* But he says, "No, no, no. I don't either." He's a nice guy, huh? Finally, all *[unintelligible]*. "Yes." *[laughter]*
 
 *[he laughs]* Remember that story. That's [a] real, true story. 
 

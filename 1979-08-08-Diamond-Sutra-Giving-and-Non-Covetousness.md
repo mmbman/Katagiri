@@ -9,7 +9,7 @@
 
 (The recording begins toward the end of Katagiri quoting the passage below. He then repeats it.)
 
-> (Chapter 8) The Lord then asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, Arhats, Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit".
+> (Chapter 8) The Lord then asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit".
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 34-35, immediately following the passage quoted in the previous talk.)
 
@@ -21,15 +21,15 @@ The commentary by Conze here is very interesting. Let me read [it] first:
 
 In Mahayana Buddhism, [the] perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā). Giving is the first item of the six paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in [the] proper way. Which is one of the Eightfold Noble Truths (Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. [The] first important thing is to practice perfection of giving. 
 
-If you read Mahayana Buddhist scriptures, very often they say, "give offerings decorated with seven precious treasures to Tathagatas, to Arhats, to noble enlightened men." Very often [they speak] in that way. So according to modern sense, it doesn't make sense whether to give. Why don't give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand in that way about the practice of giving, it's pretty difficult to understand the real spirit of Mahayana Buddhism. That's why Conze says, "Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity." I would like to talk about this point of view tonight. 
+If you read Mahayana Buddhist scriptures, very often they say, "give offerings decorated with seven precious treasures to Tathagatas, to [Arhats](glossary#arhat), to noble enlightened men." Very often [they speak] in that way. So according to modern sense, it doesn't make sense whether to give. Why don't give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand in that way about the practice of giving, it's pretty difficult to understand the real spirit of Mahayana Buddhism. That's why Conze says, "Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity." I would like to talk about this point of view tonight. 
 
 ##### 7:44
 
-Dogen Zen Master says, giving is not to covet. This is the meaning of [the] practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to the psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always. Try to get more, always try to get [something] from [them]. Not giving something to others, [but] trying to get something from others, always. This is covetousness. 
+[Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, giving is not to covet. This is the meaning of [the] practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to the psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always. Try to get more, always try to get [something] from [them]. Not giving something to others, [but] trying to get something from others, always. This is covetousness. 
 
 This is very common, very common in the human world. That's why we fight each-other always. Arguments, disputes; finally, we fight. Finally... we are living separately, and what is the term I use always – *[he struggles for the term]* – divorce. *[laughter]* It very often happens in this world. 
 
-That's why Dogen Zenji says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
+That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
 
 > Only we see death; but the beast is free   
 > and has its death always behind it and God before it,   
@@ -148,7 +148,7 @@ If you try to give something to others, sometimes you can give something materia
 
 ##### 36:00
 
-That's why, "The Lord asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds" – this world system of 1,000 million worlds means the whole universe – "with the seven precious things, and then gave it as a gift to the Tathagatas, Arhats, Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?"
+That's why, "The Lord asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds" – this world system of 1,000 million worlds means the whole universe – "with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?"
 
 The seven precious things is not to be face-to-face always. To walk nicely, close to each-other, sit next to others, holding the shoulders with compassion, et cetera, for example. At that time, that way of practice, giving to others, is really precious more than gold or silver, because people can get something from you, and you can give something to others. 
 
@@ -158,7 +158,7 @@ So, if you're always face to face, [it's] pretty difficult to teach something, o
 
 ##### 40:56
 
-"Then give it" – precious things – "as a gift to the Tathagatas, Arhats, Fully Enlightened Ones." These are not a particular person, because all are Buddhas. We have to give these precious things to everybody – to trees, to birds, to all sentient beings. That's it. 
+"Then give it" – precious things – "as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones." These are not a particular person, because all are Buddhas. We have to give these precious things to everybody – to trees, to birds, to all sentient beings. That's it. 
 
 At that time, can we beget a great heap of merit? Subhuti said: "Great, O Lord, great, O Well-Gone, would that heap of merit be!" Of course you can get merit. People beget people merit. Even though you don't try to give, people can get something from it. Your parents, your friends can get something [of] what Buddhism is, from each pore of your body. 
 
@@ -182,7 +182,7 @@ Do you understand? Do you? There's no one thing. That means that one thing she c
 
 ##### 51:28
 
-So this is a very common type of human life; even though, in the United States we create the same problem. So, that's why to give this precious gift to arhats, bodhisattvas, buddhas. Buddhas and bodhisattvas, all of us – we should give in that way. 
+So this is a very common type of human life; even though, in the United States we create the same problem. So, that's why to give this precious gift to [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), buddhas. Buddhas and bodhisattvas, all of us – we should give in that way. 
 
 And that's why Subhuti replied, "[Great] would that heap of merit be! And why? Because the Tathagata spoke of the 'heap of merit' as a non-heap." There is nothing to be covetous [of]. "You should receive something I can give" – nothing, [no?] give and take. Just be present; just sit side by side. Just set out breakfast, just get up in the morning, greeting "good morning" – that's all we have to do. At that time there is very naturally something you can beget, that is a "heap of merit". That heap of merit has nothing to be covetous. That's a no-heap of merit. No attachment. But if you try to give, and if you expect somebody to receive something I can give, at that time there is always something covetous.
 
