@@ -23,11 +23,11 @@ Number two, that is sensory system, sensory world, through the five consciousnes
 
 The third is realm of movement; that is, broadly speaking, the body. So this is, only through [zazen](glossary#zazen), regulation of body. Regulation of body.
 
-And fourth is internal organ system. Internal organs work very smoothly, perfectly in balance when you do zazen. That is very important. And also in daily living, they must be going smoothly, perfectly in balance. This is internal organ system; that is really regulation of breath. 
+And fourth is internal organ system. Internal organs work very smoothly, perfectly in balance when you do [zazen](glossary#zazen). That is very important. And also in daily living, they must be going smoothly, perfectly in balance. This is internal organ system; that is really regulation of breath. 
 
 Yesterday I told you the heart, lungs, intestines, nerves – central nerves or further out – whatever they are, you cannot control [them]. They are completely beyond human speculation, human control. But only breath is one thing you can control. That's why regulation of breath is very important.
 
-The fifth ... is regulation [of] the brain-nerve system. So that is, according to zazen, regulation of mind. 
+The fifth ... is regulation [of] the brain-nerve system. So that is, according to [zazen](glossary#zazen), regulation of mind. 
 
 Also number six is, I told you yesterday ... the whole personality, or total personality. The personality that, according to general [Buddhism](glossary#buddhism), is [Buddha Nature](glossary#buddha-nature). Or according the Buddhist psychology, it is called [karma](glossary#karma).
 
@@ -41,15 +41,15 @@ So, you cannot know what is [karma](glossary#karma), because karma comes from be
 
 That is really [the] total picture of our personal living, everyday life. Circumstances: that's why [for] circumstances, all we have to do is, first, we have to throw away all involvements, and also cease all affairs. At that time, we cut off, sit, [and] completely [we] are free from circumstances. But it doesn't mean we destroy circumstances. Circumstances are existent, but they don't bother you. So, circumstances just exist, just exist. 
 
-Point is, usually we are completely tossed away by circumstances. That's why [Dogen](glossary#dogen) [says that] in zazen, we have to first [be] free from circumstances. That's why we have to throw away, cease all affairs and all involvements. This is [the] first [thing] we have to do. 
+Point is, usually we are completely tossed away by circumstances. That's why [Dogen](glossary#dogen) [says that] in [zazen](glossary#zazen), we have to first [be] free from circumstances. That's why we have to throw away, cease all affairs and all involvements. This is [the] first [thing] we have to do. 
 
 And then, second, [he] mentions that we have to make arrangement of [the] sensory world. So, let's fix [it]. Let's choose the room. Not dark, not bright. That is sensory world. 
 
 ##### 7:52
 
-Also, this is regulation of the body, so we have to have full lotus or half lotus, and hands, and position of the mudra. And also, finally, we have to sit in [the] proper way, immobile. Immobile. That means, even though you sit quietly, your body is always shaking [and] moving, because there is a certain gap between zazen and you. That is what is called [suki](glossary#suki) in Japanese – seam. Seam is crack, or [pivot?]; a crack between the two objects. At that time, immediately you can see mental or psychological agitation. Mental or psychological agitation immediately becomes the physical wave. So that's why if you sit quietly, you don't see [it], but actually you move, always. You move always. 
+Also, this is regulation of the body, so we have to have full lotus or half lotus, and hands, and position of the mudra. And also, finally, we have to sit in [the] proper way, immobile. Immobile. That means, even though you sit quietly, your body is always shaking [and] moving, because there is a certain gap between [zazen](glossary#zazen) and you. That is what is called [suki](glossary#suki) in Japanese – seam. Seam is crack, or [pivot?]; a crack between the two objects. At that time, immediately you can see mental or psychological agitation. Mental or psychological agitation immediately becomes the physical wave. So that's why if you sit quietly, you don't see [it], but actually you move, always. You move always. 
 
-So, sit in proper way, immobile. And immobile means, sit. Just sit – figuratively, and also mentally, psychologically, you must be completely one with zazen, sitting. Because, if you have mental, psychological gap, slip, or crack between two objects, you and zazen, it means that [is] when attention [flattens?]. When attention [flattens?], certain signs of laxity appear. That is called [seam?] or crack, [pivot?]. And then immediately, your body is moving. So, that means it's not real zazen; [your] concentration is broken up. At that time, you can create seam. (It sounds like he might be saying "scheme" instead of "seam", here.) That is mental or psychological agitation. That's why we have to do zazen with, what? Not mind first, but body. Legs, hands, and whole body. 
+So, sit in proper way, immobile. And immobile means, sit. Just sit – figuratively, and also mentally, psychologically, you must be completely one with [zazen](glossary#zazen), sitting. Because, if you have mental, psychological gap, slip, or crack between two objects, you and zazen, it means that [is] when attention [flattens?]. When attention [flattens?], certain signs of laxity appear. That is called [seam?] or crack, [pivot?]. And then immediately, your body is moving. So, that means it's not real zazen; [your] concentration is broken up. At that time, you can create seam. (It sounds like he might be saying "scheme" instead of "seam", here.) That is mental or psychological agitation. That's why we have to do zazen with, what? Not mind first, but body. Legs, hands, and whole body. 
 
 ##### 11:22
 
@@ -71,19 +71,19 @@ You have to... completely ... concentrate on taking care of your breath, becomin
 
 That's why, if you concentrate, which is called practicing [samadhi](glossary#samadhi), through the regulation of the body, through the regulation of the breath, you can experience very naturally: calmness, tranquility. And then, you attain enlightened experience .... highest [spirit?] of life.
 
-This is in [Hinayana](glossary#hinayana) or [Mahayana](glossary#mahayana); everybody. All the [kinds of] [Buddhism](glossary#buddhism), Hinayana and Mahayana, emphasizes this kind of zazen. The point is regulation of the mind. That is very important, in [shikantaza](glossary#shikantaza).
+This is in [Hinayana](glossary#hinayana) or [Mahayana](glossary#mahayana); everybody. All the [kinds of] [Buddhism](glossary#buddhism), Hinayana and Mahayana, emphasizes this kind of [zazen](glossary#zazen). The point is regulation of the mind. That is very important, in [shikantaza](glossary#shikantaza).
 
 ##### 16:22
 
 I told you yesterday, if you do [zazen](glossary#zazen), I always tell you: first, you have to do zazen while making arrangement of circumstances, sensory world, and your **body** and **breath**. [*He pounds on the blackboard for emphasis, on body and breath.*] And then very naturally, that's where life really chooses to connect very powerfully to the center of life. That is total personality. That's why, if you do this, very naturally you can experience something. 
 
-But at that time, point is, you have to do zazen with **mind**. That mind is characterized by attachment; attachment to one-sided, extreme ideas. If you experience something good, mind immediately attaches to it. If you don't experience anything, mind really wants to attach to a certain highness of spirit, which you will not yet experience. So, you're really greedy; that is also attachment. If you experience something wrong, you really want to escape from [it]; this is also attachment. So mind is characterized by strong attachment. 
+But at that time, point is, you have to do [zazen](glossary#zazen) with **mind**. That mind is characterized by attachment; attachment to one-sided, extreme ideas. If you experience something good, mind immediately attaches to it. If you don't experience anything, mind really wants to attach to a certain highness of spirit, which you will not yet experience. So, you're really greedy; that is also attachment. If you experience something wrong, you really want to escape from [it]; this is also attachment. So mind is characterized by strong attachment. 
 
 ##### 18:05
 
 That's why, yesterday I told [you], there is [a] most important thing, which is called regulation of mind. You have to do [zazen](glossary#zazen) with body and also mind. That mind must be [egolessness](glossary#egolessness). [*He pronounces ego-less-ness phonetically and writes it on the board.*] Ego-less-ness.
 
-That [egolessness](glossary#egolessness) is something you can manifest, itself, through throwing away yourself into zazen, or giving away yourself to doing zazen. Offering you to zazen. That is called [samadhi](glossary#samadhi). [*he writes it on the board*] Samadhi. 
+That [egolessness](glossary#egolessness) is something you can manifest, itself, through throwing away yourself into [zazen](glossary#zazen), or giving away yourself to doing zazen. Offering you to zazen. That is called [samadhi](glossary#samadhi). [*he writes it on the board*] Samadhi. 
 
 ##### 19:10
 
@@ -105,15 +105,15 @@ So ... it doesn't connect. In a sense it connects; but it doesn't connect totall
 
 ##### 22:51
 
-Usually, there is always some attachment. "Zazen is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says [it] in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. That's always [said so?]. So, "[By] regulation of the body [and] regulation of the breath, you can preserve health, physical and mental health." That is, zazen is seen as a means. But according to shikantaza, there is no ... [sense?] which is called "for the sake of". "If you do zazen, you will be healthy, or mentally, or psychologically, or physically" – nothing to say. So all you have to do is, completely ... practice samadhi, through the regulation of the body, through the regulation of the breath. And then at that time, there must be [the] practice of [egolessness](glossary#egolessness), based on no design on having any reward. So that's why finally there is something left, which is called actual practice. Activity. That's all. 
+Usually, there is always some attachment. "[Zazen](glossary#zazen) is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says [it] in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. That's always [said so?]. So, "[By] regulation of the body [and] regulation of the breath, you can preserve health, physical and mental health." That is, zazen is seen as a means. But according to shikantaza, there is no ... [sense?] which is called "for the sake of". "If you do zazen, you will be healthy, or mentally, or psychologically, or physically" – nothing to say. So all you have to do is, completely ... practice samadhi, through the regulation of the body, through the regulation of the breath. And then at that time, there must be [the] practice of [egolessness](glossary#egolessness), based on no design on having any reward. So that's why finally there is something left, which is called actual practice. Activity. That's all. 
 
 This is [shikantaza](glossary#shikantaza). Shikan taza. *[he writes it on the board]*
 
 ##### 25:09
 
-That is really [Buddha](glossary#buddha)'s zazen. As a religion – not philosophical, not psychological. That [shikantaza](glossary#shikantaza) is Buddha's zazen, religious zazen. "Taza" is just to hit, right in the middle of [the] head, of zazen. Completely beyond ... whether you can know or you can't know, it's completely beyond. You have to hit [it]. That is just the practice. "Taza" is just do it, *actually you have to do* [it], right now. That's it. 
+That is really [Buddha](glossary#buddha)'s [zazen](glossary#zazen). As a religion – not philosophical, not psychological. That [shikantaza](glossary#shikantaza) is Buddha's zazen, religious zazen. "Taza" is just to hit, right in the middle of [the] head, of zazen. Completely beyond ... whether you can know or you can't know, it's completely beyond. You have to hit [it]. That is just the practice. "Taza" is just do it, *actually you have to do* [it], right now. That's it. 
 
-So, that is shikantaza. "Shikan" is [egolessness](glossary#egolessness), or samadhi. If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; [a] mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[unintelligible]* we have to practice samadhi in zazen. 
+So, that is shikantaza. "Shikan" is [egolessness](glossary#egolessness), or samadhi. If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; [a] mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[unintelligible]* we have to practice samadhi in [zazen](glossary#zazen). 
 
 Okay?
 
@@ -139,7 +139,7 @@ Do you have any questions?
 
 Even though, there are lots of environments. Some environments are connected with you directly, but some environments are not connected directly; indirectly connected. But even though there are some environments connected indirectly, [they] are also environments; we cannot ignore [them]. Circumstances includes all things, all environments, connected directly or indirectly. 
 
-For instance, America. We are in America. But [in] Japan, we don't know what's happening. But Japan is environment – connected indirectly. Or consciously or unconsciously; everything is connected. That's why if you do zazen, immediately you think something which you have never thought. Don't you think so? For instance, Paris? I have never been in Paris. But when I sit zazen, immediately Paris appears in my head. Because I know – maybe. So Paris is also one of the environments for me.
+For instance, America. We are in America. But [in] Japan, we don't know what's happening. But Japan is environment – connected indirectly. Or consciously or unconsciously; everything is connected. That's why if you do [zazen](glossary#zazen), immediately you think something which you have never thought. Don't you think so? For instance, Paris? I have never been in Paris. But when I sit zazen, immediately Paris appears in my head. Because I know – maybe. So Paris is also one of the environments for me.
 
 So all things, anyway, cut off. Cut off means [in their place], put them aside. You cannot destroy [them]. 
 
@@ -161,7 +161,7 @@ If you don't understand number one, number two, number three, four, five: that i
 
 **Same person**: Oh yes.
 
-**Katagiri**: Oh, it's very easy. So that's why, according to zazen, we can make arrangement of those five. Four; at least four. And then immediately, you can get a chance to manifest total personality – because all circumstances are perfectly arranged. 
+**Katagiri**: Oh, it's very easy. So that's why, according to [zazen](glossary#zazen), we can make arrangement of those five. Four; at least four. And then immediately, you can get a chance to manifest total personality – because all circumstances are perfectly arranged. 
 
 ##### 32:27
 
@@ -191,7 +191,7 @@ So basically, it's very easy: just do it. Just, proper posture. But it's not eas
 
 ##### 39:40
 
-**Same person**: In terms of the senses, it seems like zazen is not natural. It's like, let's say, when your legs are hurting badly, that's your body naturally telling you that something is wrong. You know, the pain is a sign that there's something wrong. And so from a sensory point of view, it doesn't seem very natural. *[Katagiri laughs]*
+**Same person**: In terms of the senses, it seems like [zazen](glossary#zazen) is not natural. It's like, let's say, when your legs are hurting badly, that's your body naturally telling you that something is wrong. You know, the pain is a sign that there's something wrong. And so from a sensory point of view, it doesn't seem very natural. *[Katagiri laughs]*
 
 **Katagiri**: It's not masochism, okay? *[the group laughs]* Don't misunderstand. 
 
@@ -205,7 +205,7 @@ There is pain and ache, and, well, physical ache, physical pain... Well, it's pa
 
 **Same person**: *[still mostly unintelligible on the recording]* But I mean, in terms of regulation... If it seems as if you are experiencing something that's tranquil ... There's some effects of that... You want to have that happen again. But isn't that the purpose of regulating everything, to have everything working smoothly?
 
-**Katagiri**: Regulating... Regulating is not control. Basically, we have to regulate – what? Body, and breath. This is the two minimum; this is something we have to do [at] the minimum in zazen. Number one, number two, regulating. And also, at that time, many things happen. Sleep, not sleep; dizzy, and fascination, and *[unintelligible]*. They are just a [bump?]. But ... mind attaches to it, if you see that, "oh, that's good," "that's bad," always. But with that mind, if you let it go, just *[unintelligible]*, come back. If you see the sleep: "oh, it's sleep." If you see it, just sleep, like "oh, it's sleep." If you realize. Awareness is important, okay? And then – *[unintelligible]*. That is number three; that's why regulation of the body – sitting in the proper way, and immobile. It means, sitting with the body and also mind, which leads you to awaken totally. Is that clear? 
+**Katagiri**: Regulating... Regulating is not control. Basically, we have to regulate – what? Body, and breath. This is the two minimum; this is something we have to do [at] the minimum in [zazen](glossary#zazen). Number one, number two, regulating. And also, at that time, many things happen. Sleep, not sleep; dizzy, and fascination, and *[unintelligible]*. They are just a [bump?]. But ... mind attaches to it, if you see that, "oh, that's good," "that's bad," always. But with that mind, if you let it go, just *[unintelligible]*, come back. If you see the sleep: "oh, it's sleep." If you see it, just sleep, like "oh, it's sleep." If you realize. Awareness is important, okay? And then – *[unintelligible]*. That is number three; that's why regulation of the body – sitting in the proper way, and immobile. It means, sitting with the body and also mind, which leads you to awaken totally. Is that clear? 
 
 That's why at that time, mind is very sharp. The minute you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and awakening – wake up. You can realize. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let's sit down, right now, [totally in your body?]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is, just see, and [correct?] the body. Just the total dynamic working. That is awakening. That is wisdom. See, and adjust. Very good. 
 
@@ -219,7 +219,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 *[tape change]*
 
-... immediately you attach to adjustment you have made. Try[ing] to judge: "it is good," or "it is bad." "I am doing zazen," "This is the real zazen," or "this is really shikantaza itself." Do you understand?
+... immediately you attach to adjustment you have made. Try[ing] to judge: "it is good," or "it is bad." "I am doing [zazen](glossary#zazen)," "This is the real zazen," or "this is really shikantaza itself." Do you understand?
 
 ##### 46:52
 
@@ -269,21 +269,21 @@ That's a point, but in daily living, [it's] a little different. For instance a w
 
 **Question**: Well, how does this compare with... Let's say you read [Kapleau Roshi](glossary#kapleau-roshi)'s books, and a [Rinzai](glossary#rinzai-zen) approach is to just force yourself continually to break through and find some kind of [enlightenment](glossary#enlightenment). Do you see any merit in that, or are you saying that that isn't necessary? 
 
-**Katagiri**: Yes, it's necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, this and that, [samadhi](glossary#samadhi), you can attain [enlightenment](glossary#enlightenment). According to [Rinzai](glossary#rinzai-zen ), maybe that is the main purpose of zazen; through zazen you have to attain enlightenment, that's why teachers push you so hard. That means, you are [Buddha](glossary#buddha), but you are not Buddha *now*, so why don't you attain enlightenment? *[there are a couple "mmm's" of understanding in the group]* So, the subject is already seen in the dualistic world. And also, zazen is seen in the dualistic world. 
+**Katagiri**: Yes, it's necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, this and that, [samadhi](glossary#samadhi), you can attain [enlightenment](glossary#enlightenment). According to [Rinzai](glossary#rinzai-zen ), maybe that is the main purpose of [zazen](glossary#zazen); through zazen you have to attain enlightenment, that's why teachers push you so hard. That means, you are [Buddha](glossary#buddha), but you are not Buddha *now*, so why don't you attain enlightenment? *[there are a couple "mmm's" of understanding in the group]* So, the subject is already seen in the [dualistic](glossary#dualistic) world. And also, zazen is seen in the dualistic world. 
 
-Well of course, it is okay. But final stage is not [that] zazen and subject and object [should] be seen in the dualistic world. We have to take care of subject and object according to the total personality. We have to settle ourselves in total personality, from the beginning to end. 
+Well of course, it is okay. But final stage is not \[that] [zazen](glossary#zazen) and subject and object [should] be seen in the [dualistic](glossary#dualistic) world. We have to take care of subject and object according to the total personality. We have to settle ourselves in total personality, from the beginning to end. 
 
-That means, finally, we have to do zazen with no designs on having any reward. That means, offering yourself perfectly. 
+That means, finally, we have to do [zazen](glossary#zazen) with no designs on having any reward. That means, offering yourself perfectly. 
 
 ##### 54:47
 
-**Same person**: I was reading an account of [Tibetan Buddhism](glossary#tibetan-buddhism), and the author was talking about [Zen](glossary#zen), and they were talking about the purity of Zen. You know, it sounds like you're talking about Zen in a very pure sense of just entering [nondualism](glossary#nondualism). And they're saying that for very rare people, they can go into that very pure practice and get into it. But for say the typical American, who's completely caught in [dualism](glossary#dualism), they can't just step into that kind of purity, they have to work on it step by step. And Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that's what you're saying, that me as an individual striving for [enlightenment](glossary#enlightenment) is already dualistic, and so you're being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn't that awfully, awfully hard?
+**Same person**: I was reading an account of [Tibetan Buddhism](glossary#tibetan-buddhism), and the author was talking about [Zen](glossary#zen), and they were talking about the purity of Zen. You know, it sounds like you're talking about Zen in a very pure sense of just entering [nondualism](glossary#nondualism). And they're saying that for very rare people, they can go into that very pure practice and get into it. But for say the typical American, who's completely caught in [dualism](glossary#dualism), they can't just step into that kind of purity, they have to work on it step by step. And Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that's what you're saying, that me as an individual striving for [enlightenment](glossary#enlightenment) is already [dualistic](glossary#dualistic), and so you're being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn't that awfully, awfully hard?
 
-**Katagiri**: Well, that is not only American, but also Japanese, and whoever you are. But if you attain [enlightenment](glossary#enlightenment) in the [dualism](glossary#dualism), that enlightenment is nothing but the dualistic enlightenment; that's all. Don't you think so? That means dualistic enlightenment is sort of dregs. You cannot see; it's pretty hard to see that dregs. Trace; sort of always [a] trace, [or] track. 
+**Katagiri**: Well, that is not only American, but also Japanese, and whoever you are. But if you attain [enlightenment](glossary#enlightenment) in the [dualism](glossary#dualism), that enlightenment is nothing but the [dualistic](glossary#dualistic) enlightenment; that's all. Don't you think so? That means dualistic enlightenment is sort of dregs. You cannot see; it's pretty hard to see that dregs. Trace; sort of always [a] trace, [or] track. 
 
 **Same person**: You're saying that it isn't really the enlightened state of mind? 
 
-**Katagiri**: No, no, I don't think so. It seems to be good; wonderful. In that world, things are encouraging people. But finally, if you attain [enlightenment](glossary#enlightenment) in the dualist world, it's nothing but enlightenment in the dualistic world. 
+**Katagiri**: No, no, I don't think so. It seems to be good; wonderful. In that world, things are encouraging people. But finally, if you attain [enlightenment](glossary#enlightenment) in the dualist world, it's nothing but enlightenment in the [dualistic](glossary#dualistic) world. 
 
 For instance, I will show you [calligraphy](glossary#calligraphy) written by a first grade child who is expert of calligraphy. So you should look at this and learn calligraphy. And then, this child tells you you are great: master of the calligraphy. Can you imagine? That is [enlightenment](glossary#enlightenment). 
 
@@ -327,9 +327,9 @@ Maybe it takes time. Maybe tomorrow you could be master, but maybe it takes time
 
 ##### 1:01:36
 
-That means, if you attain [enlightenment](glossary#enlightenment) in the [dualistic](glossary#dualism) world, that is nothing but dualistic enlightenment; that's all. So no design on becoming [Buddha](glossary#Buddha) – such zazen is pretty hard. We don't understand [it]. But this is very good example, because it is nothing but the problem of life and death. That's all. So we have to look at this, and follow it.
+That means, if you attain [enlightenment](glossary#enlightenment) in the [dualistic](glossary#dualism) world, that is nothing but dualistic enlightenment; that's all. So no design on becoming [Buddha](glossary#Buddha) – such [zazen](glossary#zazen) is pretty hard. We don't understand [it]. But this is very good example, because it is nothing but the problem of life and death. That's all. So we have to look at this, and follow it.
 
-But on the other hand, lots of the zazen, real zazen in the dualistic world – psychological, philosophical – that's very fine. [Rinzai](glossary#rinzai), and *[unintelligible]* and many things. I don't criticize them. It is okay, because it is still [enlightenment](glossary#enlightenment). But that enlightenment is nothing but dualistic world. 
+But on the other hand, lots of the [zazen](glossary#zazen), real zazen in the [dualistic](glossary#dualistic) world – psychological, philosophical – that's very fine. [Rinzai](glossary#rinzai), and *[unintelligible]* and many things. I don't criticize them. It is okay, because it is still [enlightenment](glossary#enlightenment). But that enlightenment is nothing but dualistic world. 
 
 So even though you become a master of [calligraphy](glossary#calligraphy) under the guidance of the first [grade child], well it is master calligrapher. But it is nothing but master calligrapher under the guidance of a first grade child; that's all. 
 
@@ -337,7 +337,7 @@ Is that clear? Is that okay?
 
 ##### 1:03:07
 
-**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher ... and his teaching; [Dogen](glossary#dogen), [Buddha](glossary#buddha); again and again you're doing the [calligraphy](glossary#calligraphy), until it's like the teacher's calligraphy?
+**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do [zazen](glossary#zazen) with a teacher ... and his teaching; [Dogen](glossary#dogen), [Buddha](glossary#buddha); again and again you're doing the [calligraphy](glossary#calligraphy), until it's like the teacher's calligraphy?
 
 **Katagiri**: Mmm hmm. I think so; that is the best way. 
 
@@ -345,7 +345,7 @@ Is that clear? Is that okay?
 
 *Katagiri*: Yes. That is, well, you can attain [enlightenment](glossary#enlightenment), that is but poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, [there are] many kinds of enlightenment. 
 
-So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by [Buddha](glossary#buddha), and [Dogen](glossary#dogen), et cetera.
+So, teacher is important, but teacher is a teacher – that this teacher also followed – of real [zazen](glossary#zazen). I have to teach real zazen. I have to show real zazen mentioned by [Buddha](glossary#buddha), and [Dogen](glossary#dogen), et cetera.
 
 **Same person**: Our connection to [Dogen](glossary#dogen) and [Buddha](glossary#buddha) is for you...
 
@@ -433,7 +433,7 @@ Is that clear?
 
 Because, mind is still very sticky. Mind is very sticky. When you concentrate, [when] you practice samadhi with body and mind, it seems to be very clear and simple. But still, mind is very sticky. Attaching to [think? stink?].
 
-For instance, if I say "no design of having reward": "I did it." *[he laughs]* Immediately we say, "I got it! I am doing zazen in that way." 
+For instance, if I say "no design of having reward": "I did it." *[he laughs]* Immediately we say, "I got it! I am doing [zazen](glossary#zazen) in that way." 
 
 ##### 1:16:05
 
@@ -453,7 +453,7 @@ Is that clear?
 
 **Katagiri**: *[laughs]* Check what. Your body. And also your mind. 
 
-For instance, if you sit zazen too hard, like this *[strain in voice]*, you can't breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe. Immediately, it influences your breath. So you have to check: body, your posture, and also mind.
+For instance, if you sit [zazen](glossary#zazen) too hard, like this *[strain in voice]*, you can't breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe. Immediately, it influences your breath. So you have to check: body, your posture, and also mind.
 
 Is that okay?
 
@@ -517,11 +517,11 @@ So if you are always with first grade child who is master of [calligraphy](gloss
 
 **Katagiri**: You mean the teacher is always in there? *[perhaps pointing to his head?]* Ah. Otherwise you cannot talk, *[he laughs]* you cannot express. Don't you think so?
 
-**Same person**: I mean, just sitting with you in zazen, hour after hour, my feeling is that there are deeper levels of being that also go on during [sesshin](glossary#sesshin).
+**Same person**: I mean, just sitting with you in [zazen](glossary#zazen), hour after hour, my feeling is that there are deeper levels of being that also go on during [sesshin](glossary#sesshin).
 
-**Katagiri**: Uh-huh. Uh, no. You cannot say that the teacher is always having the [Zen](glossary#zen ) exactness and wonderful zazen – no. [What] even the teacher has to do, is to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even [for] the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
+**Katagiri**: Uh-huh. Uh, no. You cannot say that the teacher is always having the [Zen](glossary#zen ) exactness and wonderful [zazen](glossary#zazen) – no. [What] even the teacher has to do, is to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even [for] the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
 
-**Same person**: Yeah, I hear you saying that about your own zazen, it sounds like. But I'm asking, I guess: doesn't the teacher, when you're sitting with 30 of us, doesn't the [Zen](glossary#zen ) teacher also work with the students at deeper levels of mind?
+**Same person**: Yeah, I hear you saying that about your own [zazen](glossary#zazen), it sounds like. But I'm asking, I guess: doesn't the teacher, when you're sitting with 30 of us, doesn't the [Zen](glossary#zen ) teacher also work with the students at deeper levels of mind?
 
 Or is that something that you don't want to talk about?
 

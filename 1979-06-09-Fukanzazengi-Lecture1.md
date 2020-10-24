@@ -41,7 +41,7 @@ But actually we don't do [zazen](glossary#zazen)  like this. Zazen is used as a 
 
 So that means you already accept your life which is not sublime. Your life is unhappy. Your life is not sublime. So, lack of sublimity there. If you do [zazen](glossary#zazen)  like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. But no matter how long you do zazen like this, it's very difficult to realize your peaceful, harmonious life.
 
-Because at that time [zazen](glossary#zazen)  is a means. "Means" means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. So just *do zazen*. "Do zazen" means you are present from moment to moment with the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized. That's why zazen is a little bit something far from you. So that is dualistic world. The important point is, you must accept zazen as really total activity, which is vivid, alive from moment to moment. 
+Because at that time [zazen](glossary#zazen)  is a means. "Means" means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. So just *do zazen*. "Do zazen" means you are present from moment to moment with the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized. That's why zazen is a little bit something far from you. So that is [dualistic](glossary#dualistic) world. The important point is, you must accept zazen as really total activity, which is vivid, alive from moment to moment. 
 
 And that is, at that time – well, even though you don't understand what [zazen](glossary#zazen)  is, accept zazen. Which means, do zazen. Even though you don't understand how sublime your life is, anyway, [bow](glossary#bowing) to the [Buddha](glossary#buddha) . If you bow to the Buddha, selfish understanding from the first is struck aside. That is [shikantaza](glossary#shikantaza) – very naturally.
 
@@ -89,7 +89,7 @@ So that is [what is] called [Buddha Nature](glossary#buddha-nature) . And also, 
 
 ##### 30:00
 
-When I became a monk and went to a monastery, at that time, monastic life was completely blooming for me, so ... it really awakened me, every day. My eyes opened wide, and looking at everything, [I] learned lots of things. But, some other monks [were] always creating [a] dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*he chuckles*]. So for me, it was wonderful for me. And on the other hand, I felt once that people called me, "you are crazy." Of course, maybe so. Accordingly to indulgence, maybe to practice hard was crazy. It makes you crazy. But I didn't care, because I learned lots of things. So day after day was really bright; I just did it.
+When I became a monk and went to a monastery, at that time, monastic life was completely blooming for me, so ... it really awakened me, every day. My eyes opened wide, and looking at everything, [I] learned lots of things. But, some other monks [were] always creating [a] dull feeling, and indulgence, and they didn't like sometimes doing [zazen](glossary#zazen), and laziness... [*he chuckles*]. So for me, it was wonderful for me. And on the other hand, I felt once that people called me, "you are crazy." Of course, maybe so. Accordingly to indulgence, maybe to practice hard was crazy. It makes you crazy. But I didn't care, because I learned lots of things. So day after day was really bright; I just did it.
 
 On the other hand, there is completely opposite aspect of life I learned from all these monks. I didn't want to ask them, "Why do you do it that way? What is the meaning; why are you monks? In the monastery you want to be lazy? You want to learn laziness? Well of course, it's okay, but what is the purpose, why? Why are you here?" I didn't understand. I didn't care. 
 
@@ -153,7 +153,7 @@ Completely throw away any germination of wishes, thoughts, views. You just view 
 
 [Dogen](glossary#dogen) [says], "Do not think good or bad, right and wrong," because we have to regulate mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That is [egolessness](glossary#egolessness). Selflessness. Practice of egolessness. 
 
-If your mind really attaches to good or bad or neutral, immediately here is a thought, and view, wishes. And thoughts, views, wishes create dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, stop it. Even though you stop for a while, you cannot stop always. So you start to move, to the right, to the left. That is dualistic world. Finally, you don't know what to do. 
+If your mind really attaches to good or bad or neutral, immediately here is a thought, and view, wishes. And thoughts, views, wishes create [dualistic](glossary#dualistic) world. Some go this way, some go that way; always going back and forth. And sometimes, stop it. Even though you stop for a while, you cannot stop always. So you start to move, to the right, to the left. That is dualistic world. Finally, you don't know what to do. 
 
 ##### 48:16
 
@@ -177,7 +177,7 @@ So that is [egolessness](glossary#egolessness). And also, at that time, if you t
 
 ##### 52:56
 
-So, there is [zazen](glossary#zazen). Zazen and you: if you see [them] separately, that is a situation [in] which you can create discrimination world, dualistic world. Zazen and you: "I like zazen," "I don't like zazen," whatever you say, that is dualistic world. So first of all, you have to make arrangement, [of] zazen and you, circumstances and sensory world; you have to arrange all things. And then, at that time, if you arrange all circumstances, I told you before: and then, you should take care of zazen. With [egolessness](glossary#egolessness).
+So, there is [zazen](glossary#zazen). Zazen and you: if you see [them] separately, that is a situation [in] which you can create discrimination world, [dualistic](glossary#dualistic) world. Zazen and you: "I like zazen," "I don't like zazen," whatever you say, that is dualistic world. So first of all, you have to make arrangement, [of] zazen and you, circumstances and sensory world; you have to arrange all things. And then, at that time, if you arrange all circumstances, I told you before: and then, you should take care of zazen. With [egolessness](glossary#egolessness).
 
 ##### 54:00
 

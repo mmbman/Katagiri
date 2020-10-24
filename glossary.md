@@ -229,7 +229,14 @@ See:
 
 ## Impermanence
 
-One of the [Four Dharma Seals](#four-dharma-seals).
+Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
+
+See:
+[Fukanzazengi Lecture 6 (5:12)](1979-06-14-Fukanzazengi-Lecture6#512)
+
+## Impulses
+ 
+See [samskara](glossary#samskara).
 
 ## Isan Reiyū
 Japanese: Isan Reiyū<br>
@@ -271,15 +278,11 @@ See
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
 ## Gensha Shibi 
+Japanese: Gensha Shibi<br>
+Chinese: Xuansha Shibei (Hsuan-sha Shih-pei) 玄沙師備<br>
+also "Mendicant Pei"<br>
 
-Chinese: 玄沙師備;
-Wade-Giles: Hsuan-sha Shih-pei;
-pinyin: Xuansha Shibei;
-Japanese: Gensha Shibi;
-also "Mendicant Pei".
-835 - 908.
-
-Successor of [Seppō Gison](#seppō-gison).
+Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
 See:
 [Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
@@ -416,6 +419,10 @@ See [Prajnaparamita](glossary#prajnaparamita)
 
 
 ## Primitive Buddhism
+## Reb Anderson
+
+Tenshin Reb Anderson Roshi, of San Francisco Zen Center
+
 ## Rinzai Zen
 
 ## Roshi
@@ -429,6 +436,17 @@ The Lotus Sutra.
 ## Samadhi
 
 One-pointedness. Often the kind achieved in meditation, but it can refer to complete absorption in any activity.
+
+## Samskara
+
+Sanskrit: saṃskāra संस्कार<br>
+Pali: Saṅkhāra सङ्खार<br>
+
+One of the [five skandhas](glossary#skandhas); often translated as 'formations', 'mental formations', or 'impulses'. 
+
+As "together-maker": see [Fukanzazengi Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
+
+[Wikipedia link](https://en.wikipedia.org/wiki/Saṅkhāra)
 
 ## Sandhinirmocana Sutra
 
@@ -469,10 +487,6 @@ See:
 
 ## Shakyamuni Buddha
 
-## Sitting
-
-"Sitting" is often short for "doing [zazen](#zazen)", "seated meditation", or even [shikantaza](#shikantaza).
-
 ## Shikantaza
 
 A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
@@ -500,11 +514,16 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Śūnyatā)
 
+## Sitting
+
+"Sitting" is often short for "doing [zazen](#zazen)", "seated meditation", or even [shikantaza](#shikantaza).
+
 ## Six Realms of Existence
 
 See:
 [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915)
 
+## Skandhas
 ## Soto Zen
 
 ## Śrīmālādevī Siṃhanāda Sutra

@@ -19,9 +19,9 @@ According to Buddha's explanation, this person really practiced, in his past lif
 
 Last week I told you, perception of self [is] divided into four [categories].
 
-One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five skandhas, because [the] five skandhas is [an] analysis of existence, how existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, impulses, consciousness.
+One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five [skandhas](glossary#skandhas), because [the] five skandhas is [an] analysis of existence, how existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness.
 
-We believe pretty easily that [the] five skandhas are [the] self. But [the] five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
+We believe pretty easily that [the] five [skandhas](glossary#skandhas) are [the] self. But [the] five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
 
 ##### 5:11
 
@@ -93,7 +93,7 @@ So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for
 
 ##### 21:44
 
-So, if you have perception of either a [dharma](glossary#dharma) or a no-dharma, if you have a perception of either object or no-object, this is still perception. For instance, in zazen, all you have to do is be one with zazen. That means not-thinking; don't think anything. "Don't think anything" is – what do you mean? – "think not-thinking." So what do you mean, not thinking not-thinking? That means, to think is also to think. Do you understand? Pretty clear. But not-think is also to think. Don't you think so? 
+So, if you have perception of either a [dharma](glossary#dharma) or a no-dharma, if you have a perception of either object or no-object, this is still perception. For instance, in [zazen](glossary#zazen), all you have to do is be one with zazen. That means not-thinking; don't think anything. "Don't think anything" is – what do you mean? – "think not-thinking." So what do you mean, not thinking not-thinking? That means, to think is also to think. Do you understand? Pretty clear. But not-think is also to think. Don't you think so? 
 
 Both are perceptions created by your consciousness. You try not to think, but, you try to not to think is always to think. Is that clear?
 

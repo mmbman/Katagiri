@@ -23,7 +23,7 @@ During the first and the second centuries, there were several great organizers a
 
 ##### 5:24
 
-[In] the first period, when a group of [Prajnaparamita](glossary#prajnaparamita) sutras were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra), and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and [emptiness](glossary#emptiness). 
+[In] the first period, when a group of  [Prajnaparamita Sutras](glossary#prajnaparamita-sutra) were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra), and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and [emptiness](glossary#emptiness). 
 
 So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossary#diamond-sutra). It's full name is Vajracchedikā Prajñāpāramitā Sūtra.
 
@@ -57,7 +57,7 @@ I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is qui
 
 ##### 18:58
 
-The group of [Prajnaparamita sutras](glossary#prajnaparamita) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons, that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#emptiness). But that emptiness is exactly expressed by conscious thought. Huge.
+The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons, that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#emptiness). But that emptiness is exactly expressed by conscious thought. Huge.
 
 So [Prajnaparamita](glossary#prajnaparamita) 
  is what is called The Perfection of Wisdom. [The] Indian people try to explain what wisdom is, according to concept. So, for instance, in [Diamond Sutra](glossary#diamond-sutra), it says: 
@@ -213,7 +213,7 @@ Because we have to understand something as a whole. "A is A; A is not A." *[laug
 
 ##### 55:48
 
-It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it's very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That's all. This is zazen.
+It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it's very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That's all. This is [zazen](glossary#zazen).
 
 But when you expect something, you completely go away from your home. Seeking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it's fine, but it makes you dizzy, that's all. Running here and there, always. But the more you are busy, the more you are exhausted. That's all. And finally you have to return home and settle yourself in peace and harmony. And then you say, "Oh, this is [alright?]." This is our point. That's all. The basic practice is very simple, very simple, really.
 

@@ -7,7 +7,7 @@
 
 ##### 0:00 start of recording
 
-There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than [Gensha Shibi](glossary#gensha-shibi). This story occurs in the [Shobogenzo](glossary#shobogenzo) [in the fascicle] ["The One Bright Pearl"](shobogenzo#one-bright-pearl); you can find this story there.
+There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than Gensha Shibi. This story occurs in the [Shobogenzo](glossary#shobogenzo) [in the fascicle] ["The One Bright Pearl"](shobogenzo#one-bright-pearl); you can find this story there.
 
 [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that. 
 
@@ -74,11 +74,11 @@ But we don't see that. Always ... we see [zazen](glossary#zazen) before zazen, a
 
 ##### 21:05
 
-So, that's why we have to see [zazen](glossary#zazen) directly, zazen itself. This is [shikantaza](shikantaza). If you don't do this, you cannot educate any person. You cannot grow; you cannot deepen your personality. If you handle [zazen](glossary#zazen) just as a means, you are still tied up with [the] dualistic world. You create more confusion. For a certain period of time, you will be happy. But after that, I don't think you will be happy. Because ages [and] times are going on; change.
+So, that's why we have to see [zazen](glossary#zazen) directly, zazen itself. This is [shikantaza](shikantaza). If you don't do this, you cannot educate any person. You cannot grow; you cannot deepen your personality. If you handle [zazen](glossary#zazen) just as a means, you are still tied up with \[the] [dualistic](glossary#dualistic) world. You create more confusion. For a certain period of time, you will be happy. But after that, I don't think you will be happy. Because ages [and] times are going on; change.
 
 ##### 22:10
 
-That's why [in] that story, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) immediately had an abrupt self realization, saying, "This body doesn't exist; where is the pain coming from?" And then he returned immediately to [Seppō](glossary#seppō-gison)'s temple, and Seppō asked him, "What is this, mendicant Pei?" "Mendicant Pei" means his name (another name for [Gensha Shibi](glossary#gensha-shibi)). And then, [Gensha](glossary#gensha-shibi) replied, "I will never deceive others." If you always really are involved in before [zazen](glossary#zazen), after zazen, you are always deceived, you are taken in. That means, "I never deceive." 
+That's why [in] that story, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) immediately had an abrupt self realization, saying, "This body doesn't exist; where is the pain coming from?" And then he returned immediately to [Seppō](glossary#seppō-gison)'s temple, and Seppō asked him, "What is this, mendicant Pei?" "Mendicant Pei" means his name (another name for Gensha Shibi. And then, Gensha replied, "I will never deceive others." If you always really are involved in before [zazen](glossary#zazen), after zazen, you are always deceived, you are taken in. That means, "I never deceive." 
 
 ##### 23:22
 
@@ -94,17 +94,17 @@ That's why ... if [Seppō](glossary#seppō-gison) asked him, "Who are you? What 
 
 ##### 26:10
 
-And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So [Seppō](glossary#seppō-gison) [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach [Buddhism](glossary#buddhism). This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some [Zen Master](glossary#zen-master) says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
+And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So Seppō [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach [Buddhism](glossary#buddhism). This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some [Zen Master](glossary#zen-master) says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
 
 So completely [the] answer is, all of the questions. Because [Buddhism](glossary#buddhism) is focused on [zazen](glossary#zazen) itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
 
 ##### 29:06
 
-We don't understand. But "we don't understand" doesn't mean we should stop. We have to culminate (cultivate?), we have to plant a good seed. For what? For now? For you? No. For future generations, for [the] long range. For all sentient beings. Even though you don't understand, all we have to do is, we have to do [zazen](glossary#zazen) based on freedom, perfect freedom. There is no chance to be involved in [any] after zazen or before zazen. If you are involved in after or before, that is nothing but human life. Human life, with which you are completely tied in the dualistic world. 
+We don't understand. But "we don't understand" doesn't mean we should stop. We have to culminate (cultivate?), we have to plant a good seed. For what? For now? For you? No. For future generations, for [the] long range. For all sentient beings. Even though you don't understand, all we have to do is, we have to do [zazen](glossary#zazen) based on freedom, perfect freedom. There is no chance to be involved in [any] after zazen or before zazen. If you are involved in after or before, that is nothing but human life. Human life, with which you are completely tied in the [dualistic](glossary#dualistic) world. 
 
 ##### 30:10
 
-Of course, we are in the dualistic world. That's why we want to be free. But how can you be free? We have karma; of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape. How can you [be] free? If you think, if you deal with your life in [the] dualistic world, no matter how long you walk, whatever kind of final goal you get, it's not a real goal. So, constantly, there is [dullness](glossary#dullness) and [distraction](glossary#distraction). So that's why [shikantaza](), [the] [zazen](glossary#zazen) we do, is nothing to be involved in [the] dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
+Of course, we are in the [dualistic](glossary#dualistic) world. That's why we want to be free. But how can you be free? We have karma; of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape. How can you [be] free? If you think, if you deal with your life in [the] dualistic world, no matter how long you walk, whatever kind of final goal you get, it's not a real goal. So, constantly, there is [dullness](glossary#dullness) and [distraction](glossary#distraction). So that's why [shikantaza](), [the] [zazen](glossary#zazen) we do, is nothing to be involved in [the] dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
 
 ##### 31:34
 
@@ -118,7 +118,7 @@ But we don't understand. That's why we say, "Let's accumulate merit and virtue."
 
 [Dogen](glossary#dogen) [Zenji](glossary#zenji) really admired [Gensha Shibi](glossary#gensha-shibi) and [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master) in this story. 
 
-So, "Gensha said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West.' This gained [Seppō](glossary#seppō-gison)'s special praise." [Seppō](glossary#seppō-gison) really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, [zazen](glossary#zazen) itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] dualistic world. So all we have to do is focus on just right here. 
+So, "[Gensha](glossary#gensha-shibi) said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West.' This gained [Seppō](glossary#seppō-gison)'s special praise." Seppō really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, [zazen](glossary#zazen) itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] [dualistic](glossary#dualistic) world. So all we have to do is focus on just right here. 
 
 ##### 35:29
 
@@ -156,7 +156,7 @@ If you are really involved in that feeling or idea, that is nothing but looking 
 
 **Katagiri**: Oh, of course. But how can you see that life before and after? Because you are right in the middle of [zazen](glossary#zazen), that's why you can see [it]. Don't you think so?
 
-For instance, Gensha ... striking his toes. This is completely right in the middle of [it]. [It] occurs; no pains, no pleasures, no [suffering](glossary#suffering). That's why he can experience, "Pain. Ouch." That's why he can see his life after striking his toes. If he was not there, he wouldn't see his life after striking. He wouldn't scream. Do you understand?
+For instance, [Gensha](glossary#gensha-shibi) ... striking his toes. This is completely right in the middle of [it]. [It] occurs; no pains, no pleasures, no [suffering](glossary#suffering). That's why he can experience, "Pain. Ouch." That's why he can see his life after striking his toes. If he was not there, he wouldn't see his life after striking. He wouldn't scream. Do you understand?
 
 **Same person**: He wouldn't scream?
 
@@ -232,7 +232,7 @@ Becoming ... whatever I want to do, or I don't want to do. Or "this is good," or
 
 **Same person**: But isn't the judgement itself empty?
 
-**Katagiri**: Yes, no abode. Empty. Judgement itself [has] no abode. That's why the thoughts, judgements, whatever, just ... flow, always, in [zazen](glossary#zazen). So, if you don't meddle, it appears [and] disappears, because [there is] no abode from where it comes. But only when you meddle with [it], and chasing, and escaping from [it] – at that time, judgement creates another judgment. [The] judgement you created creates another judgment. So, constantly snowballing. So that is sort of the task you are involved with in the dualistic world. In zazen, we shouldn't do that. 
+**Katagiri**: Yes, no abode. Empty. Judgement itself [has] no abode. That's why the thoughts, judgements, whatever, just ... flow, always, in [zazen](glossary#zazen). So, if you don't meddle, it appears [and] disappears, because [there is] no abode from where it comes. But only when you meddle with [it], and chasing, and escaping from [it] – at that time, judgement creates another judgment. [The] judgement you created creates another judgment. So, constantly snowballing. So that is sort of the task you are involved with in the [dualistic](glossary#dualistic) world. In zazen, we shouldn't do that. 
 
 **Same person**: Do what?
 
@@ -244,7 +244,7 @@ Becoming ... whatever I want to do, or I don't want to do. Or "this is good," or
 
 **Same person**: So we don't say "I just made a judgment" *[unintelligible]*
 
-**Katagiri**: Beyond judgment or not, thought incoming. Thoughts and judgement come up because *you* do [zazen](glossary#zazen). Let's return to the point, [the] root. You do zazen, that's why thoughts come up, judgement comes up. So important point is, not [to] involve in thoughts and ideas. Let's involve in zazen itself. According to the Gensha story, not [being] involved in the sound of the raindrops, which is called, "Ouch." 
+**Katagiri**: Beyond judgment or not, thought incoming. Thoughts and judgement come up because *you* do [zazen](glossary#zazen). Let's return to the point, [the] root. You do zazen, that's why thoughts come up, judgement comes up. So important point is, not [to] involve in thoughts and ideas. Let's involve in zazen itself. According to the [Gensha](glossary#gensha-shibi) story, not [being] involved in the sound of the raindrops, which is called, "Ouch." 
 
 **Same person**: You're saying the thoughts and judgements are results of doing [zazen](glossary#zazen), they're not zazen itself?
 
@@ -284,7 +284,7 @@ The pain. During the [zazen](glossary#zazen), you can feel pain physically. And 
 
 **Katagiri**: No pain. *[he laughs]* I'm sorry. No pain, no delusions. This is real [zazen](glossary#zazen).
 
-That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking Gensha's toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
+That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking [Gensha](glossary#gensha-shibi)'s toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
 
 We get use [out] of looking at the before striking and after striking – that is very common. But we don't pay attention to the striking itself. Striking itself is no striking, because no thought. Striking from where? From where does the striking come? "I hear the striking come" [is] already [an] idea. [The] idea comes [as] the result of you [being] present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely unified. Perfect.
 
@@ -318,7 +318,7 @@ Outside observer also disappears.
 
 It is true. Don't you think so? 
 
-If Gensha [Zen Master](glossary#zen-master) disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no [suffering](glossary#suffering), no pain – just there. 
+If [Gensha](glossary#gensha-shibi) [Zen Master](glossary#zen-master) disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no [suffering](glossary#suffering), no pain – just there. 
 
 **Same person**: But what if I'm in my room sitting [zazen](glossary#zazen), and I'm in samadhi, and so the universe disappears for me. But somebody walks up to my room. You know, to me, nothing is happening, but they'd be seeing me sitting on a cushion. I've never been able to straighten that out, you know, what...
 
@@ -402,7 +402,7 @@ Without mind, you cannot do [zazen](glossary#zazen).
 
 ##### 1:15:12
 
-**Question**: Roshi. I think you told the story of Gensha several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
+**Question**: Roshi. I think you told the story of [Gensha](glossary#gensha-shibi) several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
 
 **Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on [impermanence](glossary#impermanence), transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
 
@@ -442,7 +442,7 @@ So, right in the middle of dance – nothing. No zipping, no [suffering](glossar
 
 The atmosphere is different doing [zazen](glossary#zazen); it's different. Dancing is total movement, dynamic, but zazen is stillness. That's a point; different appearance. But exactly content is the same. And also, after dance there are different things: the pros and cons, failures and successes, many things. But zazen is completely zazen. That's quiet, always; no pros and cons, feelings, anything. That's a different point. 
 
-That's why we have to emphasize always [zazen](glossary#zazen) itself, dance itself. But [the] dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dancing. That means always looking at your life in the time process. This is a very common dualistic world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform the dance. Quality of dance [is?] completely beyond judgement. Judgement is something you are involved in just on the surface. So just accept. 
+That's why we have to emphasize always [zazen](glossary#zazen) itself, dance itself. But [the] dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dancing. That means always looking at your life in the time process. This is a very common [dualistic](glossary#dualistic) world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform the dance. Quality of dance [is?] completely beyond judgement. Judgement is something you are involved in just on the surface. So just accept. 
 
 So that surface is sort of the weeds; but weeds will be wonderful fertilizer for you. That's why, accept. And then all you have to do is, basically, you must be freedom. You must get freedom of the [zazen](glossary#zazen), of the dance. That means: practice dance itself. You have to find yourself right in the middle of dance itself.
 
@@ -492,11 +492,11 @@ So, *[he laughs]* if you're involved in lots of things, [lots of] techniques –
 
 **Same person**: Okay.
 
-Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from [dualism](glossary#dualism); that's "me" having satori, and so that's dualistic satori, that's not real satori.
+Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from [dualism](glossary#dualism); that's "me" having satori, and so that's [dualistic](glossary#dualistic) satori, that's not real satori.
 
 **Katagiri**: Yes, yes. Okay, sure.
 
-**Same person**: But it might be encouraging to have dualistic satori, just to understand it. In [Rinzai](glossary#rinzai-zen ) they say, it's important to have that understanding, to know what's going on.
+**Same person**: But it might be encouraging to have [dualistic](glossary#dualistic) satori, just to understand it. In [Rinzai](glossary#rinzai-zen ) they say, it's important to have that understanding, to know what's going on.
 
 **Katagiri**: Right, right. Right.
 
@@ -506,7 +506,7 @@ Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teac
 
 **Katagiri**: Yes, beautiful. That's why [Rinzai](glossary#rinzai-zen ) emphasizes, "Why don't you attain [enlightenment](glossary#enlightenment)?" So, if the enlightenment is beautiful, it's okay. 
 
-**Same person**: But you're still saying that that's dualistic [enlightenment](glossary#enlightenment), and so that's unnecessary. 
+**Same person**: But you're still saying that that's [dualistic](glossary#dualistic) [enlightenment](glossary#enlightenment), and so that's unnecessary. 
 
 **Katagiri**: I think so. What is it, real [enlightenment](glossary#enlightenment)? Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is – well, nothing to say. Nothing to show. 
 

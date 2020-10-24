@@ -99,27 +99,27 @@ What should you do? Jump into it. Throw yourself into Buddha’s home. Without t
 
 ##### 28:14
 
-Particularly when you do zazen, this is [the] very fundamental path, *[unintelligible]*. That’s why we have to throw into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
+Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental path, *[unintelligible]*. That’s why we have to throw into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
 
-I always tell you, zazen must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
+I always tell you, [zazen](glossary#zazen) must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
 
-We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, [what] is called zazen blooms. That is called Buddha, Buddha’s home. 
+We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into [zazen](glossary#zazen), at that time, [what] is called zazen blooms. That is called Buddha, Buddha’s home. 
 
 ##### 29:22
 
-But if you believe zazen [is] like this, well, you believe zazen is [a] particular practice. So Zen says, zazen is not a particular practice; your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this which is called *shikan*.
+But if you believe [zazen](glossary#zazen) [is] like this, well, you believe zazen is [a] particular practice. So Zen says, zazen is not a particular practice; your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this which is called *shikan*.
 
 At that time, your daily life becomes *vehicle*. What you call the task, is "the task of the fundamental vehicle of transcendence". 
 
-Transcendence means completely there is no need of your effort; something comes from Buddha’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect zazen, [then] perfect zazen takes care of you – even though you don’t want. 
+Transcendence means completely there is no need of your effort; something comes from Buddha’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect [zazen](glossary#zazen), [then] perfect zazen takes care of you – even though you don’t want. 
 
 ##### 30:34
 
-If you always see the zazen from your viewpoint, always there is a question. [There is] nothing to get; so that’s why you are faced with the question, “Should I spend my whole life doing zazen, which is useless? Nothing to get, nothing to develop?" Ridiculous. You cannot do that. 
+If you always see the [zazen](glossary#zazen) from your viewpoint, always there is a question. [There is] nothing to get; so that’s why you are faced with the question, “Should I spend my whole life doing zazen, which is useless? Nothing to get, nothing to develop?" Ridiculous. You cannot do that. 
 
 But even though you don’t know, or you don’t know how much your life or your personality develops or not, well, get someone with open eyes, that knows pretty much how well you have been developing. 
 
-At that time, there is no need for your particular effort, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into zazen. At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
+At that time, there is no need for your particular effort, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into [zazen](glossary#zazen). At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
 
 That’s why that is the path of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right there, right on this vehicle, 100 points. That is really vast; nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
 
@@ -191,7 +191,7 @@ There is a very interesting story of one of the famous Japanese scholars – he 
 
 One day, Gempo-roshi passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” He said, “I am practicing Zen to save all sentient beings.” Then Gempo-roshi said, “Oh, is that so.” Then he left. 
 
-And in a few days, when he passed through the kitchen, and he saw him making the rice on the stove, he asked, “What for do you practice zazen?” He said, “I want to save all sentient beings.” He said, “Oh.” He left.
+And in a few days, when he passed through the kitchen, and he saw him making the rice on the stove, he asked, “What for do you practice [zazen](glossary#zazen)?” He said, “I want to save all sentient beings.” He said, “Oh.” He left.
 
 Next time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” 
 
@@ -201,7 +201,7 @@ So immediately, Gempo-roshi screamed, “*Stupid*!” *[he laughs]* “That prac
 
 ... because my practice is evaluated in [a] great way, so you should be patient, please take care of me. 
 
-Well, if you have a family, “I want to go to zazen, so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s very true. That’s why Gempo-roshi crashed that idea: “Stupid! Your practice is just for you.” 
+Well, if you have a family, “I want to go to [zazen](glossary#zazen), so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s very true. That’s why Gempo-roshi crashed that idea: “Stupid! Your practice is just for you.” 
 
 I don’t think practice is just for you – but don’t touch it, okay? Don’t get one "setting" for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 
@@ -209,7 +209,7 @@ I don’t think practice is just for you – but don’t touch it, okay? Don’t
 
 Anyway, what for do you practice? Do you practice for the good of all sentient beings? It is still one-sided; because your practice is limited by this. 
 
-Or on the other hand if you say, “I practice for myself” – this is also, your practice is limited by certain ideas. So, "release, forget yourself, and throw yourself into zazen," means, "What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself. They are just ideas; practice must be alive. At that time ... you simply cannot perceive that practice, but it is really universal. 
+Or on the other hand if you say, “I practice for myself” – this is also, your practice is limited by certain ideas. So, "release, forget yourself, and throw yourself into [zazen](glossary#zazen)," means, "What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself. They are just ideas; practice must be alive. At that time ... you simply cannot perceive that practice, but it is really universal. 
 
 That is called *[unintelligible]* practice. That is, throw yourself into the Buddha’s home.
 
@@ -223,7 +223,7 @@ When you get there, when you get the real truth – how will you ask for more i
 
 If you get some information or instruction from there, it is already something picked up objectively, you can see. At that time, it is not truth. Truth is where it should be, right on the vehicle. It is very true Zen. 
 
-At that time only, the zazen blooms. How can zazen touch [the] tip of the zazen by itself? No way. But if you see, even slightly, something *else* around zazen, it is something seen objectively, for you to touch. "You can touch" means, to get instruction or information from; zazen, chanting, gassho, whatever.
+At that time only, the [zazen](glossary#zazen) blooms. How can zazen touch [the] tip of the zazen by itself? No way. But if you see, even slightly, something *else* around zazen, it is something seen objectively, for you to touch. "You can touch" means, to get instruction or information from; zazen, chanting, gassho, whatever.
 
 So Engo [Zen Master](glossary#zen-master) says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means, you simply cannot continue, where you are, what you are doing. 
 

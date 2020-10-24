@@ -21,7 +21,7 @@ In Japanese, [enlightenment](glossary#enlightenment) is described by three diffe
 
 ##### 5:25
 
-According to [the] first term, kaku, awareness, this kind of [enlightenment](glossary#enlightenment) is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice zazen – or even though you don't practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
+According to [the] first term, kaku, awareness, this kind of [enlightenment](glossary#enlightenment) is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice [zazen](glossary#zazen) – or even though you don't practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
 
 This is [the] first experience; everyone can do [this]. But this experience of awareness is still at the conscious level. So, even though you understand [the] universe, there is still some difficulty for us to know how we should put it into practice. We don't know what to do. Because [the] experience of the universe through awareness doesn't work enough appropriately in your daily living. 
 

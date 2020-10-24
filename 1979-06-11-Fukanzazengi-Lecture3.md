@@ -9,7 +9,7 @@
 
 [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject, from [a] different angle today, because this is very important characteristic of [the] zazen we do, which is called [shikantaza](glossary#shikantaza).
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This [was the] first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
+Briefly speaking, I told you yesterday and the day before yesterday: if you do [zazen](glossary#zazen) even for a moment, you become [Buddha](glossary#buddha). This [was the] first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
 
 ##### 2:33
 
@@ -29,19 +29,19 @@ So it is represented as [kon-san?] in Japanese. [Kon?] is dullness, [san?] is di
 
 The structure of the Chinese letter [kon?] consists of two parts: one is bottom, the second is the sun. The sun sinks, or sets, at the bottom; the complete darkness. So [kon?] means dullness, which means the state which the mind becomes gloomy and doesn't work. As if the sun sets, and the surroundings completely become dark. That is the meaning of [kon?], dullness.
 
-[San?] is distraction. Distraction is a state [where] the mind is annoyed with troublesome [things], and is [indeterminate?]. That is distraction. So distraction, broadly speaking, means ... relative understanding. Various relative understandings: relative views, relative thoughts. Or, worldly thoughts. Worldly thoughts means to understand or view something in the dualistic world. That is distraction. 
+[San?] is distraction. Distraction is a state [where] the mind is annoyed with troublesome [things], and is [indeterminate?]. That is distraction. So distraction, broadly speaking, means ... relative understanding. Various relative understandings: relative views, relative thoughts. Or, worldly thoughts. Worldly thoughts means to understand or view something in the [dualistic](glossary#dualistic) world. That is distraction. 
 
-So if you understand something in the dualistic world ... whatever kind of idea or view you can get, it's [a] cause of distraction. For instance, good or evil, or neutral. Or hard practice, or easy practice, or so-so. Whatever kind of idea you get in the dualistic world, all becomes [a] cause of distraction. That is really distraction. 
+So if you understand something in the [dualistic](glossary#dualistic) world ... whatever kind of idea or view you can get, it's [a] cause of distraction. For instance, good or evil, or neutral. Or hard practice, or easy practice, or so-so. Whatever kind of idea you get in the dualistic world, all becomes [a] cause of distraction. That is really distraction. 
 
 ##### 10:27
 
-There are many types of zazen in this world, but broadly speaking, let me say, maybe three types of zazen. 
+There are many types of [zazen](glossary#zazen) in this world, but broadly speaking, let me say, maybe three types of zazen. 
 
 ##### 10:48
 
 One type of [zazen](glossary#zazen) is, that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds," perfectly. At any cost, by the zazen, we struggle for weeding out, and make [the] whole world completely clean. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So someday, weeds come back, come up, because you cannot destroy weeds. Because weeds are nothing but being – just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers. As long as flowers exist in this world, immediately there are weeds. 
 
-But actually, in the dualistic world, we don't like weeds. So, with hatred, we try to cut [them] down. But while you maintain ... hatred ... by the hatred, maybe you can cut [them] down. But it is not completely removing the weeds from the human world. Sometimes, somewhere, weeds come up. 
+But actually, in the [dualistic](glossary#dualistic) world, we don't like weeds. So, with hatred, we try to cut [them] down. But while you maintain ... hatred ... by the hatred, maybe you can cut [them] down. But it is not completely removing the weeds from the human world. Sometimes, somewhere, weeds come up. 
 
 ##### 13:36
 
@@ -55,7 +55,7 @@ So immediately, your goal completely goes far from you. That's why the moment th
 
 ##### 16:42
 
-That is one type of zazen. If you do zazen like this, of course you can attain [enlightenment](glossary#enlightenment). You can completely weed out, by arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath – you can reach a certain spiritual stage, which is called calmness, tranquility. Which *[unintelligible]* you feel happy...
+That is one type of [zazen](glossary#zazen). If you do zazen like this, of course you can attain [enlightenment](glossary#enlightenment). You can completely weed out, by arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath – you can reach a certain spiritual stage, which is called calmness, tranquility. Which *[unintelligible]* you feel happy...
 
 But, when the circumstances are changed: well, you cannot accept your calmness and tranquility [that] you have experienced; [you] cannot maintain [it]. Immediately, it's gone. So you are confused, very much. I know several examples in the United States. 
 
@@ -67,11 +67,11 @@ Well, I don't mean it is good or bad, right and wrong. We should know that is li
 
 And the second type is, that we remove the roots of the weeds, and even the seeds, from the ground. Weeds no longer grow. They are completely free from samsaric world in the [Six Realms of Existence](glossary#six-realms-of-existence): hell, hungry ghost, titan spirit, animal spirit, human beings, heavenly beings. (It's hard to tell whether he says "titan spirit" or "fighting spirit". Either works.) But unfortunately, we weed out perfectly on the ground of only *our own property*, and cherish a feeling of having reached the final goal. In other words, ... by way of having done our final goal, [we] spent our whole life without considering others' lives.
 
-So, by the practice of zazen, it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some [Buddhism](glossary#buddhism) says, if you attain [enlightenment](glossary#enlightenment), which is [the] highest level of spiritual life ... then at that time, it's not necessary to come back to [the] human world. You can stay constantly in the heaven.
+So, by the practice of [zazen](glossary#zazen), it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some [Buddhism](glossary#buddhism) says, if you attain [enlightenment](glossary#enlightenment), which is [the] highest level of spiritual life ... then at that time, it's not necessary to come back to [the] human world. You can stay constantly in the heaven.
 
 So, [arhats](glossary#arhat) and many saints in the history of [Buddhism](glossary#buddhism), they showed us, they experienced [it]. That's why one of the four results of Buddhist practice, [what the] arhat does, is [the] highest spirit of spiritual life, which enables you never to come back to human being, samsaric world. This is arhat practice. 
 
-This is also zazen. You can do.
+This is also [zazen](glossary#zazen). You can do.
 
 ##### 22:52
 
@@ -83,15 +83,15 @@ It's not necessary? If the people don't offer the food, they can survive, becaus
 
 Here is a very good example in Japan. This is the story *[unintelligible]* one of the famous Japanese actors, who was interested in economy, business. So he cherished for a long time some project he really wanted. He waited [for] the chance to do this. So, he got a chance. He started to [do] that business project. Finally, he finished, perfectly finished, risking his whole life. He did it! Everyone respected [it]: wonderful job, perfect. But finally, he didn't know what to do *next*. And then – can you imagine what would happen? He committed suicide. Why? ... He must be happy, because he did it. But he committed suicide. Why? People didn't understand it. 
 
-So, that is a really good example: not only Buddhists, this is really human life. If you really want to do something, [to] completely weed out, and [if] you want to be successful in any kind of business, and Buddhist practice – if you want to live in a paradise, you can do it. But, this is not [the] final goal [Buddha](glossary#buddha) mentions. Because, if you do it, there is still confusion. You don't know what to do. Then, all you have to do is – finally, nothing to do. After reaching that highest level, nothing to do. Because that highest level is nothing but something [in the] dualistic world. Highest level is a certain level opposed to lowest level. So, always dualistic world. But if you reach highest level in the dualistic world, still there is a confusion. 
+So, that is a really good example: not only Buddhists, this is really human life. If you really want to do something, [to] completely weed out, and [if] you want to be successful in any kind of business, and Buddhist practice – if you want to live in a paradise, you can do it. But, this is not [the] final goal [Buddha](glossary#buddha) mentions. Because, if you do it, there is still confusion. You don't know what to do. Then, all you have to do is – finally, nothing to do. After reaching that highest level, nothing to do. Because that highest level is nothing but something [in the] [dualistic](glossary#dualistic) world. Highest level is a certain level opposed to lowest level. So, always dualistic world. But if you reach highest level in the dualistic world, still there is a confusion. 
 
 Or, another confusion is, they really are [weary of?] having reached highest level, and having stayed with that highest level. Nothing to do; enjoy themselves. And all they have to do is, just to wait for death. 
 
-That is what is called dullness. In other words, too much pride. "I finished. My task is done. So, any time, any where, I can die." So, you can wait for death, in peace and harmony. Without ... having the weeds. But, this is called dullness. Because, that high spirit is just one of the lifestyles in the dualistic world. It's not completely happiness. 
+That is what is called dullness. In other words, too much pride. "I finished. My task is done. So, any time, any where, I can die." So, you can wait for death, in peace and harmony. Without ... having the weeds. But, this is called dullness. Because, that high spirit is just one of the lifestyles in the [dualistic](glossary#dualistic) world. It's not completely happiness. 
 
 ##### 29:00
 
-The last type of zazen is something we do: [shikantaza](glossary#shikantaza). 
+The last type of [zazen](glossary#zazen) is something we do: [shikantaza](glossary#shikantaza). 
 
 Struggling for reaching the other shore at any cost: this is also distraction. Which is good, distraction. Even though you reach the highest level of spiritual life, still there is a struggle, because the moment you reach the final goal, the final goal turns into the beginning; you have to start again. That's why struggle [is] constantly going on. That is distraction. On the other hand, dullness. 
 
@@ -149,7 +149,7 @@ In order to understand this point, first of all, we have to see practice for lon
 
 ##### 42: 44
 
-So, [the] point is, that we sew a good seed. We sew a good time and occasion, and good conditions. At that time – well, according to my talk yesterday, when good time and occasion are ripe, when good conditions are arranged, finally there is something left: that is total personality. Do you remember? That's why all we have to do is, arrange. Arrange, number one, environment. Second, the sensory world. Arrange in many ways, with careful consideration for the movement system; that is body, hands, feet, tongue. All movement system, we have to arrange. And then, finally, sit down in the proper way ... immobile. Immobile state. At that time, very naturally, body can be kept [in] equilibrium. And fourth, regulation [of] breath. If you regulate the breath, very naturally, regulation of the breath influences so much: the system of your hormones, and blood circulation, and also your nerve system, and internal organs; it influences very much. And also finally, regulating mind. That means, no design of having a reward, becoming [Buddha](glossary#buddha); just do it. Just do it. Because, the mind has a certain sticky[ness] ... which is called attachment. If you attach [to] it, immediately there is a string between zazen and you. You cannot cut [it]; you cannot see the zazen clearly. So immediately there is, that is a type of ...
+So, [the] point is, that we sew a good seed. We sew a good time and occasion, and good conditions. At that time – well, according to my talk yesterday, when good time and occasion are ripe, when good conditions are arranged, finally there is something left: that is total personality. Do you remember? That's why all we have to do is, arrange. Arrange, number one, environment. Second, the sensory world. Arrange in many ways, with careful consideration for the movement system; that is body, hands, feet, tongue. All movement system, we have to arrange. And then, finally, sit down in the proper way ... immobile. Immobile state. At that time, very naturally, body can be kept [in] equilibrium. And fourth, regulation [of] breath. If you regulate the breath, very naturally, regulation of the breath influences so much: the system of your hormones, and blood circulation, and also your nerve system, and internal organs; it influences very much. And also finally, regulating mind. That means, no design of having a reward, becoming [Buddha](glossary#buddha); just do it. Just do it. Because, the mind has a certain sticky[ness] ... which is called attachment. If you attach [to] it, immediately there is a string between [zazen](glossary#zazen) and you. You cannot cut [it]; you cannot see the zazen clearly. So immediately there is, that is a type of ...
 
 *[tape change]*
 
@@ -165,7 +165,7 @@ So, first of all, "let's sew the good seed" means, completely beyond good or bad
 
 [I'll share] this good example. I know a gentleman – I forgot his name. He has a particular job: he was a commando. Do you know that [word]? Commmando is one of the soldiers hired by the government. But that commando, his task is, well, very hard.... Sort of a spy, but not exactly a spy. I forgot one of the [long?] stories in England – I saw the pictures on the TV probably. The host, the man in this novel, was just like a commando. The government asked him to do something; secret task. You have to go to the other country, immediately, by the order of the government, and then serve somebody, who could be killed, or who could be arrested. Whatever happens, anyway, he has to do. That is a commando; he does [that]. He is very sharp, very sharp, and his eyes are very sharp eyes. If you look at him, immediately he glares at you. *[he chuckles]* Just like a frog in front of a snake. Can you imagine? Because he has to maintain continually a certain mental, psychological tension. No seam [or] psychological crack between him and object. Always there is no crack. So he is very sharp.
 
-But he suffered a lot. And he likes [it] very much here. So he came a single time to see me, and he sat a few times here. He lives here, but he doesn't have a particular home. Every day, he has to move, and he has to do something secretly. He wants to come here, but, the government, FBI, everybody follows him. So he cannot walk in sunshine, daytime; he has to walk in the darkness. He wants to come here because zazen starts in the dark. *[the group laughs]* So, in the morning, that's why he wanted to come. And he came once. He has a small passport; that passport is a completely special passport issued by the government. This is a secret passport. Any time, any place, he can go. At any time, any where, he can kill anybody. *[some laughter]* That means, he is also, any time, any where, killed by somebody. Don't you think so? That is his job. Any time.
+But he suffered a lot. And he likes [it] very much here. So he came a single time to see me, and he sat a few times here. He lives here, but he doesn't have a particular home. Every day, he has to move, and he has to do something secretly. He wants to come here, but, the government, FBI, everybody follows him. So he cannot walk in sunshine, daytime; he has to walk in the darkness. He wants to come here because [zazen](glossary#zazen) starts in the dark. *[the group laughs]* So, in the morning, that's why he wanted to come. And he came once. He has a small passport; that passport is a completely special passport issued by the government. This is a secret passport. Any time, any place, he can go. At any time, any where, he can kill anybody. *[some laughter]* That means, he is also, any time, any where, killed by somebody. Don't you think so? That is his job. Any time.
 
 And also, if he killed somebody, his task is successful, and government gives asylum to him. He doesn't want government, FBI, to look for him, always look for him. But he came here. And then I asked, "I [would like to] give a [Buddha](glossary#buddha) statue [to you]." [A statue] carved in ivory, from India – so that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: "Please keep this." And I [asked] him, "How about this Buddhist statue? Can you feel something?" Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I told him – because I want to know his soft, gentle mind – so, [I asked,] "How do you feel there?" He said, "No, I don't like him." "How come?" He said, "He's a strict teacher." Maybe so, maybe so. 
 
@@ -193,13 +193,13 @@ Anyway, we don't know how much delusions drop off. No, we don't realize, we don'
 
 That is ... [to] sew a good seed. Good time and occasion, and good conditions – we can create [them], right now, right here.
 
-That's why shikantaza is not a means to an end, leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine. Well this is very nice; this is a kind of zazen, so, you can do this. But, what you are struggling for is nothing but a distraction. Don't you think so? This is really true. Distraction. Why don't you [deal with it?] This is still a delusion.
+That's why shikantaza is not a means to an end, leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine. Well this is very nice; this is a kind of [zazen](glossary#zazen), so, you can do this. But, what you are struggling for is nothing but a distraction. Don't you think so? This is really true. Distraction. Why don't you [deal with it?] This is still a delusion.
 
 ##### 1:02:50
 
 Now on the other hand, I told you, you can completely clean your whole life, [so] weeds no longer grow. But, after reaching that stage, you don't know what to do, so all you have to do is just wait for death. That's why the Japanese actor committed suicide. It's not necessary to commit suicide, but he did it. Why? 
 
-Because, whatever it is, all things are completely delusions, created in the dualistic world. In the dualistic world, if you say "good," you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, evil and good, immediately evil comes up, and then immediately you try to move to the other place. So always going this way, that way, going that way. That's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
+Because, whatever it is, all things are completely delusions, created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say "good," you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, evil and good, immediately evil comes up, and then immediately you try to move to the other place. So always going this way, that way, going that way. That's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
 
 ##### 1:04:30
 
@@ -217,7 +217,7 @@ While [lotus](glossary#lotus) flower [is] blooming, mud water exists. But it doe
 
 That is shikantaza. And then if you do this, that practice creates merit and virtue, which bloom in the future. In the life after next life, it's blooming. Yes it is. I promise. *[he laughs softly]* I promise.
 
-And then, this way is exactly [to] cut off karma, [the] stream of karma. Without this, nothing else to cut off karma. This is the best way. But we don't know. We really want to [know]; we are always curious of poking our head into a certain hole, always. That is a dualistic world, okay? Anyway, stop it. If you stop, everything comes up, very naturally, passing by you.
+And then, this way is exactly [to] cut off karma, [the] stream of karma. Without this, nothing else to cut off karma. This is the best way. But we don't know. We really want to [know]; we are always curious of poking our head into a certain hole, always. That is a [dualistic](glossary#dualistic) world, okay? Anyway, stop it. If you stop, everything comes up, very naturally, passing by you.
 
 ##### 1:09:05
 
@@ -229,9 +229,9 @@ That is very important. At that time, completely all delusions drop off.
 
 This is shikantaza. So, shikantaza is arrangement of all things, and then sit down. That's all. This is really [the] [Bodhisattva](glossary#bodhisattva) path, to help all sentient beings. If you practice this, your life [is] really helpful, for you and for others. It is very true. Even though you don't say [anything], somebody realizes. You have something to tell him, or her. 
 
-So that is shikantaza. It's pretty difficult to understand for us intellectually, because we are getting the use of always analyzing [and] synthesizing everything, in the dualistic world. It's very difficult to stop immediately. That's why even though you stop for a while, you don't appreciate that practice. But this practice is only the best way. 
+So that is shikantaza. It's pretty difficult to understand for us intellectually, because we are getting the use of always analyzing [and] synthesizing everything, in the [dualistic](glossary#dualistic) world. It's very difficult to stop immediately. That's why even though you stop for a while, you don't appreciate that practice. But this practice is only the best way. 
 
-So that is shikantaza. Shikantaza, zazen you do, mentioned by [Buddha](glossary#buddha). We can explain how important this kind of Buddhist practice [is] philosophically, psychologically. But it takes time. That is [a] huge world, [the] philosophical background, psychological background. But even though you don't know, you can do [it], right now, right here. This is a very urgent need; we have to do [it]. Whoever you are, wherever you may be, you can do it. For instance, if you are in an office – well, still you can do [it]. If [there is] no one there, you can sit down in a chair and calm yourself. If you talk between somebody, you can realize a certain pause, where no words come up. At that time, you can return to yourself, and breathe. 
+So that is shikantaza. Shikantaza, [zazen](glossary#zazen) you do, mentioned by [Buddha](glossary#buddha). We can explain how important this kind of Buddhist practice [is] philosophically, psychologically. But it takes time. That is [a] huge world, [the] philosophical background, psychological background. But even though you don't know, you can do [it], right now, right here. This is a very urgent need; we have to do [it]. Whoever you are, wherever you may be, you can do it. For instance, if you are in an office – well, still you can do [it]. If [there is] no one there, you can sit down in a chair and calm yourself. If you talk between somebody, you can realize a certain pause, where no words come up. At that time, you can return to yourself, and breathe. 
 
 ##### 1:12:30
 
@@ -249,7 +249,7 @@ Okay ... Shall I discuss now, or tomorrow? If you have some questions – tomorr
 
 **Katagiri**: What is the ... ?
 
-**Same person**: You said there are three types of zazen? I didn't understand the difference between the third one and the second one, if ... to do shikantaza becomes our goal. 
+**Same person**: You said there are three types of [zazen](glossary#zazen)? I didn't understand the difference between the third one and the second one, if ... to do shikantaza becomes our goal. 
 
 **Katagiri**: No.
 
@@ -261,7 +261,7 @@ Our aim is not [to] focus on goal. Goal is goal; we know goal. Goal is just imag
 
 **Same person**: Well isn't that a goal? 
 
-**Katagiri**: It's [a] goal, and also [a] practice. Goal and practice, simultaneously. Be present, just be present. But just be present – [there are] many kinds of ways of being just present. Because everybody has a different idea. Sleeping all day, this is also be just present, don't you think so? Doing zazen every day, all day, this is also just be present. Old men fighting with each other all day, this is also just be present. Don't you think so?
+**Katagiri**: It's [a] goal, and also [a] practice. Goal and practice, simultaneously. Be present, just be present. But just be present – [there are] many kinds of ways of being just present. Because everybody has a different idea. Sleeping all day, this is also be just present, don't you think so? Doing [zazen](glossary#zazen) every day, all day, this is also just be present. Old men fighting with each other all day, this is also just be present. Don't you think so?
 
 **Same person**: No.
 
@@ -275,7 +275,7 @@ Our aim is not [to] focus on goal. Goal is goal; we know goal. Goal is just imag
 
 **Katagiri**: Okay, yes. I understand your question. Yes.
 
-It [sees?] the [Buddha Nature](glossary#buddha-nature) of the second one. But, it is still seen from dualistic world. That's all. That's a different point.
+It [sees?] the [Buddha Nature](glossary#buddha-nature) of the second one. But, it is still seen from [dualistic](glossary#dualistic) world. That's all. That's a different point.
 
 ##### 1:18:00
 
@@ -299,7 +299,7 @@ When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see 
 
 **Question**: Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
 
-**Katagiri**: The goal in third type of zazen is broad. It's really broad. That goal is not [sic] open to him, his practice, and also to others practice. 
+**Katagiri**: The goal in third type of [zazen](glossary#zazen) is broad. It's really broad. That goal is not [sic] open to him, his practice, and also to others practice. 
 
 **Same person**: It's *not* open?
 
@@ -307,7 +307,7 @@ When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see 
 
 That's why we cannot get such a huge goal: because it's too big. *[he chuckles]* But, we *are* such a huge goal. So, how can I say [it]? Let's [say?] that ... a huge goal blooms with your life. How? Making arrangement of environment. 
 
-So finally, [the] third type of zazen doesn't have a goal. We can say so. But it doesn't mean no goal. There is a goal, but that goal is broad, huge. But [in the] second type of zazen, goal is limited by individual views and thoughts. So, according to his life, of course, his task, his business, is [to] succeed. But I don't know whether it is good for others. So finally, he doesn't know what to do next. 
+So finally, [the] third type of [zazen](glossary#zazen) doesn't have a goal. We can say so. But it doesn't mean no goal. There is a goal, but that goal is broad, huge. But [in the] second type of [zazen](glossary#zazen), goal is limited by individual views and thoughts. So, according to his life, of course, his task, his business, is [to] succeed. But I don't know whether it is good for others. So finally, he doesn't know what to do next. 
  
 *[quietly]* Are there any [more] questions?
 
@@ -327,7 +327,7 @@ Well, I don't know, of course, but it seems like if a person practices so that h
 
 **Katagiri**: Not automatic, sometimes. *[he chuckles]* Not automatic. No.
 
-It's not [automatically?] open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of zazen practice; that is, you can do [it]. But not everybody, because everybody has different karmas. But, it is not the object of criticism given by us, because, if I look [at the [arhat](glossary#arhat)'s] life in this world, his life is happy, wonderful, because he entered nirvana. Wonderful. So, better than nothing. Wonderful. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
+It's not [automatically?] open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of [zazen](glossary#zazen) practice; that is, you can do [it]. But not everybody, because everybody has different karmas. But, it is not the object of criticism given by us, because, if I look [at the [arhat](glossary#arhat)'s] life in this world, his life is happy, wonderful, because he entered nirvana. Wonderful. So, better than nothing. Wonderful. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
 
 So [normally?] there is no chance to come back to the samsaric world. 
 
@@ -357,7 +357,7 @@ Well actually, briefly speaking, if you want to reach the other shore, let's tak
 
 So, there are many ways to take one step. Everyone is different, takes a different way of one step. Don't you think so? Everyone takes even one step in a different way. So, somebody takes one step [and] immediately stumbles over; somebody enjoys very much; somebody always suffers; and somebody [has] sadness and [is] pensive; lots of types of one step. So, how to take one step in the *best* way? That is [the practice]. I don't know. But we know, we can take one step.
 
-Can you see the difference? Anyway, just one step, okay? Or, if you aim at this shore – in the long system, long life in the time process, from this shore to the other shore – we see this. And then if you focus on just the goal, then that main purpose of life is to meet this goal. The lifestyle becomes different. Don't you think so? Do you understand? Because, [it's] different. Because you want *this* goal. For this, in order to reach this goal, you have to struggle for life. Creating many things, try to do many things, and successes, failures; many things. And then [you] reach the goal – immediately you have to start [to] do something again, in order to [reach the] new goal. So always there is a goal, struggle. Whatever you have [been] struggling for, it's a distraction. This is very common; [the] dualistic world. 
+Can you see the difference? Anyway, just one step, okay? Or, if you aim at this shore – in the long system, long life in the time process, from this shore to the other shore – we see this. And then if you focus on just the goal, then that main purpose of life is to meet this goal. The lifestyle becomes different. Don't you think so? Do you understand? Because, [it's] different. Because you want *this* goal. For this, in order to reach this goal, you have to struggle for life. Creating many things, try to do many things, and successes, failures; many things. And then [you] reach the goal – immediately you have to start [to] do something again, in order to [reach the] new goal. So always there is a goal, struggle. Whatever you have [been] struggling for, it's a distraction. This is very common; [the] [dualistic](glossary#dualistic) world. 
 
 ##### 1:31:20
 
