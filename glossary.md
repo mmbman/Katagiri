@@ -122,6 +122,7 @@ See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
 See:
 [Fukanzazengi Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
+[Fukanzazengi Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
 
 ## Calligraphy
 
@@ -244,7 +245,14 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 ## Gensha Shibi 
 
-Chinese: Hsuan Sha Shih Pei or Xuansha Shibei 玄沙師備 835 - 908. Japanese: Gensha Shibi. Successor of Hsueh Feng.
+Chinese: 玄沙師備;
+Wade-Giles: Hsuan-sha Shih-pei;
+pinyin: Xuansha Shibei;
+Japanese: Gensha Shibi;
+also "Mendicant Pei".
+835 - 908.
+
+Successor of [Seppō Gison](#seppō-gison).
 
 See:
 [Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
@@ -287,7 +295,7 @@ Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
 
 ## Kyosei
 
-Chinese name Ching Ch’ing or Jingqing. 863–937. Successor of Hsueh Feng. Famous for his discipline.
+Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](#seppō-gison). Famous for his discipline.
 
 See:
 [Blue Cliff Record Case 46: "Ching Ch’ing’s Sound of Raindrops"](BCR#case-46)
@@ -411,15 +419,21 @@ See:
 
 ## Seppō
 
+See [Seppō Gison](seppō-gison)
+
+## Seppō Gison
+
+Japanese: Seppō Gison;
 Chinese: 雪峰义存;
-Wade-Giles: Hsueh-feng I-ts'un; 
-pinyin: Xuefeng Yicun; 
-Japanese: Seppō Gison
-Also Seppō Shinkaku (see ["One Bright Pearl" at shastaabbey.org](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf)) 
+Wade-Giles: **Hsueh-feng I-ts'un**; 
+pinyin: **Xuefeng Yicun**; 
+also Seppō Shinkaku.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
 
 [terebess.hu link](https://terebess.hu/zen/xuefeng.html)
+
+["One Bright Pearl" at shastaabbey.org](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf)) 
 
 See:
 [Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
@@ -444,6 +458,8 @@ See:
 ## Shobogenzo
 
 (Japanese) Shōbōgenzō: "Treasury of the True Dharma Eye". A collection of essays by [Eihei Dogen](#eihei-dogen), his most well-known work.
+
+See the [Shobogenzo Reference Index](shobogenzo).
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
