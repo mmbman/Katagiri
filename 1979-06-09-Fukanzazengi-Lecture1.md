@@ -151,7 +151,7 @@ That is [the] brain-nerve system. According to brain-nerve system, we have to re
 
 Completely throw away any germination of wishes, thoughts, views. You just view yourself spin with [zazen](glossary#zazen) . That's all you have to do. 
 
-[Dogen](glossary#dogen) [says], "Do not think good or bad, right and wrong," because we have to regulate mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That is egolessness. Selflessness. Practice of egolessness. 
+[Dogen](glossary#dogen) [says], "Do not think good or bad, right and wrong," because we have to regulate mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That is [egolessness](glossary#egolessness). Selflessness. Practice of egolessness. 
 
 If your mind really attaches to good or bad or neutral, immediately here is a thought, and view, wishes. And thoughts, views, wishes create dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, stop it. Even though you stop for a while, you cannot stop always. So you start to move, to the right, to the left. That is dualistic world. Finally, you don't know what to do. 
 
@@ -167,7 +167,7 @@ On the other hand, [dullness](glossary#dullness)  is completely [like] you are s
 
 So finally, we have to practice regulating the mind. That regulating of the mind is [the] practice of [egolessness](glossary#egolessness). 
 
-But how can you practice egolessness? [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, if you really simply forget your body and mind, you should throw away yourself into the heart of [Buddha](glossary#buddha). That means, you should throw yourself away to something. That "to something" is, to your object. But this object is not any object, this is the house of the Buddha. 
+But how can you practice [egolessness](glossary#egolessness)? [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, if you really simply forget your body and mind, you should throw away yourself into the heart of [Buddha](glossary#buddha). That means, you should throw yourself away to something. That "to something" is, to your object. But this object is not any object, this is the house of the Buddha. 
 
 So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book. This book is [Buddha](glossary#buddha) . So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book, as well as dealing with your life. So, you can deal with this book with compassion. It's really compassion; you can deal with it. At that time, the book really teaches you something.
 
@@ -177,11 +177,11 @@ So that is [egolessness](glossary#egolessness). And also, at that time, if you t
 
 ##### 52:56
 
-So, there is [zazen](glossary#zazen). Zazen and you: if you see [them] separately, that is a situation [in] which you can create discrimination world, dualistic world. Zazen and you: "I like zazen," "I don't like zazen," whatever you say, that is dualistic world. So first of all, you have to make arrangement, [of] zazen and you, circumstances and sensory world; you have to arrange all things. And then, at that time, if you arrange all circumstances, I told you before: and then, you should take care of zazen. With egolessness.
+So, there is [zazen](glossary#zazen). Zazen and you: if you see [them] separately, that is a situation [in] which you can create discrimination world, dualistic world. Zazen and you: "I like zazen," "I don't like zazen," whatever you say, that is dualistic world. So first of all, you have to make arrangement, [of] zazen and you, circumstances and sensory world; you have to arrange all things. And then, at that time, if you arrange all circumstances, I told you before: and then, you should take care of zazen. With [egolessness](glossary#egolessness).
 
 ##### 54:00
 
-At that time, the practice of egolessness is to throw away yourself into [zazen](glossary#zazen) , perfectly in the flow of zazen. Offer your body and mind to zazen, completely. At that time, there is no self. No self.
+At that time, the practice of [egolessness](glossary#egolessness) is to throw away yourself into [zazen](glossary#zazen) , perfectly in the flow of zazen. Offer your body and mind to zazen, completely. At that time, there is [no-self](glossary#no-self). No self.
 
 But if you completely offer yourself to [zazen](glossary#zazen) , that zazen helps you, simultaneously. 
 
@@ -193,9 +193,9 @@ So, very simple task. And then, at that time, if you offer yourself, and then af
 
 ##### 56:36
 
-So, there are three important [points]: samadhi, and egolessness, and no design on becoming [Buddha](glossary#buddha) , no design of expecting reward. [Those] three points are very important. 
+So, there are three important [points]: samadhi, and [egolessness](glossary#egolessness), and no design on becoming [Buddha](glossary#buddha) , no design of expecting reward. [Those] three points are very important. 
 
-Egolessness. That property, that is to regulate the mind. How to regulate the mind? Well, egolessness. How to practice? Egolessness. Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen) . How can you do that? By the help of samadhi, one-pointedness. With wholeheartedness, you can do it, very naturally. 
+[Egolessness](glossary#egolessness). That property, that is to regulate the mind. How to regulate the mind? Well, egolessness. How to practice? Egolessness. Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen) . How can you do that? By the help of samadhi, one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
 ##### 57:37
 
@@ -203,7 +203,7 @@ If you really want to accomplish one thing which you want to do, you have to cut
 
 ##### 58:35
 
-This is [a] very natural attitude to our life. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice samadhi. Samadhi is one-pointedness. If you come from one-pointedness, there is egolessness. Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
+This is [a] very natural attitude to our life. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice samadhi. Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
 
 ##### 1:00:05
 
@@ -211,7 +211,7 @@ Simplify, unify; that is what is called harmonious. Or regulating; we use the te
 
 ##### 1:00:58
 
-And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice samadhi, you can offer yourself into, and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
+And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice samadhi, you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
 
 And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
 
@@ -223,7 +223,7 @@ First, belief. That is faith. Faith is total acceptance that [your] original, to
 
 ##### 1:03:18
 
-And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is enlightenment. How can you experience enlightenment? Well first, practice of egolessness. How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is still no design on expecting any reward. Just do it. That is [shikantaza](shikantaza) .
+And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). How can you experience enlightenment? Well first, practice of [egolessness](glossary#egolessness). How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is still no design on expecting any reward. Just do it. That is [shikantaza](shikantaza) .
 
 That is really helpful. That is really [a] way of helping the people: offering your merit, merit of your practice, to all sentient beings. But according to [a] narrow understanding of human life, first you really cut off your weeds, the root of your weeds. And you want to be happy. That's nice; but it is [a] narrow understanding, because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere.
 

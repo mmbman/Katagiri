@@ -73,7 +73,7 @@ For instance, I had bad news from Zen Center in San Francisco last night. Some p
 
 If you say, “I am 21 years old; it is young” – what do you mean, young? “I am 60 years old, I am 70 years; it is old age." What do you mean? "Old age, old man should die first. Young man should live longer." Of course ... we hope [so]. But reality doesn’t agree with this understanding. Even though you believe “I am young, so I can live long,” of course there is, but reality is not. Reality doesn’t agree with. At any time, what is [the] reality where you, at 20 years old, live. What is reality? You can say you can live long, or you have to die tomorrow – maybe so, maybe not. You can live tomorrow, even longer – maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
 
-This is reality, in which everyone is living, day to day. Whoever you are, young or old, it doesn’t matter. That’s why Buddha says, life and death, old age and sickness are suffering.
+This is reality, in which everyone is living, day to day. Whoever you are, young or old, it doesn’t matter. That’s why Buddha says, life and death, old age and sickness are [suffering](glossary#suffering).
 
 ##### 20:20
 
@@ -85,17 +85,17 @@ Finally, language disappears. Completely disappears. If you look at the reality,
 
 If you believe you’re young and live long, such a person is what is called tanpankan in Japanese. Tan means to tie. Pan means board, long board. Kan means fellow, man. Tanpankan means a fellow who ties a board on his shoulder. If you carry the board on [your] shoulder, you cannot see the board; you can see just one side, but you cannot see the back. That is prejudice; it is this very narrow understanding. That is called tanpankan. 
 
-So we are studying something according to the Four Noble Truths. You don’t want to believe life is characterized by suffering, because you hate suffering. But that suffering really means, suffering opposed to pleasure. But suffering and pleasure, whatever you say, those are just words, apart from [the] reality itself [in which] you exist from day to day. 
+So we are studying something according to the Four Noble Truths. You don’t want to believe life is characterized by [suffering](glossary#suffering), because you hate suffering. But that suffering really means, suffering opposed to pleasure. But suffering and pleasure, whatever you say, those are just words, apart from [the] reality itself [in which] you exist from day to day. 
 
-Of course, we are very lucky; we are living in a lucky, wonderful world; it is called modern civilization. Lots of food, lots of things we can have. Of course, we are happy. But we cannot say we are always happy. Or we cannot believe that life is characterized by suffering. If you look at the reality in which human beings exist, you know pretty well what’s going on in the human world. You cannot judge human life in terms of just pleasure, or in terms of just suffering, pain. If you see the pain, suffering, immediately there is pleasure. If you see the pleasure there is immediately suffering, because this is reality. Suffering and pleasure live in peace and harmony as good friends. You cannot separate [them]. 
+Of course, we are very lucky; we are living in a lucky, wonderful world; it is called modern civilization. Lots of food, lots of things we can have. Of course, we are happy. But we cannot say we are always happy. Or we cannot believe that life is characterized by [suffering](glossary#suffering). If you look at the reality in which human beings exist, you know pretty well what’s going on in the human world. You cannot judge human life in terms of just pleasure, or in terms of just suffering, pain. If you see the pain, suffering, immediately there is pleasure. If you see the pleasure there is immediately suffering, because this is reality. Suffering and pleasure live in peace and harmony as good friends. You cannot separate [them]. 
 
 Then if you believe this human life according to pleasure, that is tanpankan. 
 
 ##### 24:40
 
-I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; suffering and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy very much. If you become Buddhist, Buddha says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say [this] to somebody, you are really troublemakers. 
+I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; [suffering](glossary#suffering) and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy very much. If you become Buddhist, Buddha says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say [this] to somebody, you are really troublemakers. 
 
-So, don’t be tanpankan, okay? The life characterized by suffering is not something like that. That’s why suffering must be true, okay? If the suffering becomes true, that means completely the language which is called suffering disappears. Nothing to say. Because even though you say in [words?], “life is perfect,” can you say, “life is happy?” No. There is pleasure; if it is true, can you say “life is pleasure?” You cannot say so either. The using of words always points out the reality in which we exist. But, there is some gap. And then reality itself, in which pleasure and suffering both co-exist – with the language, [it] completely disappears. Nothing to say. Everything becomes a question mark. Nothing to say.
+So, don’t be tanpankan, okay? The life characterized by [suffering](glossary#suffering) is not something like that. That’s why suffering must be true, okay? If the suffering becomes true, that means completely the language which is called suffering disappears. Nothing to say. Because even though you say in [words?], “life is perfect,” can you say, “life is happy?” No. There is pleasure; if it is true, can you say “life is pleasure?” You cannot say so either. The using of words always points out the reality in which we exist. But, there is some gap. And then reality itself, in which pleasure and suffering both co-exist – with the language, [it] completely disappears. Nothing to say. Everything becomes a question mark. Nothing to say.
 
 ##### 27:01
 
@@ -156,7 +156,7 @@ And then [after that] the main subject starts, from this question.
 
 He didn’t understand “no merit,” because he took this “no merit” at face value. 
 
-For instance, "Life is characterized by suffering." Don’t fret. Because if you take this at it's face value, you don’t want to accept [it]. Finally, you have to see the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering, completely beyond suffering or pleasure, whatever it is. 
+For instance, "Life is characterized by [suffering](glossary#suffering)." Don’t fret. Because if you take this at it's face value, you don’t want to accept [it]. Finally, you have to see the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering, completely beyond suffering or pleasure, whatever it is. 
 
 But Emperor Wu didn’t understand, that’s why Engo [Zen Master](glossary#zen-master) says, “This dull fellow speaks up.” *[laughter]* 
 
@@ -192,7 +192,7 @@ But, he doesn’t say [that]. “Nothing holy. Empty.”
 
 [The Emperor] was completely confused. 
 
-And then, the note says, “The arrow has flown past Korea.” This is a very common expression in Zen. “The arrow has flown past Korea” means, we don’t know. *[he laughs]* We don’t know when, how, where the arrow will fall down, or reach. Because: vastness, emptiness. [His] answer, "vastness and nothing holy," is just like an arrow; shoot! The arrow is endlessly going in space. This is called vastness. Nothing holy. We don’t know where it goes. What is the target, where is the target? We don’t know. 
+And then, the note says, “The arrow has flown past Korea.” This is a very common expression in Zen. “The arrow has flown past Korea” means, we don’t know. *[he laughs]* We don’t know when, how, where the arrow will fall down, or reach. Because: vastness, [emptiness](glossary#emptiness). [His] answer, "vastness and nothing holy," is just like an arrow; shoot! The arrow is endlessly going in space. This is called vastness. Nothing holy. We don’t know where it goes. What is the target, where is the target? We don’t know. 
 
 So, Engo [Zenji](glossary#zenji)’s note says, “Hey, anyway the ancient [Bodhidharma](glossary#bodhidharma) shot the arrow. Where? We don’t know where it goes.” It’s a straight arrow.
 
@@ -308,11 +308,11 @@ There are, I told you, three things. Speech: this is to manifest yourself in wor
 
 ##### 1:03:09
 
-So, finally, we have to just do. [Dogen](glossary#dogen) says in Zuimonki, [in] “Nansen Kills The Cat” ... he said, “Give a word of Zen; I let the cat go.” 
+So, finally, we have to just do. [Dogen](glossary#dogen) says in Zuimonki, [in] “Nansen Kills The Cat” ... he said, “Give a word of Zen; I let the [cat](glossary#cat) go.” 
 
-I let go of the cat because the monk didn’t say anything, just kept silent. [Because] silence is already [an] answer, [a] real answer. Silence is not silence, silence is [a] real answer; expression, manifesting yourself in the world. That’s why [Dogen](glossary#dogen) then says, “I would let go of the cat.” 
+I let go of the [cat](glossary#cat) because the monk didn’t say anything, just kept silent. [Because] silence is already [an] answer, [a] real answer. Silence is not silence, silence is [a] real answer; expression, manifesting yourself in the world. That’s why [Dogen](glossary#dogen) then says, “I would let go of the cat.” 
 
-It’s not necessary to kill the cat. But in a sense, “to kill the cat” is great [effort?], experience to awaken the monk, because [it's] very powerful. To help somebody, say something. “This is a picture. You don’t say the picture, you don’t say not picture, but don’t use the real worlds, I mean say something about it." It’s very powerful. Completely you come to the demand, something you have to say, but finally, you can say nothing.
+It’s not necessary to kill the [cat](glossary#cat). But in a sense, “to kill the cat” is great [effort?], experience to awaken the monk, because [it's] very powerful. To help somebody, say something. “This is a picture. You don’t say the picture, you don’t say not picture, but don’t use the real worlds, I mean say something about it." It’s very powerful. Completely you come to the demand, something you have to say, but finally, you can say nothing.
 
 ##### 1:04:55
 
@@ -338,9 +338,9 @@ Questions?
 
 **Same person**: Well, no, but the commentator thought he deserved it. Isn’t that what this was?
 
-**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, [after I had attended?] a week or so ... because I hated the monks life and temple life. Finally my teacher says, coming into my room, “Dainin, get up. When the time comes, everyone gets up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is these thirty blows. *[he laughs]* I actually deserved thirty blows. That’s why I couldn’t stay there; I felt shaky, my body and mind is shaky, anyway. But I gave up; I didn’t strike. Next day, I did it, anyway; get up in the morning, and *[unintelligible]* anyway, fixing meals. Still I hated it, *[laughter]* but anyway, I did it. But this is monk. 
+**Katagiri**: Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had to strike for two weeks, [after I had attended?] a week or so ... because I hated the monks life and temple life. Finally my teacher says, coming into my room, “[Dainin](glossary#dainin), get up. When the time comes, everyone gets up; just get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is these thirty blows. *[he laughs]* I actually deserved thirty blows. That’s why I couldn’t stay there; I felt shaky, my body and mind is shaky, anyway. But I gave up; I didn’t strike. Next day, I did it, anyway; get up in the morning, and *[unintelligible]* anyway, fixing meals. Still I hated it, *[laughter]* but anyway, I did it. But this is monk. 
 
-So that is really thirty blows. But if you’re not ready to open your eyes, even though what he's suggesting is very gentle – "Dainin," he didn’t scold me, "Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again." That's it. Very simple. If you’re not ready to accept this as thirty blows, well, that's a pretty usual *[unintelligible]* suggestion. But anyway, that was really thirty blows for me. 
+So that is really thirty blows. But if you’re not ready to open your eyes, even though what he's suggesting is very gentle – "[Dainin](glossary#dainin)," he didn’t scold me, "Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again." That's it. Very simple. If you’re not ready to accept this as thirty blows, well, that's a pretty usual *[unintelligible]* suggestion. But anyway, that was really thirty blows for me. 
 
 Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but anyway, that is Engo [Zen Master](glossary#zen-master)’s comment.
 

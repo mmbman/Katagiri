@@ -55,11 +55,11 @@ So immediately, your goal completely goes far from you. That's why the moment th
 
 ##### 16:42
 
-That is one type of zazen. If you do zazen like this, of course you can attain enlightenment. You can completely weed out, by arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath – you can reach a certain spiritual stage, which is called calmness, tranquility. Which *[unintelligible]* you feel happy...
+That is one type of zazen. If you do zazen like this, of course you can attain [enlightenment](glossary#enlightenment). You can completely weed out, by arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath – you can reach a certain spiritual stage, which is called calmness, tranquility. Which *[unintelligible]* you feel happy...
 
 But, when the circumstances are changed: well, you cannot accept your calmness and tranquility [that] you have experienced; [you] cannot maintain [it]. Immediately, it's gone. So you are confused, very much. I know several examples in the United States. 
 
-But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much, and you attain enlightenment. But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
+But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much, and you attain [enlightenment](glossary#enlightenment). But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
 
 Well, I don't mean it is good or bad, right and wrong. We should know that is life. That is life, okay? These [are] human beings; we should know that.
 
@@ -67,7 +67,7 @@ Well, I don't mean it is good or bad, right and wrong. We should know that is li
 
 And the second type is, that we remove the roots of the weeds, and even the seeds, from the ground. Weeds no longer grow. They are completely free from samsaric world in the [Six Realms of Existence](glossary#six-realms-of-existence): hell, hungry ghost, titan spirit, animal spirit, human beings, heavenly beings. (It's hard to tell whether he says "titan spirit" or "fighting spirit". Either works.) But unfortunately, we weed out perfectly on the ground of only *our own property*, and cherish a feeling of having reached the final goal. In other words, ... by way of having done our final goal, [we] spent our whole life without considering others' lives.
 
-So, by the practice of zazen, it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some [Buddhism](glossary#buddhism) says, if you attain enlightenment, which is [the] highest level of spiritual life ... then at that time, it's not necessary to come back to [the] human world. You can stay constantly in the heaven.
+So, by the practice of zazen, it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some [Buddhism](glossary#buddhism) says, if you attain [enlightenment](glossary#enlightenment), which is [the] highest level of spiritual life ... then at that time, it's not necessary to come back to [the] human world. You can stay constantly in the heaven.
 
 So, [arhats](glossary#arhat) and many saints in the history of [Buddhism](glossary#buddhism), they showed us, they experienced [it]. That's why one of the four results of Buddhist practice, [what the] arhat does, is [the] highest spirit of spiritual life, which enables you never to come back to human being, samsaric world. This is arhat practice. 
 
@@ -169,7 +169,7 @@ But he suffered a lot. And he likes [it] very much here. So he came a single tim
 
 And also, if he killed somebody, his task is successful, and government gives asylum to him. He doesn't want government, FBI, to look for him, always look for him. But he came here. And then I asked, "I [would like to] give a [Buddha](glossary#buddha) statue [to you]." [A statue] carved in ivory, from India – so that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: "Please keep this." And I [asked] him, "How about this Buddhist statue? Can you feel something?" Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I told him – because I want to know his soft, gentle mind – so, [I asked,] "How do you feel there?" He said, "No, I don't like him." "How come?" He said, "He's a strict teacher." Maybe so, maybe so. 
 
-And also, that [other] [Buddha](glossary#buddha) statue. "How about this? Do you feel something quiet, or calmness?" He said, "No." "How come?" "He's too [soft?]" I think so; he's very sharp. Because Kannon [Bodhisattva](glossary#bodhisattva), [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, which is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion, or Buddha Nature? So, let's touch that Buddha's compassion through [a] human shape. That is [a] [Bodhisattva](glossary#bodhisattva). That's why Avalokiteshvara has [a] double face: human body, and also on the other hand, compassion. That's why he sees suffering. To see suffering is Avalokiteshvara, of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. That is the art of [the] Buddhist statue. So we have to see the double face. 
+And also, that [other] [Buddha](glossary#buddha) statue. "How about this? Do you feel something quiet, or calmness?" He said, "No." "How come?" "He's too [soft?]" I think so; he's very sharp. Because Kannon [Bodhisattva](glossary#bodhisattva), [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, which is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion, or Buddha Nature? So, let's touch that Buddha's compassion through [a] human shape. That is [a] [Bodhisattva](glossary#bodhisattva). That's why Avalokiteshvara has [a] double face: human body, and also on the other hand, compassion. That's why he sees [suffering](glossary#suffering). To see suffering is Avalokiteshvara, of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. That is the art of [the] Buddhist statue. So we have to see the double face. 
 
 ##### 56:42
 
@@ -193,7 +193,7 @@ Anyway, we don't know how much delusions drop off. No, we don't realize, we don'
 
 That is ... [to] sew a good seed. Good time and occasion, and good conditions – we can create [them], right now, right here.
 
-That's why shikantaza is not a means to an end, leaving here to reach the other shore, struggling for getting enlightenment, et cetera. This is fine. Well this is very nice; this is a kind of zazen, so, you can do this. But, what you are struggling for is nothing but a distraction. Don't you think so? This is really true. Distraction. Why don't you [deal with it?] This is still a delusion.
+That's why shikantaza is not a means to an end, leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine. Well this is very nice; this is a kind of zazen, so, you can do this. But, what you are struggling for is nothing but a distraction. Don't you think so? This is really true. Distraction. Why don't you [deal with it?] This is still a delusion.
 
 ##### 1:02:50
 
@@ -235,7 +235,7 @@ So that is shikantaza. Shikantaza, zazen you do, mentioned by [Buddha](glossary#
 
 ##### 1:12:30
 
-You can do it, okay? Wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sew the seeds. Arrangement [of] circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right dharma is manifest. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
+You can do it, okay? Wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sew the seeds. Arrangement [of] circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right [dharma](glossary#dharma) is manifest. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
 
 ##### 1:14:02
 
@@ -279,7 +279,7 @@ It [sees?] the [Buddha Nature](glossary#buddha-nature) of the second one. But, i
 
 ##### 1:18:00
 
-**Question**: Roshi, were you making a distinction between the enlightenment of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+**Question**: Roshi, were you making a distinction between the [enlightenment](glossary#enlightenment) of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
 **Katagiri**: Uh, [Bodhisattva](glossary#bodhisattva) practice, yes... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next.
 
@@ -361,7 +361,7 @@ Can you see the difference? Anyway, just one step, okay? Or, if you aim at this 
 
 ##### 1:31:20
 
-So in the modern civilization, we can have a better life. The better life we aim at is sort of a goal; but it's not a goal, already, it's still suffering. We suffer from the goal maybe we have reached. So, still struggling. That is really distraction. 
+So in the modern civilization, we can have a better life. The better life we aim at is sort of a goal; but it's not a goal, already, it's still [suffering](glossary#suffering). We suffer from the goal maybe we have reached. So, still struggling. That is really distraction. 
 
 ##### 1:31:53
 
@@ -371,7 +371,7 @@ So in the modern civilization, we can have a better life. The better life we aim
 
 **Same person**: There is no struggle?
 
-**Katagiri**: No struggle. Perfectly no struggle. No suffering, no delusions. Perfect. 
+**Katagiri**: No struggle. Perfectly no struggle. No [suffering](glossary#suffering), no delusions. Perfect. 
 
 **Same person**: So if this goal becomes a particular step?
 

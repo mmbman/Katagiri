@@ -31,7 +31,7 @@ Plainly speaking, this is the truth, or original nature of existence, or dharma.
 
 ##### 7:30
 
-The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, Buddha, or impermanence, or dependent origination – all are immediately something objectified by you. This is very natural. 
+The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, Buddha, or [impermanence](glossary#impermanence), or dependent origination – all are immediately something objectified by you. This is very natural. 
 
 It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So patriarchs and Buddhas constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
 
@@ -183,7 +183,7 @@ Next, “The treasury of teachings of the whole age cannot explain it thoroughly
 
 “Clear eyed patchrobed monks cannot save themselves completely.”
 
-*[unintelligible]* How? Much as they cannot save others. Because even patch robed monks full of enlightenment, cannot themselves *[unintelligible]* how they can save all sentient beings.
+*[unintelligible]* How? Much as they cannot save others. Because even patch robed monks full of [enlightenment](glossary#enlightenment), cannot themselves *[unintelligible]* how they can save all sentient beings.
 
 ##### 44:30
 
@@ -233,7 +233,7 @@ But – it’s really work. If you don’t know, you feel restless. This restles
 
 And, “When you get here, how will you ask for more instruction?” then [adds]: “To say the word “Buddha” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
 
-Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the cat. Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. So, covered with mud, that means gargle yourself with water. 
+Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. So, covered with mud, that means gargle yourself with water. 
 
 But even though to say the word “Buddha” immediately you are covered with mud, just like a sewer rat. I mean, you enjoy very much, “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
 

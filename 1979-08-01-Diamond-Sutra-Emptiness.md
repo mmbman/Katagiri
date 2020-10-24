@@ -9,19 +9,19 @@
 
 Chapter 7:
 
-> The Lord asked: What do you think, Subhuti, is there any dharma which the Tathagata has fully known as "the utmost, right and perfect enlightenment," or is there any dharma which the Tathagata has demonstrated? Subhuti replied: No, not as I understand what the Lord has said. And why? This dharma which the Tathagata has fully known or demonstrated – it cannot be grasped, it cannot be talked about, it is neither a dharma nor a no-dharma. And why? Because an Absolute exalts the Holy Persons.
+> The Lord asked: What do you think, Subhuti, is there any [dharma](glossary#dharma) which the Tathagata has fully known as "the utmost, right and perfect [enlightenment](glossary#enlightenment)," or is there any dharma which the Tathagata has demonstrated? Subhuti replied: No, not as I understand what the Lord has said. And why? This dharma which the Tathagata has fully known or demonstrated – it cannot be grasped, it cannot be talked about, it is neither a dharma nor a no-dharma. And why? Because an Absolute exalts the Holy Persons.
 > 
-> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 30, immediately following the passage quoted in the previous talk.)
+> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
 
 In this chapter 7, there are two questions: What is Buddha? The second question is, what are the dharmas taught or preached by Buddha, Tathagata?
 
-Buddha asked Subhuti: "Is there any dharma which the Tathagata has fully known as 'the utmost, right and perfect enlightenment'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
+Buddha asked Subhuti: "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
-In Japanese, enlightenment is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
+In Japanese, [enlightenment](glossary#enlightenment) is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
 ##### 5:25
 
-According to [the] first term, kaku, awareness, this kind of enlightenment is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice zazen – or even though you don't practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
+According to [the] first term, kaku, awareness, this kind of [enlightenment](glossary#enlightenment) is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice zazen – or even though you don't practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
 
 This is [the] first experience; everyone can do [this]. But this experience of awareness is still at the conscious level. So, even though you understand [the] universe, there is still some difficulty for us to know how we should put it into practice. We don't know what to do. Because [the] experience of the universe through awareness doesn't work enough appropriately in your daily living. 
 
@@ -39,37 +39,37 @@ That is satori. Usually people understand, then cultivate [the] experience of sa
 
 So, [the] final goal is that you must be free from [the] experience of satori. That is [the] third, [the] one which is called "sho", which literally means "verification". Verification which is called "sho" is oneness with [the] original nature of being. There is no gap between; exactly your daily living is perfectly in accord with [the] original nature of existence, [the] rhythm of nature of existence. 
 
-That is [the] third one, which is called "sho", translated usually [as] realization. This third enlightenment is the highest spiritual level, [in] which you can be free from awareness and satori. So, [there is] no trace of satori, no trace of awareness. That is called sho, verification, because you are already one with [the] original nature of existence, even though you don't realize [it]. You are already right in the middle of [the] nature of existence. 
+That is [the] third one, which is called "sho", translated usually [as] realization. This third [enlightenment](glossary#enlightenment) is the highest spiritual level, [in] which you can be free from awareness and satori. So, [there is] no trace of satori, no trace of awareness. That is called sho, verification, because you are already one with [the] original nature of existence, even though you don't realize [it]. You are already right in the middle of [the] nature of existence. 
 
 ##### 13:31
 
-By this "sho", enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike [it]. That is the total picture of existence you have. This is enlightenment. 
+By this "sho", [enlightenment](glossary#enlightenment), your life is supported, helped, constantly, regardless of whether you like or dislike [it]. That is the total picture of existence you have. This is enlightenment. 
 
-That's why Buddha says, "Is there any dharma which the Tathagata has fully known as 'the utmost, right and perfect enlightenment'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
+That's why Buddha says, "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
 
-That is enlightenment, real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. Subhuti says, "No." 
+That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. Subhuti says, "No." 
 
 ##### 16:04
 
-So let's see about this utmost, right, perfect enlightenment, represented as sho in Japanese.
+So let's see about this utmost, right, perfect [enlightenment](glossary#enlightenment), represented as sho in Japanese.
 
-According to the commentary by Conze, he says: 
+According to the commentary by [Conze](glossary#edward-conze), he says: 
 
-> "Mahayanists are fond of saying that Buddha's enlightenment is not real fact, and that likewise, the Dharma preached by the Buddha shouldn't be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in "The Version in 8,000 Lines" may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, of (2) their emptiness, and (3) of their Suchness." (Katagiri phrases this last part as "the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.")
+> "Mahayanists are fond of saying that Buddha's [enlightenment](glossary#enlightenment) is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn't be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in "The Version in 8,000 Lines" may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, of (2) their [emptiness](glossary#emptiness), and (3) of their Suchness." (Katagiri phrases this last part as "the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.")
 
 So let's understand, let's think, one by one.
 
 ##### 18:10
 
-Doctor Conze said: 
+[Doctor Conze](glossary#edward-conze) said: 
 
-> Subhuti asks, "All dharmas have therefore really not been fully known by the Tathagata?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathagata. For there are not two natures of dharma, but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
+> Subhuti asks, "All dharmas have therefore really not been fully known by the Tathagata?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathagata. For there are not two natures of [dharma](glossary#dharma), but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
 
-This is the explanation of first point, the marklessness of all things. That means all things are based on emptiness, exactly emptiness. 
+This is the explanation of first point, the marklessness of all things. That means all things are based on [emptiness](glossary#emptiness), exactly emptiness. 
 
 ##### 19:55
 
-Emptiness means, [the] original nature of existence is that which exists constantly without any reason. If you say "why do we exist," you have to answer, "we exist to eat," "we exist to work," "we work to live," – whatever you say. But, this answer to the question "why" doesn't hit the mark, what the original nature of existence is, because [the] original nature of existence is exactly emptiness. In [Buddhism](glossary#buddhism) emptiness doesn't mean, always I tell you, not something in vain. Emptiness is total dynamic working. [The] original nature of existence is constantly, totally working in dynamism, without leaving any trace, without getting any ideas. You cannot catch it. That is original nature of existence. So, if you ask yourself why you exist in this world, why do you exist in this world as American, as Japanese, as a Buddhist, as a Christian - well, we don't understand. Of course, you can answer this question "why," but even though you get [an] answer to this question "why," that answer is not good enough. Still there [are] lots of things you don't understand. 
+[Emptiness](glossary#emptiness) means, [the] original nature of existence is that which exists constantly without any reason. If you say "why do we exist," you have to answer, "we exist to eat," "we exist to work," "we work to live," – whatever you say. But, this answer to the question "why" doesn't hit the mark, what the original nature of existence is, because [the] original nature of existence is exactly emptiness. In [Buddhism](glossary#buddhism) emptiness doesn't mean, always I tell you, not something in vain. Emptiness is total dynamic working. [The] original nature of existence is constantly, totally working in dynamism, without leaving any trace, without getting any ideas. You cannot catch it. That is original nature of existence. So, if you ask yourself why you exist in this world, why do you exist in this world as American, as Japanese, as a Buddhist, as a Christian - well, we don't understand. Of course, you can answer this question "why," but even though you get [an] answer to this question "why," that answer is not good enough. Still there [are] lots of things you don't understand. 
 
 Strictly speaking, whatever answer you get to the question "why" you exist in this world as American – before you answer this question, or before you make answer of why, you are already absolute being. You already exist. No reason. Before you make a question, you exist already. You have to answer this question to get [an] answer to this reality, before you may question why. 
 
@@ -87,9 +87,9 @@ Human speculation doesn't hit the mark, existence itself – the rose. Before yo
 
 ##### 27:16
 
-And this is emptiness. Emptiness means, no reason. With no reason, everything exists, everything exists as it really is. And then, when your consciousness starts work, and consciousness catches your existence objectively, at that time, you create lots of things. Toward, like, dislike, good, bad; whatever it is. Many things come up. 
+And this is [emptiness](glossary#emptiness). Emptiness means, no reason. With no reason, everything exists, everything exists as it really is. And then, when your consciousness starts work, and consciousness catches your existence objectively, at that time, you create lots of things. Toward, like, dislike, good, bad; whatever it is. Many things come up. 
 
-The utmost, perfect, right enlightenment is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature's existence which exists without any reason, at that time, emptiness is represented as *[finger snap]* stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
+The utmost, perfect, right [enlightenment](glossary#enlightenment) is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature's existence which exists without any reason, at that time, [emptiness](glossary#emptiness) is represented as *[finger snap]* stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
 
 ##### 29:51
 
@@ -103,19 +103,19 @@ The original nature of existence is just like oneness right in the middle of [th
 
 But when you don't satisfy this, immediately you create psychic crack, consciousness starts [to] work. And then consciousness continually works, on and on. Finally, we create what is called Buddhist Psychology. *[a couple soft laughs]* Huge system of Buddhist Psychology, which is called [Abhidharma](glossary#abhidharma). *[he chuckles]* Abhidharma –huge. 
 
-That's wonderful. But this is still something you play with, constantly. This is important too. But [the] most important point is, be one with [the] nature of existence, because [the] nature of existence is emptiness. Emptiness means no gap between you and original nature of existence. No gap. So all you have to do is, you must be present with original nature of existence. Constantly, whatever happens, under all circumstances, day after day: stand up there, take care of it. And then at that time, you can experience perfect stability.
+That's wonderful. But this is still something you play with, constantly. This is important too. But [the] most important point is, be one with [the] nature of existence, because [the] nature of existence is [emptiness](glossary#emptiness). Emptiness means no gap between you and original nature of existence. No gap. So all you have to do is, you must be present with original nature of existence. Constantly, whatever happens, under all circumstances, day after day: stand up there, take care of it. And then at that time, you can experience perfect stability.
 
-And then this is called "the marklessness of all things". Completely emptiness. Emptiness means, no gap between you and the book, you and breakfast. No gap. So all you have to do is, [you] should ... experience stability there, in the oneness. 
+And then this is called "the marklessness of all things". Completely [emptiness](glossary#emptiness). Emptiness means, no gap between you and the book, you and breakfast. No gap. So all you have to do is, [you] should ... experience stability there, in the oneness. 
 
 ##### 36:32
 
-That is emptiness, and the second is the marklessness of their emptiness. If we say [the] original nature of existence is characterized by emptiness, immediately we don't understand it. So, we create [a] psychic crack, and your consciousness works, and [you] think of it, analyze it, synthesize it – what emptiness is. That means, you are stuck in the realm of emptiness, in the realm of oneness. If you're stuck in the oneness, it is not oneness, it is already two. Oneness is just one only, not two. If we say "[The] universe is one," we say, "Yes; I understand it." But that is already two. Do you understand? *[he laughs; some people laugh]*
+That is [emptiness](glossary#emptiness), and the second is the marklessness of their emptiness. If we say [the] original nature of existence is characterized by emptiness, immediately we don't understand it. So, we create [a] psychic crack, and your consciousness works, and [you] think of it, analyze it, synthesize it – what emptiness is. That means, you are stuck in the realm of emptiness, in the realm of oneness. If you're stuck in the oneness, it is not oneness, it is already two. Oneness is just one only, not two. If we say "[The] universe is one," we say, "Yes; I understand it." But that is already two. Do you understand? *[he laughs; some people laugh]*
 
-"I understand, yes." "Yes, I understand" is part of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say "I understand," next moment, you don't understand. Emptiness: "I studied for many many years about emptiness. I understand emptiness today." Next day, someone asks me from a different angle about emptiness: "I don't understand." Do you understand? The emptiness you chant in Prajnaparamita – wisdom, and emptiness, or impermanence – lots of terms, Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it's not broad. If someone asks us about it from a different angle we have never seen, we don't understand it. So, even though you say "I understand it," it is not good enough, because still emptiness does not work in your daily life. So you're pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness. Emptiness is *something*; already it's not emptiness. 
+"I understand, yes." "Yes, I understand" is part of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say "I understand," next moment, you don't understand. [Emptiness](glossary#emptiness): "I studied for many many years about emptiness. I understand emptiness today." Next day, someone asks me from a different angle about emptiness: "I don't understand." Do you understand? The emptiness you chant in Prajnaparamita – wisdom, and emptiness, or [impermanence](glossary#impermanence) – lots of terms, Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it's not broad. If someone asks us about it from a different angle we have never seen, we don't understand it. So, even though you say "I understand it," it is not good enough, because still emptiness does not work in your daily life. So you're pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness. Emptiness is *something*; already it's not emptiness. 
 
 ##### 40:05
 
-Emptiness is perfect emptiness. Perfect emptiness is dynamical working. 
+[Emptiness](glossary#emptiness) is perfect emptiness. Perfect emptiness is dynamical working. 
 
 That is [the] marklessness of the emptiness. You cannot believe any form of emptiness you have understood. Finally, the marklessness of emptiness means, formlessness. Formlessness. That means, concretely speaking, openness. Openness to ... manifest the original nature of existence; openness to accommodate conditioned elements, conditioned situations. To work freely. Or, openness is ... straightforwardness, toward the emptiness, toward the truth, constantly.
 
@@ -123,11 +123,11 @@ That is [the] marklessness of the emptiness. You cannot believe any form of empt
 
 In your daily living... if you read this book on Diamond Sutra... if this is something you want to do, ... you have to read [it]. "You have to read" is your life, [which] you have to take care of. Under all circumstances, whether you like or dislike, you have to take care [of it]. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, [like] "you have to read this": that is your life. If it is true, you have to continue to read. Continue to read. And then, in the process of reading, there are lots of experiences: like [or] dislike, understand, not understand. Lots of bubbles come up, and pop up. Next moment, different bubbles come up, and pop. Always there. 
 
-But whatever kind of bubbles you can see, all you have to do is not to [leave?] any form of a certain bubble. Or, "I see this bubble," or "I see that bubble." You, stop there. But, don't stop there. Just see the bubbles. But basically, all you have to do is, to be stable. To be stable in the realm of emptiness. 
+But whatever kind of bubbles you can see, all you have to do is not to [leave?] any form of a certain bubble. Or, "I see this bubble," or "I see that bubble." You, stop there. But, don't stop there. Just see the bubbles. But basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#emptiness). 
 
-Stability in the realm of emptiness is very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like, okay. Dislike, okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
+Stability in the realm of [emptiness](glossary#emptiness) is very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like, okay. Dislike, okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
 
-That is marklessness of emptiness, formlessness. Openness. Continually, your heart and your mind must be open. [Open] to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
+That is marklessness of [emptiness](glossary#emptiness), formlessness. Openness. Continually, your heart and your mind must be open. [Open] to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
 
 ##### 45:03
 
@@ -157,29 +157,29 @@ That's why German poet says, "the rose exists without any reason." And finally, 
 
 ##### 52:00
 
-If you say, "Katagiri exists without any reason," this is still logical explanation, based on [and] according to [a] philosophical understanding which is called emptiness. So, [the] original nature of Katagiri is completely emptiness. So, I exist with [envy?]; this is still logical explanation. The second, marklessness of emptiness – that means formlessness. Openness means throw away term without [envy?].
+If you say, "Katagiri exists without any reason," this is still logical explanation, based on [and] according to [a] philosophical understanding which is called [emptiness](glossary#emptiness). So, [the] original nature of Katagiri is completely emptiness. So, I exist with [envy?]; this is still logical explanation. The second, marklessness of emptiness – that means formlessness. Openness means throw away term without [envy?].
 
-At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is emptiness. If you understand Buddha – Buddha experiences this enlightenment. That's why Subhuti says, "The dharma which the Tathagata has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
+At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is [emptiness](glossary#emptiness). If you understand Buddha – Buddha experiences this [enlightenment](glossary#enlightenment). That's why Subhuti says, "The [dharma](glossary#dharma) which the Tathagata has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
 
 One is not something you can think or you can grab. When you think, when you experience, when you "get it," it is always two. That's why religion, all religion, speaks about the truth. But [there are] many kinds of truth. We fight each other, according to many kinds of truth. "[Buddhism](glossary#buddhism) is right." "Christianity is right; Buddhism is crazy." But Buddhism [and] Christianity explain about the truth. The truth is exactly one. One means, nothing to get, [to] grasp. 
 
 ##### 55:00
 
-"It cannot be grasped, it cannot be talked about." To talk is very important, because ... the activity *you talk* comes up from [the] original nature of existence. Otherwise, you cannot talk. Otherwise you cannot talk about the truth. The activity *to talk* is aiming at the highest speech and level, always aiming. Words cannot reach there. But the activity *to talk* itself, coming from [the] original nature of existence, aims at [the] high spiritual level. Words cannot reach [there]; that's why there is some confusion. "Emptiness": this is [a] word. But [the] activity I talk about, emptiness, is not [a] word, [it is] emptiness itself. Because, words are already emptiness. And [the] subject I am talking [about] is also emptiness. So I am not talking about [the] emptiness I can see or get. That is a word. When I am talking about emptiness, I myself [am] emptiness always. And words also are emptiness, always. 
+"It cannot be grasped, it cannot be talked about." To talk is very important, because ... the activity *you talk* comes up from [the] original nature of existence. Otherwise, you cannot talk. Otherwise you cannot talk about the truth. The activity *to talk* is aiming at the highest speech and level, always aiming. Words cannot reach there. But the activity *to talk* itself, coming from [the] original nature of existence, aims at [the] high spiritual level. Words cannot reach [there]; that's why there is some confusion. "[Emptiness](glossary#emptiness)": this is [a] word. But [the] activity I talk about, emptiness, is not [a] word, [it is] emptiness itself. Because, words are already emptiness. And [the] subject I am talking [about] is also emptiness. So I am not talking about [the] emptiness I can see or get. That is a word. When I am talking about emptiness, I myself [am] emptiness always. And words also are emptiness, always. 
 
-So, emptiness, this is, I have to talk about emptiness. To talk is important, [but] not [the] word. Most people are completely cheated by the word. If I say emptiness: "Oh, I don't like it, because emptiness is negative." But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* [do] I exist? Why [does the] rose exist? Completely denied. That negation leads you to touch the exact core of existence of [the] rose itself. That is negation; that's what emptiness is. 
+So, [emptiness](glossary#emptiness), this is, I have to talk about emptiness. To talk is important, [but] not [the] word. Most people are completely cheated by the word. If I say emptiness: "Oh, I don't like it, because emptiness is negative." But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* [do] I exist? Why [does the] rose exist? Completely denied. That negation leads you to touch the exact core of existence of [the] rose itself. That is negation; that's what emptiness is. 
 
-So emptiness is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
+So [emptiness](glossary#emptiness) is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
 
 ##### 59:00
 
-"It cannot be talked about; it is neither a dharma nor a no-dharma." Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth; truth is, anyway, *truth*. But that truth that you understand, is not the real truth. Because truth has no mark of its own, no mark. That is emptiness. So truth cannot be described by a word. So you cannot describe truth as a truth or no-truth. If a truth is emptiness, you say, "Oh, no truth." But no truth is already something; it's not empty. Because you are stuck there; that means it's no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something extra. Emptiness is completely absent. 
+"It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma." [Dharma](glossary#dharma) is truth, or teaching... or whatever it is. Dharma is understood as a truth; truth is, anyway, *truth*. But that truth that you understand, is not the real truth. Because truth has no mark of its own, no mark. That is [emptiness](glossary#emptiness). So truth cannot be described by a word. So you cannot describe truth as a truth or no-truth. If a truth is emptiness, you say, "Oh, no truth." But no truth is already something; it's not empty. Because you are stuck there; that means it's no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something extra. Emptiness is completely absent. 
 
 ##### 1:00:44
 
 Next, "And why? Because an absolute exalts the holy person." That is the absolute; the original nature of existence exalts your life. Under all circumstances, whatever you think, like or dislike, this absolute takes care of you. 
 
-The commentary by Doctor Conze says: (pp. 34) 
+The commentary by [Doctor Conze](glossary#edward-conze) says: (pp. 34) 
 
 > **The Absolute** is literally "the Unconditioned," and according to Vasubandhu, it means here that which cannot be discriminated.
 
@@ -195,17 +195,17 @@ Do you have any questions?
 
 ##### 1:06:00
 
-**Question**: Roshi? When you talk about the marklessness of all things, or the emptiness of *[unintelligible]*, are those the three aspects of emptiness, or the three aspects of what?
+**Question**: Roshi? When you talk about the marklessness of all things, or the [emptiness](glossary#emptiness) of *[unintelligible]*, are those the three aspects of emptiness, or the three aspects of what?
 
 **Katagiri**: Truth.
  
 **Same person**: Of truth. 
 
-**Katagiri**: Karma. Enlightenment. The ultimate, utmost, right perfect enlightenment. Okay?
+**Katagiri**: Karma. Enlightenment. The ultimate, utmost, right perfect [enlightenment](glossary#enlightenment). Okay?
 
 ##### 1:06:45
 
-**Question**: Roshi, would one good way of putting it be, everything is within emptiness and emptiness is within everything? 
+**Question**: Roshi, would one good way of putting it be, everything is within [emptiness](glossary#emptiness) and emptiness is within everything? 
 
 **Katagiri**: Hmm? Emptiness is everything, everything is emptiness?
 
@@ -225,7 +225,7 @@ That's why you can be alive for many years, and you should be appreciative. You 
 
 **Person**: 27.
 
-**Katagiri**: You should be appreciative. Because you are already emptiness. 
+**Katagiri**: You should be appreciative. Because you are already [emptiness](glossary#emptiness). 
 
 **Person**: I'm grateful.
 

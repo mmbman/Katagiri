@@ -23,7 +23,7 @@ During the first and the second centuries, there were several great organizers a
 
 ##### 5:24
 
-[In] the first period, when a group of [Prajnaparamita](glossary#prajnaparamita) sutras were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra), and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and emptiness. 
+[In] the first period, when a group of [Prajnaparamita](glossary#prajnaparamita) sutras were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra), and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and [emptiness](glossary#emptiness). 
 
 So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossary#diamond-sutra). It's full name is Vajracchedikā Prajñāpāramitā Sūtra.
 
@@ -35,13 +35,13 @@ We don't know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in
 
 At the first conference and the second conference and the third conference after [Buddha](glossary#shakyamuni-buddha) 's death, many monks and Buddha's disciples gathered at a certain place, and compiled – collected – Buddha's teachings from each monk, what kind of Buddha's teaching they [had] memorized. Because in those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures. So, they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile, they tried to leave [behind] Buddha's teachings as written scriptures. \[Those are the\] [agamas](glossary#agama).
 
-Within the [agamas](glossary#agama), it was based on [Buddha](glossary#shakyamuni-buddha) 's teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), no-self, and nirvana. Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, no self, and nirvana. 
+Within the [agamas](glossary#agama), it was based on [Buddha](glossary#shakyamuni-buddha) 's teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and nirvana. Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals – based on impermanence, [no-self](glossary#no-self), and nirvana. 
 
-So in [the] [agama](glossary#agama) sutras, those four dharma seals were described. And then [within] the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in [the] [agama](glossary#agama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then [within] the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing [and] synthesizing what the agama sutra mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the agama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
-But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual (normal?) persons, but unusual persons, sort of genuine religious persons, who understood perfectly [Buddha](glossary#shakyamuni-buddha) 's teachings, and who understood perfectly the tendency of the religious thought of those days – the stream of Buddhist thought, religious thought of those days. They were really concerned about the Buddha's teaching, how they should compile Buddha's teaching, how they should transmit Buddha's teaching. So they were required, by tendency of very public religious thought, to compile Buddha's teachings based on original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), no self, and nirvana. 
+But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual (normal?) persons, but unusual persons, sort of genuine religious persons, who understood perfectly [Buddha](glossary#shakyamuni-buddha) 's teachings, and who understood perfectly the tendency of the religious thought of those days – the stream of Buddhist thought, religious thought of those days. They were really concerned about the Buddha's teaching, how they should compile Buddha's teaching, how they should transmit Buddha's teaching. So they were required, by tendency of very public religious thought, to compile Buddha's teachings based on original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and nirvana. 
 
 Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha) , Indian people believe those scriptures are really Buddha's teaching. They don't have any doubt. They accept perfectly those scriptures as Buddha's teachings. That's why we don't know who wrote [them]. But it doesn't matter; it doesn't matter.
 
@@ -57,14 +57,14 @@ I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is qui
 
 ##### 18:58
 
-The group of [Prajnaparamita sutras](glossary#prajnaparamita) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons, that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called emptiness. But that emptiness is exactly expressed by conscious thought. Huge.
+The group of [Prajnaparamita sutras](glossary#prajnaparamita) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons, that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#emptiness). But that emptiness is exactly expressed by conscious thought. Huge.
 
 So [Prajnaparamita](glossary#prajnaparamita) 
  is what is called The Perfection of Wisdom. [The] Indian people try to explain what wisdom is, according to concept. So, for instance, in [Diamond Sutra](glossary#diamond-sutra), it says: 
 
 > [Subhuti](glossary#subhuti) asked: What then, O Lord, is this discourse on [dharma](glossary#dharma), and how should I bear it in mind? – The Lord replied: This discourse on dharma, Subhuti, is called "Wisdom which has gone beyond," and as such should you bear it in mind!
 >
-> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 49)
+> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 49)
 
 Wisdom is expressed – explained, described – by [a] pretty conceptualized thing.
 
@@ -130,7 +130,7 @@ That is a great chance for you to practice, to continue to do it.
 
 This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. "A is A, but A is not A, that's why we call A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. But even though you don't like your life, or you like your life – a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say, you don't like, or you like: what is life? What are you? You are still you. And your life is existent. How can you judge? 
 
-So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called emptiness, philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
+So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#emptiness), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
 ##### 43:16
 
@@ -168,7 +168,7 @@ Obviously we have to think like this. But this is [a] beautiful, beautiful aspec
 
 But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything. Nothing to separate from her or him. At that time, this ballerina [is] called great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
 
-That's why [Zen Master](glossary#zen-master)  says, "When you feel hungry, eat. When you feel [sleepy], sleep." But this is [the] third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a cat. We misunderstand [the] Zen [saying], "When you feel hungry, eat. When you feel sleepy, sleep." This is not [the] first stage, first level of understanding; [this] is the very profound, highest level of understanding. 
+That's why [Zen Master](glossary#zen-master)  says, "When you feel hungry, eat. When you feel [sleepy], sleep." But this is [the] third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand [the] Zen [saying], "When you feel hungry, eat. When you feel sleepy, sleep." This is not [the] first stage, first level of understanding; [this] is the very profound, highest level of understanding. 
 
 ##### 51:30
 
@@ -176,7 +176,7 @@ Okay. Next time, we will study \[the chapters of the [Diamond Sutra](glossary#di
 
 Do you have some questions? 
 
-Ah, the textbook is the combined textbook, Buddhist Wisdom Books, compiled two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find cheaper, not hard copy – paperback cover, you can find. ("Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze.)
+Ah, the textbook is the combined textbook, Buddhist Wisdom Books, compiled two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find cheaper, not hard copy – paperback cover, you can find. ("Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze).)
 
 He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra) 
 . Without [the] commentary, it's very difficult to understand, because very often you can see very contradictory expression of the Buddhist teaching.

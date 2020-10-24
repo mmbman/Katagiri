@@ -9,7 +9,7 @@
 
 There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than [Gensha Shibi](glossary#gensha-shibi). This story occurs in the [Shobogenzo](glossary#shobogenzo) [in the fascicle] ["The One Bright Pearl"](shobogenzo#one-bright-pearl); you can find this story there.
 
-[Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained enlightenment, so he left the boat and he became a monk immediately after that. 
+[Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that. 
 
 ##### 2:26
 
@@ -34,7 +34,7 @@ After that, [a] little moment, immediately you can hear the sound of raindrops, 
 
 I have a scar here *[indicating a place on his head]*. When I was a child, I struck my head on the corner of a rock. I played with one of my friends two years older than I. So I jump in, and that is [the] foundation of the house, almost more than ten square foundation rocks there, exactly square. So I played with him, jumping [on them] one by one. And then I missed, stumbled over, [and] hit here. But when I hit – I didn't feel anything. I couldn't cry; just hit. That means I felt just a big shock – *boom*, that's all, around here. Then a few minutes later I touch it here, and then feel a big bump here, and also, blood comes out. And then I started crying. *[he laughs]* I was nine years old or so. I touched it here because I got the big shock here; so, what happened? [I] touched [it] here, and then I realized a big bump [was] here, looked up, and blood comes. So, I cried. 
 
-This looks like watching a slow-motion movie. But, when you experience [it], human experience simultaneously happens. But [Zen Buddhism](glossary#zen-buddhism ) always focuses on, not before, not after: right in the middle of. Hitting rock. At that time, there is no pain. Completely no pain, no suffering. Just happens.
+This looks like watching a slow-motion movie. But, when you experience [it], human experience simultaneously happens. But [Zen Buddhism](glossary#zen-buddhism ) always focuses on, not before, not after: right in the middle of. Hitting rock. At that time, there is no pain. Completely no pain, no [suffering](glossary#suffering). Just happens.
 
 ##### 12:04
 
@@ -64,7 +64,7 @@ Whatever you can see, that is exactly your life. And also, [the] problem is, som
 
 ##### 18:20
 
-And then, you [are] analyzing and synthesizing. If you feel good: "That's good; that is my life." If you don't feel good: "That is not my life." So, you're confused. So analyzing [is] two sided, always. But if you do [zazen](glossary#zazen) like this, that zazen is nothing but psychology and philosophy, science. I don't think [that kind of] zazen is religious zazen, I don't think [that kind of] zazen is [the] zazen which allows you to be free from psychology, philosophy, any kind of science, and human suffering. 
+And then, you [are] analyzing and synthesizing. If you feel good: "That's good; that is my life." If you don't feel good: "That is not my life." So, you're confused. So analyzing [is] two sided, always. But if you do [zazen](glossary#zazen) like this, that zazen is nothing but psychology and philosophy, science. I don't think [that kind of] zazen is religious zazen, I don't think [that kind of] zazen is [the] zazen which allows you to be free from psychology, philosophy, any kind of science, and human [suffering](glossary#suffering). 
 
 Anyway, [shikantaza](shikantaza) is the [zazen](glossary#zazen) which allows you to be free from any kind of feeling you can see. You shouldn't attach to it. All you need to do is, *see* that. If you see that, there is no reason why you have to be tied up with your feelings. You can see [this] during zazen. From beginning to end, what you have to do is, in [shikantaza](shikantaza) – all delusions, [dullness](glossary#dullness), [distraction](glossary#distraction), any kind of feeling – drop off. That is zazen, which you have to do. We *have* to do. 
 
@@ -124,7 +124,7 @@ So, "Gensha said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. 
 
 In [zazen](glossary#zazen), I told you before, if you see yourself in zazen with emotions, with anger, with [dullness](glossary#dullness), with indulgence, with [boredom?], with sleepiness – and lots of things happen – but remember, that is exactly your life. Not in a certain period of time which is called zazen; it is really your life, your whole life, in the past, in the present. You handle it. Your life is just like this. 
 
-That's why when I was at Eiheiji monastery, [a] [Zen master](glossary#zen-master) scolded us: "When you have to do [zazen](glossary#zazen), you have to do zazen right now. If you cannot do this, you cannot do *all* immediately." Because, one is many, many is one. If you can deal with one zazen exactly perfectly, it is your whole life, [and] you can handle your life. But if you don't, well, it is just exactly proof of your life: how you handle it, how you have been been handling it, and how you will. How you are handling that. It is true. But – don't be involved in such a feeling in zazen ... Still you can be free from such a feeling, emotions, your picture of your life. How you handle it, how you have handled [it], how you will handle [it], how you are handling [it] now; you can be completely free. For this, when you have to strike your toes on the rock, you *have* to. No way.
+That's why when I was at [Eiheiji](glossary#eiheiji) monastery, [a] [Zen master](glossary#zen-master) scolded us: "When you have to do [zazen](glossary#zazen), you have to do zazen right now. If you cannot do this, you cannot do *all* immediately." Because, one is many, many is one. If you can deal with one zazen exactly perfectly, it is your whole life, [and] you can handle your life. But if you don't, well, it is just exactly proof of your life: how you handle it, how you have been been handling it, and how you will. How you are handling that. It is true. But – don't be involved in such a feeling in zazen ... Still you can be free from such a feeling, emotions, your picture of your life. How you handle it, how you have handled [it], how you will handle [it], how you are handling [it] now; you can be completely free. For this, when you have to strike your toes on the rock, you *have* to. No way.
 
 This is [shikantaza](shikantaza). 
 
@@ -156,7 +156,7 @@ If you are really involved in that feeling or idea, that is nothing but looking 
 
 **Katagiri**: Oh, of course. But how can you see that life before and after? Because you are right in the middle of [zazen](glossary#zazen), that's why you can see [it]. Don't you think so?
 
-For instance, Gensha ... striking his toes. This is completely right in the middle of [it]. [It] occurs; no pains, no pleasures, no suffering. That's why he can experience, "Pain. Ouch." That's why he can see his life after striking his toes. If he was not there, he wouldn't see his life after striking. He wouldn't scream. Do you understand?
+For instance, Gensha ... striking his toes. This is completely right in the middle of [it]. [It] occurs; no pains, no pleasures, no [suffering](glossary#suffering). That's why he can experience, "Pain. Ouch." That's why he can see his life after striking his toes. If he was not there, he wouldn't see his life after striking. He wouldn't scream. Do you understand?
 
 **Same person**: He wouldn't scream?
 
@@ -318,7 +318,7 @@ Outside observer also disappears.
 
 It is true. Don't you think so? 
 
-If Gensha [Zen Master](glossary#zen-master) disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no suffering, no pain – just there. 
+If Gensha [Zen Master](glossary#zen-master) disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no [suffering](glossary#suffering), no pain – just there. 
 
 **Same person**: But what if I'm in my room sitting [zazen](glossary#zazen), and I'm in samadhi, and so the universe disappears for me. But somebody walks up to my room. You know, to me, nothing is happening, but they'd be seeing me sitting on a cushion. I've never been able to straighten that out, you know, what...
 
@@ -342,7 +342,7 @@ Okay?
 
 The point is, if we see many thoughts with our consciousness, sometimes consciousness gets exhausted. But actually it's not necessary to worry about [it], because if you experience real exhaustion, exhaustion itself knows pretty well what to do next. So, if you get exhausted – well, that's too much. It's not necessary to be concerned about "that's too much." If you think "that's too much," it really makes you exhausted *more*, psychologically and physically. So "I [am] exhaust[ed]": if you do [zazen](glossary#zazen), everyone [gets exhausted?] physically. But mental exhaustion is a little bit complicated. If you see physical exhaustion: "Oh, tired". And then it's, "Ooooh, *tired*." *[The first one sounds more matter-of-fact; second one sounds more drawn out and perhaps melodramatic.]* Very different, don't you think so?  And then: "I don't want it." That is already mental exhaustion. So you add to physical exhaustion something extra, always. 
 
-So actually, physical exhaustion itself knows pretty well what to do next. Because, exhaustion itself itself has no abode. No abode; emptiness. So, if you exhaust [yourself] in [zazen](glossary#zazen), you never die. You never die; you feel good after that. Don't you think so?
+So actually, physical exhaustion itself knows pretty well what to do next. Because, exhaustion itself itself has no abode. No abode; [emptiness](glossary#emptiness). So, if you exhaust [yourself] in [zazen](glossary#zazen), you never die. You never die; you feel good after that. Don't you think so?
 
 ##### 1:05:03
 
@@ -402,9 +402,9 @@ Without mind, you cannot do [zazen](glossary#zazen).
 
 ##### 1:15:12
 
-**Question**: Roshi. I think you told the story of Gensha several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced enlightenment at that time. 
+**Question**: Roshi. I think you told the story of Gensha several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
 
-**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on impermanence, transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
+**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on [impermanence](glossary#impermanence), transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
 
 ##### 1:17:17
 
@@ -430,11 +430,11 @@ You can do it. That's all we have to do, because we have to do [zazen](glossary#
 
 **Same person**: Well, I understand over here. Over here, I can't do it.
 
-**Katagiri**: Oh, you can *do* it. But you don't believe it, that's the point. For instance, dancing: you are dancing, don't you think? You are dancing, and right in the middle of dancing – what is the dance? Dancing itself is just dancing itself; no pain, no suffering, just dance going on. If you create the problem, at that time you immediately look at the after dance and before dance. And then immediately after dance, there are lots of beings [that] exist: audience, your feelings, your emotions, and circumstances, orchestras; many things. And then your mind starts to attach to it, picking. And then you don't feel good. That means immediately your life goes "zip". To the right, to the left; zip, zip, zip. That's busy. So, all you have to do is, just look at dance. 
+**Katagiri**: Oh, you can *do* it. But you don't believe it, that's the point. For instance, dancing: you are dancing, don't you think? You are dancing, and right in the middle of dancing – what is the dance? Dancing itself is just dancing itself; no pain, no [suffering](glossary#suffering), just dance going on. If you create the problem, at that time you immediately look at the after dance and before dance. And then immediately after dance, there are lots of beings [that] exist: audience, your feelings, your emotions, and circumstances, orchestras; many things. And then your mind starts to attach to it, picking. And then you don't feel good. That means immediately your life goes "zip". To the right, to the left; zip, zip, zip. That's busy. So, all you have to do is, just look at dance. 
 
 So all you have to do is, after the dance, well, just practice dance. 
 
-So, right in the middle of dance – nothing. No zipping, no suffering, no pain. Can you imagine? 
+So, right in the middle of dance – nothing. No zipping, no [suffering](glossary#suffering), no pain. Can you imagine? 
 
 **Same person**: Dancing, I can imagine.
 
@@ -492,7 +492,7 @@ So, *[he laughs]* if you're involved in lots of things, [lots of] techniques –
 
 **Same person**: Okay.
 
-Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from dualism; that's "me" having satori, and so that's dualistic satori, that's not real satori.
+Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize having a distinct kensho experience is really important. But it seems like you would say, well, that's satori from [dualism](glossary#dualism); that's "me" having satori, and so that's dualistic satori, that's not real satori.
 
 **Katagiri**: Yes, yes. Okay, sure.
 
@@ -504,11 +504,11 @@ Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teac
 
 *[there is some crosstalk]*
 
-**Katagiri**: Yes, beautiful. That's why [Rinzai](glossary#rinzai-zen ) emphasizes, "Why don't you attain enlightenment?" So, if the enlightenment is beautiful, it's okay. 
+**Katagiri**: Yes, beautiful. That's why [Rinzai](glossary#rinzai-zen ) emphasizes, "Why don't you attain [enlightenment](glossary#enlightenment)?" So, if the enlightenment is beautiful, it's okay. 
 
-**Same person**: But you're still saying that that's dualistic enlightenment, and so that's unnecessary. 
+**Same person**: But you're still saying that that's dualistic [enlightenment](glossary#enlightenment), and so that's unnecessary. 
 
-**Katagiri**: I think so. What is it, real enlightenment? Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is – well, nothing to say. Nothing to show. 
+**Katagiri**: I think so. What is it, real [enlightenment](glossary#enlightenment)? Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is – well, nothing to say. Nothing to show. 
 
 *[there is a pause of several seconds]*
 

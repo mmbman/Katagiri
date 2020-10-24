@@ -13,7 +13,7 @@ But, according to [the] Diamond Sutra, Subhuti, one of Buddha's ten major discip
 
 That is Buddha's answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
 
-According to Buddha's explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on no-self and also no perception of dharma: no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
+According to Buddha's explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on [no-self](glossary#no-self) and also no perception of [dharma](glossary#dharma): no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
 
 ##### 3:25
 
@@ -49,9 +49,9 @@ There are four kinds of perceptions of object negatively, because according to D
 
 ##### 11:02
 
-One is, everything is emptiness. Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say "Why," you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn't hit the mark. *Why*? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
+One is, everything is [emptiness](glossary#emptiness). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say "Why," you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn't hit the mark. *Why*? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
 
-You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: emptiness, nothing. That means: Americans exist. We've got enemies. 
+You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: [emptiness](glossary#emptiness), nothing. That means: Americans exist. We've got enemies. 
 
 ##### 12:45
 
@@ -59,11 +59,11 @@ You can explain why; but [the] explanation of the reason why you are American ca
 
 ... Why do you live? What is the purpose, to live in this world? So you say, "I live to work." Or, "I work to live." Or you say, "I don't know. I just live." Whatever you say, it doesn't hit the mark. Okay? It doesn't help you. 
 
-If you know "I live to work" or "I work to live," this is pretty good; [it's] a *little* helpful, for a certain period of time. But it's not *real* help. Real help is, you live just to live. That's all you have to do. Because ... everything returns to emptiness – no reason. To live is *[unintelligible]*. Because, the nature of existence, your life, or your question, your answers, are absolute. Which you are pretty familiar with, absolute. Absolute is, it exists by itself. [The] original nature of the self exists by itself. That means you are free; really free. So, everything is empty. Emptiness.
+If you know "I live to work" or "I work to live," this is pretty good; [it's] a *little* helpful, for a certain period of time. But it's not *real* help. Real help is, you live just to live. That's all you have to do. Because ... everything returns to [emptiness](glossary#emptiness) – no reason. To live is *[unintelligible]*. Because, the nature of existence, your life, or your question, your answers, are absolute. Which you are pretty familiar with, absolute. Absolute is, it exists by itself. [The] original nature of the self exists by itself. That means you are free; really free. So, everything is empty. Emptiness.
 
 ##### 15:24 
 
-And then, if everything is emptiness, that emptiness is that which is existent, that which is accurate, or that which is real. If it is true, the third no perception of object is no perception. That means, you cannot talk about it. You cannot talk about the absolute, or original nature of the self, or existence. Don't touch it; [it's] untouchable. If you touch it, if you [attack? attach to?] it, it's not absolute. 
+And then, if everything is [emptiness](glossary#emptiness), that emptiness is that which is existent, that which is accurate, or that which is real. If it is true, the third no perception of object is no perception. That means, you cannot talk about it. You cannot talk about the absolute, or original nature of the self, or existence. Don't touch it; [it's] untouchable. If you touch it, if you [attack? attach to?] it, it's not absolute. 
 
 ##### 16:15
 
@@ -73,7 +73,7 @@ But whatever you pick up; your nose, your eyes, your head, your body, whatever i
 
 ##### 17:36
 
-Fourth is, if it is indescribable. [Is] the absolute completely indescribable? No. You can describe [it]. There is a term, absolute – from where [does] it come? [The term exists] because, someone knows. Maybe ... in the past, someone knew the absolute, someone experienced the absolute. Someone experienced emptiness; someone experienced original nature of existence. Someone. 
+Fourth is, if it is indescribable. [Is] the absolute completely indescribable? No. You can describe [it]. There is a term, absolute – from where [does] it come? [The term exists] because, someone knows. Maybe ... in the past, someone knew the absolute, someone experienced the absolute. Someone experienced [emptiness](glossary#emptiness); someone experienced original nature of existence. Someone. 
 
 For instance, if I am master of making miso or tofu. No one can imitate exactly [the] same as my tofu, okay? Exactly good tofu, in my way. No one can imitate [it]. So that is the master of tofu maker. Tofu maker, miso maker. 
 
@@ -87,21 +87,21 @@ So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for
 
 ##### 20:52
 
-> And why? If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
+> And why? If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
 > 
-> (Quote from "Buddhist Wisdom: The Diamond Sutra and The Heart Sutra" by Edward Conze, pp. 27-28)
+> (Quote from "Buddhist Wisdom: The Diamond Sutra and The Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 27-28)
 
 ##### 21:44
 
-So, if you have perception of either a dharma or a no-dharma, if you have a perception of either object or no-object, this is still perception. For instance, in zazen, all you have to do is be one with zazen. That means not-thinking; don't think anything. "Don't think anything" is – what do you mean? – "think not-thinking." So what do you mean, not thinking not-thinking? That means, to think is also to think. Do you understand? Pretty clear. But not-think is also to think. Don't you think so? 
+So, if you have perception of either a [dharma](glossary#dharma) or a no-dharma, if you have a perception of either object or no-object, this is still perception. For instance, in zazen, all you have to do is be one with zazen. That means not-thinking; don't think anything. "Don't think anything" is – what do you mean? – "think not-thinking." So what do you mean, not thinking not-thinking? That means, to think is also to think. Do you understand? Pretty clear. But not-think is also to think. Don't you think so? 
 
 Both are perceptions created by your consciousness. You try not to think, but, you try to not to think is always to think. Is that clear?
 
 ##### 23:10
 
-So, you cannot have a perception of dharma or no-dharma. If Buddha teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
+So, you cannot have a perception of [dharma](glossary#dharma) or no-dharma. If Buddha teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
 
-But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says, "no perception of dharma, no perception of *no-dharma*". You cannot attach to either one of them, because both are still thinking dharmas, thinking object. So you are still involved in [an] object, perception of object, whatever you say, perception of object or no perception of object, whatever you say, negatively or affirmatively. Whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
+But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says, "no perception of [dharma](glossary#dharma), no perception of *no-dharma*". You cannot attach to either one of them, because both are still thinking dharmas, thinking object. So you are still involved in [an] object, perception of object, whatever you say, perception of object or no perception of object, whatever you say, negatively or affirmatively. Whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
 
 If you attach to one of them, there is attachment to self. I told you before: perception of a self, perception of a being, perception of a soul, perception of a person. I told you before; do you understand? So, you shouldn't attach to this. 
 
@@ -197,13 +197,13 @@ So, in a sense, [in the] common sense, we are always participating in [being]. A
 
 ##### 51:30
 
-That's why Buddha always says, everything is emptiness. That means impermanence. Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But [that] doesn't mean through [that] you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of [it].
+That's why Buddha always says, everything is [emptiness](glossary#emptiness). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But [that] doesn't mean through [that] you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of [it].
 
 So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
 
-That's why it says, "If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with the hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
+That's why it says, "If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with the hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
 
-[The] simile of [the] raft [occurs] in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. So that means, no perception of the subject, no perception of the object. That means, if you study at school in order to get a master degree or Ph.D. – get a degree! Study hard, get a degree. But it is not [a] final stage you have to ... stay with. You have to leave Ph.D. [for] the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that's not sharing your life with the poor people, with the suffering people. Because you are always proud [of] yourself too much: "I am doctor." You are not doctor. "I am doctor. Student, I am teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money." *[laughter]*
+[The] simile of [the] raft [occurs] in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. So that means, no perception of the subject, no perception of the object. That means, if you study at school in order to get a master degree or Ph.D. – get a degree! Study hard, get a degree. But it is not [a] final stage you have to ... stay with. You have to leave Ph.D. [for] the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that's not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud [of] yourself too much: "I am doctor." You are not doctor. "I am doctor. Student, I am teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money." *[laughter]*
 
 That [makes it] pretty hard to communicate with each other, so – forget it. If you get the Ph.D., it doesn't escape from you, it's always with you. So: forget it. All you have to do is forget it, and share your life with all sentient beings.
 
@@ -257,9 +257,9 @@ I hope.
 
 ##### 1:01:36
 
-**Question**: Roshi? You speak of the concept of no-self, and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
+**Question**: Roshi? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
 
-**Katagiri**: No-self doesn't mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, [then] through the present life, you can realize how sublime it is, how unfathomable yourself is. And you cannot understand yourself in the present, according to present time, because your life is pretty broad. Sometimes you don't understand. Sometimes you understand who you are, but strictly speaking you don't understand who you are, because your life may have been connected with a past life. 
+**Katagiri**: [No-self](glossary#no-self) doesn't mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, [then] through the present life, you can realize how sublime it is, how unfathomable yourself is. And you cannot understand yourself in the present, according to present time, because your life is pretty broad. Sometimes you don't understand. Sometimes you understand who you are, but strictly speaking you don't understand who you are, because your life may have been connected with a past life. 
 
 But if we say [it] like this, immediately we say there is something which exists for long, some task, from the past, through the present, to the future. That is perception of a soul, okay? So, I don't think so. But even though no soul – but, still there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say.
 

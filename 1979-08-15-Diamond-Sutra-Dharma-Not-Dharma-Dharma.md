@@ -7,15 +7,15 @@
 
 ##### 0:00 start of recording
 
-> (Chapter 8) The Lord then asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on dharma but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect enlightenment of the Tathagatas, Arhats, Fully Enlightened Ones, and from it have issued the Buddhas, the Lords. And why? For the Tathagata has taught that the dharmas special to the Buddhas are just not a Buddha's special dharmas. That is why they are called "the dharmas special to the Buddhas."
+> (Chapter 8) The Lord then asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathagatas, Arhats, Fully Enlightened Ones, and from it have issued the Buddhas, the Lords. And why? For the Tathagata has taught that the dharmas special to the Buddhas are just not a Buddha's special dharmas. That is why they are called "the dharmas special to the Buddhas."
 >
-> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by Edward Conze, pp. 34-35.)
+> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 34-35.)
 
 ##### 2:38
 
-I think you remember, the Buddha asked Subhuti before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the dharma?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the [Buddha Shakyamuni](glossary#shakyamuni-buddha ) has experienced, no dharma which the Buddha Shakyamuni has preached." 
+I think you remember, the Buddha asked Subhuti before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the [dharma](glossary#dharma)?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the [Buddha Shakyamuni](glossary#shakyamuni-buddha ) has experienced, no dharma which the Buddha Shakyamuni has preached." 
 
-If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā).
+If it is true, how does the Buddha experience and preach the [dharma](glossary#dharma)? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā).
 
 ##### 4:45
 
@@ -59,7 +59,7 @@ Sometimes, most people think something with their head, saying, "I want to help 
 
 On the other hand, you cannot do [it] with your body alone. So next, giving with mind. 
 
-You have to do something with body, and also mind must be present with body. Because, we are human. If you're a cat or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with mind. So first you have to have breakfast with body, but you are not cat, you are not dog. So you have to have breakfast with mind. That means, why don't you use a fork, why don't you sit down on the chair. Why don't you keep silent, why don't you appreciate food given to you, why don't you appreciate your existence. Why don't you appreciate your parents, teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, Giving.
+You have to do something with body, and also mind must be present with body. Because, we are human. If you're a [cat](glossary#cat) or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with mind. So first you have to have breakfast with body, but you are not cat, you are not dog. So you have to have breakfast with mind. That means, why don't you use a fork, why don't you sit down on the chair. Why don't you keep silent, why don't you appreciate food given to you, why don't you appreciate your existence. Why don't you appreciate your parents, teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, Giving.
 
 ##### 16:01
 
@@ -79,17 +79,17 @@ But strictly speaking, material gifts and dharma gifts are all on the same footi
 
 ##### 20:24
 
-Doctor Conze says in his comment: 
+[Doctor Conze](glossary#edward-conze) says in his comment: 
 
 > The merit derived from material gifts is called **great**, that derived from the spiritual gift of the Dharma **immeasurable and incalculable**, "inconceivable, incomparable, and measureless" ... To be generous with material things brings a "great" reward – wealth or reputation in a future life, or even rebirth in heaven.
 
-But in Chapter 7 the sutra discriminates between material gifts and dharma gifts. Merit derived from dharma gifts is greater than merit of material gifts. So Doctor Conze says, 
+But in Chapter 7 the sutra discriminates between material gifts and dharma gifts. Merit derived from dharma gifts is greater than merit of material gifts. So [Doctor Conze](glossary#edward-conze) says, 
 
 > Infinitely greater is the reward of those who teach the Dharma. Their spiritual welfare and stature will grow by leaps and bounds, and ultimately they will become fit to gain the Dharmabody of a fully enlightened Buddha. 
 
-That means the dharma gifts are the direct cause of leading people to reach spiritual welfare and stature – so-called enlightenment, or dharma body. So in terms of givers and gifts themselves, there [is] no discrimination between the material gifts and dharma gifts, but in terms of the recipients, there is discrimination between the two. 
+That means the dharma gifts are the direct cause of leading people to reach spiritual welfare and stature – so-called [enlightenment](glossary#enlightenment), or dharma body. So in terms of givers and gifts themselves, there [is] no discrimination between the material gifts and dharma gifts, but in terms of the recipients, there is discrimination between the two. 
 
-The dharma gifts are, I told you, direct cause of leading people to reach spiritual welfare and stature, so-called enlightenment or dharma body. 
+The dharma gifts are, I told you, direct cause of leading people to reach spiritual welfare and stature, so-called [enlightenment](glossary#enlightenment) or dharma body. 
 
 ##### 23:57
 
@@ -111,7 +111,7 @@ But on the other hand: Real dharma, dharma itself mentioned by, explained by Bud
 
 But if it is true, is there no way to teach? Shouldn't we teach the dharma? We have to teach, because there is Sambhogakaya Buddha, which means you can reach at the stage of Buddha by your own virtuous quality, which you have accumulated in the past. You have planted good seeds in the past; this is your body and mind which exists now as a result. This is your existence. That's why your existence is very valuable. 
 
-So, using this virtuous quality and practice, ... we can understand using our head: knowledge. [Just?] knowledge; then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means [that] real dharma, explained by human body, is completely no-dharma, not real dharma. There is already [a] contradictory structure [here]. But through no-dharma, there is dharma you can explain. [The] verbal explanation of dharma is no-dharma, not real dharma, but through [the] verbal explanation of dharma, you can reach real dharma. That's why [the] verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or enlightenment, or Buddha. That's why words are important. This is Sambhogakaya. 
+So, using this virtuous quality and practice, ... we can understand using our head: knowledge. [Just?] knowledge; then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means [that] real dharma, explained by human body, is completely no-dharma, not real dharma. There is already [a] contradictory structure [here]. But through no-dharma, there is dharma you can explain. [The] verbal explanation of dharma is no-dharma, not real dharma, but through [the] verbal explanation of dharma, you can reach real dharma. That's why [the] verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That's why words are important. This is Sambhogakaya. 
 
 ##### 31:42
 
@@ -191,7 +191,7 @@ So, that is ... the explanation of the buddhadharma, or merit, in the negative s
 
 ##### 54:04
 
-If [Buddhism](glossary#buddhism) uses the negative sense, you will get the big shock. *Why*? "Life is characterized by suffering." "*What's that*?" We don't like it. That is [a] really big shock to your mind. That's very good medicine for you. It is [the] bitterness of good medicine. That's why Buddhism always uses unusual terms, in the negative sense. But it's not [a] real negative. It's positive, really positive. 
+If [Buddhism](glossary#buddhism) uses the negative sense, you will get the big shock. *Why*? "Life is characterized by [suffering](glossary#suffering)." "*What's that*?" We don't like it. That is [a] really big shock to your mind. That's very good medicine for you. It is [the] bitterness of good medicine. That's why Buddhism always uses unusual terms, in the negative sense. But it's not [a] real negative. It's positive, really positive. 
 
 Because that is such a human [quality?]. Humans [are] very stubborn [with] ego. Because, [the] human is pretty weak. If you're strong, it's not necessary to be stubborn; you can open pretty easily. But we are weak. That's why in order to perfect weakness, we have to be stubborn. *[he chuckles]* Do you understand? We always do. 
 
@@ -201,13 +201,13 @@ Okay. Do you have some questions?
 
 ##### 56:00
 
-**Question**: Roshi? In one of D.T. Suzuki's books, he says that enlightenment is forgetfulness. Is that true?
+**Question**: Roshi? In one of D.T. Suzuki's books, he says that [enlightenment](glossary#enlightenment) is forgetfulness. Is that true?
 
-**Katagiri**: I think so. In other words, enlightenment is no-enlightenment, that is real enlightenment. 
+**Katagiri**: I think so. In other words, [enlightenment](glossary#enlightenment) is no-enlightenment, that is real enlightenment. 
 
-If you say enlightenment, [what] you think is [the] individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is [the] real picture of the truth. That's why forgetfulness is what we're really like. [The] term is different, but [it is] the same. 
+If you say [enlightenment](glossary#enlightenment), [what] you think is [the] individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is [the] real picture of the truth. That's why forgetfulness is what we're really like. [The] term is different, but [it is] the same. 
 
-So you must be free from [the] enlightenment that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay [with] the Ph.D. without working with people. You have to forget [the] degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[group laughter]* See the peoples' bodies, and anyway, examine. Day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is [the] final goal you have to do. If you want to be real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
+So you must be free from [the] [enlightenment](glossary#enlightenment) that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay [with] the Ph.D. without working with people. You have to forget [the] degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[group laughter]* See the peoples' bodies, and anyway, examine. Day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is [the] final goal you have to do. If you want to be real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
 
 ##### 58:56 end of recording
 

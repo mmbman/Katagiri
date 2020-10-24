@@ -45,7 +45,7 @@ See
 
 ## Aryadeva
 
-Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in Chan Buddhism, and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
+Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka. (From [Wikipedia](https://en.wikipedia.org/wiki/Aryadeva))
 
 ## Asanga
 
@@ -81,7 +81,7 @@ See the [Blue Cliff Record Koan Index](BCR)
 
 ## Bodhidharma
 
-The First Ancestor of Chan (Zen) Buddhism in China.
+The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 See:
 [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
@@ -144,7 +144,11 @@ See:
 
 ## Chan
 
-Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese.
+Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese. Both words derive from the Sanskrit *dyana*.
+
+## Chan Buddhism
+
+Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word for "Chan". Both words derive from the Sanskrit *dyana*.
 
 ## Dainin
 
@@ -228,8 +232,9 @@ See:
 One of the [Four Dharma Seals](#four-dharma-seals).
 
 ## Isan Reiyū
-Japanese: Isan Reiyū
-Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐
+Japanese: Isan Reiyū<br>
+Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
+771-853.
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
@@ -312,10 +317,6 @@ See:
 Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen) Buddhism to America. His Buddhist name, Jikai Dainin, means "Compassion Ocean Great Patience". In these talks he is usually addressed as [Roshi](glossary#roshi) or Hojo-san, but he often refers to himself as "Katagiri". He sometimes refers to his younger self (e.g. in monastic training) as just [Dainin](glossary#dainin).
 
 ## Koan
-
-## Kuei Shan Lingyu
-
-Chinese: Kuei Shan Lingyu (Guishan Lingyou); Japanese: Isan Reiyū; 771-853.
 
 ## Kyosei
 
@@ -405,7 +406,7 @@ Sanskrit: prajna. Usually translated as "wisdom", not not conventional wisdom, b
 
 Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the Sanskrit words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (Shunyata) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
 
-According to Edward Conze, the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
+According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
 [Wikipedia link](https://en.wikipedia.org/wiki/Prajnaparamita)
 
