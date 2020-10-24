@@ -45,12 +45,12 @@ See:
 
 (Sanskrit) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
 
-[Wikipedia link](https://en.wikipedia.org/wiki/Arhat)
+References:
+- [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),<br>
+- [Ibid (1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800),<br>
+- [Ibid (1:36:06) (definition)](1979-06-11-Fukanzazengi-Lecture3#13606)
 
-See
-[Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),<br>
-[Ibid (1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800),<br>
-[Ibid (1:36:06) (definition)](1979-06-11-Fukanzazengi-Lecture3#13606)
+- [Wikipedia link](https://en.wikipedia.org/wiki/Arhat)
 
 ## Aryadeva
 
@@ -127,6 +127,11 @@ See: e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 ## Buddha Way
 
 ## Buddhism
+
+## Buddhist Psychology
+
+References:
+- [Fukanzazengi Lecture 6 39:00](1979-06-14-Fukanzazengi-Lecture6#3900)
 
 ## Buddhistic
 
@@ -487,7 +492,7 @@ See:
 
 ## Seppō
 
-See [Seppō Gison](seppō-gison)
+See [Seppō Gison](#seppō-gison)
 
 ## Seppō Gison
 
@@ -502,7 +507,7 @@ also Seppō Shinkaku
 ["One Bright Pearl" at shastaabbey.org](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf)) 
 
 See:
-[Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
+[Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 
 ## Sesshin
 
