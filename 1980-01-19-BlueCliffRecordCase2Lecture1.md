@@ -17,7 +17,7 @@ At this time, I would like to study with you the second case of The [Blue Cliff 
 >
 > The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
 >
-> Chao Chou said, “It is enough to ask about the matter; bow and withdraw.”
+> Chao Chou said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
 
 ##### 02:00
 

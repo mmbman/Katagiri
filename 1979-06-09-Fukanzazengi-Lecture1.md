@@ -27,11 +27,11 @@ That is our life, okay? So, we have [the] practice of [bowing](glossary#bowing) 
 
 But anyway, how sublime life is is reality, real reality. Completely beyond human speculation; this is reality. This is your life. This is tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. 
 
-So, if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? With [a] bow. Just bow, to the [Buddha](glossary#buddha) . Touching your whole body to the floor, anyway: bow. That is the way to express appreciation to your existence. 
+So, if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? With \[a] [bow](glossary#bowing). Just bow, to the [Buddha](glossary#buddha) . Touching your whole body to the floor, anyway: bow. That is the way to express appreciation to your existence. 
 
 ##### 10:30
 
-Before you bow, you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, ego consciousness. Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely [Buddha](glossary#buddha) , when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
+Before you [bow](glossary#bowing), you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, ego consciousness. Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely [Buddha](glossary#buddha) , when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
 
 That is \[what] [Dogen](glossary#dogen) [Zenji](glossary#zenji) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] patriarchs mention, or [Buddha's](glossary#buddha) suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma) , original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  from the first [are] struck aside. It's going away. 
 
@@ -43,7 +43,7 @@ So that means you already accept your life which is not sublime. Your life is un
 
 Because at that time [zazen](glossary#zazen)  is a means. "Means" means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. So just *do zazen*. "Do zazen" means you are present from moment to moment with the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized. That's why zazen is a little bit something far from you. So that is dualistic world. The important point is, you must accept zazen as really total activity, which is vivid, alive from moment to moment. 
 
-And that is, at that time – well, even though you don't understand what [zazen](glossary#zazen)  is, accept zazen. Which means, do zazen. Even though you don't understand how sublime your life is, anyway, bow to the [Buddha](glossary#buddha) . If you bow to the Buddha, selfish understanding from the first is struck aside. That is [shikantaza](glossary#shikantaza) – very naturally.
+And that is, at that time – well, even though you don't understand what [zazen](glossary#zazen)  is, accept zazen. Which means, do zazen. Even though you don't understand how sublime your life is, anyway, [bow](glossary#bowing) to the [Buddha](glossary#buddha) . If you bow to the Buddha, selfish understanding from the first is struck aside. That is [shikantaza](glossary#shikantaza) – very naturally.
 
 ##### 17:16
 

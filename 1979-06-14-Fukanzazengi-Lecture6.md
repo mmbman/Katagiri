@@ -147,7 +147,7 @@ Well, we have to make every possible effort to do that, because we have a mind. 
 
 ##### 50:30
 
-So, this behavior which is called zazen is completely beyond hearing or seeing through the six consciousnesses. Let's return to conditioned elements, that's all. But, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Is it not the principle that is prior to his knowledge and perceptions?" That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still bowing, and ... it is in accord with the function of knowledge and perception. How? Let's use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
+So, this behavior which is called zazen is completely beyond hearing or seeing through the six consciousnesses. Let's return to conditioned elements, that's all. But, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Is it not the principle that is prior to his knowledge and perceptions?" That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still [bowing](glossary#bowing), and ... it is in accord with the function of knowledge and perception. How? Let's use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
 
 And after that, mind associates. That's all. Then mind says, "Ahh, *that's* zazen." And then you touch it. But before mind, prior to function of your mind, it's really, just sit. It's a very simple practice. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Is it not a principle that is prior to his knowledge and perceptions." It's [there?]. You have to just really fit into your knowledge and perceptions. 
 

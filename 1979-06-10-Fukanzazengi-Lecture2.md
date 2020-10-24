@@ -503,7 +503,7 @@ So, I did it. But I don't know [if] my calligraphy is good or bad. I don't know.
 
 ##### 1:25:50
 
-... There is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends flew away into the [arctic?]. He was being present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is particular gassho. His face is very – not rigid, very wonderful face. And [his] bow is particular bow. But he is completely same as the teacher. Gassho, bow – exactly the same. But he didn't try to imitate his gassho and bow; all he had to do was just to be present with it. So finally, his gassho also *[unintelligible]* Is that helpful?
+... There is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends flew away into the [arctic?]. He was being present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is particular gassho. His face is very – not rigid, very wonderful face. And [his] [bow](glossary#bowing) is particular bow. But he is completely same as the teacher. Gassho, bow – exactly the same. But he didn't try to imitate his gassho and bow; all he had to do was just to be present with it. So finally, his gassho also *[unintelligible]* Is that helpful?
 
 So if you are always with first grade child who is master of calligraphy, you become a first grade child. It's not bad; it's good. 
 
