@@ -12,6 +12,6 @@ This is an ongoing project. I am currently updating the talks I’ve already tra
 
 If you need to contact me with comments or questions, email: [Kikan Mike Howard](mailto:michaelhoward@mac.com)
 
-You can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
+For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
 [Home](index.md)
