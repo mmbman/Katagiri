@@ -27,13 +27,13 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 ## Shobogenzo
 
-Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Eihei Dogen](#eihei-dogen) – his most well-known work.
+Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
 
 -------
 
 ### Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
 - [Shobogenzo: Genjokoan – Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 - [Shobogenzo: Genjokoan – Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
