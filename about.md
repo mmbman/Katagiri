@@ -1,6 +1,8 @@
 # About This Website
 
-I’ve transcribed these talks from recordings in the online [Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). You can read the transcripts while listening to the recordings, which are referenced in each talk.
+I’ve transcribed these talks from recordings in the online [Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). You can read the transcripts while listening to the recordings, which are referenced in each talk. 
+
+The transcripts can make it a lot easier to understand what Katagiri Roshi is saying. Each talk requires many hours to properly transcribe. That said, there may still be inaccuracies.
 
 For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/). 
 
