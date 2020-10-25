@@ -47,6 +47,8 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 Japanese: Shōji
 
+- [Blue Cliff Record Case2 Lecture1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
+
 -------
 
 
