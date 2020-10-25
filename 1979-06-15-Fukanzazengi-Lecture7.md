@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Fukanzazengi: Dogen's Universal Recommendation for Zazen - Lecture 7
+# Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
@@ -11,7 +11,7 @@
 
 (A loud thunderstorm is going on during this talk.)
 
-... when the [Buddha Shakyamuni](glossary#shakyamuni-buddha ) sat in meditation, in [zazen](glossary#zazen), under a tree, *[there is a sound of thunder]* [there was a] tremendous sound of thunder, that was more than this. But, his meditation, zazen, was not disturbed by the thunder. And after zazen, he stood from his seat, and practiced kinhin, walking meditation. At that time, the thunder was completely gone. The surroundings were very quiet. Around him, there was one of the Buddhist laymen, who watched the Buddha's meditation. But the Buddha's zazen *[sound of thunder]* was never disturbed by the thunder, *[loud sound of thunder continues]* [even though it was a] really tremendous sound of thunder. He asked the Buddha: "Four cows and two farmers were killed by electric shock of lightning at this time, a few minutes ago. Did you hear the sound of the thunder?" The layman [continued], "There was a huge sound of thunder, everyone knew that. Did you sleep at that time?" Buddha said, "No, I didn't sleep." So the layman [asked], "Were you in the state of [a] person who [is] without consciousness?" The Buddha said, "No. I did zazen, with consciousness." So the layman said, "That's excellent, wonderful! I have never heard [of something like this] before." So the layman really respected *[thunder]* the Buddha Shakyamuni's zazen. 
+... when the [Buddha Shakyamuni](glossary#shakyamuni-buddha) sat in meditation, in [zazen](glossary#zazen), under a tree, *[there is a sound of thunder]* [there was a] tremendous sound of thunder, that was more than this. But, his meditation, zazen, was not disturbed by the thunder. And after zazen, he stood from his seat, and practiced kinhin, walking meditation. At that time, the thunder was completely gone. The surroundings were very quiet. Around him, there was one of the Buddhist laymen, who watched the Buddha's meditation. But the Buddha's zazen *[sound of thunder]* was never disturbed by the thunder, *[loud sound of thunder continues]* [even though it was a] really tremendous sound of thunder. He asked the Buddha: "Four cows and two farmers were killed by electric shock of lightning at this time, a few minutes ago. Did you hear the sound of the thunder?" The layman [continued], "There was a huge sound of thunder, everyone knew that. Did you sleep at that time?" Buddha said, "No, I didn't sleep." So the layman [asked], "Were you in the state of [a] person who [is] without consciousness?" The Buddha said, "No. I did zazen, with consciousness." So the layman said, "That's excellent, wonderful! I have never heard [of something like this] before." So the layman really respected *[thunder]* the Buddha Shakyamuni's zazen. 
 
 ##### 4:14
 
