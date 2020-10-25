@@ -2,7 +2,7 @@
 
 The talks are listed in chronological order. Ellipses (...) indicate a stretch of talks not yet transcribed.
 
-- [About This Website](about)
+- [About This Website](about#0)
 
 1. [Diamond Sutra – Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 
