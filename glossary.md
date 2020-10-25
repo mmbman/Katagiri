@@ -7,6 +7,10 @@
 
 -------
 
+{{TOC}}
+
+-------
+
 ## Abhidharma
 
 [Sanskrit](glossary#sanskrit): Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
