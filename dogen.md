@@ -21,7 +21,7 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 - [Fukanzazengi – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
 - [Fukanzazengi – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
 
-- [Blue Cliff Record Case 2 Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
+- [Blue Cliff Record – Case 2 – Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
 
 -------
 
@@ -62,7 +62,7 @@ Japanese: Ikka myōju – 顆明珠
 
 Japanese: Shōji
 
-- [Blue Cliff Record Case 2 Lecture 1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
+- [Blue Cliff Record – Case 2 – Lecture 1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
 
 ### Zazengi
 
