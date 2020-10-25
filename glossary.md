@@ -235,7 +235,9 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 
 ## Dharma
 
-Truth, universal law, phenomena.
+Truth; universal law; phenomena; the teachings.
+
+‘Dharma’ is a multi-faceted word with no single equivalent word in English, so it is often left untranslated.
 
 -------
 
