@@ -21,7 +21,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 	
 	**Talks below here are still in rough draft form:**
 	
-1. [Blue Cliff Record – Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
+1. [Blue Cliff Record - Case 2: The Ultimate Path Is Without Difficulty - Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 1. [Blue Cliff Record – Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
 	
 	...
