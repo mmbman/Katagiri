@@ -162,6 +162,6 @@ Nakagawa Roshi ... at the last day of sesshin, he would say – He is very inter
 
 ##### 51:04 end of recording
 
-[Next Talk: Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
+[Next Talk: Diamond Sutra – Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 
 [Home](index.md)

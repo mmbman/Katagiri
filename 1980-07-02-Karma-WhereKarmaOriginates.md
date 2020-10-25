@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Karma: Where Karma Originates
+# Karma – Where Karma Originates
 ## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)

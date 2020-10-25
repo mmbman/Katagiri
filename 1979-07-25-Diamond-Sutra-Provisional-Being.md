@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Diamond Sutra: Provisional Being
+# Diamond Sutra – Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
@@ -271,6 +271,6 @@ Finally, self is broad, but what is that? I cannot explain. But, it's there. It'
 
 ##### 1:05:11 end of recording
 
-[Next Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
+[Next Talk: Diamond Sutra – Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 
 [Home](index.md)

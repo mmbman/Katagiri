@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Diamond Sutra: Dharma / Not Dharma / Dharma
+# Diamond Sutra – Dharma / Not Dharma / Dharma
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)

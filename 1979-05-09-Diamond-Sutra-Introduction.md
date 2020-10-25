@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Diamond Sutra: Introduction
+# Diamond Sutra – Introduction
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
