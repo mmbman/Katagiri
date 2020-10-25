@@ -429,8 +429,8 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 
 ## Karma
 
--[Karma – Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
--[Karma – Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+- [Karma – Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
+- [Karma – Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
 
 - [Fukanzazengi – Lecture 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Lecture3#3012)
 
