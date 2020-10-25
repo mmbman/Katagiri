@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Fukanzazengi: Dogen's Universal Recommendation for Zazen Ð Lecture 7
+# Fukanzazengi: Dogen's Universal Recommendation for Zazen - Lecture 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
@@ -39,7 +39,7 @@ Also, [Dogen Zenji](glossary#dogen) said, in [Bendowa](dogen#bendowa):
 
 > Moreover, although in realization the mind of the [zazen](glossary#zazen) practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon.
 
-"Although in realization, the mind of the [zazen](glossary#zazen) practicer and also its object both arise and disappear..." Ð that means, the mind and its objects goes in and goes out; [enlightenment](glossary#enlightenment). 
+"Although in realization, the mind of the [zazen](glossary#zazen) practicer and also its object both arise and disappear..." - that means, the mind and its objects goes in and goes out; [enlightenment](glossary#enlightenment). 
 
 "... within the stillness of  [samadhi](glossary#samadhi)." That is: We have a technical term, [shijo](glossary#shijo), signing of the beginning of [zazen](glossary#zazen). When you hit the bell three times, that is called shijo, signing of [the] beginning of zazen. The "shi" is "struck". "Jo" is "stillness". Stillness implies samadhi; stillness implies zazen itself. So, "struck zazen" means, zazen settles itself in zazen. So you dwell in zazen at that time. That is [the] sign of [the] starting of zazen, so we call [it] "shijo". [The] end of zazen is called 'kaijo'; 'kai' means 'open'. 'Jo' is stillness. So, 'open stillness'. The stillness means zazen; 'to open zazen'. That means, [the] end of zazen. 
 
