@@ -19,7 +19,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 1. [Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 1. [Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 	
-	### Talks below here are still in rough draft form:
+	**Talks below here are still in rough draft form:**
 	
 1. [Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 1. [Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
@@ -39,9 +39,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 	
 	... 
 
-- [Glossary](glossary) - in progress.
-- [Blue Cliff Record Index](BCR) - in progress.
-- [Shobogenzo Index](shobogenzo) - in progress
+- [Glossary](glossary)
+- [Blue Cliff Record Index](BCR)
+- [Shobogenzo Index](shobogenzo)
 
 These talks are transcribed by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
 
