@@ -18,9 +18,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 1. [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 1. [Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 1. [Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
-
-### Talks below here are still in rough draft form:
-
+	
+	### Talks below here are still in rough draft form:
+	
 1. [Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 1. [Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
 	
@@ -38,15 +38,13 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 1. [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 	
 	... 
-	
--------
 
-[Glossary](glossary) - in progress.
-[Blue Cliff Record Index](BCR) - in progress.
-[Shobogenzo Index](shobogenzo) - in progress
-
-This is an ongoing project. I am currently updating the talks I’ve already transcribed, and adding a glossary and various indices. After that I will get back to transcribing talks.
+- [Glossary](glossary) - in progress.
+- [Blue Cliff Record Index](BCR) - in progress.
+- [Shobogenzo Index](shobogenzo) - in progress
 
 These talks are transcribed by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
+
+This is an ongoing project. I am currently updating the talks I’ve already transcribed, and adding a glossary and various indices. After that I will get back to transcribing talks.
 
 You can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
