@@ -204,7 +204,7 @@ But in order to enter into that vastness of space, I told you before – we need
 
 ##### 59:22
 
-In our daily living, [the] vastness of space is something that basically we don't understand, but practically, we can do. We can do. That means, sit down, anyway. Sit down in the zendo, even though you don't know what problem you have, or you don't know why you sit here. Let's open wide and sit down with it. Why don't you have breakfast, in peace and harmony? This is very important for us. 
+In our daily living, [the] vastness of space is something that basically we don't understand, but practically, we can do. We can do. That means, sit down, anyway. Sit down in the [zendo](glossary#zendo), even though you don't know what problem you have, or you don't know why you sit here. Let's open wide and sit down with it. Why don't you have breakfast, in peace and harmony? This is very important for us. 
 
 ##### 1:00:00
 

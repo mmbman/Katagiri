@@ -235,7 +235,7 @@ That's why you can be alive for many years, and you should be appreciative. You 
 
 **Katagiri**: More questions?
 
-If you don't have more questions, I want to tell you one thing. At Omaha Zen Center, they will have [the] opening ceremony of new zendo on September 9. So they need a lot of help. I want to get some volunteers to help Omaha Zen Center before [the] opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don't know when, it depends on the numbers of the volunteers.
+If you don't have more questions, I want to tell you one thing. At Omaha Zen Center, they will have [the] opening ceremony of new [zendo](glossary#zendo) on September 9. So they need a lot of help. I want to get some volunteers to help Omaha Zen Center before [the] opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don't know when, it depends on the numbers of the volunteers.
 
 ##### 1:10:15 end of recording
 

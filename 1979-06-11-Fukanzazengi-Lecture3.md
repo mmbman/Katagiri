@@ -187,7 +187,7 @@ So, for instance, as long as he is standing here, feeling quiet, no one can hit 
 
 So, little boys in [Green Gulch](glossary#green-gulch) – during the mealtime, we shouldn't say anything, so everybody [is] quiet. Kids' delusions drop off very naturally, so the moment when they came into the Green Gulch dining room, all delusions drop off, so they keep quiet. That's interesting.
 
-And then, during the meal, the Ino hit the one clapper *[clap]*; that means the sign of ... giving the permission to talk. So the Ino hit the clapper once, [and] immediately a little boy [said], "Hi!" *[he laughs]* Immediately he said to me, "Hi!" So I said, "Hi!" *[laughter]* This is very interesting.
+And then, during the meal, the [Ino](glossary#ino) hit the one clapper *[clap]*; that means the sign of ... giving the permission to talk. So the Ino hit the clapper once, [and] immediately a little boy [said], "Hi!" *[he laughs]* Immediately he said to me, "Hi!" So I said, "Hi!" *[laughter]* This is very interesting.
 
 ##### 1:00:46
 

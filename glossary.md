@@ -220,7 +220,9 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 -------
 
 ## Demon
+
 -------
+
 ## Denkoroku
 
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
@@ -371,6 +373,13 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 
 -------
 
+## Han
+
+“Han: In Zen monasteries, a wooden board that is struck with a mallet to summon monastics to the zendo or other practice hall, as well as serving as a time-keeping signal during the monastic day. The pattern of strikes often includes three “roll downs”, a series of strikes gradually becoming accelerando and crescendo.”
+- from [hszc.org: Zen Terminology](https://hszc.org/about/zen-terminology/)
+
+-------
+
 ## Hashimoto Roshi
 
 Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
@@ -385,6 +394,12 @@ Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Kat
 -------
 
 ## Hinayana
+
+-------
+
+## Ino
+
+zendo (meditation hall ) manager 
 
 -------
 
@@ -486,7 +501,7 @@ Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group
 
 ## Manjushri
 
-The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](#zendo). 
+The [Bodhisattva](glossary#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](glossary#zendo). 
 
 - [Wikipedia: Manjushri](https://en.wikipedia.org/wiki/Manjushri)
 
@@ -502,6 +517,10 @@ pronounced "Ah-bay"
 - [terebess.hu: Translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
 
 -------
+
+## Middle Way
+
+------
 
 ## Minnesota Zen Meditation Center
 
@@ -866,6 +885,8 @@ For detailed guidance on how to practice zazen, see [Dogen Reference Index: Fuka
 -------
 
 ## Zendo
+
+Meditation hall
 
 -------
 

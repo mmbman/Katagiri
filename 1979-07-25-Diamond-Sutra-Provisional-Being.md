@@ -249,7 +249,7 @@ So, if you believe all sentient beings as just provisional beings, intellectuall
 
 **Person**: Oh yes!
 
-**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don't know tomorrow, even a few minutes. We don't know our life after going out of this zendo. Because, we are provisional beings. When you are sitting here listening to Buddha's teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don't know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
+**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don't know tomorrow, even a few minutes. We don't know our life after going out of this [zendo](glossary#zendo). Because, we are provisional beings. When you are sitting here listening to Buddha's teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don't know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
 
 **Person**: That's like taking each moment as it comes [*unintelligible*]?
 

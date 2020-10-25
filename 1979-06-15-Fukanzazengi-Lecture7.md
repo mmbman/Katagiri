@@ -17,13 +17,13 @@
 
 In those days, the attainment of [samadhi](glossary#samadhi) with no consciousness was regarded as the highest level of spiritual life. [From] this point, you can stop [your] breath for a certain period of time, or you can stay in a sort of death. You can stop the functioning of your heart. 
 
-So that was really [the] highest level of practice in those days, [a] practice [informed] by [Brahmanism](glossary#brahmanism). So, if people attained this, everybody respected [it]. But Buddha didn't do [this]; Buddha did [zazen](glossary#zazen) with consciousness. Nevertheless, he didn't hear the sound. His zazen was not disturbed by the sound of meditation, the sound of the thunder. So, this layman had never heard before about such a kind of zazen. So he said, "How wonderful, excellent it is!"
+So that was really [the] highest level of practice in those days, [a] practice [informed] by [Brahmanism](glossary#brahmanism). So, if people attained this, everybody respected [it]. But [Buddha](glossary#shakyamuni-buddha) didn't do [this]; Buddha did [zazen](glossary#zazen) with consciousness. Nevertheless, he didn't hear the sound. His zazen was not disturbed by the sound of meditation, the sound of the thunder. So, this layman had never heard before about such a kind of zazen. So he said, "How wonderful, excellent it is!"
 
 ##### 6:15
 
 [Dogen](glossary#dogen) commented on *[thunder]* this story with deepest respect, in the collection of Dogen's short preachings. Dogen [Zenji](glossary#zenji) says:
 
-> The Buddha enters samadhi with consciousness, and the thirty-four ways to sever delusions manifest themselves within it. The Buddha uses this from morning to night, and illuminates the quest of his body in the zendo.
+> The Buddha enters samadhi with consciousness, and the thirty-four ways to sever delusions manifest themselves within it. The Buddha uses this from morning to night, and illuminates the quest of his body in the [zendo](glossary#zendo).
 > 
 > (From [Eihei Koroku](dogen#eihei-koroku) Ð [Dharma Hall Discourse #372](dogen#ek-372))
 
@@ -31,7 +31,7 @@ So that was really [the] highest level of practice in those days, [a] practice [
 
 ##### 8:02
 
-"The thirty-four ways to sever delusions manifested themselves within it." In those days, there were 34 techniques [or ways] to sever the delusions and ... attain [enlightenment](glossary#enlightenment), enter nirvana. But if the Buddha did [zazen](glossary#zazen) with consciousness, at that time within it, the 34 ways to sever delusion and enter nirvana manifest themselves. That is [Dogen](glossary#dogen)'s understanding. That's why [the] layman also said, "How excellent it is." *[thunder]* 
+"The thirty-four ways to sever delusions manifested themselves within it." In those days, there were 34 techniques [or ways] to sever the delusions and ... attain [enlightenment](glossary#enlightenment), enter nirvana. But if the [Buddha](glossary#shakyamuni-buddha) did [zazen](glossary#zazen) with consciousness, at that time within it, the 34 ways to sever delusion and enter nirvana manifest themselves. That is [Dogen](glossary#dogen)'s understanding. That's why [the] layman also said, "How excellent it is." *[thunder]* 
 
 ##### 9:14
 
@@ -73,17 +73,17 @@ So that's why [Dogen Zenji](glossary#dogen) says, "Although in realization the m
 
 ##### 22:34
 
-So from this point, what the Buddha said, not to hear the sound of the thunder doesn't mean that he was in a state of no consciousness. He did [zazen](glossary#zazen) with consciousness. If you do zazen with no consciousness, hitting the bell, chanting the sutras Ð it doesn't make sense, it's useless. Shijo, the sign of the beginning of zazen, or the sign of the end of zazen Ð it's ridiculous, it doesn't make sense. Why do you have to hit the bell, if the main purpose of zazen is to reach the [state of] no consciousness? It's not necessary to hit the bell Ð because even though you hit the bell, you cannot hear it. It's not necessary to eat your breakfast, and lunch, and dinner, because you can stop your heart for a period of time, for seven days. You can do it; maybe so. And you can die. I read the article [about] one of the saints in India. He was in a casket for almost more than seven days. And the scientists checked his heart; his heart was completely stopped. And after that he came out, but he was alive. So it's *possible*; it's possible. But the zazen we do is not something like this. We have zazen with consciousness. 
+So from this point, what the [Buddha](glossary#shakyamuni-buddha) said, not to hear the sound of the thunder doesn't mean that he was in a state of no consciousness. He did [zazen](glossary#zazen) with consciousness. If you do zazen with no consciousness, hitting the bell, chanting the sutras Ð it doesn't make sense, it's useless. Shijo, the sign of the beginning of zazen, or the sign of the end of zazen Ð it's ridiculous, it doesn't make sense. Why do you have to hit the bell, if the main purpose of zazen is to reach the [state of] no consciousness? It's not necessary to hit the bell Ð because even though you hit the bell, you cannot hear it. It's not necessary to eat your breakfast, and lunch, and dinner, because you can stop your heart for a period of time, for seven days. You can do it; maybe so. And you can die. I read the article [about] one of the saints in India. He was in a casket for almost more than seven days. And the scientists checked his heart; his heart was completely stopped. And after that he came out, but he was alive. So it's *possible*; it's possible. But the zazen we do is not something like this. We have zazen with consciousness. 
 
 ##### 25:10
 
-And also [Dogen Zenji](glossary#dogen) says, "the Buddha uses this from morning to night." Not only in the time of doing [zazen](glossary#zazen), but also from morning to night, your mind must be attentive to all movement of behavior. Working in the kitchen, and walking in the hallways, walking in the zendo, picking [a] plant [or] grasses outside, [washing] something; whatever you do, your mind must be *there*, present with each movement.
+And also [Dogen Zenji](glossary#dogen) says, "the [Buddha](glossary#shakyamuni-buddha) uses this from morning to night." Not only in the time of doing [zazen](glossary#zazen), but also from morning to night, your mind must be attentive to all movement of behavior. Working in the kitchen, and walking in the hallways, walking in the [zendo](glossary#zendo), picking [a] plant [or] grasses outside, [washing] something; whatever you do, your mind must be *there*, present with each movement.
 
 ##### 26:06
 
 So, [zazen](glossary#zazen) is always working in your daily living from morning to night, but it doesn't mean you should be nervous because you have to pay careful attention to your mind, checking whether your mind is always attentive to each movement. If you do that, you will be nervous. I don't mean that; because you cannot stop, you cannot disturb even a single mote of dust. In other words, you cannot stop the stream of time. You must be always right in the middle of the stream of time. Nevertheless, there is mind, present with activity. 
 
-That's why [Dogen Zenji](glossary#dogen) says, "The Buddha uses this from morning to night *[thunder]*, and culminates the quest of his body in the zendo." "Culminates the quest of his body" means, mind completely fit[s], [fills?] his body. In other words, I always use, "[With] your kind compassionate attention, penetrate from the top of your head, to the tip of your toes." That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can hold back; you can stand up with two hands; but usually you have to stand up with two feet. But [that] is not [the] real practice of [Zen](glossary#zen ). You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, your all-circumstances. At that time, you can really culminate the quest of your body. And then you say, "Oh. This is stand[ing] up, perfectly." You feel good at that time. 
+That's why [Dogen Zenji](glossary#dogen) says, "The [Buddha](glossary#shakyamuni-buddha) uses this from morning to night *[thunder]*, and culminates the quest of his body in the [zendo](glossary#zendo)." "Culminates the quest of his body" means, mind completely fit[s], [fills?] his body. In other words, I always use, "[With] your kind compassionate attention, penetrate from the top of your head, to the tip of your toes." That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can hold back; you can stand up with two hands; but usually you have to stand up with two feet. But [that] is not [the] real practice of [Zen](glossary#zen ). You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, your all-circumstances. At that time, you can really culminate the quest of your body. And then you say, "Oh. This is stand[ing] up, perfectly." You feel good at that time. 
 
 ##### 28:56
 
@@ -93,7 +93,7 @@ And then, that is what is called "to culminate the quest of your body". And then
 
 So that's why finally, you will be a great guitar player. Even though you don't like it, even though you don't expect [it], finally, you will be a great guitar player.
 
-That's why [Dogen Zenji](glossary#dogen) says, "Buddha uses this from morning to night and culminates the quest of his body in the zendo." 
+That's why [Dogen Zenji](glossary#dogen) says, "[Buddha](glossary#shakyamuni-buddha) uses this from morning to night and culminates the quest of his body in the [zendo](glossary#zendo)." 
 
 **Question**: Culminates?
 
@@ -101,7 +101,7 @@ That's why [Dogen Zenji](glossary#dogen) says, "Buddha uses this from morning to
 
 ##### 31:33
 
-That's why in Fukanzazengi, "[Zazen](glossary#zazen) must be deportment beyond man's hearing and seeing." But, of course it is hearing and seeing, because you cannot move even a single mote of dust, nor infringe upon a single phenomenon. So finally, you can manifest [the] beautiful flower of the total personality, right in the middle of zazen. So, at that time, "Is it not a principle that is prior to his knowledge and perceptions." And you have to use knowledge and perceptions Ð not no-mind. "No mind" means through and through, you have to use mind.
+That's why in [Fukanzazengi](dogen#fukanzazengi), "[Zazen](glossary#zazen) must be deportment beyond man's hearing and seeing." But, of course it is hearing and seeing, because you cannot move even a single mote of dust, nor infringe upon a single phenomenon. So finally, you can manifest [the] beautiful flower of the total personality, right in the middle of zazen. So, at that time, "Is it not a principle that is prior to his knowledge and perceptions." And you have to use knowledge and perceptions Ð not no-mind. "No mind" means through and through, you have to use mind.
 
 So, that is [the] practice of regulation of your body, breath, and mind. We should know the mind is very picky. Monkey mind. That's why we need the practice of regulating the mind. But we have to use the mind. When you regulate your body and breath, there must be the mind, with your body, your breath. Otherwise, you become cats and dogs. [Cat](glossary#cat) and dog and bird can do with their bodies, but no mind. But we are human beings. So first, we have to do something with your body, but there must be mind, constantly. So finally, [the] final goal of the practice [of] regulating the mind is to be free from mind, because mind is picky. That's why [Dogen Zenji](glossary#dogen) says, we have to practice  [samadhi](glossary#samadhi), complete samadhi, becoming one; using your whole body and mind, in order to fit your object perfectly. Adjusting, regulating your body, and breath, and mind. And then, [if] everything is perfect at that time, very naturally, your body fits to your object. And then, something happens. Something happens. We don't know what it is. And then when we see it, when your mind [is] immediately there and picking that, then we say, "Oh, that's [zazen](glossary#zazen)." But before your mind picks [it] up, that zazen is no-name. Just, something happens. 
 
@@ -125,7 +125,7 @@ Okay, do you have any questions?
 
 ##### 39:44
 
-**Question**: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops." And you just mentioned that Buddha said he didn't hear the thunder. Are they saying the same thing as ... ?
+**Question**: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops." And you just mentioned that [Buddha](glossary#shakyamuni-buddha) said he didn't hear the thunder. Are they saying the same thing as ... ?
 
 **Katagiri**: Same. [The] expression is different, but same situation. 
 
@@ -135,15 +135,15 @@ Basically, [a] [Zen Master](glossary#zen-master), right in the middle of real ra
 
 ##### 41:54
 
-A monk asked the Ino Ð the Ino hit the *[unintelligible]* ... not the han, what would you say... *[unintelligible]* ... we hit [it] with a small piece of wood. Then, hitting that, and making [an] announcement which is very important. If he wants to kick somebody out because he did something wrong, the Ino makes [an] announcement [that] he will kick people out of the zendo today, right after breakfast. And then, he [bows](glossary#bowing) nine bows to Manjushri and leaves. Well, that is the monastic rules; lots of rules there. But anyway, in the story, [the] Ino hits that one, and making an announcement: Today the monks on the right side should work [on] such and such Ð outside, picking the grasses, et cetera. The monks on the left side should work [on] such and such. And then the monks accept [their assignments]. But only the head monk didn't accept [it]. He asked the Ino, "What does Manjushri do? Because he sits right in the middle of [the] zendo." In Japan, Manjushri is enshrined in the middle of the zendo Ð not this way [here], [but] right in the middle. The monks sit around Manjushri; right side, left side, anywhere around. So always Majushri sits in the middle. Well, the Ino didn't give an assignment *[he laughs]* to Manjushri. That's why [the] head monk asked, "What does Manjushri do?" The Ino said, "He is always sitting in the middle, never attached to right or left. But he is working, always." Pretty good, huh? *[some laughter]*
+A monk asked the [Ino](glossary#ino) Ð the Ino hit the *[unintelligible]* ... not the [Han](glossary#han), what would you say... *[unintelligible]* ... we hit [it] with a small piece of wood. Then, hitting that, and making [an] announcement which is very important. If he wants to kick somebody out because he did something wrong, the Ino makes [an] announcement [that] he will kick people out of the [zendo](glossary#zendo) today, right after breakfast. And then, he [bows](glossary#bowing) nine bows to [Manjushri](glossary#manjushri) and leaves. Well, that is the monastic rules; lots of rules there. But anyway, in the story, [the] Ino hits that one, and making an announcement: Today the monks on the right side should work [on] such and such Ð outside, picking the grasses, et cetera. The monks on the left side should work [on] such and such. And then the monks accept [their assignments]. But only the head monk didn't accept [it]. He asked the Ino, "What does Manjushri do? Because he sits right in the middle of [the] zendo." In Japan, Manjushri is enshrined in the middle of the zendo Ð not this way [here], [but] right in the middle. The monks sit around Manjushri; right side, left side, anywhere around. So always Majushri sits in the middle. Well, the Ino didn't give an assignment *[he laughs]* to Manjushri. That's why [the] head monk asked, "What does Manjushri do?" The Ino said, "He is always sitting in the middle, never attached to right or left. But he is working, always." Pretty good, huh? *[some laughter]*
 
-That's why ... Buddha said, he didn't hear the sound of the thunder. *[unintelligible]* But on the other hand, Buddha says, "I almost lose myself by the sound of [the] thunder." That's okay, because he is in the middle. Any time, anywhere, he can go in all directions. If you are always [on the] right side, it's pretty hard to go to the left side. But in the middle, it's pretty easy to go in all directions. 
+That's why ... [Buddha](glossary#shakyamuni-buddha) said, he didn't hear the sound of the thunder. *[unintelligible]* But on the other hand, Buddha says, "I almost lose myself by the sound of [the] thunder." That's okay, because he is in the middle. Any time, anywhere, he can go in all directions. If you are always [on the] right side, it's pretty hard to go to the left side. But in the middle, it's pretty easy to go in all directions. 
 
 ##### 46:10
 
 **Question**: Is that what we mean by the Middle Way?
 
-**Katagiri**: Yes. Middle Way. The Middle Way is not to walk in the middle of the street, okay? *[he pauses, then there is some laughter]* The Middle Way is to walk in the middle with total awareness Ð of middle, right side, left side, and all beings around it. Then this is the Middle Way. But if you just walk in the middle, you hit your forehead against a streetcar. *[laughter]* Watch out. You cannot walk that way. 
+**Katagiri**: Yes. [Middle Way](glossary#middle-way). The Middle Way is not to walk in the middle of the street, okay? *[he pauses, then there is some laughter]* The Middle Way is to walk in the middle with total awareness Ð of middle, right side, left side, and all beings around it. Then this is the Middle Way. But if you just walk in the middle, you hit your forehead against a streetcar. *[laughter]* Watch out. You cannot walk that way. 
 
 Before, I told you always, there is a scale. Now why don't you point out the *middle*? You cannot just point out the middle without understanding there is a right and there is a left, or [the] total picture of the scale.
 
