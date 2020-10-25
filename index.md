@@ -1,6 +1,6 @@
 # Table of Contents
 
-The talks are listed in chronological order. Ellipses (...) indicate a stretch of talks not yet transcribed.
+*The talks are listed in chronological order. Ellipses (...) indicate a stretch of talks not yet transcribed.*
 
 - [About This Website](about#0)
 
