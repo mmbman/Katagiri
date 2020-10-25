@@ -531,6 +531,12 @@ pronounced "Ah-bay"
 - [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
 
 -------
+## Nakagawa Roshi
+
+Probably Soen Nakagawa. [Wikipedia](https://en.wikipedia.org/wiki/Soen_Nakagawa)
+
+-------
+
 ## Nagarjuna
 
 Nāgārjuna

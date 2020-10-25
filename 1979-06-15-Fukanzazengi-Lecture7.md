@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Fukanzazengi: Dogen's Universal Recommendation for Zazen - Lecture 7
+# Fukanzazengi: Dogen's Universal Recommendation for Zazen Ð Lecture 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
@@ -39,7 +39,7 @@ Also, [Dogen Zenji](glossary#dogen) said, in [Bendowa](dogen#bendowa):
 
 > Moreover, although in realization the mind of the [zazen](glossary#zazen) practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of jijuyu, it doesn't disturb a single mote of dust, nor infringe upon a single phenomenon.
 
-"Although in realization, the mind of the [zazen](glossary#zazen) practicer and also its object both arise and disappear..." - that means, the mind and its objects goes in and goes out; [enlightenment](glossary#enlightenment). 
+"Although in realization, the mind of the [zazen](glossary#zazen) practicer and also its object both arise and disappear..." Ð that means, the mind and its objects goes in and goes out; [enlightenment](glossary#enlightenment). 
 
 "... within the stillness of  [samadhi](glossary#samadhi)." That is: We have a technical term, [shijo](glossary#shijo), signing of the beginning of [zazen](glossary#zazen). When you hit the bell three times, that is called shijo, signing of [the] beginning of zazen. The "shi" is "struck". "Jo" is "stillness". Stillness implies samadhi; stillness implies zazen itself. So, "struck zazen" means, zazen settles itself in zazen. So you dwell in zazen at that time. That is [the] sign of [the] starting of zazen, so we call [it] "shijo". [The] end of zazen is called 'kaijo'; 'kai' means 'open'. 'Jo' is stillness. So, 'open stillness'. The stillness means zazen; 'to open zazen'. That means, [the] end of zazen. 
 
@@ -157,7 +157,11 @@ Before, I told you always, there is a scale. Now why don't you point out the *mi
 
 Is there anyone who attained [enlightenment](glossary#enlightenment)? No one? *[laughter]*
 
-Nakagawa Roshi ... at the last day of sesshin, he would say - He is very interesting [Zen Master](glossary#zen-master). He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the [Rinzai Zen](glossary#rinzai-zen ) style, so that's okay; beautiful, anyway. So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and *[he laughs]* he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained [enlightenment](glossary#enlightenment). Do you know who it is?" *[everyone laughs]* That is a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" *[he loudly slams down a stick or something]* *[raucous laughter]* *[unintelligible]* That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who? Who?" ... "Maybe I?" *[laughter]* But he says, "No, no, no. I don't either." He's a nice guy, huh? Finally, all *[unintelligible]*. "Yes." *[laughter]*
+Nakagawa Roshi ... at the last day of sesshin, he would say - He is very interesting [Zen Master](glossary#zen-master). He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the [Rinzai Zen](glossary#rinzai-zen ) style, so that's okay; beautiful, anyway. 
+
+So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and *[he laughs]* he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained [enlightenment](glossary#enlightenment). Do you know who it is?" *[everyone laughs]* That is a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" *[he loudly slams down a stick or something]* *[raucous laughter]* *[unintelligible]* 
+
+That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who? Who?" ... "Maybe I?" *[laughter]* But he says, "No, no, no. I don't either." He's a nice guy, huh? Finally, all *[unintelligible]*. "Yes." *[laughter]*
 
 *[he laughs]* Remember that story. That's [a] real, true story. 
 
