@@ -2,11 +2,9 @@
 
 [Home](index.md)
 
-Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of essays by [Eihei Dogen](#eihei-dogen) – his most well-known work.
+Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Eihei Dogen](#eihei-dogen) – his most well-known work.
 
 This is an index to where fascicles from Shobogenzo appear in [Katagiri Roshi's](glossary#katagiri) talks. **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
-
-- [Wikipedia: Shōbōgenzō](https://en.wikipedia.org/wiki/Shōbōgenzō)
 
 -------
 
@@ -21,10 +19,8 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
-- [Blue Cliff Record Case 2 Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
 
-- [Wikipedia: Fukan zazengi](https://en.wikipedia.org/wiki/Fukan_zazengi)
-- [sotozen-net: Fukanzazengi text](https://global.sotozen-net.or.jp/eng/practice/zazen/advice/fukanzanzeng.html)
+- [Blue Cliff Record Case 2 Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
 
 -------
 
@@ -44,8 +40,6 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 ## One Bright Pearl
 
 - [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5.md)
-
-- [shastaabbey.org: "One Bright Pearl" PDF](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf))
 
 -------
 
