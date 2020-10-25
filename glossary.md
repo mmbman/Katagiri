@@ -23,26 +23,26 @@
 
 The Abhidharmakośakā or "Storehouse of the Abhidharma" is a key text on the [Abhidharma](glossary#abhidharma) written in [Sanskrit](glossary#sanskrit) by Vasubandhu in the 4th or 5th century. 
 
-It particularly focuses on analyzing and synthesizing what the [agama](glossary#agama) sutras mentioned from a psychological and philosophical viewpoint.
+It particularly focuses on analyzing and synthesizing what the [āgama](glossary#āgama) sutras mentioned from a psychological and philosophical viewpoint.
 
 - [Wikipedia: Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
 - [encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
 -------
 
-## Agama
+## Āgamas
 
 ([Sanskrit](glossary#sanskrit)) āgama: sacred work or scripture.
 
-The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikayas](glossary#nikaya).
+The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikāyas](glossary#nikāya).
 
 - [Wikipedia: Āgama (Buddhism)](https://en.wikipedia.org/wiki/Āgama_(Buddhism))
 
 -------
 
-## Aprapti
+## Aprāpti
 
-[Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
+[Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). 
 
 - [Fukanzazengi – Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
 
@@ -315,10 +315,10 @@ See [shunyata](glossary#shunyata).
 
 The Four Dharma Seals are:
 
-- [impermanence](#impermanence)
-- [suffering](#suffering)
-- [no-self](no-self)
-- [nirvana](nirvana)
+- [impermanence](glossary#impermanence)
+- [suffering](glossary#suffering)
+- [no-self](glossary#no-self)
+- [nirvana](glossary#nirvana)
 
 It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
@@ -520,9 +520,9 @@ Nāgārjuna
 
 -------
 
-## Nikaya
+## Nikāya
 
-Nikāya: a Pāli word meaning "volume". It is often used like the [Sanskrit](glossary#sanskrit) word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikayas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
+Nikāya: a Pāli word meaning "volume". It is often used like the [Sanskrit](glossary#sanskrit) word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikāyas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
 
 - [Wikipedia: Nikāya](https://en.wikipedia.org/wiki/Nikāya)
 
@@ -588,9 +588,9 @@ See [Prajnaparamita](glossary#prajnaparamita)
 
 -------
 
-## Prapti
+## Prāpti
 
-[Sanskrit](glossary#sanskrit): prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprapti](glossary#aprapti).
+[Sanskrit](glossary#sanskrit): prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprāpti](glossary#aprāpti).
 
 - [Fukanzazengi – Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)
 - [Fukanzazengi – Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
