@@ -64,5 +64,5 @@
 
 - [Blue Cliff Record Reference Index](BCR#0)
 
-- [Resources](resources)
+- [Resources](resources#0)
 
