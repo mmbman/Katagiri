@@ -25,7 +25,7 @@ So that was really [the] highest level of practice in those days, [a] practice [
 
 > The Buddha enters samadhi with consciousness, and the thirty-four ways to sever delusions manifest themselves within it. The Buddha uses this from morning to night, and illuminates the quest of his body in the zendo.
 > 
-> (From [Eihei Koroku Dharma Hall Discourse #372](dogen#ek-372))
+> (From [Eihei Koroku](dogen#eihei-koroku) – [Dharma Hall Discourse #372](dogen#ek-372))
 
 "The Buddha enters  [samadhi](glossary#samadhi) with consciousness": that is, exactly [Buddha Shakyamuni](glossary#shakyamuni-buddha ) did [zazen](glossary#zazen) with consciousness. Samadhi means oneness with subject and zazen. And when the practicer and zazen become one, that is samadhi. So, "the Buddha enters samadhi with consciousness." 
 
