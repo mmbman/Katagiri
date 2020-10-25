@@ -8,9 +8,9 @@ Each talk requires many hours to properly transcribe. That said, there may still
 
 This is an ongoing project. I am currently updating the talks I’ve already transcribed, and getting started on a glossary and various indices. After that I will get back to transcribing new talks.
 
-For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/). 
+For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
-If you need to contact me with comments or questions, email: [Kikan Mike Howard](mailto:michaelhoward@mac.com)
+If you need to contact me with comments or questions, email [Kikan Mike Howard](mailto:michaelhoward@mac.com).
 
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 

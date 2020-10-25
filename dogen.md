@@ -29,6 +29,8 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
 
+Fascicles from Shobogenzo referenced in Katagiri’s talks are listed below.
+
 -------
 
 ### Genjokoan
