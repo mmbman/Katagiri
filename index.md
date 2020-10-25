@@ -4,7 +4,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
-[1979-05-09 Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+[1979-05-09 Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 
 [1979-06-09 Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 1](1979-06-09-Fukanzazengi-Lecture1)
 
