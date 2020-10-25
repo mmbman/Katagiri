@@ -4,6 +4,8 @@
 
 Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of essays by [Eihei Dogen](#eihei-dogen) – his most well-known work.
 
+- [Wikipedia: Shōbōgenzō](https://en.wikipedia.org/wiki/Shōbōgenzō)
+
 This is an index to where fascicles from Shobogenzo appear in [Katagiri Roshi's](glossary#katagiri) talks. **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
 
 -------

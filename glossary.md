@@ -44,6 +44,7 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 [Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
 
 - [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
+
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 -------
@@ -55,6 +56,7 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 - [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
 [(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800)
 - [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606) – definition
+
 - [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
 -------
@@ -181,6 +183,7 @@ The original nature of existence, perfect and all pervading.
 A traditional art practiced by Zen priests and monks.
 
 - [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
+
 - [Wikipedia: Hitsuzendō](https://en.wikipedia.org/wiki/Hitsuzendō)
 
 -------
@@ -303,6 +306,7 @@ See [shunyata](glossary#shunyata).
 The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering), [no-self](no-self), and [nirvana](no-self). It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
 - [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
+
 - [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
 -------
@@ -318,6 +322,7 @@ See [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
 (Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to [Sanskrit](glossary#sanskrit) "punya".
 
 - [Fukanzazengi Lecture 3 (39:28)](1979-06-11-Fukanzazengi-Lecture3#3928)
+
 - [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
 
 -------
@@ -335,7 +340,7 @@ also "Mendicant Pei"<br>
 
 Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
-- [Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5)
+- [Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5#0)
 
 -------
 
@@ -364,6 +369,18 @@ Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Kat
 
 -------
 
+## Igi
+
+Japanese: igi 威儀 (pronounced "ee-jee", more or less). 
+
+Dignity; dignified manner; majesty.
+
+- [Fukanzazengi Lecture 6 (48:25)](1979-06-14-Fukanzazengi-Lecture6#4825)
+
+- [wordhippo: igi](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html)
+
+-------
+
 ## Impermanence
 
 Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
@@ -384,6 +401,7 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 771-853 CE.
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+
 - [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
 -------
@@ -457,6 +475,7 @@ The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](
 pronounced "Ah-bay"
 
 - [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
+
 - [Wikipedia: Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe)
 - [terebess.hu: Translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
 
@@ -466,6 +485,11 @@ pronounced "Ah-bay"
 
 -------
 
+## Mount Sumeru
+
+- [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
+
+-------
 ## Nagarjuna
 
 Nāgārjuna
@@ -546,8 +570,9 @@ See [Prajnaparamita](glossary#prajnaparamita)
 
 [Sanskrit](glossary#sanskrit): prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprapti](glossary#aprapti).
 
-- [Fukanzazengi Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)<br>
-- [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)<br>
+- [Fukanzazengi Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)
+- [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
+
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 -------
@@ -561,6 +586,7 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 - [Fukanzazengi Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
 - [Fukanzazengi Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6#000)
 - [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
+
 - [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
 -------
@@ -641,7 +667,7 @@ Japanese: Seppō Gison<br>
 Chinese: Xuefeng Yicun (Hsueh-feng I-ts'un) 雪峰义存<br>
 also Seppō Shinkaku
 
-- [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
+- [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 - [Wikipedia: Xuefeng Yicun](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
 - [terebess.hu: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)
@@ -667,8 +693,7 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 
 ## Shobogenzo
 
-- [Shobogenzo Reference Index](shobogenzo).
-- [Wikipedia: Shōbōgenzō](https://en.wikipedia.org/wiki/Shōbōgenzō)
+See the [Shobogenzo Index](shobogenzo).
 
 -------
 
@@ -745,6 +770,7 @@ Sukhāvatīvyūha: Infinite Life Sutra; Pure Land.
 suki (Japanese): gap; space.
 
 - [Fukanzazengi Lecture 2 (7:52)](1979-06-10-Fukanzazengi-Lecture2#752)
+
 - [jisho.org: suki]([](https://jisho.org/search/suki))
 
 -------
