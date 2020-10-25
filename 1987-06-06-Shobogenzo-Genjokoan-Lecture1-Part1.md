@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Shobogenzo: Genjokoan: Lecture 1 Part 1
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 

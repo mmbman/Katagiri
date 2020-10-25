@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6
 ## June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -5,7 +6,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 ... talked about [zazen](glossary#zazen) based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to see this from a pretty different angle, that is sort of from the psychological point of view. You know pretty well [that] in [primitive Buddhism](glossary#primitive-buddhism ), there are the categories of existence which are called \[the] [Five Skandhas](glossary#skandhas). Among the five skandhas, there is [a] very interesting concept which is called [samskara](glossary#samskara). In the [Prajnaparamita Sutra](glossary#prajnaparamita-sutra), it is translated as [impulses](glossary#impulses). According to [Doctor Conze](https://en.wikipedia.org/wiki/Edward_Conze) it is regarded as "together-maker". That concept of samskara is a very interesting teaching. In the development of [Buddhism](glossary#buddhism), this concept, samskara, is divided into many [things].
 

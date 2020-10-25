@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Karma: Twelve Chains of Causation
 ## July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 

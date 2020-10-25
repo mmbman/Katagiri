@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Diamond Sutra: Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 

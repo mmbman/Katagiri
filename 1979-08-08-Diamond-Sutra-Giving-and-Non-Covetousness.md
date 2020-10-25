@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Diamond Sutra: Giving and Non-Covetousness
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 

@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Diamond Sutra: Emptiness
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 

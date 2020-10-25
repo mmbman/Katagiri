@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Shōbōgenzō: Genjōkōan: Lecture 2
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 

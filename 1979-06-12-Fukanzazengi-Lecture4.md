@@ -1,3 +1,4 @@
+<a name="0"></a>
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 4
 ## June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 
