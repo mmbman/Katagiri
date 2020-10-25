@@ -520,7 +520,7 @@ pronounced "Ah-bay"
 
 ## Middle Way
 
-------
+-------
 
 ## Minnesota Zen Meditation Center
 
