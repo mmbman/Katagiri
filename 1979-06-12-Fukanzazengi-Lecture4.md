@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 4
+# Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 4
 ## June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
@@ -241,6 +241,6 @@ At that time, you can die while you're sitting, you can die while you're standin
 
 ##### 1:10:30 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 
 [Home](index.md)
