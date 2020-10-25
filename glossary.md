@@ -43,7 +43,7 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 
 [Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prapti](glossary#prapti). 
 
-- [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
+- [Fukanzazengi: Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
 
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
@@ -53,9 +53,9 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 
 ([Sanskrit](glossary#sanskrit)) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
 
-- [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
+- [Fukanzazengi: Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915),
 [(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Lecture3#11800)
-- [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606) – definition
+- [Fukanzazengi: Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606) – definition
 
 - [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
@@ -115,7 +115,7 @@ Japanese: Hekiganroku
 
 The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
-- [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
+- [Fukanzazengi: Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
 
 -------
 
@@ -123,13 +123,13 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 ([Sanskrit](glossary#sanskrit)) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
 
-- [Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
+- [Fukanzazengi: Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
 
 -------
 
 ## Bowing
 
-- [Fukanzazengi Lecture 1 (8:39)](1979-06-09-Fukanzazengi-Lecture1#839)
+- [Fukanzazengi: Lecture 1 (8:39)](1979-06-09-Fukanzazengi-Lecture1#839)
 
 -------
 
@@ -149,7 +149,7 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 The original nature of existence, perfect and all pervading. 
 
-- e.g. [Fukanzazengi Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
+- e.g. [Fukanzazengi: Lecture 2 (4:32)](1979-06-10-Fukanzazengi-Lecture2#432)
 
 [Wikipedia: Buddha nature](https://en.wikipedia.org/wiki/Buddha-nature)
 
@@ -165,7 +165,7 @@ The original nature of existence, perfect and all pervading.
 
 ## Buddhist Psychology
 
-- [Fukanzazengi Lecture 6 39:00](1979-06-14-Fukanzazengi-Lecture6#3900)
+- [Fukanzazengi: Lecture 6 39:00](1979-06-14-Fukanzazengi-Lecture6#3900)
 
 -------
 
@@ -173,8 +173,8 @@ The original nature of existence, perfect and all pervading.
 
 "Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism," without implying that "Buddhism" is a fixed concept or object.
 
-- [Fukanzazengi Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
-- [Fukanzazengi Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
+- [Fukanzazengi: Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
+- [Fukanzazengi: Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
 
 -------
 
@@ -182,7 +182,7 @@ The original nature of existence, perfect and all pervading.
 
 A traditional art practiced by Zen priests and monks.
 
-- [Fukanzazengi Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
+- [Fukanzazengi: Lecture 2 (1:23:27)](1979-06-10-Fukanzazengi-Lecture2#12327)
 
 - [Wikipedia: Hitsuzendō](https://en.wikipedia.org/wiki/Hitsuzendō)
 
@@ -192,7 +192,7 @@ A traditional art practiced by Zen priests and monks.
 
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
-- [Fukanzazengi Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
+- [Fukanzazengi: Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
 
 -------
 
@@ -256,13 +256,13 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 
 ## Dullness
 
-- [Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
+- [Fukanzazengi: Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
 
 -------
 
 ## Distraction
 
-- [Fukanzazengi Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
+- [Fukanzazengi: Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
 
 -------
 
@@ -272,7 +272,7 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 
 ## Egolessness
 
-- [Fukanzazengi Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)
+- [Fukanzazengi: Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)
 
 -------
 
@@ -286,8 +286,8 @@ See [Dogen](#dogen)
 
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
-- [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
-- [Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
+- [Fukanzazengi: Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
+- [Fukanzazengi: Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
 
 -------
 
@@ -321,7 +321,7 @@ See [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
 
 (Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to [Sanskrit](glossary#sanskrit) "punya".
 
-- [Fukanzazengi Lecture 3 (39:28)](1979-06-11-Fukanzazengi-Lecture3#3928)
+- [Fukanzazengi: Lecture 3 (39:28)](1979-06-11-Fukanzazengi-Lecture3#3928)
 
 - [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
 
@@ -340,7 +340,7 @@ also "Mendicant Pei"<br>
 
 Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
-- [Fukanzazengi Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5#0)
+- [Fukanzazengi: Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5#0)
 
 -------
 
@@ -348,7 +348,7 @@ Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
 Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#soto-zen ) practice centers established by [Suzuki Roshi](#suzuki-roshi).
 
-- [Fukanzazengi Lecture 3 (59:40)](1979-06-11-Fukanzazengi-Lecture3#5940)
+- [Fukanzazengi: Lecture 3 (59:40)](1979-06-11-Fukanzazengi-Lecture3#5940)
 
 -------
 
@@ -356,8 +356,8 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 
 Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
  
-- [Fukanzazengi Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
-- [Fukanzazengi Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
+- [Fukanzazengi: Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
+- [Fukanzazengi: Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
 
 -------
 
@@ -375,7 +375,7 @@ Japanese: igi 威儀 (pronounced "ee-jee", more or less).
 
 Dignity; dignified manner; majesty.
 
-- [Fukanzazengi Lecture 6 (48:25)](1979-06-14-Fukanzazengi-Lecture6#4825)
+- [Fukanzazengi: Lecture 6 (48:25)](1979-06-14-Fukanzazengi-Lecture6#4825)
 
 - [wordhippo: igi](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html)
 
@@ -385,7 +385,7 @@ Dignity; dignified manner; majesty.
 
 Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
 
-- [Fukanzazengi Lecture 6 (5:12)](1979-06-14-Fukanzazengi-Lecture6#512)
+- [Fukanzazengi: Lecture 6 (5:12)](1979-06-14-Fukanzazengi-Lecture6#512)
 
 -------
 
@@ -412,7 +412,10 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 
 ## Karma
 
-- [Fukanzazengi Lecture 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Lecture3#3012)
+-[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
+-[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+
+- [Fukanzazengi: Lecture 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Lecture3#3012)
 
 -------
 
@@ -436,7 +439,7 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 
 ## Lotus
 
-- [Fukanzazengi Lecture 3 (1:07:26)](1979-06-11-Fukanzazengi-Lecture3#10726)
+- [Fukanzazengi: Lecture 3 (1:07:26)](1979-06-11-Fukanzazengi-Lecture3#10726)
 
 -------
 
@@ -474,7 +477,7 @@ The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](
 
 pronounced "Ah-bay"
 
-- [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
+- [Fukanzazengi: Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
 
 - [Wikipedia: Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe)
 - [terebess.hu: Translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
@@ -570,8 +573,8 @@ See [Prajnaparamita](glossary#prajnaparamita)
 
 [Sanskrit](glossary#sanskrit): prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprapti](glossary#aprapti).
 
-- [Fukanzazengi Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)
-- [Fukanzazengi Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
+- [Fukanzazengi: Lecture 6 (39:44)](1979-06-14-Fukanzazengi-Lecture6#3944)
+- [Fukanzazengi: Lecture 6 (1:27:50)](1979-06-14-Fukanzazengi-Lecture6#12750)
 
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
@@ -583,8 +586,8 @@ Katagiri Roshi sometimes uses them term "Primitive Buddhism" – possibly to ref
 
 I'm tracking references to "Primitive Buddhism" to try to get a better sense of what Katagiri Roshi does mean (because it's pretty interesting).
 
-- [Fukanzazengi Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
-- [Fukanzazengi Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6#000)
+- [Fukanzazengi: Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
+- [Fukanzazengi: Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6#000)
 - [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 
 - [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
@@ -626,7 +629,7 @@ Pali: Saṅkhāra सङ्खार<br>
 
 One of the [five skandhas](glossary#skandhas); often translated as 'formations', 'mental formations', or 'impulses'. 
 
-As "together-maker": see [Fukanzazengi Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
+As "together-maker": see [Fukanzazengi: Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 
 - [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
@@ -644,8 +647,8 @@ Sandhinirmocana Sutra.
 
 The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with Suzuki Roshi in the 60's. 
 
-- [Fukanzazengi Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
-- [Fukanzazengi Lecture 4 (54:16)](1979-06-12-Fukanzazengi-Lecture4#5416)
+- [Fukanzazengi: Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
+- [Fukanzazengi: Lecture 4 (54:16)](1979-06-12-Fukanzazengi-Lecture4#5416)
 
 -------
 
@@ -667,7 +670,7 @@ Japanese: Seppō Gison<br>
 Chinese: Xuefeng Yicun (Hsueh-feng I-ts'un) 雪峰义存<br>
 also Seppō Shinkaku
 
-- [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
+- [Fukanzazengi: Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 - [Wikipedia: Xuefeng Yicun](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
 - [terebess.hu: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)
@@ -686,8 +689,8 @@ also Seppō Shinkaku
 
 A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
 
-- [Fukanzazengi Lecture 2 (25:09)](1979-06-10-Fukanzazengi-Lecture2#2509)
-- [Fukanzazengi Lecture 3 (1:04:30)](1979-06-11-Fukanzazengi-Lecture3#10430), [(1:09:49)](1979-06-11-Fukanzazengi-Lecture3#10949)
+- [Fukanzazengi: Lecture 2 (25:09)](1979-06-10-Fukanzazengi-Lecture2#2509)
+- [Fukanzazengi: Lecture 3 (1:04:30)](1979-06-11-Fukanzazengi-Lecture3#10430), [(1:09:49)](1979-06-11-Fukanzazengi-Lecture3#10949)
 
 -------
 
@@ -715,7 +718,7 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 ## Six Realms of Existence
 
-- [Fukanzazengi Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915)
+- [Fukanzazengi: Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915)
 
 -------
 
@@ -747,7 +750,7 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 
 ## Suzuki Roshi
 
-- [Fukanzazengi Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
+- [Fukanzazengi: Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
 
 -------
 
@@ -769,7 +772,7 @@ Sukhāvatīvyūha: Infinite Life Sutra; Pure Land.
 
 suki (Japanese): gap; space.
 
-- [Fukanzazengi Lecture 2 (7:52)](1979-06-10-Fukanzazengi-Lecture2#752)
+- [Fukanzazengi: Lecture 2 (7:52)](1979-06-10-Fukanzazengi-Lecture2#752)
 
 - [jisho.org: suki]([](https://jisho.org/search/suki))
 
@@ -783,7 +786,7 @@ suki (Japanese): gap; space.
 
 A title applied to a Buddha, meaning "thus come, thus gone."
 
-[Fukanzazengi Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
+[Fukanzazengi: Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
 
 -------
 
