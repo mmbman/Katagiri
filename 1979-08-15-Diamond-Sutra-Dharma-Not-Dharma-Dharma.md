@@ -213,6 +213,6 @@ So you must be free from [the] [enlightenment](glossary#enlightenment) that you 
 
 ##### 58:56 end of recording
 
-[Next Talk: Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1.md)
+[Next Talk: Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1.md#0)
 
 [Home](index.md)

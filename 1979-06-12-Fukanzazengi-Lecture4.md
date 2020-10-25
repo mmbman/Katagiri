@@ -241,6 +241,6 @@ At that time, you can die while you're sitting, you can die while you're standin
 
 ##### 1:10:30 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 [Home](index.md)

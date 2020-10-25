@@ -28,9 +28,9 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in Shobogenzo. Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
-- [Shobogenzo: Genjokoan: Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
-- [Shobogenzo: Genjokoan: Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
-- [Shobogenzo: Genjokoan: Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
+- [Shobogenzo: Genjokoan – Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
+- [Shobogenzo: Genjokoan – Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
+- [Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 
 - [Fukanzazengi – Lecture 2 (1:20:50)](1979-06-10-Fukanzazengi-Lecture2#12050)
 - [Fukanzazengi – Lecture 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6# 2701)

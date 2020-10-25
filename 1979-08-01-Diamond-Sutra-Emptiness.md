@@ -239,6 +239,6 @@ If you don't have more questions, I want to tell you one thing. At Omaha Zen Cen
 
 ##### 1:10:15 end of recording
 
-[Next Talk: Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+[Next Talk: Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0)
 
 [Home](index.md)

@@ -18,6 +18,6 @@ So what is agreement? Oh yes, it is a form of a circle. This is nothing but the 
 
 So before time and space is completely normal sense of ignorance. This is birth of the Buddhas. That is the truth, regardless of the Buddha … in this world, or he describes the forms, or not. Anyway, this is before time and space arises. Okay.
 
-[Go to Lecture 2](1980-07-02-Karma-WhereKarmaOriginates)
+[Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
 
 [Home](index.md)

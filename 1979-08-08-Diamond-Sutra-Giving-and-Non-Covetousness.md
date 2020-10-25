@@ -220,6 +220,6 @@ It is okay to pick up a lantern. But people didn't ask us; people didn't sit sid
 
 ##### 1:07:09 end of recording
 
-[Next Talk: Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+[Next Talk: Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
 [Home](index.md)

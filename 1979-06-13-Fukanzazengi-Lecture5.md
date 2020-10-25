@@ -564,6 +564,6 @@ That is from the first.
 
 ##### 1:35:31 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
+[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
 
 [Home](index.md)
