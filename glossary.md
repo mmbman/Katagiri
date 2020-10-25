@@ -220,7 +220,7 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 -------
 
 ## Demon
-
+-------
 ## Denkoroku
 
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
