@@ -4,23 +4,15 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
 
-[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 4](1979-06-12-Fukanzazengi-Lecture4#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
-
-[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
-
-[Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
+1. [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 4](1979-06-12-Fukanzazengi-Lecture4#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
+1. [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 
 [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 
@@ -56,11 +48,13 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 
 [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 
+... 
+
 -------
 
-- [Glossary](glossary) - in progress.
-- [Blue Cliff Record Index](BCR) - in progress.
-- [Shobogenzo Index](shobogenzo) - in progress
+[Glossary](glossary) - in progress.
+[Blue Cliff Record Index](BCR) - in progress.
+[Shobogenzo Index](shobogenzo) - in progress
 
 This is an ongoing project. I am currently updating the talks I’ve already transcribed, and adding a glossary and various indices. After that I will get back to transcribing talks.
 
