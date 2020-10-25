@@ -433,7 +433,7 @@ Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen
 
 Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](#seppō-gison). Famous for his discipline.
 
-- [Blue Cliff Record Case 46: "Ching Ch’ing’s Sound of Raindrops"](BCR#case-46)
+- [Fukanzazengi: Lecture 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
 
 -------
 
