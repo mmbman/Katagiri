@@ -1,8 +1,8 @@
 These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/). You can read these transcripts while listening to the audio recordings, which are referenced in each talk. 
 
-# Dharma Talks in Chronological Order
+# Table of Contents
 
-*ellipses (...) indicate a stretch of talks not yet transcribed*
+*The talks are listed in chronological order. Ellipses (...) indicate a stretch of talks not yet transcribed.*
 
 1. [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
@@ -42,6 +42,8 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 - [Glossary](glossary)
 - [Blue Cliff Record Index](BCR)
 - [Shobogenzo Index](shobogenzo)
+
+-------
 
 These talks are transcribed by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
 
