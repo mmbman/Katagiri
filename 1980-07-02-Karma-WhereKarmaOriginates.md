@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800702.mp3)
 
-##### 0:00 
+<a name="000"></a>
+##### 0:00 start of recording 
 
 I talked, in the first early morning [zazen](glossary#zazen), I said, “to deport oneself in samadhi.” I have to correct this term: “to deport,” not “deport.” (Sounds like the same word.) That’s why, maybe I explained after that, “playing freely.” That is deport. Okay?
 

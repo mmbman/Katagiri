@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800703.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 Completely beyond individual control; this is also karma. We can realize very contradictory state of situation. Karma is always within individual life from this point. There is no way that we have to take responsibility for our actions for our individual life; there is not other way. On the other hand, karma is completely beyond individual control. Regardless of whether you like or dislike; regardless of whether you control or not; regardless of (whether) it is something created by somebody else, or whatever it is, anyway, it is completely beyond your control. As long as it is within you, that is something we have to take responsibility (for). So that is very contradictory. That is also important point: we have to understand karma and how we should be free from karmas. But it takes time. It really takes time. But if you study [Buddhism](glossary#buddhism), you understand, very well. 
 

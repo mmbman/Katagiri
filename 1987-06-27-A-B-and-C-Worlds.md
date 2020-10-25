@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 ... in [Shobogenzo](shobogenzo) [Genjokoan](shobogenjo#genjokoan). "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 
 

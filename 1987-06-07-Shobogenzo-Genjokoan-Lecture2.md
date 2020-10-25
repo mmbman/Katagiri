@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 Yesterday I mentioned, the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who you are. Such as, tasting, realizing manas, psychologically speaking. At that time, the realization of manas guides you to touch, what would you say, karmic life, coming from past life. That is alayavijñāna. 
 

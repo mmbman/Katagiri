@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606a.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 I would like to study [egolessness](glossary#egolessness) through [Genjokoan](shobogenjo#genjokoan), which you have had already… this book. (?) The title is, in English, “The Issue At Hand”. So at this time, would like to study egolessness - what is egolessness - through [Dogen](glossary#dogen)’s teaching, particularly Genjokoan, “The Issue at Hand”. 
 

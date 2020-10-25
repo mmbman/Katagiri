@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606b.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 ... Buddha’s teaching. In other words, I mentioned, [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, (are) never separate from each other. So, you should understand deeply the emerging of enlightenment and salvation. 
 

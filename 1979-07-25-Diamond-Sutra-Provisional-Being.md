@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790725.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 There must be a person who tries to establish [a] peaceful world, always. But when you see the world, it's pretty difficult for us to see [a] beautiful aspect of [the] human world. At that time, [there is] lots of chaos. We are disappointed. 
 

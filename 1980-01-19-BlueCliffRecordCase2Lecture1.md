@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800119.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 At this time, I would like to study with you the second case of The [Blue Cliff Record](glossary#blue-cliff-record), “The Ultimate Path is Without Difficulty”. Let me read first the main case:
 

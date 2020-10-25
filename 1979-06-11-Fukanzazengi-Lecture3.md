@@ -5,7 +5,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790611.mp3)
 
-##### 0:00
+<a name="000"></a>
+##### 0:00 start of recording
 
 [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject, from [a] different angle today, because this is very important characteristic of [the] zazen we do, which is called [shikantaza](glossary#shikantaza).
 
