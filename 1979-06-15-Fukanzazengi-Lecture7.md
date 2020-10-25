@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790615.mp3)
 
-##### 0:00 start of recording 
+##### 0:00 
 
 (A loud thunderstorm is going on during this talk.)
 

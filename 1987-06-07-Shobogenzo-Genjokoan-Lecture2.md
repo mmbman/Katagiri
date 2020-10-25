@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 Yesterday I mentioned, the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who you are. Such as, tasting, realizing manas, psychologically speaking. At that time, the realization of manas guides you to touch, what would you say, karmic life, coming from past life. That is alayavijñāna. 
 
@@ -39,7 +39,7 @@ So you should live in the vast, expansive realm of the world, surrounded by all 
 
 ##### 9:40
 
-So, let's see the Genjōkōan. Do you have Genjōkōan? [rustling of papers in group]
+So, let's see the [Genjokoan](shobogenjo#genjokoan). Do you have Genjokoan? [rustling of papers in group]
 
 And, last sentence, there is a conclusion there. Last one. 
 [more page turning in group]
@@ -78,7 +78,7 @@ How do you develop the whole personality? It's not your business. Your business 
 
 ##### 15:00
 
-When you see the water coming up from the ground, it is called 'whole personality'. By which, people are really impressed; and people really want to have, to see such a person. It is necessary for us. And we have such a capability. So, finally, our purpose is just like this. That's why it is a conclusion of Genjōkōan.
+When you see the water coming up from the ground, it is called 'whole personality'. By which, people are really impressed; and people really want to have, to see such a person. It is necessary for us. And we have such a capability. So, finally, our purpose is just like this. That's why it is a conclusion of [Genjokoan](shobogenjo#genjokoan).
 
 Is that okay?
 
@@ -88,13 +88,13 @@ So, what is the practice for us? [chuckle] Well, we always say, "We want to, we 
 
 How do you understand? How do you share your life with all sentient beings, in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, with shaking hand; actually, practically, you never built up peaceful world, from day to day. No way. Always you are fighting, [suffering](glossary#suffering). That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) mentions like this. 
 
-What is our practice? Whoever you are, whatever it is, what you have to do is, try to turn the alayavijñāna into tathāgata-garbha. Our earth, human world; turn human world into the gold, Buddha's world. You should participate! You can do it. How? That is explanation of Genjōkōan. 
+What is our practice? Whoever you are, whatever it is, what you have to do is, try to turn the alayavijñāna into tathāgata-garbha. Our earth, human world; turn human world into the gold, Buddha's world. You should participate! You can do it. How? That is explanation of [Genjokoan](shobogenjo#genjokoan). 
 
 ##### 17:56
 
 Let's go back to the first paragraph. 
 
-Let's divide Genjōkōan into eleven sections... 
+Let's divide [Genjokoan](shobogenjo#genjokoan) into eleven sections... 
 
 (From 18:20 to 21:05, Roshi divides the text into sections. As we don't have the text that he is using, and since he doesn't end up covering all the sections in this talk, this division doesn't seem particularly useful, so is omitted here.)
 

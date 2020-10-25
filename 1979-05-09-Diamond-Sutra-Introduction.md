@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 [*recording fades in*]
 

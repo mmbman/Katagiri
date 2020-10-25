@@ -113,7 +113,7 @@ Japanese: Hekiganroku
 
 The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
-- [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
+- [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
 
 -------
 
@@ -456,7 +456,7 @@ The [Bodhisattva](#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](
 
 pronounced "Ah-bay"
 
-- [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4)
+- [Fukanzazengi Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
 - [Wikipedia: Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe)
 - [terebess.hu: Translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
 
@@ -559,7 +559,7 @@ Katagiri Roshi sometimes uses them term "Primitive Buddhism" – possibly to ref
 I'm tracking references to "Primitive Buddhism" to try to get a better sense of what Katagiri Roshi does mean (because it's pretty interesting).
 
 - [Fukanzazengi Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
-- [Fukanzazengi Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6)
+- [Fukanzazengi Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6#000)
 - [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 - [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
@@ -642,9 +642,9 @@ Chinese: Xuefeng Yicun (Hsueh-feng I-ts'un) 雪峰义存<br>
 also Seppō Shinkaku
 
 - [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
+
 - [Wikipedia: Xuefeng Yicun](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
 - [terebess.hu: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)
-- [shastaabbey.org: "One Bright Pearl" PDF](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf))
 
 -------
 

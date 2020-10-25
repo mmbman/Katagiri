@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800119.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 At this time, I would like to study with you the second case of The [Blue Cliff Record](glossary#blue-cliff-record), “The Ultimate Path is Without Difficulty”. Let me read first the main case:
 
@@ -27,7 +27,7 @@ This is the main case. This morning I would like to read the pointer for the mai
 
 In this pointer, Engo [Zen Master](glossary#zen-master) emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
 
-Plainly speaking, this is the truth, or original nature of existence, or dharma. [Dogen](glossary#dogen) [Zenji](glossary#zenji) said in Fukanzazengi, “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So [Dogen](glossary#dogen) uses the term “dharma vehicle”. You know, the truth is explained in many ways; if you use a word, whatever you say, all expressions of the truth comes into just one term, “truth”. Many kinds of religions use different a term, but all come into the truth.
+Plainly speaking, this is the truth, or original nature of existence, or dharma. [Dogen](glossary#dogen) [Zenji](glossary#zenji) said in [Fukanzazengi](shobogenzo#fukanzazengi), “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So [Dogen](glossary#dogen) uses the term “dharma vehicle”. You know, the truth is explained in many ways; if you use a word, whatever you say, all expressions of the truth comes into just one term, “truth”. Many kinds of religions use different a term, but all come into the truth.
 
 ##### 7:30
 

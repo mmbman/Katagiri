@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790610.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 ... what I mentioned yesterday. Whatever kind of question you have, this morning I would like to discuss about the subject I mentioned yesterday. 
 
@@ -469,7 +469,7 @@ Is that okay?
 
 **Katagiri**: Did you check your posture? If you change the posture, sometimes relax, sometimes a little tension; sometimes, well, straighten more your back, straighten more your head, or sometimes, a little bit adjust your *[unintelligible]*, et cetera. And then take a breath. Okay? In many ways, change a little bit the posture, and then breathe. Try. 
 
-##### (1:20:50)
+##### 1:20:50
 
 **Question**: Roshi? *[unintelligible]* It seems like the greater your teacher, the less likely it is that you'll do everything *[unintelligible]* 
 

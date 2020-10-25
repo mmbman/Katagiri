@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790808.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 (The recording begins toward the end of Katagiri quoting the passage below. He then repeats it.)
 

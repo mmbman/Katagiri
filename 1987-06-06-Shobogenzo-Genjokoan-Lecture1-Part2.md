@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606b.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 ... Buddha’s teaching. In other words, I mentioned, [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, (are) never separate from each other. So, you should understand deeply the emerging of enlightenment and salvation. 
 
@@ -123,7 +123,7 @@ Okay? Is that clear? [chuckles] Little bit complicated, huh?
 
 **Question**: So, in that consciousness, you perceive the whole stream of karma.
 
-**Katagiri**: Yes. Stream; that's why in Buddhist psychology, the definition of alayavijñāna is "just like a stream of water fall". Constantly going. Constantly going means something permanent. (There are) three meaning of the permanent in [Buddhism](glossary#buddhism). One is: essence of nature, essence of existence, is going permanently. That is understandable. Second: change. As origination, and extinction, origination, extinction, origination; appearance, disappearance... are going in perpetual series. That is the second meaning. In other words, change is going in perpetual series. Third: intermittence. Intermittence is going in perpetual series. Okay? That's why, tomorrow, I want to get into the Genjōkōan a little bit, as a whole. But the Genjōkōan that [Dogen](glossary#dogen) [Zenji](glossary#zenji) mentions, before and after is cut, cut off. But, the before and after coming together. Well, it's complicated. That is called intermittent of time. Is going in perpetual series. At that time, intermittence is not longer intermittent; it's permanent, because it's going, constantly. But even though you say the consistently, still we are caught by the concept. So it's not a constant. It's still intermittent there. By the word so called "constantly", your thinking is cut off in pieces. So still you don't know; you don't know exactly what the permanent is. So that's why [Buddhism](glossary#buddhism) mentions three meanings of permanence. So permanence is not permanent; permanence is impermanent. Simultaneously, you can say. So, [impermanence](glossary#impermanence) must be found in permanence. Permanence must be found in impermanence. Because, this is reality. This is a little bit different from the usual sense of permanence. 
+**Katagiri**: Yes. Stream; that's why in Buddhist psychology, the definition of alayavijñāna is "just like a stream of water fall". Constantly going. Constantly going means something permanent. (There are) three meaning of the permanent in [Buddhism](glossary#buddhism). One is: essence of nature, essence of existence, is going permanently. That is understandable. Second: change. As origination, and extinction, origination, extinction, origination; appearance, disappearance... are going in perpetual series. That is the second meaning. In other words, change is going in perpetual series. Third: intermittence. Intermittence is going in perpetual series. Okay? That's why, tomorrow, I want to get into the [Genjokoan](shobogenjo#genjokoan) a little bit, as a whole. But the Genjokoan that [Dogen](glossary#dogen) [Zenji](glossary#zenji) mentions, before and after is cut, cut off. But, the before and after coming together. Well, it's complicated. That is called intermittent of time. Is going in perpetual series. At that time, intermittence is not longer intermittent; it's permanent, because it's going, constantly. But even though you say the consistently, still we are caught by the concept. So it's not a constant. It's still intermittent there. By the word so called "constantly", your thinking is cut off in pieces. So still you don't know; you don't know exactly what the permanent is. So that's why [Buddhism](glossary#buddhism) mentions three meanings of permanence. So permanence is not permanent; permanence is impermanent. Simultaneously, you can say. So, [impermanence](glossary#impermanence) must be found in permanence. Permanence must be found in impermanence. Because, this is reality. This is a little bit different from the usual sense of permanence. 
 
 **Question**: Sorry, I missed the first of the three components...
 
@@ -165,7 +165,7 @@ Is that okay? Is that alright?
 
 ##### 54:43
 
-Then, if you (are a) priest, again and again you should taste and chew and digest this, what I told today. Again and again. And then, read this Genjōkōan; you can really feel the spirit. So tomorrow, I want to get into this one.
+Then, if you (are a) priest, again and again you should taste and chew and digest this, what I told today. Again and again. And then, read this [Genjokoan](shobogenjo#genjokoan); you can really feel the spirit. So tomorrow, I want to get into this one.
 
 So... one more thing. Usually people say, "You should attain [enlightenment](glossary#enlightenment). You should aware. If you don't aware, if you don't realize, if you don't attain enlightenment, you are not Buddhist." You are [laughs] stupid guy. [laughter] That is not [Buddhistic](glossary#buddhistic ) way; no. It's completely misunderstanding. Alright?
 
@@ -173,7 +173,7 @@ So, please understand what I said today, again and again. And then, if you under
 
 ##### 57:23
 
-[Dogen](glossary#dogen) [Zenji](glossary#zenji) mentions, from the beginning just like this. That's why it's a little bit difficult to understand. That's why you should digest what I said again and again; then, if you get into this Genjōkōan, a little bit easier to understand. So tomorrow I want to get into. 
+[Dogen](glossary#dogen) [Zenji](glossary#zenji) mentions, from the beginning just like this. That's why it's a little bit difficult to understand. That's why you should digest what I said again and again; then, if you get into this [Genjokoan](shobogenjo#genjokoan), a little bit easier to understand. So tomorrow I want to get into. 
 
 Do you have a question?
 

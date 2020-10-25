@@ -21,6 +21,10 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 5](1979-06-13-Fukanzazengi-Lecture5)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen, Lecture 7](1979-06-15-Fukanzazengi-Lecture7)
+- [Blue Cliff Record Case 2 Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
+
+- [Wikipedia: Fukan zazengi](https://en.wikipedia.org/wiki/Fukan_zazengi)
+- [sotozen-net: Fukanzazengi text](https://global.sotozen-net.or.jp/eng/practice/zazen/advice/fukanzanzeng.html)
 
 -------
 
@@ -32,11 +36,16 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 - [Shobogenzo: Genjokoan - Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2)
 - [Shobogenzo: Genjokoan - Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2)
 
+- [Fukanzazengi Lecture 2 (1:20:50)](1979-06-10-Fukanzazengi-Lecture2#12050)
+- [Fukanzazengi Lecture 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6# 2701)
+
 -------
 
 ## One Bright Pearl
 
 - [Fukanzazengi Lecture 5](1979-06-13-Fukanzazengi-Lecture5.md)
+
+- [shastaabbey.org: "One Bright Pearl" PDF](http://www.shastaabbey.org/pdf/shobo/004ikkam.pdf))
 
 -------
 

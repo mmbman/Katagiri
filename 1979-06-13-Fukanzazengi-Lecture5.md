@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790613.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than Gensha Shibi. This story occurs in the [Shobogenzo](shobogenzo) [in the fascicle] ["The One Bright Pearl"](shobogenzo#one-bright-pearl); you can find this story there.
 

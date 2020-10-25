@@ -5,9 +5,9 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
-... in Shōbōgenzō Genjōkōan. "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 
+... in [Shobogenzo](shobogenzo) [Genjokoan](shobogenjo#genjokoan). "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 
 
 Three sentences here. First one ... according to my term, first sentence mentions "A" world. A world, B world, C world; the first sentence is A world. That is, as [Dogen](glossary#dogen) [Zenji](glossary#zenji) mentioned, "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." So, put simply, in our common sense, the seen(?) world, that is "A" world; mundane world.
 

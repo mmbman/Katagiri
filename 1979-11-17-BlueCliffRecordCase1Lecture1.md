@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791117.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 I have never studied [The] [Blue Cliff Record](glossary#blue-cliff-record) (Japanese: Hekiganroku) with you, since I moved to Minneapolis. We studied Shōyōroku (“Book of Equanimity”) which is pretty similar [to] Blue Cliff Record. But this Blue Cliff Record is a little different, and pretty unique, from Shōyōroku we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this Blue Cliff Record so much. 
 

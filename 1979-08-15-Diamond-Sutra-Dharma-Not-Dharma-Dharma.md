@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 > (Chapter 8) The Lord then asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathagatas, Arhats, Fully Enlightened Ones, and from it have issued the Buddhas, the Lords. And why? For the Tathagata has taught that the dharmas special to the Buddhas are just not a Buddha's special dharmas. That is why they are called "the dharmas special to the Buddhas."
 >

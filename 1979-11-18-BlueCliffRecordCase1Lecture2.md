@@ -5,7 +5,7 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
 
-##### 0:00 start of recording
+##### 0:00
 
 [The] main subject [of] Case 1, I read already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism ), so I think most of you know [it] pretty well. 
 
