@@ -1,4 +1,4 @@
-# The Blue Cliff Record Koan Index
+# The Blue Cliff Record
 
 [Home](index.md)
 
@@ -23,8 +23,8 @@ This is an index to where koans from [The Blue Cliff Record](glossary#blue-cliff
 <a name="case-46"></a>
 ## Case 46: Ching Ch’ing’s Sound of Raindrops
 
--------
+- [Fukanzazengi Lecture 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
 
-[Fukanzazengi Lecture 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
+-------
 
 [Home](index.md)
