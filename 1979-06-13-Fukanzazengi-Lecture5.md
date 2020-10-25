@@ -118,7 +118,7 @@ But we don't understand. That's why we say, "Let's accumulate merit and virtue."
 
 ##### 33:44
 
-[Dogen](glossary#dogen) [Zenji](glossary#zenji) really admired [Gensha Shibi](glossary#gensha-shibi) and [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master) in this story. 
+[Dogen Zenji](glossary#dogen) really admired [Gensha Shibi](glossary#gensha-shibi) and [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master) in this story. 
 
 So, "[Gensha](glossary#gensha-shibi) said, '[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West.' This gained [Seppō](glossary#seppō-gison)'s special praise." Seppō really praised Gensha, because Gensha really hit the bullseye. [The] bullseye, [zazen](glossary#zazen) itself – [he] struck it, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That's why there is nothing to cheat. From this point, Bodhidharma didn't come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, [the] [dualistic](glossary#dualistic) world. So all we have to do is focus on just right here. 
 
@@ -286,7 +286,7 @@ The pain. During the [zazen](glossary#zazen), you can feel pain physically. And 
 
 **Katagiri**: No pain. *[he laughs]* I'm sorry. No pain, no delusions. This is real [zazen](glossary#zazen).
 
-That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking [Gensha](glossary#gensha-shibi)'s toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
+That's why [Dogen Zenji](glossary#dogen) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking [Gensha](glossary#gensha-shibi)'s toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
 
 We get use [out] of looking at the before striking and after striking – that is very common. But we don't pay attention to the striking itself. Striking itself is no striking, because no thought. Striking from where? From where does the striking come? "I hear the striking come" [is] already [an] idea. [The] idea comes [as] the result of you [being] present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely unified. Perfect.
 

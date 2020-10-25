@@ -300,7 +300,7 @@ Can you say so? This is [the] Zen world. This is [Rinzai](glossary#rinzai-zen );
 
 But [Soto Zen](glossary#soto-zen ) is a little different. We know pretty well, "You have to say something here, say something," shaking [him], “Say something, say something!” – Even though you say something, it doesn’t connect; it has nothing to do with your daily living. *[he laughs]* [Your] daily living is very stinky, even though, “I pass the koan.” 
 
-So demonstrate, kicking out the picture, break it. And then the [Zen Master](glossary#zen-master) says, “You pass the koan.” Then, you will be given a [certificate?], which is called [kenshō?]. You passed one koan. Well of course, it’s very nice, it’s very nice. We know this pretty well; [Dogen](glossary#dogen) [Zenji](glossary#zenji) knows [it] pretty well. But it has nothing to do with this man who is right in the middle of reality! Nothing! 
+So demonstrate, kicking out the picture, break it. And then the [Zen Master](glossary#zen-master) says, “You pass the koan.” Then, you will be given a [certificate?], which is called [kenshō?]. You passed one koan. Well of course, it’s very nice, it’s very nice. We know this pretty well; [Dogen Zenji](glossary#dogen) knows [it] pretty well. But it has nothing to do with this man who is right in the middle of reality! Nothing! 
 
 Even though I pass the koan, kicking out the pictures, and then showing my truth. *[unintelligible]* one of the [Zen Masters](glossary#zen-master) *[unintelligible]* “I am completely enlightened, then.” Maybe so, but reality doesn’t agree with you. Still Katagiri is Katagiri. So in a sense, Katagiri is a person who passed the examination of a koan. But reality doesn’t agree with this. Katagiri is still Katagiri. 
 

@@ -35,7 +35,7 @@ So, if it is true, even though you don't understand, why don't you express the d
 
 Before you [bow](glossary#bowing), you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, ego consciousness. Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely [Buddha](glossary#buddha) , when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
 
-That is \[what] [Dogen](glossary#dogen) [Zenji](glossary#zenji) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] patriarchs mention, or [Buddha's](glossary#buddha) suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma) , original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  from the first [are] struck aside. It's going away. 
+That is \[what] [Dogen Zenji](glossary#dogen) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] patriarchs mention, or [Buddha's](glossary#buddha) suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma) , original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  from the first [are] struck aside. It's going away. 
 
 ##### 12:45
 
@@ -105,7 +105,7 @@ That is called karma; that is called [Buddha Nature](glossary#buddha-nature) . W
 
 ##### 34:20
 
-And circumstances: In order to realize this core of the human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and also brain-nerve system. Anyway, we have to make arrangement. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) said in [Fukanzazengi](glossary#fukanzazengi) , "Cast aside all involvements; cease all affairs." This is arrangement of circumstances. 
+And circumstances: In order to realize this core of the human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and also brain-nerve system. Anyway, we have to make arrangement. That's why [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](glossary#fukanzazengi) , "Cast aside all involvements; cease all affairs." This is arrangement of circumstances. 
 
 If you meddle with all environment or all affairs right in the middle of [zazen](glossary#zazen) , you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement [of] circumstances. Instead of expressing hatred [of] circumstances, or destroying circumstances; just to make arrangement. 
 
@@ -113,7 +113,7 @@ If you meddle with all environment or all affairs right in the middle of [zazen]
 
 And next, our sensory system. We have a sensory system, but it's not necessary to destroy [it], or to keep away the human world, because we have already. So instead of maligning, throwing away sensory system, or destroying sensory system, first of all, we should accept sensory system. And important point is, how to use [the] sensory system. 
 
-That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "A quiet room is suitable." Or, "Do not allow drafts of air to enter, or rain and frost to intrude." Or, "The place of sitting should be lighted, and kept from becoming dark at any time, day or night." "Eyes should be open, not too widely, nor too narrowly." This is how to make arrangement of sensory world. First of all, you should make a choice of circumstances. What kind of a room you have to use? Because you have six senses. You can see this room through your eyes. It gets really dark. If you paint this wall red, and green, and yellow – completely seems different, don't you think so? And also, if this room is too dark, it's not good; if this room is too bright, well, it distracts your mind, distracts the sense of seeing, vision. And also, if you choose the location of the room which is very noisy, a very noisy location, at that time it really distracts the sense of hearing. So the important point is, "A quiet room is suitable." And also, "Not too dark, not too bright, at any time, day or night." 
+That's why [Dogen Zenji](glossary#dogen) says, "A quiet room is suitable." Or, "Do not allow drafts of air to enter, or rain and frost to intrude." Or, "The place of sitting should be lighted, and kept from becoming dark at any time, day or night." "Eyes should be open, not too widely, nor too narrowly." This is how to make arrangement of sensory world. First of all, you should make a choice of circumstances. What kind of a room you have to use? Because you have six senses. You can see this room through your eyes. It gets really dark. If you paint this wall red, and green, and yellow – completely seems different, don't you think so? And also, if this room is too dark, it's not good; if this room is too bright, well, it distracts your mind, distracts the sense of seeing, vision. And also, if you choose the location of the room which is very noisy, a very noisy location, at that time it really distracts the sense of hearing. So the important point is, "A quiet room is suitable." And also, "Not too dark, not too bright, at any time, day or night." 
 
 ("Do not allow drafts of air to enter," etc. is from the [Zazengi](dogen#zazengi) chapter of [Shobogenzo](dogen#shobogenzo), which is distinct from [Fukan zazengi](dogen#fukanzazengi).)
 
@@ -123,7 +123,7 @@ So that is how to make arrangement of sensory world, instead of destroying, esca
 
 And next, movement system. Movement system comes from unity of your physical and mental focus. Your body and mind work, then simultaneously movement comes up. You cannot destroy your movement. Sometimes movement comes from instinct, sometimes comes from sensory world, sometimes comes from higher level of [thought?]. Sometimes, we don't know. Karma? But anyway, there is always movement. 
 
-So, we have to make arrangement of movement. For this, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, that is half lotus position or full lotus position. Or Dogen Zenji says, "Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel." Or, "Sitting upright in proper position, neither inclining to the left nor to right; leaning neither forward nor backward. Sitting in [zazen](glossary#zazen)  silently, and immobile." 
+So, we have to make arrangement of movement. For this, [Dogen Zenji](glossary#dogen) says, that is half lotus position or full lotus position. Or Dogen Zenji says, "Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel." Or, "Sitting upright in proper position, neither inclining to the left nor to right; leaning neither forward nor backward. Sitting in [zazen](glossary#zazen)  silently, and immobile." 
 
 This is very simple movement. Two hands are unified; your eyes [are] not wide open, not closed, just [half?]. That is [unification] of the movement of your eye-nerve system. Very unified. 
 
@@ -139,7 +139,7 @@ So, your heart, your lungs, and your stomach, your intestines, hormone system, a
 
 ##### 44:56
 
-Next, the brain-nerve system. According to brain-nerve system, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha) ." 
+Next, the brain-nerve system. According to brain-nerve system, [Dogen Zenji](glossary#dogen) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha) ." 
 
 (It looks like the translation Katagiri is using may be Norman Waddell's, as it says "administer pros and cons". See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf))
 
@@ -161,7 +161,7 @@ If your mind really attaches to good or bad or neutral, immediately here is a th
 
 And [in] your life you are really disappointed. That is what is called delusion, what is called [dullness](glossary#dullness). Dullness is sort of, completely sinking into the bottom of the ocean. That is dullness. 
 
-On the other hand, [distraction](glossary#distraction). [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, distraction is [that] your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and all over. That is distraction. 
+On the other hand, [distraction](glossary#distraction). [Dogen Zenji](glossary#dogen) says, distraction is [that] your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and all over. That is distraction. 
 
 On the other hand, [dullness](glossary#dullness)  is completely [like] you are sinking into the bottom of the ocean. And finally, you don't know what to do. Whatever kind of delusion, [either] dullness or [distraction](glossary#distraction)  – both distract. Your activities distract [*unintelligible*]. Settling yourself in the self is very difficult.
 
@@ -205,7 +205,7 @@ If you really want to accomplish one thing which you want to do, you have to cut
 
 ##### 58:35
 
-This is [a] very natural attitude to our life. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice  [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
+This is [a] very natural attitude to our life. That's why [Dogen Zenji](glossary#dogen) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice  [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
 
 ##### 1:00:05
 
@@ -213,7 +213,7 @@ Simplify, unify; that is what is called harmonious. Or regulating; we use the te
 
 ##### 1:00:58
 
-And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
+And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
 
 And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
 
@@ -237,7 +237,7 @@ And release. If you release, [there] is nothing but being, which is helping all 
 
 ##### 1:05:26
 
-So, that is the conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi) . That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) said, if you do [zazen](glossary#zazen)  according to [what] Dogen mentions, very naturally, the [dharma](glossary#dharma)  is manifesting itself, and from the first, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  are struck aside. Very naturally. That is [the] meaning of zazen. We do always.
+So, that is the conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi) . That's why [Dogen Zenji](glossary#dogen) said, if you do [zazen](glossary#zazen)  according to [what] Dogen mentions, very naturally, the [dharma](glossary#dharma)  is manifesting itself, and from the first, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  are struck aside. Very naturally. That is [the] meaning of zazen. We do always.
 
 By the [zazen](glossary#zazen) , if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself [are] also a person far from real person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not [the] practice for us.
 

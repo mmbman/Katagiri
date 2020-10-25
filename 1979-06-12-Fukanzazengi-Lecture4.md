@@ -9,7 +9,7 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen](glossary#dogen) [Zenji](glossary#zenji) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from [a] various way. So, little by little, we try to learn. 
+Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from [a] various way. So, little by little, we try to learn. 
 
 > In surveying the past, we find that transcendence of both unenlightenment and [enlightenment](glossary#enlightenment), and dying while either [sitting](glossary#sitting) or standing, have all depended entirely on the strength of [zazen](glossary#zazen)." 
 
@@ -17,7 +17,7 @@ Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen
 
 The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about dying while either sitting or standing: "It is written in *[unintelligible]* [Denkoroku](glossary#denkoroku) that [Bodhidharma](glossary#bodhidharma) and the fourth, fifth and sixth Chinese Zen [patriarchs](glossary#patriarch) died sitting in [zazen](glossary#zazen), while the third patriarch died while standing under a large tree. Examples of both are common in the [Zen](glossary#zen) histories." So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under [a] tree, or standing on the platform while he's giving a lecture. Anyway, there are examples in Buddhist history, but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they do, wherever they are, they died.
 
-So, [Dogen](glossary#dogen) [Zenji](glossary#zenji) really wants to [speak] about how important [zazen](glossary#zazen) is. That zazen is [shikantaza](glossary#shikantaza). In shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
+So, [Dogen Zenji](glossary#dogen) really wants to [speak] about how important [zazen](glossary#zazen) is. That zazen is [shikantaza](glossary#shikantaza). In shikantaza, all delusions drop off from the first. That is dropping off body and mind; body and mind dropping off. That is zazen itself. 
 
 ##### 4:37
 
@@ -91,7 +91,7 @@ And then the [Zen Master](glossary#zen-master) points out: well, pay attention. 
 
 Yes, we are inverted. This is spiritual, don't you think so? You're sitting here; how much can you sit? What is the sound of your [shikantaza](glossary#shikantaza)? You say, "Yes, sound; that is a sound." What is the sound in you? You say, "sound of shikantaza," but it's too late, because real shikantaza has gone already. And then you catch the sound from the shikantaza, and when you grasp it: "that is shikantaza." It's not shikantaza – you are already inverted. Don't you think so? 
 
-And then you judge immediately, and then finally, you follow after that again and again. What happens after that, after following after things? After things means, sound. You know that [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, I told you often, the moment consists of 60 instants. (Katagiri says "instances," but he probably means "instants"; that is probably the better translation.) So what you can hear, the moment, is sound of the moment. *[he snaps his fingers]* Like this. But, this one moment *[finger snap]* consists of 60 instants. If it is true – what did you hear? What in the moment have you heard? *[snap]* This sound, don't you think so? But this sound, the moment, is nothing but sort of dregs after you squeeze the 60 instants. And then you got the one grip of the raindrops, just the raindrops: "I've got it." But that is one moment – already, 60 instants you have missed! So how can you know? 
+And then you judge immediately, and then finally, you follow after that again and again. What happens after that, after following after things? After things means, sound. You know that [Dogen Zenji](glossary#dogen) says, I told you often, the moment consists of 60 instants. (Katagiri says "instances," but he probably means "instants"; that is probably the better translation.) So what you can hear, the moment, is sound of the moment. *[he snaps his fingers]* Like this. But, this one moment *[finger snap]* consists of 60 instants. If it is true – what did you hear? What in the moment have you heard? *[snap]* This sound, don't you think so? But this sound, the moment, is nothing but sort of dregs after you squeeze the 60 instants. And then you got the one grip of the raindrops, just the raindrops: "I've got it." But that is one moment – already, 60 instants you have missed! So how can you know? 
 
 ##### 24:05
 
@@ -201,7 +201,7 @@ Well, he couldn't stop. Still, he wanted to go there and check his brain. Becaus
 
 So if you use [zazen](glossary#zazen) like this, as a means like this, it doesn't make sense. Even though for three years you use zazen and get a strong feeling and spirit in your life – [still] it doesn't connect with the problem of life and death. No connection. So finally, forget it. All you have to do is, you have to be one with [shikantaza](glossary#shikantaza). That's all! Right now, right here, that's all you have to do. And then at that time, we can say, all delusions drop off. But that is [an] explanation, after. Raindrops touch the ground, make a sound, coming out of [enlightenment](glossary#enlightenment) – and then I can say, that is the sound of raindrops. But it's not real raindrops. We're always here, keeping our distance.
 
-... [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "[Zazen](glossary#zazen) is dropping off body and mind." Remember this. Your whole life, you should remember [this]. "Zazen is dropping off body and mind" means all delusions drop off. That means exactly [the] same as death. Death is exactly [the] same as life. So how can I say [it]? How can I check? While all delusions drop off, right in the middle of death – nothing. Nothing to say. But, when you become one with death, all delusions drop off! Otherwise you cannot become one with death. Don't you think so? It is really true. Completely drop off.
+... [Dogen Zenji](glossary#dogen) says, "[Zazen](glossary#zazen) is dropping off body and mind." Remember this. Your whole life, you should remember [this]. "Zazen is dropping off body and mind" means all delusions drop off. That means exactly [the] same as death. Death is exactly [the] same as life. So how can I say [it]? How can I check? While all delusions drop off, right in the middle of death – nothing. Nothing to say. But, when you become one with death, all delusions drop off! Otherwise you cannot become one with death. Don't you think so? It is really true. Completely drop off.
 
 ##### 1:00:02
 
@@ -233,7 +233,7 @@ And all we have to do is, whatever you may be, we can do [the] same thing. That 
 
 ##### 1:08:50
 
-That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says ... "We find that transcendence of both unenlightenment or [enlightenment](glossary#enlightenment)..." – that is good or bad, right, wrong, qualified or not qualified, whatever you say. "Transcend" – this is [shikantaza](glossary#shikantaza) itself... transcending of death and life. And then all you have to do is, be one with death when death comes. That is shikantaza. 
+That's why [Dogen Zenji](glossary#dogen) says ... "We find that transcendence of both unenlightenment or [enlightenment](glossary#enlightenment)..." – that is good or bad, right, wrong, qualified or not qualified, whatever you say. "Transcend" – this is [shikantaza](glossary#shikantaza) itself... transcending of death and life. And then all you have to do is, be one with death when death comes. That is shikantaza. 
 
 At that time, you can die while you're sitting, you can die while you're standing, very naturally. You can die lying down on your bed. You can die at home, *[unintelligible]*
 

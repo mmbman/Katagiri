@@ -31,7 +31,7 @@ If you read Mahayana Buddhist scriptures, very often they say, "give offerings d
 
 This is very common, very common in the human world. That's why we fight each-other always. Arguments, disputes; finally, we fight. Finally... we are living separately, and what is the term I use always – *[he struggles for the term]* – divorce. *[laughter]* It very often happens in this world. 
 
-That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
+That's why [Dogen Zenji](glossary#dogen) says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
 
 > Only we see death; but the beast is free   
 > and has its death always behind it and God before it,   

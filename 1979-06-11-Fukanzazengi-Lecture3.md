@@ -209,7 +209,7 @@ If you want to stop it, we have to sew a good seed, right now, right here. That 
 
 ##### 1:05:31
 
-That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, Universal Recommendation for Zazen – *Universal* Recommendation. It's really universal, not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
+That's why [Dogen Zenji](glossary#dogen) says, Universal Recommendation for Zazen – *Universal* Recommendation. It's really universal, not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
 But, if you do it by yourself, it's pretty hard. Because, making arrangement is done by your sense. That's all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means sensory world, movement system, internal organs, and also brain and nervous system. We have to arrange [them] according to a certain way. And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality, [Buddha Nature](glossary#buddha-nature). At that time, very naturally, all delusions drop off, just like a lotus flower blooms through mud water.
 
@@ -237,7 +237,7 @@ So that is shikantaza. Shikantaza, [zazen](glossary#zazen) you do, mentioned by 
 
 ##### 1:12:30
 
-You can do it, okay? Wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sew the seeds. Arrangement [of] circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right [dharma](glossary#dharma) is manifest. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
+You can do it, okay? Wherever you may go; it's really universal. Very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sew the seeds. Arrangement [of] circumstances, environment, inwardly, outwardly, and just stand up there, that's all. That's all you have to do. That is to sew good seeds. Good time and occasion, good conditions must be arranged. Then, stand up there. That's all we have to do. And then, at that time, right [dharma](glossary#dharma) is manifest. [Dogen Zenji](glossary#dogen) says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
 
 ##### 1:14:02
 

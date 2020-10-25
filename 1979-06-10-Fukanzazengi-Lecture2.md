@@ -37,7 +37,7 @@ Also number six is, I told you yesterday ... the whole personality, or total per
 
 So, total personality. The total personality has [a] double face. One is karma; you have carried [this] from the past. And also, the other face is that total personality [which] is completely beyond human criticism. That is really [Buddha Nature](glossary#buddha-nature). 
 
-So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is [Buddha Nature](glossary#buddha-nature). If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
+So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is [Buddha Nature](glossary#buddha-nature). If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
 
 ##### 6:20
 
@@ -125,7 +125,7 @@ That's what I said, yesterday. So, if you have questions about this case, please
 
 ##### 27:00
 
-So, that's why yesterday I said, as [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. How can you do it? If you practice like this, immediately, dullness and distractions from the first are struck aside. Leading away. Drops off, very naturally. So very naturally, total personality appears. But [the] problem is, you cannot perceive what it is. That's a problem. Because mind is always wanting to poke its head into the hole always, whatever you do. Like a [cat](glossary#cat)! That is characteristic of mind: analyze. This is us. 
+So, that's why yesterday I said, as [Dogen Zenji](glossary#dogen) says, [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. How can you do it? If you practice like this, immediately, dullness and distractions from the first are struck aside. Leading away. Drops off, very naturally. So very naturally, total personality appears. But [the] problem is, you cannot perceive what it is. That's a problem. Because mind is always wanting to poke its head into the hole always, whatever you do. Like a [cat](glossary#cat)! That is characteristic of mind: analyze. This is us. 
 
 Do you have any questions?
 
@@ -181,7 +181,7 @@ So that's why the regulation of the mind, that is very important.
 
 ##### 37:18
 
-So from this point, it's pretty easy. No difficulty. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, there is faith – if you believe total personality, or [Buddha Nature](glossary#buddha-nature), whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no [suffering](glossary#suffering). No suffering, no confusion, no agitation, et cetera. Completely perfect. 
+So from this point, it's pretty easy. No difficulty. That's why [Dogen Zenji](glossary#dogen) says, there is faith – if you believe total personality, or [Buddha Nature](glossary#buddha-nature), whatever there is. Within the total personality, or within the original nature of existence, there is no confusion, no [suffering](glossary#suffering). No suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 So it's pretty easy, in a sense. But in a sense, according to [the] six consciousnesses, it's pretty hard. Because, in the six consciousnesses, we can understand our life according to [the] huge pile of experiences which you have accumulated. That's why it's pretty hard. 
 
@@ -419,7 +419,7 @@ I don't know other teachers, so, I just follow the, well, [Buddhistic](glossary#
 
 **Same person**: What does [samadhi](glossary#samadhi) mean?
 
-**Katagiri**:  [Samadhi](glossary#samadhi) is one-pointedness. To take care of. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
+**Katagiri**:  [Samadhi](glossary#samadhi) is one-pointedness. To take care of. [Dogen Zenji](glossary#dogen) says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
 
 ##### 1:13:17
 
@@ -487,7 +487,7 @@ Is that okay?
 
 **Different person**: If you have a very good teacher, always you feel like there's something lacking in yourself. You are living up to that great [calligraphy](glossary#calligraphy). 
 
-**Katagiri**: Ah, ah. I see. Right, right. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says [that] in [Genjokoan](dogen#genjokoan), always says [that]. So that's why you don't understand it. So, lack of achievement. 
+**Katagiri**: Ah, ah. I see. Right, right. [Dogen Zenji](glossary#dogen) says [that] in [Genjokoan](dogen#genjokoan), always says [that]. So that's why you don't understand it. So, lack of achievement. 
 
 **Question**: You'd rather keep doing... 
 
