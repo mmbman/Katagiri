@@ -1,7 +1,5 @@
 These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/). You can read these transcripts while listening to the audio recordings, which are referenced in each talk. 
 
-This is an ongoing project. I am currently updating the talks I’ve already transcribed, and adding a glossary and various indices. After that I will get back to transcribing talks.
-
 # Dharma Talks in Chronological Order
 
 *ellipses (...) indicate a stretch of talks not yet transcribed*
@@ -63,6 +61,8 @@ This is an ongoing project. I am currently updating the talks I’ve already tra
 - [Glossary](glossary) - in progress.
 - [Blue Cliff Record Index](BCR) - in progress.
 - [Shobogenzo Index](shobogenzo) - in progress
+
+This is an ongoing project. I am currently updating the talks I’ve already transcribed, and adding a glossary and various indices. After that I will get back to transcribing talks.
 
 These talks are transcribed by [Kikan Mike Howard](mailto:michaelhoward@mac.com)
 
