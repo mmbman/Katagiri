@@ -5,6 +5,7 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 *The talks are listed in chronological order. Ellipses (...) indicate a stretch of talks not yet transcribed.*
 
 1. [Diamond Sutra – Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
+
 1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
 1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
 1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)

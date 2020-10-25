@@ -311,7 +311,14 @@ See [shunyata](glossary#shunyata).
 
 ## Four Dharma Seals
 
-The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering), [no-self](no-self), and [nirvana](no-self). It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
+The Four Dharma Seals are:
+
+- [impermanence](#impermanence)
+- [suffering](#suffering)
+- [no-self](no-self)
+- [nirvana](nirvana)
+
+It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
 - [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
 

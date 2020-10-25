@@ -11,7 +11,7 @@ This is an index to where references to [Dogen](glossary#dogen)’s works appear
 
 ## Fukanzazengi
 
-Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing [zazen](#zazen) in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshins).
+Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing [zazen](glossary#zazen) in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
 - [Fukanzazengi – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
 - [Fukanzazengi – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
@@ -40,7 +40,7 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 - [Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 
 - [Fukanzazengi – Lecture 2 (1:20:50)](1979-06-10-Fukanzazengi-Lecture2#12050)
-- [Fukanzazengi – Lecture 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6# 2701)
+- [Fukanzazengi – Lecture 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6#2701)
 
 -------
 
