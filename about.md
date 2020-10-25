@@ -4,7 +4,7 @@ I’ve transcribed these talks from audio recordings in the online [Dainin Katag
 
 For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/). 
 
-The talks seem to be a treasure trove of dharma, most of which cannot be found in the four books that have been compiled from the talks. The transcripts can make it a lot easier to understand what Katagiri Roshi is saying. 
+The talks seem to be a treasure trove of dharma material, most of which cannot be found in the four books that have been compiled from the talks. The transcripts can make it a lot easier to understand what Katagiri Roshi is saying. 
 
 Each talk requires many hours to properly transcribe. That said, there may still be inaccuracies.
 
