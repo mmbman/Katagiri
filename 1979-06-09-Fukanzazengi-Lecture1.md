@@ -195,9 +195,9 @@ So, very simple task. And then, at that time, if you offer yourself, and then af
 
 ##### 56:36
 
-So, there are three important [points]: samadhi, and [egolessness](glossary#egolessness), and no design on becoming [Buddha](glossary#buddha) , no design of expecting reward. [Those] three points are very important. 
+So, there are three important [points]:  [samadhi](glossary#samadhi), and [egolessness](glossary#egolessness), and no design on becoming [Buddha](glossary#buddha) , no design of expecting reward. [Those] three points are very important. 
 
-[Egolessness](glossary#egolessness). That property, that is to regulate the mind. How to regulate the mind? Well, egolessness. How to practice? Egolessness. Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen) . How can you do that? By the help of samadhi, one-pointedness. With wholeheartedness, you can do it, very naturally. 
+[Egolessness](glossary#egolessness). That property, that is to regulate the mind. How to regulate the mind? Well, egolessness. How to practice? Egolessness. Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen) . How can you do that? By the help of  [samadhi](glossary#samadhi), one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
 ##### 57:37
 
@@ -205,7 +205,7 @@ If you really want to accomplish one thing which you want to do, you have to cut
 
 ##### 58:35
 
-This is [a] very natural attitude to our life. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice samadhi. Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
+This is [a] very natural attitude to our life. That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice  [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
 
 ##### 1:00:05
 
@@ -213,7 +213,7 @@ Simplify, unify; that is what is called harmonious. Or regulating; we use the te
 
 ##### 1:00:58
 
-And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice samadhi, you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
+And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
 
 And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
 
@@ -225,7 +225,7 @@ First, belief. That is faith. Faith is total acceptance that [your] original, to
 
 ##### 1:03:18
 
-And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). How can you experience enlightenment? Well first, practice of [egolessness](glossary#egolessness). How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is still no design on expecting any reward. Just do it. That is [shikantaza](shikantaza) .
+And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). How can you experience enlightenment? Well first, practice of [egolessness](glossary#egolessness). How can you practice egolessness?  [Samadhi](glossary#samadhi); one-pointedness. And then, just do it. And then if you just do it, there is still no design on expecting any reward. Just do it. That is [shikantaza](shikantaza) .
 
 That is really helpful. That is really [a] way of helping the people: offering your merit, merit of your practice, to all sentient beings. But according to [a] narrow understanding of human life, first you really cut off your weeds, the root of your weeds. And you want to be happy. That's nice; but it is [a] narrow understanding, because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere.
 

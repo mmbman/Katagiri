@@ -1,10 +1,10 @@
-# Shobogenzo
+# Dogen Reference Index
 
 [Home](index.md)
 
-Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Eihei Dogen](#eihei-dogen) – his most well-known work.
+This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 
-This is an index to where fascicles from Shobogenzo appear in [Katagiri Roshi's](glossary#katagiri) talks. **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
+**Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
 
 -------
 
@@ -24,7 +24,13 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 -------
 
-## Genjokoan
+## Shobogenzo
+
+Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Eihei Dogen](#eihei-dogen) – his most well-known work.
+
+-------
+
+### Genjokoan
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in Shobogenzo. Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
@@ -37,13 +43,15 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 -------
 
-## One Bright Pearl
+### One Bright Pearl
+
+Japanese: Ikka myōju – 顆明珠
 
 - [Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5.md#0)
 
 -------
 
-## Life and Death
+### Life and Death
 
 Japanese: Shōji
 
@@ -51,5 +59,21 @@ Japanese: Shōji
 
 -------
 
+## Eihei Koroku
+
+Eihei Koroku is a collection of [Dogen](glossary#dogen) [Zenji](glossary#zenji)’s Dharma Hall Discourses (short dharma talks).
+
+There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
+
+The titles for these discourses are taken from “Dōgen’s Extensive Record: A Translation of the Eihei Kōroku” by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dogen, but are useful for reference.
+
+-------
+
+<a name="ek-372"></a>
+### Dharma Discourse 372: “Undisturbed by Thunderclaps”
+
+- [Fukanzazengi – Lecture 7 (6:15-)](1979-06-15-Fukanzazengi-Lecture7#615)
+
+-------
 
 [Home](index.md)

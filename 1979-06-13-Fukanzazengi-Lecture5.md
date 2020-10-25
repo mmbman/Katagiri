@@ -264,7 +264,7 @@ Is that okay? Okay.
 
 ##### 52:33
 
-**Question**: Roshi? What happens – It's been my experience a lot of times during sesshin, and other people have said this sort of thing too, that they'll be struggling along maybe for several periods, having a lot of pain. And then, apparently you slip into concentration with samadhi, and all of a sudden there's a period that's very nice, and time sort of disappears, and the pain disappears, and you're able to sit there very quietly. And I guess I can understand how from concentration, pain wouldn't bother you. But sometimes, the period ends, and it's time to straighten your legs out, and your legs aren't even stiff. You know, it's as though I wasn't sitting at all. It's as though something changed in my body. I don't understand; it seems like the muscles should still be sore afterwards, but sometimes they're not. It's as though that period of [zazen](glossary#zazen) didn't even exist. Can you explain what happens, or... can you explain that at all? 
+**Question**: Roshi? What happens – It's been my experience a lot of times during sesshin, and other people have said this sort of thing too, that they'll be struggling along maybe for several periods, having a lot of pain. And then, apparently you slip into concentration with  [samadhi](glossary#samadhi), and all of a sudden there's a period that's very nice, and time sort of disappears, and the pain disappears, and you're able to sit there very quietly. And I guess I can understand how from concentration, pain wouldn't bother you. But sometimes, the period ends, and it's time to straighten your legs out, and your legs aren't even stiff. You know, it's as though I wasn't sitting at all. It's as though something changed in my body. I don't understand; it seems like the muscles should still be sore afterwards, but sometimes they're not. It's as though that period of [zazen](glossary#zazen) didn't even exist. Can you explain what happens, or... can you explain that at all? 
 
 **Katagiri**: There are things, I have told you before, [there are] lots of pictures you can see after doing [zazen](glossary#zazen). Do you understand that point? 
 
@@ -296,7 +296,7 @@ We get use [out] of looking at the before striking and after striking – that i
 
 ##### 56:44
 
-**Same person**: Well, it's a complicated kind of question. Okay, say you're sitting in samadhi, so you don't have any pain. But say you sit there for two hours without moving.
+**Same person**: Well, it's a complicated kind of question. Okay, say you're sitting in  [samadhi](glossary#samadhi), so you don't have any pain. But say you sit there for two hours without moving.
 
 **Katagiri**: *[he laughs]* Don't cheat. 
 
@@ -310,7 +310,7 @@ Okay, go on.
 
 ##### 58:05
 
-**Same person**: Well, that's... It's a complicated question, I don't want to take up the whole discussion trying to pursue it, but... Let's say the man who strikes his toe. Say, at the moment he strikes his toe, he's totally involved in the striking, so there's no subject and no object, there's no person there striking the toe. And so he doesn't feel any pain, okay? But how about an outside observer? Wouldn't an outside observer still see the man striking the toe, the damage he's done to the toe, and the blood and everything. It's as though, say, if you've entered samadhi, the world disappears. Well it disappears for me, because I'm in samadhi – but how about an outside observer?
+**Same person**: Well, that's... It's a complicated question, I don't want to take up the whole discussion trying to pursue it, but... Let's say the man who strikes his toe. Say, at the moment he strikes his toe, he's totally involved in the striking, so there's no subject and no object, there's no person there striking the toe. And so he doesn't feel any pain, okay? But how about an outside observer? Wouldn't an outside observer still see the man striking the toe, the damage he's done to the toe, and the blood and everything. It's as though, say, if you've entered  [samadhi](glossary#samadhi), the world disappears. Well it disappears for me, because I'm in samadhi – but how about an outside observer?
 
 **Katagiri**: *[laughs loudly]*
 
@@ -322,7 +322,7 @@ It is true. Don't you think so?
 
 If [Gensha](glossary#gensha-shibi) [Zen Master](glossary#zen-master) disappears – you understand no subject, no object, right in the middle of striking toes – at that time, there is no outsider looking at the ... rock, because all [the] universe [is]  unified in [it]. And then that is a certain occurrence. That's why no [suffering](glossary#suffering), no pain – just there. 
 
-**Same person**: But what if I'm in my room sitting [zazen](glossary#zazen), and I'm in samadhi, and so the universe disappears for me. But somebody walks up to my room. You know, to me, nothing is happening, but they'd be seeing me sitting on a cushion. I've never been able to straighten that out, you know, what...
+**Same person**: But what if I'm in my room sitting [zazen](glossary#zazen), and I'm in  [samadhi](glossary#samadhi), and so the universe disappears for me. But somebody walks up to my room. You know, to me, nothing is happening, but they'd be seeing me sitting on a cushion. I've never been able to straighten that out, you know, what...
 
 **Katagiri**: Well if you see that somebody walking up to your room, it's already something that is special, extra. Because you can see, you are looking at you and your rooms and [that] somebody in the time process: before [zazen](glossary#zazen), after zazen. That's all. That's why you can see somebody walking in the room. And then it makes you confused. 
 

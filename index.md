@@ -40,8 +40,8 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 	... 
 
 - [Glossary](glossary)
-- [Blue Cliff Record Index](BCR)
-- [Shobogenzo Index](shobogenzo)
+- [Dogen Reference Index](dogen)
+- [Blue Cliff Record Reference Index](BCR)
 
 -------
 

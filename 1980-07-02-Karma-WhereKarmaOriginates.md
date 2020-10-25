@@ -9,7 +9,7 @@
 <a name="000"></a>
 ##### 0:00 start of recording 
 
-I talked, in the first early morning [zazen](glossary#zazen), I said, “to deport oneself in samadhi.” I have to correct this term: “to deport,” not “deport.” (Sounds like the same word.) That’s why, maybe I explained after that, “playing freely.” That is deport. Okay?
+I talked, in the first early morning [zazen](glossary#zazen), I said, “to deport oneself in  [samadhi](glossary#samadhi).” I have to correct this term: “to deport,” not “deport.” (Sounds like the same word.) That’s why, maybe I explained after that, “playing freely.” That is deport. Okay?
 
 Today, I would like to explain what part of one’s life karma occupies. What part of one’s life does karma occupy. This is pretty difficult to explain, but anyway, let’s return to twelve chain causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
 
@@ -149,7 +149,7 @@ So, at first stage, you really understand how stupid you are. And at the second 
 
 ##### 52:12
 
-So, no joyful interest, then just happiness there. Just happiness means exactly samadhi itself. Samadhi is oneness. And then actual fourth stage of [zazen](glossary#zazen): completely there is no happiness, because there is no space to touch the happiness. If you touch the happiness, it means you see the happiness here, and you are here. Then this person looks at this happiness. At that time, this happiness is not real happiness. That is image of happiness; don’t you think so? That’s where you touch it, just like this. And then you enjoy very much; but at that time, while you are touching this happiness, that means that your six consciousnesses still poking your head into this. That’s not happiness; that is joyful interest. 
+So, no joyful interest, then just happiness there. Just happiness means exactly  [samadhi](glossary#samadhi) itself. Samadhi is oneness. And then actual fourth stage of [zazen](glossary#zazen): completely there is no happiness, because there is no space to touch the happiness. If you touch the happiness, it means you see the happiness here, and you are here. Then this person looks at this happiness. At that time, this happiness is not real happiness. That is image of happiness; don’t you think so? That’s where you touch it, just like this. And then you enjoy very much; but at that time, while you are touching this happiness, that means that your six consciousnesses still poking your head into this. That’s not happiness; that is joyful interest. 
 
 So if you see happiness after the first stage of [zazen](glossary#zazen)… completely, after the (fourth) stage of zazen, no happiness, no trace of happiness. Just one. At that time, you don’t know. This is what is called [enlightenment](glossary#enlightenment). But enlightenment, most people think enlightenment is still sort of dregs; trace left behind your experience. That means already always touching, top of the enlightenment, but this is just the image of enlightenment. Real enlightenment is no trace. That is zazen. And then, when you’re really one, when you really return home like this, exactly you be one. In the realm of (the) source, what is called karma. And then, you can see karma, what karma is. It’s real. You can touch it.
 

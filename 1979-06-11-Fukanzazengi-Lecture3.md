@@ -155,7 +155,7 @@ So, [the] point is, that we sew a good seed. We sew a good time and occasion, an
 
 *[tape change]*
 
-... through regulation of body, and regulation of breath. That is what is called samadhi, perfect samadhi. Often at that time, there is no chance to insert design of becoming [Buddha](glossary#buddha) or having rewards. So, [it is] very pure. There is something left, which is called intrinsic value of pure human activity. Just do. That is total personality. Psychologically speaking, that is total personality.
+... through regulation of body, and regulation of breath. That is what is called  [samadhi](glossary#samadhi), perfect samadhi. Often at that time, there is no chance to insert design of becoming [Buddha](glossary#buddha) or having rewards. So, [it is] very pure. There is something left, which is called intrinsic value of pure human activity. Just do. That is total personality. Psychologically speaking, that is total personality.
 
 ##### 47:10
 

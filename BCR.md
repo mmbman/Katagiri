@@ -1,4 +1,4 @@
-# The Blue Cliff Record
+# Blue Cliff Record Reference Index
 
 [Home](index.md)
 

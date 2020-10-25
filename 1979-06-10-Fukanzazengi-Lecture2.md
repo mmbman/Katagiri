@@ -89,25 +89,25 @@ That [egolessness](glossary#egolessness) is something you can manifest, itself, 
 
 ##### 19:10
 
-So by the help of samadhi, you can really practice [egolessness](glossary#egolessness). So, samadhi is what? Samadhi is completely flow; regulation of the body, regulation of breath. Anyway, for offering your body and mind to the body and to the breath. And then at that time, you can experience samadhi. By the experience [of] samadhi, you can express, you can practice egolessness. That is regulation of the mind. 
+So by the help of  [samadhi](glossary#samadhi), you can really practice [egolessness](glossary#egolessness). So, samadhi is what? Samadhi is completely flow; regulation of the body, regulation of breath. Anyway, for offering your body and mind to the body and to the breath. And then at that time, you can experience samadhi. By the experience [of] samadhi, you can express, you can practice egolessness. That is regulation of the mind. 
 
 That means *[he writes on the board]* no plan of having reward.
 
 ##### 20:16
 
-If you concentrate on body and breath, that is samadhi. By the help of samadhi, there is [the] practice of [egolessness](glossary#egolessness). But that is not enough. So, egolessness must be something which we have to *actualize*, every day, moment after moment. 
+If you concentrate on body and breath, that is  [samadhi](glossary#samadhi). By the help of samadhi, there is [the] practice of [egolessness](glossary#egolessness). But that is not enough. So, egolessness must be something which we have to *actualize*, every day, moment after moment. 
 
-So when you see the breath: long breath, you should take your long breath. Short breath, you should take care of short breath. So really samadhi, practice continuation of samadhi. At that time, there is practice of [egolessness](glossary#egolessness). That egolessness is what is called having no design of having reward. Finally, something is left. That something is just activity. Just activity. That is called shikantaza. 
+So when you see the breath: long breath, you should take your long breath. Short breath, you should take care of short breath. So really  [samadhi](glossary#samadhi), practice continuation of samadhi. At that time, there is practice of [egolessness](glossary#egolessness). That egolessness is what is called having no design of having reward. Finally, something is left. That something is just activity. Just activity. That is called shikantaza. 
 
 ##### 21:39
 
-So, this regulation of the mind doesn't connect with this. Of course, it connects, because this is regulation of the mind, it is really close relation with number three, regulation of the body. The body and mind are one; so that's why it's very close. But if you completely practice the regulation of the mind based on samadhi and [egolessness](glossary#egolessness), and no design on having any reward – at that time, you don't know. You cannot perceive what total personality is. What is it that [Buddha Nature](glossary#buddha-nature) is? You can see it. But you don't know what it is.
+So, this regulation of the mind doesn't connect with this. Of course, it connects, because this is regulation of the mind, it is really close relation with number three, regulation of the body. The body and mind are one; so that's why it's very close. But if you completely practice the regulation of the mind based on  [samadhi](glossary#samadhi) and [egolessness](glossary#egolessness), and no design on having any reward – at that time, you don't know. You cannot perceive what total personality is. What is it that [Buddha Nature](glossary#buddha-nature) is? You can see it. But you don't know what it is.
 
 So ... it doesn't connect. In a sense it connects; but it doesn't connect totally. So you don't know what it is.
 
 ##### 22:51
 
-Usually, there is always some attachment. "[Zazen](glossary#zazen) is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says [it] in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. That's always [said so?]. So, "[By] regulation of the body [and] regulation of the breath, you can preserve health, physical and mental health." That is, zazen is seen as a means. But according to shikantaza, there is no ... [sense?] which is called "for the sake of". "If you do zazen, you will be healthy, or mentally, or psychologically, or physically" – nothing to say. So all you have to do is, completely ... practice samadhi, through the regulation of the body, through the regulation of the breath. And then at that time, there must be [the] practice of [egolessness](glossary#egolessness), based on no design on having any reward. So that's why finally there is something left, which is called actual practice. Activity. That's all. 
+Usually, there is always some attachment. "[Zazen](glossary#zazen) is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says [it] in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. That's always [said so?]. So, "[By] regulation of the body [and] regulation of the breath, you can preserve health, physical and mental health." That is, zazen is seen as a means. But according to shikantaza, there is no ... [sense?] which is called "for the sake of". "If you do zazen, you will be healthy, or mentally, or psychologically, or physically" – nothing to say. So all you have to do is, completely ... practice  [samadhi](glossary#samadhi), through the regulation of the body, through the regulation of the breath. And then at that time, there must be [the] practice of [egolessness](glossary#egolessness), based on no design on having any reward. So that's why finally there is something left, which is called actual practice. Activity. That's all. 
 
 This is [shikantaza](glossary#shikantaza). Shikan taza. *[he writes it on the board]*
 
@@ -115,7 +115,7 @@ This is [shikantaza](glossary#shikantaza). Shikan taza. *[he writes it on the bo
 
 That is really [Buddha](glossary#buddha)'s [zazen](glossary#zazen). As a religion – not philosophical, not psychological. That [shikantaza](glossary#shikantaza) is Buddha's zazen, religious zazen. "Taza" is just to hit, right in the middle of [the] head, of zazen. Completely beyond ... whether you can know or you can't know, it's completely beyond. You have to hit [it]. That is just the practice. "Taza" is just do it, *actually you have to do* [it], right now. That's it. 
 
-So, that is shikantaza. "Shikan" is [egolessness](glossary#egolessness), or samadhi. If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; [a] mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[unintelligible]* we have to practice samadhi in [zazen](glossary#zazen). 
+So, that is shikantaza. "Shikan" is [egolessness](glossary#egolessness), or  [samadhi](glossary#samadhi). If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; [a] mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[unintelligible]* we have to practice samadhi in [zazen](glossary#zazen). 
 
 Okay?
 
@@ -215,7 +215,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 ##### 45:45
 
-**Question**: Roshi? It seems like that adjustment constantly in the direction of samadhi, constantly making that adjustment... But how do you...
+**Question**: Roshi? It seems like that adjustment constantly in the direction of  [samadhi](glossary#samadhi), constantly making that adjustment... But how do you...
 
 **Katagiri**: Well, maybe it depends on the individual. Maybe so. But, constantly adjusting, adjusting what's wrong, *[unintelligible]*. Just adjustments. But if you adjust and you say, "Oh, constantly I have to adjust," is there something wrong? 
 
@@ -419,21 +419,21 @@ I don't know other teachers, so, I just follow the, well, [Buddhistic](glossary#
 
 **Same person**: What does [samadhi](glossary#samadhi) mean?
 
-**Katagiri**: Samadhi is one-pointedness. To take care of. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
+**Katagiri**:  [Samadhi](glossary#samadhi) is one-pointedness. To take care of. [Dogen](glossary#dogen) [Zenji](glossary#zenji) says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
 
 ##### 1:13:17
 
 **Same person**: Is there an arrow going from breath to [samadhi](glossary#samadhi)?
 
-**Katagiri**: Samadhi is the regulation of the body through the regulation of the breath. You can practice [it]. Okay? You can practice samadhi. But that samadhi should be practiced with mind too. That's why, by the help of samadhi, you can practice [egolessness](glossary#egolessness). That is because you have to practice samadhi with the mind too. But, [the] mind [is] always creating a certain kind of attachment. That's why, egolessness. 
+**Katagiri**:  [Samadhi](glossary#samadhi) is the regulation of the body through the regulation of the breath. You can practice [it]. Okay? You can practice samadhi. But that samadhi should be practiced with mind too. That's why, by the help of samadhi, you can practice [egolessness](glossary#egolessness). That is because you have to practice samadhi with the mind too. But, [the] mind [is] always creating a certain kind of attachment. That's why, egolessness. 
 
-Simultaneously, we do both body and mind. So you have to practice samadhi with body and mind. But with the body, it seems to be simple. Just to use the body, and just do it. Plunge into it; that's simple. But the moment when you plunge into it, [the] mind can see lots of things, and also [the] mind attaches to [them]. That's why, by the help of samadhi, we have to practice [egolessness](glossary#egolessness). If you really have real samadhi, very naturally, there is egolessness. That means offering completely yourself into your regulating of breath and mind.
+Simultaneously, we do both body and mind. So you have to practice  [samadhi](glossary#samadhi) with body and mind. But with the body, it seems to be simple. Just to use the body, and just do it. Plunge into it; that's simple. But the moment when you plunge into it, [the] mind can see lots of things, and also [the] mind attaches to [them]. That's why, by the help of samadhi, we have to practice [egolessness](glossary#egolessness). If you really have real samadhi, very naturally, there is egolessness. That means offering completely yourself into your regulating of breath and mind.
 
 And also, after doing that, there is still something we have to do: that is no design of having reward. 
 
 Is that clear?
 
-Because, mind is still very sticky. Mind is very sticky. When you concentrate, [when] you practice samadhi with body and mind, it seems to be very clear and simple. But still, mind is very sticky. Attaching to [think? stink?].
+Because, mind is still very sticky. Mind is very sticky. When you concentrate, [when] you practice  [samadhi](glossary#samadhi) with body and mind, it seems to be very clear and simple. But still, mind is very sticky. Attaching to [think? stink?].
 
 For instance, if I say "no design of having reward": "I did it." *[he laughs]* Immediately we say, "I got it! I am doing [zazen](glossary#zazen) in that way." 
 
