@@ -115,7 +115,7 @@ And next, our sensory system. We have a sensory system, but it's not necessary t
 
 That's why [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "A quiet room is suitable." Or, "Do not allow drafts of air to enter, or rain and frost to intrude." Or, "The place of sitting should be lighted, and kept from becoming dark at any time, day or night." "Eyes should be open, not too widely, nor too narrowly." This is how to make arrangement of sensory world. First of all, you should make a choice of circumstances. What kind of a room you have to use? Because you have six senses. You can see this room through your eyes. It gets really dark. If you paint this wall red, and green, and yellow – completely seems different, don't you think so? And also, if this room is too dark, it's not good; if this room is too bright, well, it distracts your mind, distracts the sense of seeing, vision. And also, if you choose the location of the room which is very noisy, a very noisy location, at that time it really distracts the sense of hearing. So the important point is, "A quiet room is suitable." And also, "Not too dark, not too bright, at any time, day or night." 
 
-> ("Do not allow drafts of air to enter," etc. is from the "Zazengi" chapter of [Shobogenzo](shobogenzo), which is distinct from Fukan zazengi. See [this antaiji.org link](https://antaiji.org/en/classics/zazengi/), or ["The Heart of Dogen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf), etc.) 
+("Do not allow drafts of air to enter," etc. is from the [Zazengi](dogen#zazengi) chapter of [Shobogenzo](dogen#shobogenzo), which is distinct from [Fukan zazengi](dogen#fukanzazengi).)
 
 So that is how to make arrangement of sensory world, instead of destroying, escaping from, or expressing hatred toward sensory world. You should do this.
 
@@ -141,7 +141,7 @@ So, your heart, your lungs, and your stomach, your intestines, hormone system, a
 
 Next, the brain-nerve system. According to brain-nerve system, [Dogen](glossary#dogen) [Zenji](glossary#zenji) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha) ." 
 
-> (It looks like the translation Katagiri is using may be Norman Waddell's, as it says "administer pros and cons". See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf))
+(It looks like the translation Katagiri is using may be Norman Waddell's, as it says "administer pros and cons". See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf))
 
 That is [the] brain-nerve system. According to brain-nerve system, we have to regulate mind. Mind is characterized by attachment; attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind...
 

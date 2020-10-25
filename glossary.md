@@ -247,11 +247,14 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](dogen#shobogenzo). 
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
+- [Dogen Reference Index](dogen)
+
 - [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
+
 
 -------
 
@@ -318,7 +321,9 @@ The Four Dharma Seals are [impermanence](#impermanence), [suffering](#suffering)
 
 ## Fukanzazengi
 
-See [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
+[Dogen](glossary#dogen)'s “Universal Recommendation for Zazen”
+
+See [Dogen Reference Index: Fukanzazengi](dogen#fukanzazengi)
 
 -------
 
@@ -334,7 +339,7 @@ See [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
 
 ## Genjokoan
 
-See [Shobogenzo Index: Genjokoan](shobogenzo#genjokoan).
+See [Dogen Reference Index: Genjokoan](dogen#genjokoan)
 
 -------
 
@@ -701,7 +706,9 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 
 ## Shobogenzo
 
-See the [Shobogenzo Index](shobogenzo).
+"Treasury of the True Dharma Eye": the main collection of Dogen's works. 
+
+See [Dogen Reference Index: Shobogenzo](dogen#shobogenzo)
 
 -------
 
@@ -821,7 +828,7 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 
 "Seated meditation"
 
-For detailed guidance on how to practice zazen, see [Shobogenzo Index: Fukanzazengi](shobogenzo#fukanzazengi).
+For detailed guidance on how to practice zazen, see [Dogen Reference Index: Fukanzazengi](dogen#fukanzazengi).
 
 -------
 

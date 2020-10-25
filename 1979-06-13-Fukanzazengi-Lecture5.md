@@ -9,13 +9,13 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than Gensha Shibi. This story occurs in the [Shobogenzo](shobogenzo) [in the fascicle] ["The One Bright Pearl"](shobogenzo#one-bright-pearl); you can find this story there.
+There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to *[there is some revision of the year of death, and laughter]* 908. And he practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was 12-15 years older than Gensha Shibi. This story occurs in the [Shobogenzo](dogen#shobogenzo) [in the fascicle] ["The One Bright Pearl"](dogen#one-bright-pearl); you can find this story there.
 
 [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. Probably you may know the stories: He everyday went fishing with his father. One day, his father fell into the ocean, off the boat, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. So at that time, immediately he attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that. 
 
 ##### 2:26
 
-Then, in history, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) practiced under the guidance of [Seppō](glossary#seppō-gison), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to [Shobogenzo](shobogenzo), alluded to by [Dogen](glossary#dogen) ... he finally went to Seppō mountain and placed himself under the guidance of 
+Then, in history, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) practiced under the guidance of [Seppō](glossary#seppō-gison), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to [Shobogenzo](dogen#shobogenzo), alluded to by [Dogen](glossary#dogen) ... he finally went to Seppō mountain and placed himself under the guidance of 
 Shinkaku – that [is] another name of [Seppō](glossary#seppō) [Zen Master](glossary#zen-master) – practicing day and night.
 
 One day, to visit masters widely in other areas and perfect his practice, he took up his traveling pouch and was leaving the mountain. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails of his toes. Immediately, of course, blood appears, and he screams, "Ouch!" And then, amidst the intense pain, he had an abrupt self-realization, saying, "This body doesn't exist. Where is the pain coming from?" And he returned immediately to [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master).

@@ -33,7 +33,7 @@ Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Ei
 
 ### Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in Shobogenzo. Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
 - [Shobogenzo: Genjokoan – Lecture 1 Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 - [Shobogenzo: Genjokoan – Lecture 1 Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
@@ -41,6 +41,12 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 - [Fukanzazengi – Lecture 2 (1:20:50)](1979-06-10-Fukanzazengi-Lecture2#12050)
 - [Fukanzazengi – Lecture 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6# 2701)
+
+-------
+
+### Prajnaparamita
+
+- [Fukanzazengi – Lecture 6 (1:16:36)](1979-06-14-Fukanzazengi-Lecture6#11636)
 
 -------
 
@@ -57,6 +63,15 @@ Japanese: Ikka myōju – 顆明珠
 Japanese: Shōji
 
 - [Blue Cliff Record Case 2 Lecture 1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
+
+### Zazengi
+
+This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
+
+
+
+- [antaiji.org: Zazengi text](https://antaiji.org/en/classics/zazengi/)
+- [terebess.hu: "The Heart of Dogen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf) 
 
 -------
 
