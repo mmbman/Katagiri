@@ -64,11 +64,13 @@ Japanese: Shōji
 
 - [Blue Cliff Record – Case 2 – Lecture 1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
 
+-------
+
 ### Zazengi
 
 This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 
-
+[Fukanzazengi – Lecture 1 (36:23)](1979-06-09-Fukanzazengi-Lecture1#3623)
 
 - [antaiji.org: Zazengi text](https://antaiji.org/en/classics/zazengi/)
 - [terebess.hu: "The Heart of Dogen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf) 
