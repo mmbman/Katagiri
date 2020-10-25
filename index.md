@@ -39,9 +39,9 @@ These transcripts are compiled from talks in [The Dainin Katagiri Audio Archive]
 	
 	... 
 
-- [Glossary](glossary)
-- [Dogen Reference Index](dogen)
-- [Blue Cliff Record Reference Index](BCR)
+- [Glossary](glossary#0)
+- [Dogen Reference Index](dogen#0)
+- [Blue Cliff Record Reference Index](BCR#0)
 
 -------
 
