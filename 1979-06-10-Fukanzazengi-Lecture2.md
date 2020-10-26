@@ -2,7 +2,7 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2
 ## June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#fukanzazengi-lecture-2)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790610.mp3)
 
@@ -551,4 +551,4 @@ That's why that is number six: total personality. Let's be there.
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
 
-[Home](index.md)
+[Home](index#fukanzazengi-lecture-2)

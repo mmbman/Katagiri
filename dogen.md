@@ -1,7 +1,7 @@
 <a name="0"></a>
 # Dogen Reference Index
 
-[Home](index.md)
+[Home](index#dogen)
 
 This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 
@@ -62,7 +62,7 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 Japanese: Ikka myōju – 顆明珠
 
-- [Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5.md#0)
+- [Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 -------
 
@@ -100,4 +100,4 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 
 -------
 
-[Home](index.md)
+[Home](index#dogen)

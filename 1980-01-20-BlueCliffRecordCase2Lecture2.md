@@ -2,7 +2,7 @@
 # Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2
 ## January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#blue-cliff-record-case-2-lecture-2)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800120.mp3)
 
@@ -218,4 +218,4 @@ Commentary is... Engo’s commentary is pretty nice. So, if you have time to rea
 
 Okay.
 
-[Home](index.md)
+[Home](index#blue-cliff-record-case-2-lecture-2)

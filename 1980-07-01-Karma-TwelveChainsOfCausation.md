@@ -2,7 +2,7 @@
 # Karma: Twelve Chains of Causation
 ## July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#karma-twelve-chains-of-causation)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
 
@@ -20,4 +20,4 @@ So before time and space is completely normal sense of ignorance. This is birth 
 
 [Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
 
-[Home](index.md)
+[Home](index#karma-twelve-chains-of-causation)

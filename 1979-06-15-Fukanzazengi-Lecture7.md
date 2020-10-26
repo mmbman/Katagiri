@@ -2,7 +2,7 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#fukanzazengi-lecture-7)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790615.mp3)
 
@@ -169,4 +169,4 @@ That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who
 
 [Next Talk: Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 
-[Home](index.md)
+[Home](index#fukanzazengi-lecture-7)

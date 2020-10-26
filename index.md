@@ -54,7 +54,7 @@
 
 1. <a name="genjokoan-lecture-2"></a>[Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 
-1. <a name="manas-spontaneous-perpetual-homogeneous"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
+1. <a name="manas"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
 
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 	

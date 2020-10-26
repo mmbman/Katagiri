@@ -2,7 +2,7 @@
 # Diamond Sutra: Introduction
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#diamond-sutra-introduction)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
@@ -227,4 +227,4 @@ That's why we have to continue to sit. I don't know why. *[he chuckles]* But you
 
 [Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
 
-[Home](index.md)
+[Home](index#diamond-sutra-introduction)

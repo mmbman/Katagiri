@@ -2,7 +2,7 @@
 # A, B, and C Worlds
 ## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#a-b-and-c-worlds)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
 
@@ -111,4 +111,4 @@ But practically speaking, for instance, if you want to master downhill skiing, a
 
 ##### end of recording
 
-[Home](index.md)
+[Home](index#a-b-and-c-worlds)

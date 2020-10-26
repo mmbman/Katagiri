@@ -1,7 +1,7 @@
 <a name="0"></a>
 # Glossary
 
-[Home](index.md)
+[Home](index#glossary)
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
@@ -370,7 +370,7 @@ also "Mendicant Pei"<br>
 
 Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
-- [Fukanzazengi – Lecture 5.md](1979-06-13-Fukanzazengi-Lecture5#0)
+- [Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 -------
 
@@ -911,4 +911,4 @@ Japanese word meaning "Zen Master ". E.g., [Dogen Zenji](#dogen).
 
 -------
 
-[Home](index.md)
+[Home](index#glossary)

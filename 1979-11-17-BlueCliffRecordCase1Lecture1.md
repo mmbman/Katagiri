@@ -2,7 +2,7 @@
 # Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1
 ## November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#blue-cliff-record-case-1-lecture-1)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791117.mp3)
 
@@ -143,6 +143,6 @@ Sometimes [with] trailing vines, there is something interrupted, so trees someti
 
 ##### 53:44 end of recording
 
-[Next Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2.md)
+[Next Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2)
 
-[Home](index.md)
+[Home](index#blue-cliff-record-case-1-lecture-1)

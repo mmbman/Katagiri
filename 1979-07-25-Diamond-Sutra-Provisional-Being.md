@@ -2,7 +2,7 @@
 # Diamond Sutra: Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#diamond-sutra-provisional-being)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790725.mp3)
 
@@ -273,4 +273,4 @@ Finally, self is broad, but what is that? I cannot explain. But, it's there. It'
 
 [Next Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 
-[Home](index.md)
+[Home](index#diamond-sutra-provisional-being)

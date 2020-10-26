@@ -2,7 +2,7 @@
 # Diamond Sutra: Dharma / Not Dharma / Dharma
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#diamond-sutra-dharma-not-dharma-dharma)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3)
 
@@ -213,6 +213,6 @@ So you must be free from [the] [enlightenment](glossary#enlightenment) that you 
 
 ##### 58:56 end of recording
 
-[Next Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1.md#0)
+[Next Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 
-[Home](index.md)
+[Home](index#diamond-sutra-dharma-not-dharma-dharma)

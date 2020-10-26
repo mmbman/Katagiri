@@ -2,7 +2,7 @@
 # Shobogenzo: Genjokoan – Lecture 2
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index.md)
+[Home](index#genjokoan-lecture-2)
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
 
@@ -380,4 +380,4 @@ That's spiritual teacher. If you become a spiritual teacher, you must be like th
 
 [Next Talk: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
-[Home](index.md)
+[Home](index#genjokoan-lecture-2)
