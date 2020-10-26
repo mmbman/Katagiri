@@ -12,9 +12,9 @@ Pattern Name | Search Pattern | Replace Pattern
 occurrences					|	`(?<!#|\]\()\b(zazen)\b`	|	`[\1](glossary#zazen)`
 first occurrences			|	`(?<!#|\]\()\b(zazen)\b(.*)`	| `[\1](glossary#zazen)\2`
 unlinked occurrences:	|	`(?<![\[#-])\b(zazen)\b(?![\]-])`	|	`[\1](glossary#zazen)`
-links by text:				|	`\[(zazen)\]\(.*?\)`			|	`\1`
-links by reference:		|	`\[([^\[\]\(\)\n]*?)\]\(glossary#zazen\)`		|	`\1`
-all links: 						|	`\[[^\]\n]*\]\([^\)\n]*\)`		|
-all non-link brackets:	|	`\[[^\]\n]*\](?!\()`				|
-all brackets:					|	`\[(.*?)\](?=\(?)`				|
-all brackets 2:				|	`\[[^\]\n]*\]`					|
+links by text					|	`\[(zazen)\]\(.*?\)`			|	`\1`
+links by reference		|	`\[([^\[\]\(\)\n]*?)\]\(glossary#zazen\)`		|	`\1`
+all links 						|	`\[[^\]\n]*\]\([^\)\n]*\)`		|
+all non-link brackets	|	`\[[^\]\n]*\](?!\()`				|
+all brackets					|	`\[(.*?)\](?=\(?)`				|
+all brackets 2				|	`\[[^\]\n]*\]`					|
