@@ -15,4 +15,4 @@ If you need to contact me with comments or questions, email [Kikan Mike Howard](
 
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
-[Home](index.md)
+[Home](index.md#0)

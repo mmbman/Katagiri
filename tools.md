@@ -18,3 +18,6 @@ all links 						|	`\[[^\]\n]*\]\([^\)\n]*\)`		|
 all non-link brackets	|	`\[[^\]\n]*\](?!\()`				|
 all brackets					|	`\[(.*?)\](?=\(?)`				|
 all brackets 2				|	`\[[^\]\n]*\]`					|
+
+[Home](index.md)
+
