@@ -170,7 +170,7 @@ The monk ... when you discuss human life and human world, philosophical, psychol
 
 ##### 1:04:12
 
-Actually, intellectually, if you move from the top of the 100-foot high, you appear to die. But, you cannot stay there. If you stay, you are falling. If you go, you will burn out, whatever you think. It doesn’t make sense. Finally, what shall I do? Your reality is exactly on the verge of life and death. And then finally, what you’ll do: release, and forget yourself, and throw away yourself, into Buddha’s home. That means completely full concentration, with wholeheartedness. We have to deal with ... as it really is, before you pick and choose with your afflictive preferences. This is our practice. 
+Actually, intellectually, if you move from the top of the 100-foot high, you appear to die. But, you cannot stay there. If you stay, you are falling. If you go, you will burn out, whatever you think. It doesn’t make sense. Finally, what shall I do? Your reality is exactly on the verge of life and death. And then finally, what you’ll do: release, and forget yourself, and throw away yourself, into [Buddha](glossary#buddha)’s home. That means completely full concentration, with wholeheartedness. We have to deal with ... as it really is, before you pick and choose with your afflictive preferences. This is our practice. 
 
 ##### 1:05:20
 
@@ -178,7 +178,7 @@ Continually we have to do this, but still intellectual sense works every day, be
 
 ##### 1:06:30
 
-So, our reality is, exactly no choice, no escape. No getting into. Just like being present from the verge of life and death, on the top of a 100-feet high pole. From day to day, you cannot stay there, you cannot move away; what are you heading for? What should you do? No way; at that time, words completely drop off. Nothing to say. So, when the time comes to sleep, go and sleep. When the time comes to have breakfast, have breakfast. But this breakfast; to have breakfast is not something seen from the first stage. ... Having breakfast, seen from the third stage, deep understanding. And then at that time, you can handle the breakfast really with careful, compassionate generosity and attention. That is release and forget yourself, and throw away yourself into Buddha’s home. At that time, mountain(?) comes from, not from you, from Buddha’s world, truth. There’s no need (for) effort. Something helps you, anyway. At that time, many things ... work... even though you don’t realize. That is the best way to do it. 
+So, our reality is, exactly no choice, no escape. No getting into. Just like being present from the verge of life and death, on the top of a 100-feet high pole. From day to day, you cannot stay there, you cannot move away; what are you heading for? What should you do? No way; at that time, words completely drop off. Nothing to say. So, when the time comes to sleep, go and sleep. When the time comes to have breakfast, have breakfast. But this breakfast; to have breakfast is not something seen from the first stage. ... Having breakfast, seen from the third stage, deep understanding. And then at that time, you can handle the breakfast really with careful, compassionate generosity and attention. That is release and forget yourself, and throw away yourself into [Buddha](glossary#buddha)’s home. At that time, mountain(?) comes from, not from you, from Buddha’s world, truth. There’s no need (for) effort. Something helps you, anyway. At that time, many things ... work... even though you don’t realize. That is the best way to do it. 
 
 ##### 1:08:38
 

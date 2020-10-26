@@ -9,15 +9,15 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-> (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathagatas, Arhats, Fully Enlightened Ones, and from it have issued the Buddhas, the Lords. And why? For the Tathagata has taught that the dharmas special to the Buddhas are just not a Buddha's special dharmas. That is why they are called "the dharmas special to the Buddhas."
+> (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathagatas, Arhats, Fully Enlightened Ones, and from it have issued the Buddhas, the Lords. And why? For the Tathagata has taught that the dharmas special to the Buddhas are just not a [Buddha](glossary#buddha)'s special dharmas. That is why they are called "the dharmas special to the Buddhas."
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 34-35.)
 
 ##### 2:38
 
-I think you remember, the Buddha asked [Subhuti](glossary#subhuti) before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the [dharma](glossary#dharma)?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the [Buddha Shakyamuni](glossary#shakyamuni-buddha ) has experienced, no dharma which the Buddha Shakyamuni has preached." 
+I think you remember, the [Buddha](glossary#buddha) asked [Subhuti](glossary#subhuti) before, "If there is nothing special to experience and to preach, how does the Buddha experience and preach the [dharma](glossary#dharma)?" The Buddha said to Subhuti, "Is there a particular dharma he has enlightened, or is there a particular dharma he has preached?" So Subhuti says, "No dharma the [Buddha Shakyamuni](glossary#shakyamuni-buddha ) has experienced, no dharma which the Buddha Shakyamuni has preached." 
 
-If it is true, how does the Buddha experience and preach the [dharma](glossary#dharma)? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā).
+If it is true, how does the [Buddha](glossary#buddha) experience and preach the [dharma](glossary#dharma)? Chapter 8 is the answer to this question – according to the practice of the perfection of giving, one of the six [paramitas](https://en.wikipedia.org/wiki/Pāramitā).
 
 ##### 4:45
 
@@ -77,7 +77,7 @@ Those seven practices are the perfection of giving for a person who doesn't have
 
 ##### 18:06
 
-But strictly speaking, material gifts and dharma gifts are all on the same footing. For example, if material gifts are given to a person of a preacher's fiber(?), one can help him to study and practice the teachings and become a preacher. Material gifts of this kind are on an equal footing with dharma gifts, because in the future he will be a preacher to give the Buddha's teachings to people. Or, by dharma gifts one can regain ones footing from difficulties in one's life, and feel grateful for one's life, without wasting any kinds of materials. Dharma gifts of this sort are of the same value as material gifts. Even though one is very poor, even though one has just ... materials to live to the minimum, he can find happiness in such a situation, because he can listen to dharma teaching, teaching given by preachers and people. 
+But strictly speaking, material gifts and dharma gifts are all on the same footing. For example, if material gifts are given to a person of a preacher's fiber(?), one can help him to study and practice the teachings and become a preacher. Material gifts of this kind are on an equal footing with dharma gifts, because in the future he will be a preacher to give the [Buddha](glossary#buddha)'s teachings to people. Or, by dharma gifts one can regain ones footing from difficulties in one's life, and feel grateful for one's life, without wasting any kinds of materials. Dharma gifts of this sort are of the same value as material gifts. Even though one is very poor, even though one has just ... materials to live to the minimum, he can find happiness in such a situation, because he can listen to dharma teaching, teaching given by preachers and people. 
 
 ##### 20:24
 
@@ -87,7 +87,7 @@ But strictly speaking, material gifts and dharma gifts are all on the same footi
 
 But in Chapter 7 the sutra discriminates between material gifts and dharma gifts. Merit derived from dharma gifts is greater than merit of material gifts. So [Doctor Conze](glossary#edward-conze) says, 
 
-> Infinitely greater is the reward of those who teach the Dharma. Their spiritual welfare and stature will grow by leaps and bounds, and ultimately they will become fit to gain the Dharmabody of a fully enlightened Buddha. 
+> Infinitely greater is the reward of those who teach the Dharma. Their spiritual welfare and stature will grow by leaps and bounds, and ultimately they will become fit to gain the Dharmabody of a fully enlightened [Buddha](glossary#buddha). 
 
 That means the dharma gifts are the direct cause of leading people to reach spiritual welfare and stature – so-called [enlightenment](glossary#enlightenment), or dharma body. So in terms of givers and gifts themselves, there [is] no discrimination between the material gifts and dharma gifts, but in terms of the recipients, there is discrimination between the two. 
 
@@ -97,23 +97,23 @@ The dharma gifts are, I told you, direct cause of leading people to reach spirit
 
 In [Buddhism](glossary#buddhism), buddha body is divided into three. One is dharma body. The second is Nirmanakaya, nirmana body. The third is Sambhogakaya Buddha. Nirmanakaya Buddha, Sambhogakaya Buddha, and Dharmakaya Buddha.
 
-Dharmakaya Buddha means dharma body, or dharma itself, or the essential nature of dharmas. That is Buddha himself. That is [the] essential characteristic and character of the Buddha. So we call [the] essential nature of dharma the Buddha himself. That is called Dharmakaya Buddha. 
+Dharmakaya Buddha means dharma body, or dharma itself, or the essential nature of dharmas. That is [Buddha](glossary#buddha) himself. That is [the] essential characteristic and character of the Buddha. So we call [the] essential nature of dharma the Buddha himself. That is called Dharmakaya Buddha. 
 
-The second, Nirmanakaya Buddha, is a visible Buddha. [For] example, [Shakyamuni Buddha](glossary#shakyamuni-buddha ) who was born 2500 years ago in India as a human; this is Nirmanakaya Buddha. 
+The second, Nirmanakaya Buddha, is a visible [Buddha](glossary#buddha). [For] example, [Shakyamuni Buddha](glossary#shakyamuni-buddha ) who was born 2500 years ago in India as a human; this is Nirmanakaya Buddha. 
 
-The third, Sambhogakaya Buddha, that is ... we can reach at the stage of the Buddha as a result, through one's virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. (Katagiri says something like "virtual quality," but "virtual" has a different meaning than he probably intended, so I'm substituting "virtuous quality".)
+The third, Sambhogakaya Buddha, that is ... we can reach at the stage of the [Buddha](glossary#buddha) as a result, through one's virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. (Katagiri says something like "virtual quality," but "virtual" has a different meaning than he probably intended, so I'm substituting "virtuous quality".)
 
 ##### 26:35
 
-So, Dharmakaya Buddha – dharma itself, or [the] essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That's why the no-dharmas (are those) through which [Shakyamuni Buddha](glossary#shakyamuni-buddha ) has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as human tries to teach dharma itself, but that dharma explained by Shakyamuni as a human is no-dharma. It's not real dharma, because dharma is completely beyond human speculation. 
+So, Dharmakaya Buddha – dharma itself, or [the] essential nature of [Buddha](glossary#buddha) himself – is completely beyond human speculation. You cannot grasp it. That's why the no-dharmas (are those) through which [Shakyamuni Buddha](glossary#shakyamuni-buddha ) has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as human tries to teach dharma itself, but that dharma explained by Shakyamuni as a human is no-dharma. It's not real dharma, because dharma is completely beyond human speculation. 
 
-But on the other hand: Real dharma, dharma itself mentioned by, explained by Buddha, is no-dharma. That's why in [Diamond Sutra](glossary#diamond-sutra) [it] always says "Dharma is no-dharma. This is dharma." It's so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, where this body and mind as a human, the truth mentioned [or] explained by you is no-truth. It's far from real truth. 
+But on the other hand: Real dharma, dharma itself mentioned by, explained by [Buddha](glossary#buddha), is no-dharma. That's why in [Diamond Sutra](glossary#diamond-sutra) [it] always says "Dharma is no-dharma. This is dharma." It's so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, where this body and mind as a human, the truth mentioned [or] explained by you is no-truth. It's far from real truth. 
 
 ##### 28:55
 
-But if it is true, is there no way to teach? Shouldn't we teach the dharma? We have to teach, because there is Sambhogakaya Buddha, which means you can reach at the stage of Buddha by your own virtuous quality, which you have accumulated in the past. You have planted good seeds in the past; this is your body and mind which exists now as a result. This is your existence. That's why your existence is very valuable. 
+But if it is true, is there no way to teach? Shouldn't we teach the dharma? We have to teach, because there is Sambhogakaya Buddha, which means you can reach at the stage of [Buddha](glossary#buddha) by your own virtuous quality, which you have accumulated in the past. You have planted good seeds in the past; this is your body and mind which exists now as a result. This is your existence. That's why your existence is very valuable. 
 
-So, using this virtuous quality and practice, ... we can understand using our head: knowledge. [Just?] knowledge; then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means [that] real dharma, explained by human body, is completely no-dharma, not real dharma. There is already [a] contradictory structure [here]. But through no-dharma, there is dharma you can explain. [The] verbal explanation of dharma is no-dharma, not real dharma, but through [the] verbal explanation of dharma, you can reach real dharma. That's why [the] verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That's why words are important. This is Sambhogakaya. 
+So, using this virtuous quality and practice, ... we can understand using our head: knowledge. [Just?] knowledge; then we try to practice, and then we can reach the stage of [Buddha](glossary#buddha). That is Sambhogakaya Buddha. That means [that] real dharma, explained by human body, is completely no-dharma, not real dharma. There is already [a] contradictory structure [here]. But through no-dharma, there is dharma you can explain. [The] verbal explanation of dharma is no-dharma, not real dharma, but through [the] verbal explanation of dharma, you can reach real dharma. That's why [the] verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That's why words are important. This is Sambhogakaya. 
 
 ##### 31:42
 
@@ -125,7 +125,7 @@ Then we have to learn one by one; this is philosophy, psychology as a background
 
 ##### 34:05
 
-From this point, the real dharma is something which you cannot touch, or you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore [it], you try not to study or practice. So very naturally, no hope will be found in your life. But it is not a good way; because we are right in the middle of the truth, or dharma, or Buddha. Regardless of whether you don't like [it] or you are conscious of it or not, we are there. So, even though you try to ignore, you cannot ignore, because you are right in the middle of truth. So you have to realize where you are. 
+From this point, the real dharma is something which you cannot touch, or you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore [it], you try not to study or practice. So very naturally, no hope will be found in your life. But it is not a good way; because we are right in the middle of the truth, or dharma, or [Buddha](glossary#buddha). Regardless of whether you don't like [it] or you are conscious of it or not, we are there. So, even though you try to ignore, you cannot ignore, because you are right in the middle of truth. So you have to realize where you are. 
 
 And then, through the virtuous quality you have had, you can realize what the truth is. And then if you realize the truth, you can explain what the truth is. At that time, very naturally, we try to attach to the truth, explained by all human body and mind. But it is not real truth. 
 
@@ -133,7 +133,7 @@ And then, through the virtuous quality you have had, you can realize what the tr
 
 So, real dharma is neither attachment nor dis-attachment. No detachment, no attachment. 
 
-So, we have to always practice in the realm of the truth, regardless of whether we are conscious of it or not. This is the practice. Just the practice. And then, through this practice, sooner or later you will reach at the stage of the Buddha, at the stage of the same experience which the Buddha experienced. That is individual religious life, individual experience of religious life. But you can't attach [to] individual experience, because it is individual, it is not universal truth. So, you cannot attach to individual experience of religious life. 
+So, we have to always practice in the realm of the truth, regardless of whether we are conscious of it or not. This is the practice. Just the practice. And then, through this practice, sooner or later you will reach at the stage of the [Buddha](glossary#buddha), at the stage of the same experience which the Buddha experienced. That is individual religious life, individual experience of religious life. But you can't attach [to] individual experience, because it is individual, it is not universal truth. So, you cannot attach to individual experience of religious life. 
 
 But through the individual experience of the truth you can explain what the truth is. So, you can explain. And by the explanation of the truth, you can lead the people to be fit to gain the core of human life. That's why explanation is important. Even though explanation of the dharma is not real dharma, but it is dharma, because the dharma explained by you leads the people to be fit to gain the truth. 
 
@@ -143,7 +143,7 @@ So, there is nothing to attach [to]; [not] to Sambhogakaya, to Nirmanakaya, to D
 
 ##### 39:32
 
-Finally in Chapter 8: "the Tathagata has taught that the dharmas special to the Buddhas are just not the Buddha's special dharmas. That is why they are called 'the dharmas special to the Buddhas.'" 
+Finally in Chapter 8: "the Tathagata has taught that the dharmas special to the Buddhas are just not the [Buddha](glossary#buddha)'s special dharmas. That is why they are called 'the dharmas special to the Buddhas.'" 
 
 That means [the] buddhadharma mentioned by human body, human speculation, is no buddhadharma, because buddadharma is completely beyond human speculation; [it is] truth itself. You cannot touch [it]. If you touch it, your body is burnt out. If you ignore it, your body and mind is frozen. So you cannot ignore, you cannot touch it; this is real state of the truth which exists constantly, with you wherever you may go. 
 
@@ -155,7 +155,7 @@ So, no-buddhadharma is real buddhadharma. Or, before this, Chapter 8 says: no-he
 
 Real merit is completely no-merit. No-merit is real merit. If you completely throw [it] away, give it to somebody, if your individual experience is given to the truth or universe again, at that time you can get real merit. 
 
-For instance, if you chant the sutra to the Buddha, this is practice. But through the practice we expect something from the practice, [from] ritual. By ritual, by chanting the sutra, the merit of chanting the sutra can reach to the Buddha's heart or not? Of course. But actually, all you have to do is, just chant of the sutra. By chanting the sutra, very naturally you can experience something from ritual, but that experience is completely individual. I always tell you, there is no reason to attach to individual experience. Next we have to put it aside. So all you have to do is, practically, just continue to chant the sutra, in the presence of Buddha. Just practice [zazen](glossary#zazen). That is "shikan" zazen, or "shikan" chanting. This is [the] meaning of Zen Buddhist ritual. 
+For instance, if you chant the sutra to the [Buddha](glossary#buddha), this is practice. But through the practice we expect something from the practice, [from] ritual. By ritual, by chanting the sutra, the merit of chanting the sutra can reach to the Buddha's heart or not? Of course. But actually, all you have to do is, just chant of the sutra. By chanting the sutra, very naturally you can experience something from ritual, but that experience is completely individual. I always tell you, there is no reason to attach to individual experience. Next we have to put it aside. So all you have to do is, practically, just continue to chant the sutra, in the presence of Buddha. Just practice [zazen](glossary#zazen). That is "shikan" zazen, or "shikan" chanting. This is [the] meaning of Zen Buddhist ritual. 
 
 ##### 44:19
 

@@ -842,7 +842,7 @@ suki (Japanese): gap; space.
 
 ## Tathagata
 
-A title applied to a Buddha, meaning "thus come, thus gone."
+A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 
 [Fukanzazengi – Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
 

@@ -41,7 +41,7 @@ And in this twelve chain causations, karma is the second one, saṃskāra, and a
 
 ##### 5:35
 
-And also mumyo (Japanese word for avidyā or ignorance); first one, ignorance, and also craving and grasping: those three are klesha, in [Sanskrit](glossary#sanskrit); delusion. Klesha means affliction. Because yesterday I told you the mumyo, ignorance, avidyā, is that which we are - what would you say - doomed - doomed means fated - (we are) doomed not to understand; not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are doomed not to understand truth as it is. This is what is called “pain”; affliction. Is that clear? Do you understand? That’s why Buddha says life is characterized by [suffering](glossary#suffering). This is really suffering. But we cannot stop it; because we are already there. So even though intellectually we don’t understand, still we feel, anyway. And also we want to know. That’s what we want to know, but we cannot understand. That’s why that is affliction. Suffering. This is a basic, basic nature of human being. That’s why first avidyā, ignorance. 
+And also mumyo (Japanese word for avidyā or ignorance); first one, ignorance, and also craving and grasping: those three are klesha, in [Sanskrit](glossary#sanskrit); delusion. Klesha means affliction. Because yesterday I told you the mumyo, ignorance, avidyā, is that which we are - what would you say - doomed - doomed means fated - (we are) doomed not to understand; not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are doomed not to understand truth as it is. This is what is called “pain”; affliction. Is that clear? Do you understand? That’s why [Buddha](glossary#buddha) says life is characterized by [suffering](glossary#suffering). This is really suffering. But we cannot stop it; because we are already there. So even though intellectually we don’t understand, still we feel, anyway. And also we want to know. That’s what we want to know, but we cannot understand. That’s why that is affliction. Suffering. This is a basic, basic nature of human being. That’s why first avidyā, ignorance. 
 
 ##### 7:40
 
@@ -133,7 +133,7 @@ Well, if you sit down, completely nothing to do, nothing to do for you; but you 
 
 ##### 46:17
 
-Well, if you return home exactly, you can experience, because this is what Buddha says, Buddhist scripture says. That is the first experience, first stage of [zazen](glossary#zazen), okay? First believe… Not believe, not necessary; if you don’t believe, that’s okay…
+Well, if you return home exactly, you can experience, because this is what [Buddha](glossary#buddha) says, Buddhist scripture says. That is the first experience, first stage of [zazen](glossary#zazen), okay? First believe… Not believe, not necessary; if you don’t believe, that’s okay…
 
 *[tape change]* 
 

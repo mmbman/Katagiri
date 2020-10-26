@@ -21,7 +21,7 @@ The karma as [samskara](glossary#samskara), meaning ... the quality of karma und
 
 But then, life is, I am already right in the middle of that life, even though I don't know. That is really pain, don't you think so? That is really basic nature of human life, which is called avidja. Avija is not karma, but it is quality of karma. In other words, supported karma, preserved karma. So it's really pain, affliction. It's not karma, it's klesha, we say, klesha. Klesha is not exactly ignorance ... we say klesha is pain or affliction. That is avidja. 
 
-So very basic nature of pain, or affliction, or [suffering](glossary#suffering). That's why Buddha says life is characterized by suffering. We are right in the middle of the truth, but we don't know. We are really doomed not to know. We don't... try to ignore. We want to know. But we don't know. We are doomed. That is really avidja. 
+So very basic nature of pain, or affliction, or [suffering](glossary#suffering). That's why [Buddha](glossary#buddha) says life is characterized by suffering. We are right in the middle of the truth, but we don't know. We are really doomed not to know. We don't... try to ignore. We want to know. But we don't know. We are doomed. That is really avidja. 
 
 The quality of karma is ignorance. When you say karma as [samskara](glossary#samskara); remember this point. 
 

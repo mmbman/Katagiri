@@ -25,7 +25,7 @@ At this time, I would like to study with you the second case of The [Blue Cliff 
 
 This is the main case. This morning I would like to read the pointer for the main case, pointing out the most important key in the main case, [which is] mentioned by Engo [Zen Master](glossary#zen-master). (Engo Kokugon is the Japanese name for Ch’an teacher Yuan Wu K’e Ch’in (1063–1135), who compiled the [Blue Cliff Record](glossary#blue-cliff-record) and added the pointers, notes and commentaries.)
 
-> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves; the successive generations of patriarchs haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
+> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves; the successive generations of patriarchs haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
 
 In this pointer, Engo [Zen Master](glossary#zen-master) emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
 
@@ -33,23 +33,23 @@ Plainly speaking, this is the truth, or original nature of existence, or dharma.
 
 ##### 7:30
 
-The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, Buddha, or [impermanence](glossary#impermanence), or [dependent origination](glossary#dependent-origination) – all are immediately something objectified by you. This is very natural. 
+The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, [Buddha](glossary#buddha), or [impermanence](glossary#impermanence), or [dependent origination](glossary#dependent-origination) – all are immediately something objectified by you. This is very natural. 
 
 It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So patriarchs and Buddhas constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
 
-So, whatever kind of religion you study, even Christianity [or] [Buddhism](glossary#buddhism), this attitude is very fundamental, universal. [In] Christianity you really have to devote yourself toward God; [whether you] believe or not, you have to throw away yourself into God. This is the first request. If you don’t, there is no sense of Christianity. It is very true. And the same applies to Buddhism: if you don’t have this fundamental attitude toward the truth, throwing away yourself, forgetting yourself, and throw yourself into Buddha’s house, it's very difficult to understand what the truth is, directly connected with your body and mind. It’s very difficult. That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](dogen#life-and-death) , “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any [one’s] mind.” This is very famous statement mentioned by [Dogen](glossary#dogen). *[he repeats the quote]* This [is the] correct attitude to research the truth, what it is; because this is human life, this is human life.
+So, whatever kind of religion you study, even Christianity [or] [Buddhism](glossary#buddhism), this attitude is very fundamental, universal. [In] Christianity you really have to devote yourself toward God; [whether you] believe or not, you have to throw away yourself into God. This is the first request. If you don’t, there is no sense of Christianity. It is very true. And the same applies to Buddhism: if you don’t have this fundamental attitude toward the truth, throwing away yourself, forgetting yourself, and throw yourself into [Buddha](glossary#buddha)’s house, it's very difficult to understand what the truth is, directly connected with your body and mind. It’s very difficult. That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](dogen#life-and-death) , “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any [one’s] mind.” This is very famous statement mentioned by [Dogen](glossary#dogen). *[he repeats the quote]* This [is the] correct attitude to research the truth, what it is; because this is human life, this is human life.
 
 ##### 12:47
 
 I told you before, one of our famous [Zen Masters](glossary#zen-master) says, “Zen is that we should get 100 points – 100 mark, or zero mark. Zero points or 100, exactly perfect. There is no other point between 100 and zero.” 
 
-I didn’t understand at that time, but this is a spiritual thing. You should get 100 points. That means forget and release, and forget yourself, and throw yourself into Buddha’s house. This is first, but you don’t understand *yet*.
+I didn’t understand at that time, but this is a spiritual thing. You should get 100 points. That means forget and release, and forget yourself, and throw yourself into [Buddha](glossary#buddha)’s house. This is first, but you don’t understand *yet*.
 
 For instance, if you want to perform gymnastics on the bar, what should you do? It’s very clear. If you want to perform gymnastics on the bar, first of all we have to do what? We have to grab the bar perfectly. If you don’t, even though you approach 90 percent toward the bar, it’s not perfect. You can show your capability, which is called [Buddha Nature](glossary#buddha-nature), [but] in gymnastics you cannot show your perfect capability. So, even though you approach 90 percent toward bar, it’s zero. You cannot say, “I got 90 [percent]”; 90 [percent] doesn’t make sense. If you cannot grasp the bar perfectly, it's completely zero. There is no other number between 0 and 100 points, because this is what you have to do if you want to perform gymnastics on the bar. For this, how should you catch the bar? With your best, you have to perfectly jump into the bar. That is what is called release and forget yourself, and throw yourself into Buddha’s home. At that time, very naturally, if you catch it, immediately your body will start to move. You don’t know how to move, but anyway your body moves [and] you can perform gymnastics freely. 
 
 ##### 16:21
 
-That’s why [Dogen Zenji](glossary#dogen) says here, “When functioning comes from the direction of Buddha and you go in accord with it, then, with no strength needed and no thought expended, free from birth and death, you become Buddha.” At that time, do your gymnastics come from [the] bar? Or does the function of your gymnastics come from you? Or from where? Can you say, “From the bar,” or can you say, “Your capability”? Can you say “between”? You cannot say either. 
+That’s why [Dogen Zenji](glossary#dogen) says here, “When functioning comes from the direction of [Buddha](glossary#buddha) and you go in accord with it, then, with no strength needed and no thought expended, free from birth and death, you become Buddha.” At that time, do your gymnastics come from [the] bar? Or does the function of your gymnastics come from you? Or from where? Can you say, “From the bar,” or can you say, “Your capability”? Can you say “between”? You cannot say either. 
 
 Because, if you catch the bar immediately, perfectly, very naturally you can perform gymnastics. Gymnastics are on the bar; that means it is not the study of existence, which is called “What is the bar?” What is Katagiri as a practice? It is completely out of the question. Do you understand? 
 
@@ -73,17 +73,17 @@ But this picture is not the picture on the TV set; that picture is [the] univers
 
 ##### 22:20
 
-[Buddhism](glossary#buddhism), particularly Zen, is always emphasizing that point. Finally, where is the Buddha? How to throw yourself into the Buddha’s house?Buddha is not something *else* apart from us. But if you think [of] Buddha as something particular, at that time Buddha is something you handle as ontology; so always you have to ask, "What is the Buddha?" You don’t do.
+[Buddhism](glossary#buddhism), particularly Zen, is always emphasizing that point. Finally, where is the [Buddha](glossary#buddha)? How to throw yourself into the Buddha’s house?Buddha is not something *else* apart from us. But if you think [of] Buddha as something particular, at that time Buddha is something you handle as ontology; so always you have to ask, "What is the Buddha?" You don’t do.
 
 Whatever you say, even though we don’t use a particular term – well, "original nature or existence". What is original nature of existence? We don’t know. What is the truth? Always the question comes up. 
 
-But this is not the main point which [Buddhism](glossary#buddhism) emphasizes. Our main purpose is, Buddha says, "How can you throw away Buddha?" That is the point which you have to communicate with the Buddha: "How?" That is: release, and forget yourself, throw yourself into the bar. At that time, there is completely Buddha’s world at the bar. That is called gymnastics: performance of gymnastics, becoming one. All things become one in gymnastics.
+But this is not the main point which [Buddhism](glossary#buddhism) emphasizes. Our main purpose is, [Buddha](glossary#buddha) says, "How can you throw away Buddha?" That is the point which you have to communicate with the Buddha: "How?" That is: release, and forget yourself, throw yourself into the bar. At that time, there is completely Buddha’s world at the bar. That is called gymnastics: performance of gymnastics, becoming one. All things become one in gymnastics.
 
 ##### 24:16
 
 That’s why Engo [Zen Master](glossary#zen-master) and [Dogen](glossary#dogen) used the term "vehicle", dharma vehicle. Vehicle is not something your intellectual sense should be on; vehicle is that which you yourself must be on, working in peace and harmony with [the] passengers. That is the vehicle. 
 
-So, where is the vehicle? That vehicle means Buddha, Buddha’s world, [in] which the subject and the object work perfectly in peace and harmony. You and the bar and gymnastics are all working dynamically; that is what is called vehicle. 
+So, where is the vehicle? That vehicle means [Buddha](glossary#buddha), Buddha’s world, [in] which the subject and the object work perfectly in peace and harmony. You and the bar and gymnastics are all working dynamically; that is what is called vehicle. 
 
 So, vehicle is 100 points. You can get. At that time, it’s really perfect. That is called vehicle. 
 
@@ -93,11 +93,11 @@ Zen is sometimes misunderstood by people because we don’t have a particular ob
 
 So, very naturally, in [the] [Buddhistic](glossary#buddhistic ) world, it might be easier for us to lose what is called faith ... [it's] pretty easy, because there is nothing to depend on. 
 
-We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. Buddha or [Avalokiteshvara](glossary#avalokiteshvara), whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
+We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. [Buddha](glossary#buddha) or [Avalokiteshvara](glossary#avalokiteshvara), whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
 
 [The question] is important, but you cannot be obsessed with [it]. That’s why Buddhas and [ancestors] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
 
-What should you do? Jump into it. Throw yourself into Buddha’s home. Without this, it’s very difficult. 
+What should you do? Jump into it. Throw yourself into [Buddha](glossary#buddha)’s home. Without this, it’s very difficult. 
 
 ##### 28:14
 
@@ -105,7 +105,7 @@ Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental
 
 I always tell you, [zazen](glossary#zazen) must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
 
-We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into [zazen](glossary#zazen), at that time, [what] is called zazen blooms. That is called Buddha, Buddha’s home. 
+We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into [zazen](glossary#zazen), at that time, [what] is called zazen blooms. That is called [Buddha](glossary#buddha), Buddha’s home. 
 
 ##### 29:22
 
@@ -113,7 +113,7 @@ But if you believe [zazen](glossary#zazen) [is] like this, well, you believe zaz
 
 At that time, your daily life becomes *vehicle*. What you call the task, is "the task of the fundamental vehicle of transcendence". 
 
-Transcendence means completely there is no need of your effort; something comes from Buddha’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect [zazen](glossary#zazen), [then] perfect zazen takes care of you – even though you don’t want. 
+Transcendence means completely there is no need of your effort; something comes from [Buddha](glossary#buddha)’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect [zazen](glossary#zazen), [then] perfect zazen takes care of you – even though you don’t want. 
 
 ##### 30:34
 
@@ -153,7 +153,7 @@ So that’s why he says he says, “Even if blows of the staff fall like rain an
 
 "... can only know it for themselves." What, just for themselves? Not for the good of all beings? 
 
-Even the Buddhas, through the past, to the present, to the future, all Buddhas can only know this truth just for themselves. *Because it’s vast*. Because Universal, the truth, open to everybody, is not individual understanding. Even the Buddha says, “I” know it; at that time that that is *Buddha’s* understanding; particular personal understanding. So, it’s not universal. 
+Even the Buddhas, through the past, to the present, to the future, all Buddhas can only know this truth just for themselves. *Because it’s vast*. Because Universal, the truth, open to everybody, is not individual understanding. Even the [Buddha](glossary#buddha) says, “I” know it; at that time that that is *Buddha’s* understanding; particular personal understanding. So, it’s not universal. 
 
 ##### 38:00
 
@@ -213,11 +213,11 @@ Anyway, what for do you practice? Do you practice for the good of all sentient b
 
 Or on the other hand if you say, “I practice for myself” – this is also, your practice is limited by certain ideas. So, "release, forget yourself, and throw yourself into [zazen](glossary#zazen)," means, "What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself. They are just ideas; practice must be alive. At that time ... you simply cannot perceive that practice, but it is really universal. 
 
-That is called *[unintelligible]* practice. That is, throw yourself into the Buddha’s home.
+That is called *[unintelligible]* practice. That is, throw yourself into the [Buddha](glossary#buddha)’s home.
 
 ##### 49:15
 
-> When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. 
+> When you get here, how will you ask for more instruction? To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. 
 
 So, even the clear eyed patchrobed monks cannot save themselves completely. “When you get here, how will you ask for more instruction?” 
 
@@ -233,13 +233,13 @@ But – it’s really work. If you don’t know, you feel restless. This restles
 
 ##### 52:05
 
-And, “When you get here, how will you ask for more instruction?” then [adds]: “To say the word “Buddha” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
+And, “When you get here, how will you ask for more instruction?” then [adds]: “To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
 
 Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. So, covered with mud, that means gargle yourself with water. 
 
-But even though to say the word “Buddha” immediately you are covered with mud, just like a sewer rat. I mean, you enjoy very much, “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
+But even though to say the word “[Buddha](glossary#buddha)” immediately you are covered with mud, just like a sewer rat. I mean, you enjoy very much, “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
 
-And even so, to say the word “Buddha” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an“is a face full of shame.” But even though you say “Zen” it’s really full of shame. Zen is embarrassed in this world…really shame… Completely based on words? Forget it. People say anything is stupid, that’s okay… In Nichiren - do you know Nichiren, … Buddhist school? She criticized Zen. “Zen is a subtly(?) created devil.” Creating a devil? Somebody says, Zen is pretty ???, Zen is pretty idealistic(?), … lots of criticism, don’t you think? ???? … “Zen is ridiculous.” Past criticism(?), because Zen is freedom, free. Freedom is… do you know the freedom? Freedom is free state of being, which appears in many ways, in many situations. But it doesn’t bother, only appears. It is never contaminated by a certain conditions. It always appears under certain conditions, but it’s never contaminated by ideas. That is freedom. That’s why Zen is … if you use a particular term, “Zen,” it’s very shameful, because immediately you can see that idea of denomination. That’s why … says, “to say the Ch’an is a face full of shame.”
+And even so, to say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an“is a face full of shame.” But even though you say “Zen” it’s really full of shame. Zen is embarrassed in this world…really shame… Completely based on words? Forget it. People say anything is stupid, that’s okay… In Nichiren - do you know Nichiren, … Buddhist school? She criticized Zen. “Zen is a subtly(?) created devil.” Creating a devil? Somebody says, Zen is pretty ???, Zen is pretty idealistic(?), … lots of criticism, don’t you think? ???? … “Zen is ridiculous.” Past criticism(?), because Zen is freedom, free. Freedom is… do you know the freedom? Freedom is free state of being, which appears in many ways, in many situations. But it doesn’t bother, only appears. It is never contaminated by a certain conditions. It always appears under certain conditions, but it’s never contaminated by ideas. That is freedom. That’s why Zen is … if you use a particular term, “Zen,” it’s very shameful, because immediately you can see that idea of denomination. That’s why … says, “to say the Ch’an is a face full of shame.”
 
 ##### 57:02
 

@@ -31,7 +31,7 @@ Well, while this is a very natural question, his natural question has a lot of m
 
 ##### 6:13
 
-In not only [Zen Buddhism](glossary#zen-buddhism ), [but] in general [Buddhism](glossary#buddhism), [the] most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not [the] *most* important. If you have individual questions and understanding or experience, the most important [point] in Buddhism [is] how you must be free from this individual experience [and] individual understanding. You have to break through the barrier of individual, personal understanding. That is a [Buddhistic](glossary#buddhistic ) way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even [if] you believe you experience [a] religious state of what is divinity, or Buddha, or [Avalokiteshvara](glossary#avalokiteshvara), through [zazen](glossary#zazen) – whatever you say, well that is [just] that. That is not important. [The] most important point is, you have to break through this barrier of personal, individual experience or understanding.
+In not only [Zen Buddhism](glossary#zen-buddhism ), [but] in general [Buddhism](glossary#buddhism), [the] most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not [the] *most* important. If you have individual questions and understanding or experience, the most important [point] in Buddhism [is] how you must be free from this individual experience [and] individual understanding. You have to break through the barrier of individual, personal understanding. That is a [Buddhistic](glossary#buddhistic ) way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even [if] you believe you experience [a] religious state of what is divinity, or [Buddha](glossary#buddha), or [Avalokiteshvara](glossary#avalokiteshvara), through [zazen](glossary#zazen) – whatever you say, well that is [just] that. That is not important. [The] most important point is, you have to break through this barrier of personal, individual experience or understanding.
 
 Because, there is always a language by which a world is established and understood. Without words, without language, there is no world you can understand. Only through language, we can establish a [style] of human life, we can establish the human world, we can communicate with each other. Without words or language ... there is no way to communicate. 
 
@@ -63,7 +63,7 @@ Emperor Wu says, “What is the merit?” Because he built lots of temples, educ
 
 If you do something good, just like Emperor Wu, of course, according to language, according to costumes and images, some prepossessions, there will be something good as a result. But sometimes there’s not. Even though you do something good, [the] result, when it comes, sometimes a good result will come, sometimes evil result will come. Because this is reality; our everyday life. 
 
-This is [the] human activity we do, the activity itself of building the temple and educating the people. "What do you mean, educating people?" I educate you; I believe I educate people, I train you. "What do you mean, 'I train you?'” Of course I am training, because I have a training system. But if we’re training according to the Buddha’s teaching, probably there must be something good as a result. Merit, [it] must be, because you must be trained. Perhaps there’s merit. How can I say [it]? How much do you believe that you have been trained? How much? How much are you training?
+This is [the] human activity we do, the activity itself of building the temple and educating the people. "What do you mean, educating people?" I educate you; I believe I educate people, I train you. "What do you mean, 'I train you?'” Of course I am training, because I have a training system. But if we’re training according to the [Buddha](glossary#buddha)’s teaching, probably there must be something good as a result. Merit, [it] must be, because you must be trained. Perhaps there’s merit. How can I say [it]? How much do you believe that you have been trained? How much? How much are you training?
 
 Reality is very complicated. You cannot pin down what it is. What is merit? What is [the] activity of building the temple and educating the people? What do you mean? What is education? 
 
@@ -75,7 +75,7 @@ For instance, I had bad news from Zen Center in San Francisco last night. Some p
 
 If you say, “I am 21 years old; it is young” – what do you mean, young? “I am 60 years old, I am 70 years; it is old age." What do you mean? "Old age, old man should die first. Young man should live longer." Of course ... we hope [so]. But reality doesn’t agree with this understanding. Even though you believe “I am young, so I can live long,” of course there is, but reality is not. Reality doesn’t agree with. At any time, what is [the] reality where you, at 20 years old, live. What is reality? You can say you can live long, or you have to die tomorrow – maybe so, maybe not. You can live tomorrow, even longer – maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
 
-This is reality, in which everyone is living, day to day. Whoever you are, young or old, it doesn’t matter. That’s why Buddha says, life and death, old age and sickness are [suffering](glossary#suffering).
+This is reality, in which everyone is living, day to day. Whoever you are, young or old, it doesn’t matter. That’s why [Buddha](glossary#buddha) says, life and death, old age and sickness are [suffering](glossary#suffering).
 
 ##### 20:20
 
@@ -95,7 +95,7 @@ Then if you believe this human life according to pleasure, that is tanpankan.
 
 ##### 24:40
 
-I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; [suffering](glossary#suffering) and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy very much. If you become Buddhist, Buddha says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say [this] to somebody, you are really troublemakers. 
+I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; [suffering](glossary#suffering) and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy very much. If you become Buddhist, [Buddha](glossary#buddha) says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say [this] to somebody, you are really troublemakers. 
 
 So, don’t be tanpankan, okay? The life characterized by [suffering](glossary#suffering) is not something like that. That’s why suffering must be true, okay? If the suffering becomes true, that means completely the language which is called suffering disappears. Nothing to say. Because even though you say in [words?], “life is perfect,” can you say, “life is happy?” No. There is pleasure; if it is true, can you say “life is pleasure?” You cannot say so either. The using of words always points out the reality in which we exist. But, there is some gap. And then reality itself, in which pleasure and suffering both co-exist – with the language, [it] completely disappears. Nothing to say. Everything becomes a question mark. Nothing to say.
 
@@ -186,7 +186,7 @@ D.T. Suzuki [translated it as], “Vastness and nothing holy.” This translatio
 
 So, Engo [Zen Master](glossary#zen-master) says [in the Notes], “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” 
 
-Emperor Wu took [the previous] answer, “No merit,” at face value, so he didn’t understand. If there is no merit, do you believe there is no divinity, or God, or Buddha, or universal energy, which makes everything possible to exist? There is nothing? There is no truth, which is completely almighty, to help in your life? Et cetera. That’s why, next moment he asked, “What is the truth?”
+Emperor Wu took [the previous] answer, “No merit,” at face value, so he didn’t understand. If there is no merit, do you believe there is no divinity, or God, or [Buddha](glossary#buddha), or universal energy, which makes everything possible to exist? There is nothing? There is no truth, which is completely almighty, to help in your life? Et cetera. That’s why, next moment he asked, “What is the truth?”
 
 Emperor Wu expected a wonderful answer from [Bodhidharma](glossary#bodhidharma) about the truth. Maybe, "Truth [is] almighty, giving compassion to you always, wherever you may go, helping you in the compassionate time when we are always smiling, smile always!" 
 
@@ -244,13 +244,13 @@ So [Bodhidharma](glossary#bodhidharma)’s “I don’t know” is completely be
 
 Well, [Bodhidharma](glossary#bodhidharma) says “I don’t know” when he was asked who you are, but he is not spooky, he is not a ghost. He exists; he has a body and a mind. He knows pretty well, “I am existing, right now, right here."
 
-But how can [we] understand? He is [Bodhidharma](glossary#bodhidharma)? Or he is another person? Or he is a god? Or he is a [bodhisattva](glossary#bodhisattva)? No. He is Bodhidharma. So he came to China to teach Buddha's teaching as a what? Bodhidharma? No. Bodhisattva. So he is bodhisattva. He is really bodhisattva? No. Bodhidharma. He is really Bodhidharma? No, he is bodhisattva. 
+But how can [we] understand? He is [Bodhidharma](glossary#bodhidharma)? Or he is another person? Or he is a god? Or he is a [bodhisattva](glossary#bodhisattva)? No. He is Bodhidharma. So he came to China to teach [Buddha](glossary#buddha)'s teaching as a what? Bodhidharma? No. Bodhisattva. So he is bodhisattva. He is really bodhisattva? No. Bodhidharma. He is really Bodhidharma? No, he is bodhisattva. 
 
 So finally, language completely drops off; what [or] who he is. That's why he said, “I don’t know.” But “I don’t know” is really looking at the direct reality, [the] reality in which [Bodhidharma](glossary#bodhidharma) really exists from day to day. 
 
 Why he comes to China to teach [Buddhism](glossary#buddhism) – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. 
 
-[For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
+[For example,] even though you teach for [a long time], how many people understand [Buddha](glossary#buddha)’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
 
 ##### 50:17
 
@@ -268,7 +268,7 @@ So, Mahasattva [Avalokiteshvara](glossary#avalokiteshvara). [Bodhidharma](glossa
 
 So, the [Zen Master](glossary#zen-master) says, “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.” 
 
-Because, the [Zen Master](glossary#zen-master) knows pretty well, that is Emperor Wu’s understanding of [Buddhism](glossary#buddhism): the essence of the truth is always someplace, somewhere apart from his life. Building up the temples? "Oh, there is merit, Buddha’s merit, there. Buddha and [Avalokiteshvara](glossary#avalokiteshvara) exist there." And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
+Because, the [Zen Master](glossary#zen-master) knows pretty well, that is Emperor Wu’s understanding of [Buddhism](glossary#buddhism): the essence of the truth is always someplace, somewhere apart from his life. Building up the temples? "Oh, there is merit, [Buddha](glossary#buddha)’s merit, there. Buddha and [Avalokiteshvara](glossary#avalokiteshvara) exist there." And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
 
 So that’s why the [Zen Master](glossary#zen-master) said, “[Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is [Avalokiteshvara](glossary#avalokiteshvara)!” [The Emperor] was very surprised: “Oh, I missed [it]!” So he immediately tried to send someone to get him back. But the Zen Master says, “Don’t do that. Don’t do that.” Because if you do this, you are looking for the truth outside. The truth never comes back; never goes away. Even though you say, “I don’t want the truth.” 
 
@@ -324,7 +324,7 @@ That’s why Zen always denies the words, always points out the world beyond ver
 
 And then, nevertheless, you cannot stay there. You have to say [something]. Because you cannot exist alone; you have to communicate with people. How can you communicate? Just using the words in the usual way, that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always [what] Zen emphasizes. 
 
-If you study [Blue Cliff Record](glossary#blue-cliff-record), maybe you can grab that real spirit of [Zen Buddhism](glossary#zen-buddhism ). Beyond denomination: [Rinzai](glossary#rinzai-zen ), [Soto](glossary#soto-zen ). Anyway, out of general Buddhism, we have to understand [the] Zen path. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of [zazen](glossary#zazen) in terms of general Buddhism mentioned by Buddha. 
+If you study [Blue Cliff Record](glossary#blue-cliff-record), maybe you can grab that real spirit of [Zen Buddhism](glossary#zen-buddhism ). Beyond denomination: [Rinzai](glossary#rinzai-zen ), [Soto](glossary#soto-zen ). Anyway, out of general Buddhism, we have to understand [the] Zen path. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of [zazen](glossary#zazen) in terms of general Buddhism mentioned by [Buddha](glossary#buddha). 
 
 Questions? 
 

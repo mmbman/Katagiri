@@ -11,17 +11,17 @@
 
 There must be a person who tries to establish [a] peaceful world, always. But when you see the world, it's pretty difficult for us to see [a] beautiful aspect of [the] human world. At that time, [there is] lots of chaos. We are disappointed. 
 
-But, according to [the] [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of Buddha's ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated – particularly in the confused world?" Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
+But, according to [the] [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of [Buddha](glossary#buddha)'s ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated – particularly in the confused world?" Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
 
-That is Buddha's answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
+That is [Buddha](glossary#buddha)'s answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
 
-According to Buddha's explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on [no-self](glossary#no-self) and also no perception of [dharma](glossary#dharma): no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
+According to [Buddha](glossary#buddha)'s explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on [no-self](glossary#no-self) and also no perception of [dharma](glossary#dharma): no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
 
 ##### 3:25
 
 Last week I told you, perception of self [is] divided into four [categories].
 
-One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five [skandhas](glossary#skandha), because [the] five skandhas is [an] analysis of existence, how existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness.
+One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five [skandhas](glossary#skandha), because [the] five skandhas is [an] analysis of existence, how existence goes on. So, according to [Buddha](glossary#buddha), he analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness.
 
 We believe pretty easily that [the] five [skandhas](glossary#skandha) are [the] self. But [the] five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
 
@@ -35,7 +35,7 @@ So, it is pretty easy for us to believe there is something particular which is c
 
 ##### 6:56
 
-The third: if you believe there is that which is continuous, that is kind of a "soul", unifying, harmonizing your life. Sort of a watchmaker. [The] watchmaker controls one watch, and the second watch; no matter how many watches there are, he always controls [them], so all watches go exactly right, in [the] proper way. That is, [the] watchmaker is sort of a "soul", which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, [the] whole universe. This is also [the] third ego consciousness. That's why Buddha says, no perception of [a] soul.
+The third: if you believe there is that which is continuous, that is kind of a "soul", unifying, harmonizing your life. Sort of a watchmaker. [The] watchmaker controls one watch, and the second watch; no matter how many watches there are, he always controls [them], so all watches go exactly right, in [the] proper way. That is, [the] watchmaker is sort of a "soul", which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, [the] whole universe. This is also [the] third ego consciousness. That's why [Buddha](glossary#buddha) says, no perception of [a] soul.
 
 ##### 8:10
 
@@ -45,7 +45,7 @@ When you yawn, that is your karma. If you are rough, this is also karma. If you 
 
 ##### 9:54
 
-So, no ego consciousness. This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the Buddha's teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
+So, no ego consciousness. This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the [Buddha](glossary#buddha)'s teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
 
 There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
 
@@ -101,7 +101,7 @@ Both are perceptions created by your consciousness. You try not to think, but, y
 
 ##### 23:10
 
-So, you cannot have a perception of [dharma](glossary#dharma) or no-dharma. If Buddha teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
+So, you cannot have a perception of [dharma](glossary#dharma) or no-dharma. If [Buddha](glossary#buddha) teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
 
 But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says, "no perception of [dharma](glossary#dharma), no perception of *no-dharma*". You cannot attach to either one of them, because both are still thinking dharmas, thinking object. So you are still involved in [an] object, perception of object, whatever you say, perception of object or no perception of object, whatever you say, negatively or affirmatively. Whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
 
@@ -111,7 +111,7 @@ If you attach to one of them, there is attachment to self. I told you before: pe
 
 That means the object is not something you can attach to. That means [the] object is not something which is accurate, or not something real. [The] object is [a] provisional being. Provisional being.
 
-But it's pretty hard to understand this. So, I want to explain this. Why do you believe a thing to be accurate? Even though Buddha says everything is provisional being, you don't believe [it], because, there is a book. There is a book; no one believes this is a provisional being. You say, this is a being which is real, or accurate. Here it is! [So] you don't believe [it].
+But it's pretty hard to understand this. So, I want to explain this. Why do you believe a thing to be accurate? Even though [Buddha](glossary#buddha) says everything is provisional being, you don't believe [it], because, there is a book. There is a book; no one believes this is a provisional being. You say, this is a being which is real, or accurate. Here it is! [So] you don't believe [it].
 
 ##### 26:12
 
@@ -199,7 +199,7 @@ So, in a sense, [in the] common sense, we are always participating in [being]. A
 
 ##### 51:30
 
-That's why Buddha always says, everything is [emptiness](glossary#emptiness). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But [that] doesn't mean through [that] you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of [it].
+That's why [Buddha](glossary#buddha) always says, everything is [emptiness](glossary#emptiness). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But [that] doesn't mean through [that] you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of [it].
 
 So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
 
@@ -217,7 +217,7 @@ Do you understand provisional being?
 
 ##### 56:18
 
-**Question**: [*partly unintelligible*] Somewhere in a story about the Buddha, he was practicing meditation in one of his lifetimes in a garden, and this king came up to him and saw him and remembered him, and got extremely angry *[unintelligible]*, and butchered him, chopped him down into pieces. And Buddha just calmly watched him there *[unintelligible]* ... that king... in the Buddha's perception... provisional being?
+**Question**: [*partly unintelligible*] Somewhere in a story about the [Buddha](glossary#buddha), he was practicing meditation in one of his lifetimes in a garden, and this king came up to him and saw him and remembered him, and got extremely angry *[unintelligible]*, and butchered him, chopped him down into pieces. And Buddha just calmly watched him there *[unintelligible]* ... that king... in the Buddha's perception... provisional being?
 
 **Katagiri**: Compassion? Yes, that is the motivation of his becoming a monk, leaving the castle. He saw something ... farmers. Is that what you mean? Cultivated?
 
@@ -225,7 +225,7 @@ Do you understand provisional being?
 
 *[there is some back and forth]*
 
-**Same person**: Buddha was sitting in a grove, meditating, this is in one of his past lives ... he was sitting in the grove, and this king came along into the grove and saw the Buddha there, and he remembered something he thought the Buddha had done for him in a past life, and got extremely angry, took out his sword. And the Buddha put out his hand, telling him to stop, and first he chopped off his hand, and then he just started chopping the Buddha to pieces, and the Buddha didn't say a word and watched. Was the Buddha looking at that man ... as a provisional being?
+**Same person**: [Buddha](glossary#buddha) was sitting in a grove, meditating, this is in one of his past lives ... he was sitting in the grove, and this king came along into the grove and saw the Buddha there, and he remembered something he thought the Buddha had done for him in a past life, and got extremely angry, took out his sword. And the Buddha put out his hand, telling him to stop, and first he chopped off his hand, and then he just started chopping the Buddha to pieces, and the Buddha didn't say a word and watched. Was the Buddha looking at that man ... as a provisional being?
 
 **Katagiri**: Oh. 
 
@@ -249,7 +249,7 @@ So, if you believe all sentient beings as just provisional beings, intellectuall
 
 **Person**: Oh yes!
 
-**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don't know tomorrow, even a few minutes. We don't know our life after going out of this [zendo](glossary#zendo). Because, we are provisional beings. When you are sitting here listening to Buddha's teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don't know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
+**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don't know tomorrow, even a few minutes. We don't know our life after going out of this [zendo](glossary#zendo). Because, we are provisional beings. When you are sitting here listening to [Buddha](glossary#buddha)'s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don't know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
 
 **Person**: That's like taking each moment as it comes [*unintelligible*]?
 

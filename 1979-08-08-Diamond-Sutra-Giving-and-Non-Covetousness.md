@@ -188,7 +188,7 @@ So this is a very common type of human life; even though, in the United States w
 
 And that's why [Subhuti](glossary#subhuti) replied, "[Great] would that heap of merit be! And why? Because the Tathagata spoke of the 'heap of merit' as a non-heap." There is nothing to be covetous [of]. "You should receive something I can give" – nothing, [no?] give and take. Just be present; just sit side by side. Just set out breakfast, just get up in the morning, greeting "good morning" – that's all we have to do. At that time there is very naturally something you can beget, that is a "heap of merit". That heap of merit has nothing to be covetous. That's a no-heap of merit. No attachment. But if you try to give, and if you expect somebody to receive something I can give, at that time there is always something covetous.
 
-So, give and take. Face to face, that's pretty hard, in a sense. That's why Buddha's merit through begetting is no-heap of merit. That means, nothing to attach to [any] merit from giving. That means, anyway, just like [the] beautiful poem.
+So, give and take. Face to face, that's pretty hard, in a sense. That's why [Buddha](glossary#buddha)'s merit through begetting is no-heap of merit. That means, nothing to attach to [any] merit from giving. That means, anyway, just like [the] beautiful poem.
 
 ##### 54:07
 

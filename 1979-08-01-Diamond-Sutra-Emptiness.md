@@ -15,9 +15,9 @@ Chapter 7:
 > 
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
 
-In this chapter 7, there are two questions: What is Buddha? The second question is, what are the dharmas taught or preached by Buddha, Tathagata?
+In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the dharmas taught or preached by Buddha, Tathagata?
 
-Buddha asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
+[Buddha](glossary#buddha) asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
 In Japanese, [enlightenment](glossary#enlightenment) is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
@@ -47,9 +47,9 @@ That is [the] third one, which is called "sho", translated usually [as] realizat
 
 By this "sho", [enlightenment](glossary#enlightenment), your life is supported, helped, constantly, regardless of whether you like or dislike [it]. That is the total picture of existence you have. This is enlightenment. 
 
-That's why Buddha says, "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
+That's why [Buddha](glossary#buddha) says, "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
 
-That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
+That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called [Buddha](glossary#buddha), that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
 
 ##### 16:04
 
@@ -57,7 +57,7 @@ So let's see about this utmost, right, perfect [enlightenment](glossary#enlighte
 
 According to the commentary by [Conze](glossary#edward-conze), he says: 
 
-> "Mahayanists are fond of saying that Buddha's [enlightenment](glossary#enlightenment) is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn't be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in "The Version in 8,000 Lines" may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, of (2) their [emptiness](glossary#emptiness), and (3) of their Suchness." (Katagiri phrases this last part as "the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.")
+> "Mahayanists are fond of saying that [Buddha](glossary#buddha)'s [enlightenment](glossary#enlightenment) is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn't be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in "The Version in 8,000 Lines" may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, of (2) their [emptiness](glossary#emptiness), and (3) of their Suchness." (Katagiri phrases this last part as "the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.")
 
 So let's understand, let's think, one by one.
 
@@ -161,7 +161,7 @@ That's why German poet says, "the rose exists without any reason." And finally, 
 
 If you say, "Katagiri exists without any reason," this is still logical explanation, based on [and] according to [a] philosophical understanding which is called [emptiness](glossary#emptiness). So, [the] original nature of Katagiri is completely emptiness. So, I exist with [envy?]; this is still logical explanation. The second, marklessness of emptiness – that means formlessness. Openness means throw away term without [envy?].
 
-At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is [emptiness](glossary#emptiness). If you understand Buddha – Buddha experiences this [enlightenment](glossary#enlightenment). That's why [Subhuti](glossary#subhuti) says, "The [dharma](glossary#dharma) which the Tathagata has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
+At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is [emptiness](glossary#emptiness). If you understand [Buddha](glossary#buddha) – Buddha experiences this [enlightenment](glossary#enlightenment). That's why [Subhuti](glossary#subhuti) says, "The [dharma](glossary#dharma) which the Tathagata has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
 
 One is not something you can think or you can grab. When you think, when you experience, when you "get it," it is always two. That's why religion, all religion, speaks about the truth. But [there are] many kinds of truth. We fight each other, according to many kinds of truth. "[Buddhism](glossary#buddhism) is right." "Christianity is right; Buddhism is crazy." But Buddhism [and] Christianity explain about the truth. The truth is exactly one. One means, nothing to get, [to] grasp. 
 
