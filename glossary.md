@@ -31,6 +31,8 @@ It particularly focuses on analyzing and synthesizing what the [āgama](glossary
 
 "Aesthetic contemplation" may refer to Schopenhauer’s aesthetic theory. If so, this is an interesting connection to Western philosophy. "In aesthetic contemplation, we stop thinking about the world and the objects in it as means to our ends, that is, as objects of our will. We also see attention and perception take center stage."
 
+- [Diamond Sutra: Provisional Being (43:50)](1979-07-25-Diamond-Sutra-Provisional-Being#4350)
+
 - [Schopenhauer’s Aesthetics at plato.stanford.edu](https://plato.stanford.edu/entries/schopenhauer-aesthetics/)
 - [Internet Encyclopedia of Philosophy: “Aesthetic Attitude"](https://iep.utm.edu/aesth-at/)
 
@@ -42,6 +44,9 @@ It particularly focuses on analyzing and synthesizing what the [āgama](glossary
 The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#shakyamuni-buddha ), originally transmitted orally, compiled after the Buddha's death. In the [Pali Cannon](glossary#pali-cannon), these are called the [Nikāyas](glossary#nikāya).
 
 - [Wikipedia: Āgama (Buddhism)](https://en.wikipedia.org/wiki/Āgama_(Buddhism))
+
+-------
+## Alayavijñāna
 
 -------
 ## Aprāpti
@@ -134,7 +139,7 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 -------
 ## Buddha
 
-([Sanskrit](glossary#sanskrit)) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the Tathagata". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
+([Sanskrit](glossary#sanskrit)) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the [Tathāgata](glossary#tathāgata)". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
 
 - [Wikipedia: Buddhahood](https://en.wikipedia.org/wiki/Buddhahood)
 
@@ -738,11 +743,18 @@ suki (Japanese): gap; space.
 ## Sutra
 
 -------
-## Tathagata
+## Tathāgata
 
 A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 
-[Fukanzazengi – Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
+- [Fukanzazengi – Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
+
+- [Wikipedia: Tathāgata](https://en.wikipedia.org/wiki/Tathāgata)
+
+-------
+## Tathāgatagarbha
+
+- [Wikipedia: Tathāgatagarbha thought](https://en.wikipedia.org/wiki/Eight_Consciousnesses#Tathagata-garbha_thought)
 
 -------
 ## Tibetan Buddhism

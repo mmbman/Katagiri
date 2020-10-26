@@ -9,8 +9,8 @@ These are the find/replace grep or regex [patterns](https://www.barebones.com/su
 
 Pattern Name | Search Pattern | Replace Pattern 
 ---------------- | ----------------- | -------------------
+first occurrences			|	`(?<!#|\]\()\b(tathāgata|tathāgatas)\b(.*)`	| `[\1](glossary#tathāgata)\2`
 occurrences					|	`(?<!#|\]\()\b(zazen)\b`	|	`[\1](glossary#zazen)`
-first occurrences			|	`(?<!#|\]\()\b(zazen)\b(.*)`	| `[\1](glossary#zazen)\2`
 unlinked occurrences:	|	`(?<![\[#-])\b(zazen)\b(?![\]-])`	|	`[\1](glossary#zazen)`
 links by text					|	`\[(zazen)\]\(.*?\)`			|	`\1`
 links by reference		|	`\[([^\[\]\(\)\n]*?)\]\(glossary#zazen\)`		|	`\1`
@@ -18,6 +18,7 @@ all links 						|	`\[[^\]\n]*\]\([^\)\n]*\)`		|
 all non-link brackets	|	`\[[^\]\n]*\](?!\()`				|
 all brackets					|	`\[(.*?)\](?=\(?)`				|
 all brackets 2				|	`\[[^\]\n]*\]`					|
+(T|t)athagata(s?)			|	`\b(T|t)athagata(s?)\b`	| \1athāgata\2
 
 [Home](index#tools)
 

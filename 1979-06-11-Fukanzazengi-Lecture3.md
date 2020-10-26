@@ -289,7 +289,7 @@ Then what he has to do is ... he practices. Continually, he practices. But [he] 
 
 ##### 1:19:55
 
-That means, without entering nirvana, [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his [Buddha Nature](glossary#buddha-nature). That is Tathagata. The bodhisattva has double face – Bodhisattva and [Buddha](glossary#buddha).
+That means, without entering nirvana, [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his [Buddha Nature](glossary#buddha-nature). That is [Tathāgata](glossary#tathāgata). The bodhisattva has double face – Bodhisattva and [Buddha](glossary#buddha).
 
 When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see it. But a Buddha is hidden behind the [Bodhisattva](glossary#bodhisattva); bodhisattva walks, as a human being. Bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water.
 
@@ -337,7 +337,7 @@ So [normally?] there is no chance to come back to the samsaric world.
 
 **Katagiri** No.
 
-So, they're just a river... practicing, waiting for death. But a [Bodhisattva](glossary#bodhisattva) and tathagata are a little different.
+So, they're just a river... practicing, waiting for death. But a [Bodhisattva](glossary#bodhisattva) and [tathāgata](glossary#tathāgata) are a little different.
 
 ##### 1:27:13
 
@@ -407,7 +407,7 @@ So, take one step. If you take one step ... it's many steps immediately. That's 
 
 **Question**: Can you say what an [arhat](glossary#arhat) is?
 
-**Katagiri**: Well, [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), and [tathagatas](glossary#tathagata), are all discrimination, aren't they?  Well, [they are] categories of Buddhist capabilities. So temporarily, we categorized the [buddhas](glossary#buddha)' capability, the quality of buddhas is categorized. *[unintelligible]* ... there is arhat, and bodhisattva, and well-gone, et cetera. Arhat means a person who deserves to see respect from others. To deserve, to command, respect from others, that is arhat, because he becomes arhat by reaching the final goal, entering nirvana. So everyone respects [that]; perfect.
+**Katagiri**: Well, [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), and [tathāgatas](glossary#tathāgata), are all discrimination, aren't they?  Well, [they are] categories of Buddhist capabilities. So temporarily, we categorized the [buddhas](glossary#buddha)' capability, the quality of buddhas is categorized. *[unintelligible]* ... there is arhat, and bodhisattva, and well-gone, et cetera. Arhat means a person who deserves to see respect from others. To deserve, to command, respect from others, that is arhat, because he becomes arhat by reaching the final goal, entering nirvana. So everyone respects [that]; perfect.
 
 ##### 1:37:39
 
