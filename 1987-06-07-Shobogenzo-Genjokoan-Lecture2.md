@@ -290,7 +290,7 @@ In the saying, "When the [buddhas](glossary#buddha) are indeed the buddhas, ther
 > (10) When [buddhas](glossary#buddha) are really buddhas, they do not need to recognize themselves as buddhas.  
 > (11) Nevertheless, they are buddhas in the state of experience, and they go on experiencing the state of [buddha](glossary#buddha).  
 
-That's why, "What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength, by practicing this. Katagiri mentions, [Buddha](glossary#buddha) mentions, ancestor mentions. Please give me something!" But, no way; I don't know. I don't have anything to give you. So all you have to do is, just do it. If you just do it, participate directly in the perpetual flow of energy, at that time, there is no way to know. But, it is, you can realize it.
+That's why, "What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength, by practicing this. Katagiri mentions, [Buddha](glossary#buddha) mentions, [ancestor](glossary#ancestor) mentions. Please give me something!" But, no way; I don't know. I don't have anything to give you. So all you have to do is, just do it. If you just do it, participate directly in the perpetual flow of energy, at that time, there is no way to know. But, it is, you can realize it.
 
 So, it's... just like your body soaks in the stream. And then, your whole body (is) wet. But, we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; and next moment, some thirst comes again. So if you really quench your thirst, you jump into the water; you soak your body and mind into the river. And then, the river water soaks through your huge pores, just like a bamboo basket. Your body is just like a bamboo basket; do you understand? Like the pores. But you don't believe it. If you soak it, and then water falls through there, lots of immediate holes there. That is the pores.
 
@@ -352,7 +352,7 @@ If you do it, that is called way to turn [alayavijñāna](glossary#alayavijñān
 
 ##### 1:07:24
 
-So, no way; if you don't do it, anything like the [Buddha](glossary#buddha)'s suggestions, ancestors' suggestions like this, no way to build up peaceful world. So, remember, this is a key point. But if you teach this one philosophically, that is called [egolessness](glossary#egolessness). Egolessness, interdependent co-origination; lots of teaching coming up. The point is, regardless of whether you understand egolessness or not, there is a unique way to practice, for everyone. Everyone can do it.
+So, no way; if you don't do it, anything like the [Buddha](glossary#buddha)'s suggestions, [ancestors](glossary#ancestor)' suggestions like this, no way to build up peaceful world. So, remember, this is a key point. But if you teach this one philosophically, that is called [egolessness](glossary#egolessness). Egolessness, interdependent co-origination; lots of teaching coming up. The point is, regardless of whether you understand egolessness or not, there is a unique way to practice, for everyone. Everyone can do it.
 
 Okay, do you have a question? I'm sorry, I didn't finish.
 

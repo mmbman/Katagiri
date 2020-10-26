@@ -49,6 +49,11 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 ## Alayavijñāna
 
 -------
+## Ancestor
+
+Also: *patriarch*
+
+-------
 ## Aprāpti
 
 [Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). 
@@ -71,7 +76,7 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 -------
 ## Aryadeva
 
-Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
+Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th [patriarch](glossary#ancestor) in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
 
 - [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
 
@@ -524,7 +529,7 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 -------
 ## Patriarch
 
-Ancestor
+See [Ancestor](glossary#ancestor)
 
 -------
 ## Prajna

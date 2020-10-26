@@ -351,7 +351,7 @@ So, teacher is important, but teacher is a teacher – that this teacher also fo
 
 **Same person**: Our connection to [Dogen](glossary#dogen) and [Buddha](glossary#buddha) is for you...
 
-**Katagiri**: Teacher is [Buddha](glossary#buddha), and [Dogen](glossary#dogen), and [patriarch](glossary#patriarch), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
+**Katagiri**: Teacher is [Buddha](glossary#buddha), and [Dogen](glossary#dogen), and [patriarch](glossary#ancestor), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
 
 ##### 1:05:15
 

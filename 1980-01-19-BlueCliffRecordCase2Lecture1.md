@@ -25,7 +25,7 @@ At this time, I would like to study with you the second case of The [Blue Cliff 
 
 This is the main case. This morning I would like to read the pointer for the main case, pointing out the most important key in the main case, [which is] mentioned by Engo [Zen Master](glossary#zen-master). (Engo Kokugon is the Japanese name for Ch’an teacher Yuan Wu K’e Ch’in (1063–1135), who compiled the [Blue Cliff Record](glossary#blue-cliff-record) and added the pointers, notes and commentaries.)
 
-> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the [Buddhas](glossary#buddha) of the three times can only know it for themselves; the successive generations of patriarchs haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
+> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the [Buddhas](glossary#buddha) of the three times can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
 
 In this pointer, Engo [Zen Master](glossary#zen-master) emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
 
@@ -35,7 +35,7 @@ Plainly speaking, this is the truth, or original nature of existence, or dharma.
 
 The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called ontology. We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, [Buddha](glossary#buddha), or [impermanence](glossary#impermanence), or [dependent origination](glossary#dependent-origination) – all are immediately something objectified by you. This is very natural. 
 
-It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So patriarchs and [Buddhas](glossary#buddha) constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
+It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So [patriarchs](glossary#ancestor) and [Buddhas](glossary#buddha) constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
 
 So, whatever kind of religion you study, even Christianity [or] [Buddhism](glossary#buddhism), this attitude is very fundamental, universal. [In] Christianity you really have to devote yourself toward God; [whether you] believe or not, you have to throw away yourself into God. This is the first request. If you don’t, there is no sense of Christianity. It is very true. And the same applies to Buddhism: if you don’t have this fundamental attitude toward the truth, throwing away yourself, forgetting yourself, and throw yourself into [Buddha](glossary#buddha)’s house, it's very difficult to understand what the truth is, directly connected with your body and mind. It’s very difficult. That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](dogen#life-and-death) , “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any [one’s] mind.” This is very famous statement mentioned by [Dogen](glossary#dogen). *[he repeats the quote]* This [is the] correct attitude to research the truth, what it is; because this is human life, this is human life.
 
@@ -95,7 +95,7 @@ So, very naturally, in [the] [Buddhistic](glossary#buddhistic ) world, it might 
 
 We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. [Buddha](glossary#buddha) or [Avalokiteshvara](glossary#avalokiteshvara), whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
 
-[The question] is important, but you cannot be obsessed with [it]. That’s why [Buddhas](glossary#buddha) and [ancestors] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
+[The question] is important, but you cannot be obsessed with [it]. That’s why [Buddhas](glossary#buddha) and \[[ancestors](glossary#ancestor)] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
 
 What should you do? Jump into it. Throw yourself into [Buddha](glossary#buddha)’s home. Without this, it’s very difficult. 
 
@@ -147,7 +147,7 @@ So that’s why he says he says, “Even if blows of the staff fall like rain an
 
 ##### 36:45
 
-> Even the [Buddhas](glossary#buddha) of the three times can only know it for themselves; the successive generations of patriarchs have not been able to bring it up in its entirety. 
+> Even the [Buddhas](glossary#buddha) of the three times can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) have not been able to bring it up in its entirety. 
 
 "Even the [Buddhas](glossary#buddha) of the three times..." – Past, present, future; all Buddhas.
 
@@ -157,9 +157,9 @@ Even the [Buddhas](glossary#buddha), through the past, to the present, to the fu
 
 ##### 38:00
 
-And also he said, “the successive generations of patriarchs have not been able to bring it up in its entirety.” 
+And also he said, “the successive generations of [patriarchs](glossary#ancestor) have not been able to bring it up in its entirety.” 
 
-Originally it says, “Even the successive generations of patriarchs haven’t pulled it down entirely as it is, and stood up there.” That means – you know, "patriarchs" are the practicers – the many patriarchs understand the truth, that means pulled down toward the patriarchs. “I” understand the truth, so you say; that means you pull it down toward you. And stand up: “I understand", which is called “I am enlightened person". Well, it is not a real truth. That’s why he said, “the successive generations of patriarchs haven’t been able to bring it back in its entirety.” 
+Originally it says, “Even the successive generations of [patriarchs](glossary#ancestor) haven’t pulled it down entirely as it is, and stood up there.” That means – you know, "patriarchs" are the practicers – the many patriarchs understand the truth, that means pulled down toward the patriarchs. “I” understand the truth, so you say; that means you pull it down toward you. And stand up: “I understand", which is called “I am enlightened person". Well, it is not a real truth. That’s why he said, “the successive generations of patriarchs haven’t been able to bring it back in its entirety.” 
 
 Whatever you say – “I” understand – that truth you understand is something you have pulled down toward you; that is a personal experience. That’s why [Buddhism](glossary#buddhism) always says, “No God, no [Buddhas](glossary#buddha), no [Avalokiteshvara](glossary#avalokiteshvara)” – nothing, completely nothing. Because it’s pretty easy for us to say “I” understand it, “I” experience always. 
 
@@ -167,7 +167,7 @@ Particularly when the people respect you and other great persons, you believe, �
 
 Because, life must be alive, from moment to moment, under all circumstances. Whenever people put a certain label on you, "advanced," or "beginner," or “top class,” it doesn’t matter; anyway your life must be alive, day to day. If you’re really obsessed with personal experience, it is not the real truth; it is not the real teaching of [Buddhism](glossary#buddhism). 
 
-That’s why he says, “the successive generations of patriarchs haven’t been able to bring it up in its entirety” – because there are patriarchs like that, constantly alive in their daily life. 
+That’s why he says, “the successive generations of [patriarchs](glossary#ancestor) haven’t been able to bring it up in its entirety” – because there are patriarchs like that, constantly alive in their daily life. 
 
 ##### 41:23
 
