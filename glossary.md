@@ -150,6 +150,10 @@ The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 -------
 
+## Buddha Land
+
+-------
+
 ## Buddha Nature
 
 The original nature of existence, perfect and all pervading. 

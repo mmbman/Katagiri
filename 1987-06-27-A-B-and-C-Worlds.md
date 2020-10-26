@@ -101,7 +101,7 @@ The entrance(?) of the truth itself, or [emptiness](glossary#emptiness) itself, 
 
 ##### 39:10
 
-I think the... in terms of "C" world, [Dogen Zenji](glossary#dogen) mentions "the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity." Your world is bathed in the warm light of huge expanse of being, existence. Beyond purity or not purity. In other words, your life is embraced with really great, warm arm of the mother. So, we should completely accept. But beyond you want to accept (or) you don't accept, you are already embraced by huge, warm arms of mother. This is earth, universe. That is called buddha land, buddha.
+I think the... in terms of "C" world, [Dogen Zenji](glossary#dogen) mentions "the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity." Your world is bathed in the warm light of huge expanse of being, existence. Beyond purity or not purity. In other words, your life is embraced with really great, warm arm of the mother. So, we should completely accept. But beyond you want to accept (or) you don't accept, you are already embraced by huge, warm arms of mother. This is earth, universe. That is called [buddha land](glossary#buddha-land), buddha.
 
 ##### 40:42
 
