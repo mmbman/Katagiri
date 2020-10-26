@@ -10,7 +10,7 @@ These are the find/replace grep or regex [patterns](https://www.barebones.com/su
 Pattern Name | Search Pattern | Replace Pattern 
 ---------------- | ----------------- | -------------------
 occurrences					|	`(?<!#|\]\()\b(zazen)\b`	|	`[\1](glossary#zazen)`
-first occurrences			|	`\b(zazen)\b(.*)` 			| `[\1](glossary#zazen)\2`
+first occurrences			|	`(?<!#|\]\()\b(zazen)\b(.*)`	| `[\1](glossary#zazen)\2`
 unlinked occurrences:	|	`(?<![\[#-])\b(zazen)\b(?![\]-])`	|	`[\1](glossary#zazen)`
 links by text:				|	`\[(zazen)\]\(.*?\)`			|	`\1`
 links by reference:		|	`\[([^\[\]\(\)\n]*?)\]\(glossary#zazen\)`		|	`\1`
