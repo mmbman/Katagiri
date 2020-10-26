@@ -120,7 +120,7 @@ Japanese: Hekiganroku
 -------
 ## Bodhidharma
 
-The First Ancestor of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
+The First [Ancestor](glossary#ancestor) of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 - [Fukanzazengi – Lecture 4 (0:00)](1979-06-12-Fukanzazengi-Lecture4#000)
 
@@ -177,7 +177,7 @@ The original nature of existence, perfect and all pervading.
 -------
 ## Buddhistic
 
-"Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism," without implying that "Buddhism" is a fixed concept or object.
+"Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism" without implying that "Buddhism" is a fixed object or concept.
 
 - [Fukanzazengi – Lecture 2 (1:10:26)](1979-06-10-Fukanzazengi-Lecture2#11026)
 - [Fukanzazengi – Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
@@ -291,7 +291,7 @@ Monastery founded by Eihei Dogen. Considered one of the primary Zen training tem
 -------
 ## Emptiness
 
-See [shunyata](glossary#shunyata).
+See [śūnyatā](glossary#śūnyatā).
 
 -------
 ## Enlightenment
@@ -543,7 +543,7 @@ See [Ancestor](glossary#ancestor)
 
 "Wisdom beyond wisdom", or The Perfection of Wisdom.
 
-Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the [Sanskrit](glossary#sanskrit) words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (Shunyata) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
+Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the [Sanskrit](glossary#sanskrit) words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (śūnyatā) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
 
 According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
@@ -679,11 +679,12 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 See [Dogen Reference Index: Shobogenzo](dogen#shobogenzo)
 
 -------
-## Shunyata
+## Śūnyatā
 
 [Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".
+Also: *emptiness*, *vastness*, *boundlessness*
 
-Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of independent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism; the first thing to understand is that it is not a nihilistic kind of emptiness, but it really means unlimited potential, and it underlies existence. 
+Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism. The first thing to understand is that it is not a nihilistic kind of emptiness, it really means unlimited potential.
 
 - [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
 

@@ -51,9 +51,9 @@ There are four kinds of perceptions of object negatively, because according to [
 
 ##### 11:02
 
-One is, everything is [emptiness](glossary#emptiness). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say "Why," you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn't hit the mark. *Why*? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
+One is, everything is [emptiness](glossary#śūnyatā). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say "Why," you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn't hit the mark. *Why*? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
 
-You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: [emptiness](glossary#emptiness), nothing. That means: Americans exist. We've got enemies. 
+You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: [emptiness](glossary#śūnyatā), nothing. That means: Americans exist. We've got enemies. 
 
 ##### 12:45
 
@@ -61,11 +61,11 @@ You can explain why; but [the] explanation of the reason why you are American ca
 
 ... Why do you live? What is the purpose, to live in this world? So you say, "I live to work." Or, "I work to live." Or you say, "I don't know. I just live." Whatever you say, it doesn't hit the mark. Okay? It doesn't help you. 
 
-If you know "I live to work" or "I work to live," this is pretty good; [it's] a *little* helpful, for a certain period of time. But it's not *real* help. Real help is, you live just to live. That's all you have to do. Because ... everything returns to [emptiness](glossary#emptiness) – no reason. To live is *[unintelligible]*. Because, the nature of existence, your life, or your question, your answers, are absolute. Which you are pretty familiar with, absolute. Absolute is, it exists by itself. [The] original nature of the self exists by itself. That means you are free; really free. So, everything is empty. Emptiness.
+If you know "I live to work" or "I work to live," this is pretty good; [it's] a *little* helpful, for a certain period of time. But it's not *real* help. Real help is, you live just to live. That's all you have to do. Because ... everything returns to [emptiness](glossary#śūnyatā) – no reason. To live is *[unintelligible]*. Because, the nature of existence, your life, or your question, your answers, are absolute. Which you are pretty familiar with, absolute. Absolute is, it exists by itself. [The] original nature of the self exists by itself. That means you are free; really free. So, everything is empty. Emptiness.
 
 ##### 15:24 
 
-And then, if everything is [emptiness](glossary#emptiness), that emptiness is that which is existent, that which is accurate, or that which is real. If it is true, the third no perception of object is no perception. That means, you cannot talk about it. You cannot talk about the absolute, or original nature of the self, or existence. Don't touch it; [it's] untouchable. If you touch it, if you [attack? attach to?] it, it's not absolute. 
+And then, if everything is [emptiness](glossary#śūnyatā), that emptiness is that which is existent, that which is accurate, or that which is real. If it is true, the third no perception of object is no perception. That means, you cannot talk about it. You cannot talk about the absolute, or original nature of the self, or existence. Don't touch it; [it's] untouchable. If you touch it, if you [attack? attach to?] it, it's not absolute. 
 
 ##### 16:15
 
@@ -75,7 +75,7 @@ But whatever you pick up; your nose, your eyes, your head, your body, whatever i
 
 ##### 17:36
 
-Fourth is, if it is indescribable. [Is] the absolute completely indescribable? No. You can describe [it]. There is a term, absolute – from where [does] it come? [The term exists] because, someone knows. Maybe ... in the past, someone knew the absolute, someone experienced the absolute. Someone experienced [emptiness](glossary#emptiness); someone experienced original nature of existence. Someone. 
+Fourth is, if it is indescribable. [Is] the absolute completely indescribable? No. You can describe [it]. There is a term, absolute – from where [does] it come? [The term exists] because, someone knows. Maybe ... in the past, someone knew the absolute, someone experienced the absolute. Someone experienced [emptiness](glossary#śūnyatā); someone experienced original nature of existence. Someone. 
 
 For instance, if I am master of making miso or tofu. No one can imitate exactly [the] same as my tofu, okay? Exactly good tofu, in my way. No one can imitate [it]. So that is the master of tofu maker. Tofu maker, miso maker. 
 
@@ -197,7 +197,7 @@ So, in a sense, [in the] common sense, we are always participating in [being]. A
 
 ##### 51:30
 
-That's why [Buddha](glossary#buddha) always says, everything is [emptiness](glossary#emptiness). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But [that] doesn't mean through [that] you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of [it].
+That's why [Buddha](glossary#buddha) always says, everything is [emptiness](glossary#śūnyatā). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But [that] doesn't mean through [that] you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of [it].
 
 So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
 

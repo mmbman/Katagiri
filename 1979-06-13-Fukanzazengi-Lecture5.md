@@ -344,7 +344,7 @@ Okay?
 
 The point is, if we see many thoughts with our consciousness, sometimes consciousness gets exhausted. But actually it's not necessary to worry about [it], because if you experience real exhaustion, exhaustion itself knows pretty well what to do next. So, if you get exhausted – well, that's too much. It's not necessary to be concerned about "that's too much." If you think "that's too much," it really makes you exhausted *more*, psychologically and physically. So "I [am] exhaust[ed]": if you do [zazen](glossary#zazen), everyone [gets exhausted?] physically. But mental exhaustion is a little bit complicated. If you see physical exhaustion: "Oh, tired". And then it's, "Ooooh, *tired*." *[The first one sounds more matter-of-fact; second one sounds more drawn out and perhaps melodramatic.]* Very different, don't you think so?  And then: "I don't want it." That is already mental exhaustion. So you add to physical exhaustion something extra, always. 
 
-So actually, physical exhaustion itself knows pretty well what to do next. Because, exhaustion itself itself has no abode. No abode; [emptiness](glossary#emptiness). So, if you exhaust [yourself] in [zazen](glossary#zazen), you never die. You never die; you feel good after that. Don't you think so?
+So actually, physical exhaustion itself knows pretty well what to do next. Because, exhaustion itself itself has no abode. No abode; [emptiness](glossary#śūnyatā). So, if you exhaust [yourself] in [zazen](glossary#zazen), you never die. You never die; you feel good after that. Don't you think so?
 
 ##### 1:05:03
 

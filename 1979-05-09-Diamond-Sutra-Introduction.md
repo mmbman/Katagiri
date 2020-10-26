@@ -25,11 +25,11 @@ During the first and the second centuries, there were several great organizers a
 
 ##### 5:24
 
-[In] the first period, when a group of  [Prajnaparamita Sutras](glossary#prajnaparamita-sutra) were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra), and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and [emptiness](glossary#emptiness). 
+[In] the first period, when a group of  [Prajnaparamita Sutras](glossary#prajnaparamita-sutra) were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra), and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are huge Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose. This is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and [emptiness](glossary#śūnyatā). 
 
 So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossary#diamond-sutra). It's full name is Vajracchedikā Prajñāpāramitā Sūtra.
 
-This sutra sets forth the doctrine of [shunyata](glossary#shunyata) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism ). 
+This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism ). 
 
 We don't know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor). So absolutely no direct Buddha's teaching mentioned. Even the [āgamas](glossary#āgama), \[or] [Nikāyas](glossary#nikāya) – [there are] four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those āgamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
 
@@ -59,7 +59,7 @@ I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is qui
 
 ##### 18:58
 
-The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons, that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#emptiness). But that emptiness is exactly expressed by conscious thought. Huge.
+The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top. But Indian people use more than billions. That is kalpas, eons, that [are] completely beyond measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought. Huge.
 
 So [Prajnaparamita](glossary#prajnaparamita) 
  is what is called The Perfection of Wisdom. [The] Indian people try to explain what wisdom is, according to concept. So, for instance, in [Diamond Sutra](glossary#diamond-sutra), it says: 
@@ -132,7 +132,7 @@ That is a great chance for you to practice, to continue to do it.
 
 This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. "A is A, but A is not A, that's why we call A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. But even though you don't like your life, or you like your life – a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say, you don't like, or you like: what is life? What are you? You are still you. And your life is existent. How can you judge? 
 
-So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#emptiness), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
+So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
 ##### 43:16
 

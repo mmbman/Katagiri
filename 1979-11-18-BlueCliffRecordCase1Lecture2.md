@@ -194,7 +194,7 @@ But, he doesn’t say [that]. “Nothing holy. Empty.”
 
 [The Emperor] was completely confused. 
 
-And then, the note says, “The arrow has flown past Korea.” This is a very common expression in Zen. “The arrow has flown past Korea” means, we don’t know. *[he laughs]* We don’t know when, how, where the arrow will fall down, or reach. Because: vastness, [emptiness](glossary#emptiness). [His] answer, "vastness and nothing holy," is just like an arrow; shoot! The arrow is endlessly going in space. This is called vastness. Nothing holy. We don’t know where it goes. What is the target, where is the target? We don’t know. 
+And then, the note says, “The arrow has flown past Korea.” This is a very common expression in Zen. “The arrow has flown past Korea” means, we don’t know. *[he laughs]* We don’t know when, how, where the arrow will fall down, or reach. Because: vastness, [emptiness](glossary#śūnyatā). [His] answer, "vastness and nothing holy," is just like an arrow; shoot! The arrow is endlessly going in space. This is called vastness. Nothing holy. We don’t know where it goes. What is the target, where is the target? We don’t know. 
 
 So, Engo [Zenji](glossary#zenji)’s note says, “Hey, anyway the ancient [Bodhidharma](glossary#bodhidharma) shot the arrow. Where? We don’t know where it goes.” It’s a straight arrow.
 

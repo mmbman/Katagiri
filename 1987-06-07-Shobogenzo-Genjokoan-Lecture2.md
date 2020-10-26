@@ -252,7 +252,7 @@ And then, that's why next, he says, "acting on, witness(ing) oneself in advent o
 
 So, delusion and [enlightenment](glossary#enlightenment) work together. So that's why ... always [bodhisattva](glossary#bodhisattva) is characterized by working with all sentient beings hand in hand, instead of getting into [buddha](glossary#buddha)'s position. Becoming buddha - they don't want! So, always working. But behind bodhisattva's delusion, there is a buddha there. So-called enlightenment. That's why, if you read scriptures, always bodhisattva appears in front. And behind, the buddhas. Always the buddha is behind the bodhisattva, supporting. 
 
-So if you read the scriptures, there is something very quiet, silent, beyond [bodhisattvas](glossary#bodhisattva) activities in the front. There is something - quietness. That quietness is described sometimes (as) [emptiness](glossary#emptiness).
+So if you read the scriptures, there is something very quiet, silent, beyond [bodhisattvas](glossary#bodhisattva) activities in the front. There is something - quietness. That quietness is described sometimes (as) [emptiness](glossary#śūnyatā).
 
 It's very interesting: if you sit down quietly and read scriptures, very naturally, you can see first, the [bodhisattva](glossary#bodhisattva) for activities, and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
 

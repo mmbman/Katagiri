@@ -1,7 +1,7 @@
 <a name="0"></a>
 # Tools
 
-The [Katagiri Transcripts](https://katagiritranscripts.net) website is created in [Markdown](https://guides.github.com/features/mastering-markdown/) using [BBEdit for Mac](https://www.barebones.com/products/bbedit/), and is hosted on [GitHub Pages](https://pages.github.com).
+The [Katagiri Transcripts](https://katagiritranscripts.net) website is written in [Markdown](https://guides.github.com/features/mastering-markdown/) using [BBEdit for Mac](https://www.barebones.com/products/bbedit/), and is hosted on [GitHub Pages](https://pages.github.com).
 
 ## BBEdit Find/Replace Patterns
 
