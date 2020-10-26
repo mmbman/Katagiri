@@ -5,11 +5,9 @@
 
 - [About This Website](about#0)
 
-	<a name="diamond-sutra-introduction"></a>
-1. [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
+1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 
-	<a name="fukanzazengi-lecture-1"></a>
-1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
+1. <a name="fukanzazengi-lecture-1"></a> [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
 
 	<a name="fukanzazengi-lecture-2"></a>
 1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
