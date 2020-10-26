@@ -171,19 +171,17 @@ For instance, we exist in that way because when you were born, your mother took 
 
 I think you understand why we believe things to be actual being[s], not provisional being[s]. I explained it to you: Because, by participation in your object, at that time, [the] object as a provisional being turns into [an] actual being. So that means there is always a sense of actuality.
 
-If you take away this sense of actuality – because this sense of actuality comes from very common human activity – but if you take away this sense of actuality, there are two kinds of thinking. One is recognition, [the] function of cognition. The other is aesthetic contemplation. 
+If you take away this sense of actuality – because this sense of actuality comes from very common human activity – but if you take away this sense of actuality, there are two kinds of thinking. One is recognition, [the] function of cognition. The other is [aesthetic contemplation](glossary#aesthetic-contemplation). 
 
 [With] the function of recognition or cognition, you don't [engage with the] object, you completely keep away from [it]. You see [the] object objectively. So, there is no feeling of warmness. Completely you see [the] object, and then try to understand [the reality?] of your object. This is [science?].
 
-On the other hand, the function of aesthetic contemplation is through your consciousness. You don't participate in [the] object, but through the consciousness, through the aesthetic contemplation, you can merge yourself into the object, exactly. Aesthetic contemplation means, in other words, intuition, or a particular term term is wisdom. 
+On the other hand, the function of [aesthetic contemplation](glossary#aesthetic-contemplation) is through your consciousness. You don't participate in [the] object, but through the consciousness, through the aesthetic contemplation, you can merge yourself into the object, exactly. Aesthetic contemplation means, in other words, intuition, or a particular term term is wisdom. 
 
-("Aesthetic contemplation" may refer to [Schopenhauer’s Aesthetics](https://plato.stanford.edu/entries/schopenhauer-aesthetics/) [or see ["Aesthetic Attitude"](https://iep.utm.edu/aesth-at/)]. If so, this is an interesting connection to Western philosophy. "In aesthetic contemplation, we stop thinking about the world and the objects in it as means to our ends, that is, as objects of our will. We also see attention and perception take center stage.")
-
-Through the wisdom, you don't participate in your object, but, through the wisdom, you can merge yourself into your object, *[unintelligible]*. This is [the] function of aesthetic contemplation.
+Through the wisdom, you don't participate in your object, but, through the wisdom, you can merge yourself into your object, *[unintelligible]*. This is [the] function of [aesthetic contemplation](glossary#aesthetic-contemplation).
 
 *[tape change]*
 
-... another one is, aesthetic contemplation. This is kind of [a] religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
+... another one is, [aesthetic contemplation](glossary#aesthetic-contemplation). This is kind of [a] religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
 
 Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because ... you merge yourself into your object with your wisdom. Not carelessly; you don't participate at random. You participate in [it] very carefully, with wisdom. [You] merge yourself into your object.
 

@@ -6,7 +6,6 @@
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
 -------
-
 ## Abhidharma
 
 [Sanskrit](glossary#sanskrit): Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
@@ -16,7 +15,6 @@
 - [Wikipedia: Abhidharma](https://en.wikipedia.org/wiki/Abhidharma)
 
 -------
-
 ## Abhidharmakosha
 
 [Sanskrit](glossary#sanskrit): Abhidharmakośa
@@ -29,7 +27,13 @@ It particularly focuses on analyzing and synthesizing what the [āgama](glossary
 - [encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
 -------
+## Aesthetic Contemplation
 
+"Aesthetic contemplation" may refer to [Schopenhauer’s Aesthetics](https://plato.stanford.edu/entries/schopenhauer-aesthetics/) (or see ["Aesthetic Attitude"](https://iep.utm.edu/aesth-at/)). If so, this is an interesting connection to Western philosophy. 
+
+"In aesthetic contemplation, we stop thinking about the world and the objects in it as means to our ends, that is, as objects of our will. We also see attention and perception take center stage."
+
+-------
 ## Āgamas
 
 ([Sanskrit](glossary#sanskrit)) āgama: sacred work or scripture.
@@ -39,7 +43,6 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 - [Wikipedia: Āgama (Buddhism)](https://en.wikipedia.org/wiki/Āgama_(Buddhism))
 
 -------
-
 ## Aprāpti
 
 [Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). 
@@ -49,7 +52,6 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 -------
-
 ## Arhat
 
 ([Sanskrit](glossary#sanskrit)) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
@@ -61,7 +63,6 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 - [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
 -------
-
 ## Aryadeva
 
 Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th patriarch in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
@@ -69,7 +70,6 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 - [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
 
 -------
-
 ## Asanga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian [Sanskrit](glossary#sanskrit) exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
@@ -77,7 +77,6 @@ Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures
 - [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
 
 -------
-
 ## Auddhatya
 
 ([Sanskrit](glossary#sanskrit)) Usually translated as "distraction". Restlessness or agitation, restlessness of mind, or frivolity. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
