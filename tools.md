@@ -9,7 +9,7 @@ These are the find/replace grep or regex [patterns](https://www.barebones.com/su
 
 Pattern Name | Search Pattern | Replace Pattern 
 ---------------- | ----------------- | -------------------
-first occurrences			|	`(?<!#|\]\()\b(tathāgata|tathāgatas)\b(.*)`	| `[\1](glossary#tathāgata)\2`
+first occurrences			|	`(?<!#|\]\()\b(buddha(s?))\b(.*)`	| `[\1](glossary#buddha)\3`
 occurrences					|	`(?<!#|\]\()\b(zazen)\b`	|	`[\1](glossary#zazen)`
 unlinked occurrences:	|	`(?<![\[#-])\b(zazen)\b(?![\]-])`	|	`[\1](glossary#zazen)`
 links by text					|	`\[(zazen)\]\(.*?\)`			|	`\1`

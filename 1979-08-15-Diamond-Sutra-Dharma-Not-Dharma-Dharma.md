@@ -9,7 +9,7 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-> (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the "heap of merit" as a non-heap. That is how the Tathāgata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathāgatas, Arhats, Fully Enlightened Ones, and from it have issued the Buddhas, the Lords. And why? For the Tathāgata has taught that the dharmas special to the Buddhas are just not a [Buddha](glossary#buddha)'s special dharmas. That is why they are called "the dharmas special to the Buddhas."
+> (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the "heap of merit" as a non-heap. That is how the Tathāgata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathāgatas, Arhats, Fully Enlightened Ones, and from it have issued the [Buddhas](glossary#buddha), the Lords. And why? For the Tathāgata has taught that the dharmas special to the Buddhas are just not a [Buddha](glossary#buddha)'s special dharmas. That is why they are called "the dharmas special to the Buddhas."
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 34-35.)
 
@@ -121,7 +121,7 @@ So using your head, knowledge, you have to study, one by one. That is Buddhist p
 
 On the other hand, even though you understand human life through this continuous turning on the switch every moment, it is not real dharma. You cannot reach the real dharma. Because behind the switch, there are huge worlds unfolded. That is [the solidity?], the universal energy, electric wave, human effort; lots of things going on. [Music?] Many things. 
 
-Then we have to learn one by one; this is philosophy, psychology as a background. And then through this understandable way, to the total picture of the truth. According to philosophical and psychological explanation, we can reach at the stage of the Buddha as a result. That is Sambhogakaya Buddha. 
+Then we have to learn one by one; this is philosophy, psychology as a background. And then through this understandable way, to the total picture of the truth. According to philosophical and psychological explanation, we can reach at the stage of the [Buddha](glossary#buddha) as a result. That is Sambhogakaya Buddha. 
 
 ##### 34:05
 
@@ -143,7 +143,7 @@ So, there is nothing to attach [to]; [not] to Sambhogakaya, to Nirmanakaya, to D
 
 ##### 39:32
 
-Finally in Chapter 8: "the [Tathāgata](glossary#tathāgata) has taught that the dharmas special to the Buddhas are just not the [Buddha](glossary#buddha)'s special dharmas. That is why they are called 'the dharmas special to the Buddhas.'" 
+Finally in Chapter 8: "the [Tathāgata](glossary#tathāgata) has taught that the dharmas special to the [Buddhas](glossary#buddha) are just not the Buddha's special dharmas. That is why they are called 'the dharmas special to the Buddhas.'" 
 
 That means [the] buddhadharma mentioned by human body, human speculation, is no buddhadharma, because buddadharma is completely beyond human speculation; [it is] truth itself. You cannot touch [it]. If you touch it, your body is burnt out. If you ignore it, your body and mind is frozen. So you cannot ignore, you cannot touch it; this is real state of the truth which exists constantly, with you wherever you may go. 
 

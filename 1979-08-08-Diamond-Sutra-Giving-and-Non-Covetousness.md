@@ -160,7 +160,7 @@ So, if you're always face to face, [it's] pretty difficult to teach something, o
 
 ##### 40:56
 
-"Then give it" – precious things – "as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones." These are not a particular person, because all are Buddhas. We have to give these precious things to everybody – to trees, to birds, to all sentient beings. That's it. 
+"Then give it" – precious things – "as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones." These are not a particular person, because all are [Buddhas](glossary#buddha). We have to give these precious things to everybody – to trees, to birds, to all sentient beings. That's it. 
 
 At that time, can we beget a great heap of merit? [Subhuti](glossary#subhuti) said: "Great, O Lord, great, O Well-Gone, would that heap of merit be!" Of course you can get merit. People beget people merit. Even though you don't try to give, people can get something from it. Your parents, your friends can get something [of] what [Buddhism](glossary#buddhism) is, from each pore of your body. 
 
@@ -184,7 +184,7 @@ Do you understand? Do you? There's no one thing. That means that one thing she c
 
 ##### 51:28
 
-So this is a very common type of human life; even though, in the United States we create the same problem. So, that's why to give this precious gift to [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), buddhas. Buddhas and bodhisattvas, all of us – we should give in that way. 
+So this is a very common type of human life; even though, in the United States we create the same problem. So, that's why to give this precious gift to [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), [buddhas](glossary#buddha). Buddhas and bodhisattvas, all of us – we should give in that way. 
 
 And that's why [Subhuti](glossary#subhuti) replied, "[Great] would that heap of merit be! And why? Because the [Tathāgata](glossary#tathāgata) spoke of the 'heap of merit' as a non-heap." There is nothing to be covetous [of]. "You should receive something I can give" – nothing, [no?] give and take. Just be present; just sit side by side. Just set out breakfast, just get up in the morning, greeting "good morning" – that's all we have to do. At that time there is very naturally something you can beget, that is a "heap of merit". That heap of merit has nothing to be covetous. That's a no-heap of merit. No attachment. But if you try to give, and if you expect somebody to receive something I can give, at that time there is always something covetous.
 
