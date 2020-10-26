@@ -5,7 +5,7 @@ The [Katagiri Transcripts](https://katagiritranscripts.net) website is created i
 
 ## BBEdit Find/Replace Patterns 
 
-These are the find/replace grep or regex patterns that I’m using in BBEdit, to aid in maintaining the references. Note: these are not foolproof; they must be used intelligently and with caution. Still, who knows, maybe including these here will help someone some day.
+These are the find/replace grep or regex [patterns](https://www.barebones.com/support/technotes/PatternPlaygrounds.html) that I’m using in BBEdit, to aid in maintaining the references. Note: these are not foolproof; they must be used intelligently and with caution. Still, who knows, maybe including these here will help someone some day.
 
 Pattern Name | Search Pattern | Replace Pattern 
 ---------------- | ----------------- | -------------------
