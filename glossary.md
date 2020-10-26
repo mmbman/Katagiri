@@ -286,6 +286,11 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 
 -------
 
+## Ego Consciousness
+
+
+-------
+
 ## Egolessness
 
 - [Fukanzazengi – Lecture 1 (49:49)](1979-06-09-Fukanzazengi-Lecture1#4949)

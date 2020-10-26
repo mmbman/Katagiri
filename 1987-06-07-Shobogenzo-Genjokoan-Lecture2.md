@@ -19,7 +19,7 @@ And then from this, I think religious ascertainment(?) and relaxation, or relief
 
 ##### 3:49
 
-So, main purpose of Buddhist practice is to taste the ego consciousness, deeply who you are, through the meditation - but, it's not good enough. The more practice, farther practice, is to taste alayavijñāna, karmic life, not only conceptually, but directly you should participate in alayavijñāna. What direct participation in alayavijñāna is, that is just movement. Flow, movement. Perpetual flow of energy, to live, to be present - not only for you. With all sentient beings. That is final purpose of [Buddhism](glossary#buddhism).
+So, main purpose of Buddhist practice is to taste the [ego consciousness](glossary#ego-consciousness), deeply who you are, through the meditation - but, it's not good enough. The more practice, farther practice, is to taste alayavijñāna, karmic life, not only conceptually, but directly you should participate in alayavijñāna. What direct participation in alayavijñāna is, that is just movement. Flow, movement. Perpetual flow of energy, to live, to be present - not only for you. With all sentient beings. That is final purpose of [Buddhism](glossary#buddhism).
 
 ##### 4:57
 

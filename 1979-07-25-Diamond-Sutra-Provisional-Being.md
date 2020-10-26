@@ -27,25 +27,25 @@ We believe pretty easily that [the] five [skandhas](glossary#skandha) are [the] 
 
 ##### 5:11
 
-The second kind of ego consciousness is: we believe there is that which is continuous. Otherwise, it seems to be difficult for us to believe or go from child to adult. So, it's pretty easy for us to believe that there is that which is continuous from birth to death.
+The second kind of [ego consciousness](glossary#ego-consciousness) is: we believe there is that which is continuous. Otherwise, it seems to be difficult for us to believe or go from child to adult. So, it's pretty easy for us to believe that there is that which is continuous from birth to death.
 
 And then you believe, "I am changing," "I change." Then the idea of change comes into existence. But if you don't believe there is something which is continuous, it's pretty difficult to get [to the] idea of change.
 
-So, it is pretty easy for us to believe there is something particular which is continuous. This is also [the] second misunderstanding, this is [the] second ego consciousness. So, no perception of a being.
+So, it is pretty easy for us to believe there is something particular which is continuous. This is also [the] second misunderstanding, this is [the] second [ego consciousness](glossary#ego-consciousness). So, no perception of a being.
 
 ##### 6:56
 
-The third: if you believe there is that which is continuous, that is kind of a "soul", unifying, harmonizing your life. Sort of a watchmaker. [The] watchmaker controls one watch, and the second watch; no matter how many watches there are, he always controls [them], so all watches go exactly right, in [the] proper way. That is, [the] watchmaker is sort of a "soul", which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, [the] whole universe. This is also [the] third ego consciousness. That's why [Buddha](glossary#buddha) says, no perception of [a] soul.
+The third: if you believe there is that which is continuous, that is kind of a "soul", unifying, harmonizing your life. Sort of a watchmaker. [The] watchmaker controls one watch, and the second watch; no matter how many watches there are, he always controls [them], so all watches go exactly right, in [the] proper way. That is, [the] watchmaker is sort of a "soul", which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, [the] whole universe. This is also [the] third [ego consciousness](glossary#ego-consciousness). That's why [Buddha](glossary#buddha) says, no perception of [a] soul.
 
 ##### 8:10
 
-The fourth kind of ego consciousness is: we want to believe something particular [exists] which is called [karma](glossary#karma), which leads you to be reborn in the next life. So [we believe] karma is something particular, which is [an] eternal entity which leads you to [your] next life. But actually, karma doesn't exist in that way, as an idea of [an] entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. 
+The fourth kind of [ego consciousness](glossary#ego-consciousness) is: we want to believe something particular [exists] which is called [karma](glossary#karma), which leads you to be reborn in the next life. So [we believe] karma is something particular, which is [an] eternal entity which leads you to [your] next life. But actually, karma doesn't exist in that way, as an idea of [an] entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. 
 
 When you yawn, that is your [karma](glossary#karma). If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But [if] right after expression of your anger, you smile – well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that's why, no perception of a person. This is a kind of idea of karma. 
 
 ##### 9:54
 
-So, no ego consciousness. This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the [Buddha](glossary#buddha)'s teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
+So, no [ego consciousness](glossary#ego-consciousness). This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the [Buddha](glossary#buddha)'s teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
 
 There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
 

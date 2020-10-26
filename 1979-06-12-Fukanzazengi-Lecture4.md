@@ -21,7 +21,7 @@ So, [Dogen Zenji](glossary#dogen) really wants to [speak] about how important [z
 
 ##### 4:37
 
-Usually in the world, we constantly persist in our selfishness, ego consciousness, in order to accomplish our own purpose in life. Kicking out everybody; adhering to our egoistic sense. And finally, [we] may be disinterested in human life. There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because, no one pays attention to you if you do that. Finally, those kind of people are completely isolated. And also, you cannot do anything in peace and harmony, you cannot live with the people in the human world in peace and harmony; so finally, it is really true that you are disinterested in human life. 
+Usually in the world, we constantly persist in our selfishness, [ego consciousness](glossary#ego-consciousness), in order to accomplish our own purpose in life. Kicking out everybody; adhering to our egoistic sense. And finally, [we] may be disinterested in human life. There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because, no one pays attention to you if you do that. Finally, those kind of people are completely isolated. And also, you cannot do anything in peace and harmony, you cannot live with the people in the human world in peace and harmony; so finally, it is really true that you are disinterested in human life. 
 
 So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they can keep their life longer, they take their life.
 
