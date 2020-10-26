@@ -167,6 +167,6 @@ That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who
 
 ##### 51:04 end of recording
 
-[Next Talk: Diamond Sutra – Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
+[Next Talk: Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 
 [Home](index.md)

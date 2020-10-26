@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Karma – Unmanifested
+# Karma: Unmanifested
 ## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)

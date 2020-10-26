@@ -438,7 +438,7 @@ Japanese: Isan Reiyū<br>
 Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 771-853 CE.
 
-- [Diamond Sutra – Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+- [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
 
 - [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
@@ -450,8 +450,8 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 
 ## Karma
 
-- [Karma – Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
-- [Karma – Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+- [Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
+- [Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
 
 - [Fukanzazengi – Lecture 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Lecture3#3012)
 
@@ -636,7 +636,7 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 
 - [Fukanzazengi – Lecture 1 (28:39)](1979-06-09-Fukanzazengi-Lecture1#2839)
 - [Fukanzazengi – Lecture 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Lecture6#000)
-- [Diamond Sutra – Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
+- [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 
 - [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
