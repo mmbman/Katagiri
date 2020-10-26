@@ -285,7 +285,7 @@ So, toes, your body, are just the being as it is, beyond human speculation. Befo
 
 That's why he said, "Body and mind doesn't exist; from where [does the] pain come?" Actually, [the] pain comes from no abode. "No abode" means just the functioning of the two things, rock and toe. Just the function, total dynamic working, that's all. Within this, no pain. Sort of a death. If you become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and us. After that, immediately I say, "Ah, this is death!" But it's too late. We do always, in our daily living. "I died. Oh! This is death." *[he laughs]* 
 
-And then we say that is, body and mind exist. But I don't think so. But we cannot ignore that.... We have already mind, and also we have lots of customs we have accumulated in the past. That's why we have to pay careful attention to our body and mind, how to use them, perfectly fitting into circumstances, environment: zazen, or whatever. 
+And then we say that is, body and mind exist. But I don't think so. But we cannot ignore that.... We have already mind, and also we have lots of customs we have accumulated in the past. That's why we have to pay careful attention to our body and mind, how to use them, perfectly fitting into circumstances, environment: [zazen](glossary#zazen), or whatever. 
 
 ##### 1:16:36
 
@@ -311,7 +311,7 @@ And then we say that is, body and mind exist. But I don't think so. But we canno
 
 **Same person**: We can't talk about *[unintelligible]*
 
-**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a [dharma](glossary#dharma). Because [the mind] is a dharma which exists in [the] [dualistic](glossary#dualistic) world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. That's why Prajnaparamita says "no mind"; "no eyes, no ears, [etc.]". But how can we know no-mind? That's why [Dogen Zenji](glossary#dogen) says, in the \[[Shobogenzo](dogen#shobogenzo)] [chapter [on the Prajnaparamita Sutra]](dogen#prajnaparamita) he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
+**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a [dharma](glossary#dharma). Because [the mind] is a dharma which exists in [the] [dualistic](glossary#dualistic) world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. That's why Prajnaparamita says "no mind"; "no eyes, no ears, [etc.]". But how can we know no-mind? That's why [Dogen Zenji](glossary#dogen) says, in the \[[Shobogenzo](dogen#shobogenzo)] [chapter [on the Prajnaparamita Sutra]](dogen#prajnaparamita) he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to [zazen](glossary#zazen) as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
 
 Do you understand? That is the meaning of no mind. No mind doesn't mean to destroy. So, using your mind perfectly. How? Fitting into [a] single object, [zazen](glossary#zazen). At that time, there is no mind. 
 

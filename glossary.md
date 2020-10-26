@@ -737,7 +737,7 @@ also Seppō Shinkaku
 
 Shijo 止靜 (Japanese): Signal of the beginning of [zazen](glossary#zazen).
 
-“When you hit the bell three times, that is called shijo, signing of [the] beginning of zazen. The ‘shi’ is ‘struck’. ‘Jo’ is ‘stillness’. Stillness implies samadhi; stillness implies zazen itself. So, ‘struck zazen’ means, zazen settles itself in zazen.”
+“When you hit the bell three times, that is called shijo, signing of [the] beginning of [zazen](glossary#zazen). The ‘shi’ is ‘struck’. ‘Jo’ is ‘stillness’. Stillness implies samadhi; stillness implies zazen itself. So, ‘struck zazen’ means, zazen settles itself in zazen.”
 
 - [Fukanzazengi – Lecture 7 (9:14)](1979-06-15-Fukanzazengi-Lecture7#914)
 
