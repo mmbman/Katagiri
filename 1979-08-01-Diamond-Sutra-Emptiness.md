@@ -11,13 +11,13 @@
 
 Chapter 7:
 
-> The Lord asked: What do you think, Subhuti, is there any [dharma](glossary#dharma) which the Tathagata has fully known as "the utmost, right and perfect [enlightenment](glossary#enlightenment)," or is there any dharma which the Tathagata has demonstrated? Subhuti replied: No, not as I understand what the Lord has said. And why? This dharma which the Tathagata has fully known or demonstrated – it cannot be grasped, it cannot be talked about, it is neither a dharma nor a no-dharma. And why? Because an Absolute exalts the Holy Persons.
+> The Lord asked: What do you think, [Subhuti](glossary#subhuti), is there any [dharma](glossary#dharma) which the Tathagata has fully known as "the utmost, right and perfect [enlightenment](glossary#enlightenment)," or is there any dharma which the Tathagata has demonstrated? Subhuti replied: No, not as I understand what the Lord has said. And why? This dharma which the Tathagata has fully known or demonstrated – it cannot be grasped, it cannot be talked about, it is neither a dharma nor a no-dharma. And why? Because an Absolute exalts the Holy Persons.
 > 
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
 
 In this chapter 7, there are two questions: What is Buddha? The second question is, what are the dharmas taught or preached by Buddha, Tathagata?
 
-Buddha asked Subhuti: "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
+Buddha asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
 In Japanese, [enlightenment](glossary#enlightenment) is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
@@ -49,7 +49,7 @@ By this "sho", [enlightenment](glossary#enlightenment), your life is supported, 
 
 That's why Buddha says, "Is there any [dharma](glossary#dharma) which the Tathagata has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
 
-That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. Subhuti says, "No." 
+That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
 
 ##### 16:04
 
@@ -65,7 +65,7 @@ So let's understand, let's think, one by one.
 
 [Doctor Conze](glossary#edward-conze) said: 
 
-> Subhuti asks, "All dharmas have therefore really not been fully known by the Tathagata?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathagata. For there are not two natures of [dharma](glossary#dharma), but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
+> [Subhuti](glossary#subhuti) asks, "All dharmas have therefore really not been fully known by the Tathagata?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathagata. For there are not two natures of [dharma](glossary#dharma), but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
 
 This is the explanation of first point, the marklessness of all things. That means all things are based on [emptiness](glossary#emptiness), exactly emptiness. 
 
@@ -123,7 +123,7 @@ That is [the] marklessness of the emptiness. You cannot believe any form of empt
 
 ##### 41:45
 
-In your daily living... if you read this book on Diamond Sutra... if this is something you want to do, ... you have to read [it]. "You have to read" is your life, [which] you have to take care of. Under all circumstances, whether you like or dislike, you have to take care [of it]. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, [like] "you have to read this": that is your life. If it is true, you have to continue to read. Continue to read. And then, in the process of reading, there are lots of experiences: like [or] dislike, understand, not understand. Lots of bubbles come up, and pop up. Next moment, different bubbles come up, and pop. Always there. 
+In your daily living... if you read this book on [Diamond Sutra](glossary#diamond-sutra)... if this is something you want to do, ... you have to read [it]. "You have to read" is your life, [which] you have to take care of. Under all circumstances, whether you like or dislike, you have to take care [of it]. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, [like] "you have to read this": that is your life. If it is true, you have to continue to read. Continue to read. And then, in the process of reading, there are lots of experiences: like [or] dislike, understand, not understand. Lots of bubbles come up, and pop up. Next moment, different bubbles come up, and pop. Always there. 
 
 But whatever kind of bubbles you can see, all you have to do is not to [leave?] any form of a certain bubble. Or, "I see this bubble," or "I see that bubble." You, stop there. But, don't stop there. Just see the bubbles. But basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#emptiness). 
 
@@ -161,7 +161,7 @@ That's why German poet says, "the rose exists without any reason." And finally, 
 
 If you say, "Katagiri exists without any reason," this is still logical explanation, based on [and] according to [a] philosophical understanding which is called [emptiness](glossary#emptiness). So, [the] original nature of Katagiri is completely emptiness. So, I exist with [envy?]; this is still logical explanation. The second, marklessness of emptiness – that means formlessness. Openness means throw away term without [envy?].
 
-At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is [emptiness](glossary#emptiness). If you understand Buddha – Buddha experiences this [enlightenment](glossary#enlightenment). That's why Subhuti says, "The [dharma](glossary#dharma) which the Tathagata has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
+At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is [emptiness](glossary#emptiness). If you understand Buddha – Buddha experiences this [enlightenment](glossary#enlightenment). That's why [Subhuti](glossary#subhuti) says, "The [dharma](glossary#dharma) which the Tathagata has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
 
 One is not something you can think or you can grab. When you think, when you experience, when you "get it," it is always two. That's why religion, all religion, speaks about the truth. But [there are] many kinds of truth. We fight each other, according to many kinds of truth. "[Buddhism](glossary#buddhism) is right." "Christianity is right; Buddhism is crazy." But Buddhism [and] Christianity explain about the truth. The truth is exactly one. One means, nothing to get, [to] grasp. 
 

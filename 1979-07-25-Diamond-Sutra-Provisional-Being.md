@@ -11,7 +11,7 @@
 
 There must be a person who tries to establish [a] peaceful world, always. But when you see the world, it's pretty difficult for us to see [a] beautiful aspect of [the] human world. At that time, [there is] lots of chaos. We are disappointed. 
 
-But, according to [the] Diamond Sutra, Subhuti, one of Buddha's ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated – particularly in the confused world?" Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
+But, according to [the] [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of Buddha's ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated – particularly in the confused world?" Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
 
 That is Buddha's answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
 
@@ -21,9 +21,9 @@ According to Buddha's explanation, this person really practiced, in his past lif
 
 Last week I told you, perception of self [is] divided into four [categories].
 
-One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five [skandhas](glossary#skandhas), because [the] five skandhas is [an] analysis of existence, how existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness.
+One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of [the] five [skandhas](glossary#skandha), because [the] five skandhas is [an] analysis of existence, how existence goes on. So, according to Buddha, he analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness.
 
-We believe pretty easily that [the] five [skandhas](glossary#skandhas) are [the] self. But [the] five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
+We believe pretty easily that [the] five [skandhas](glossary#skandha) are [the] self. But [the] five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, no perception of self.
 
 ##### 5:11
 
@@ -47,7 +47,7 @@ When you yawn, that is your karma. If you are rough, this is also karma. If you 
 
 So, no ego consciousness. This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the Buddha's teaching, practiced for many, many years this practice of no ego consciousness. Second, he practiced the no perception of object. Object means trees, birds, and also Buddha's teachings; everything.
 
-There are four kinds of perceptions of object negatively, because according to Diamond Sutra, this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
+There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
 
 ##### 11:02
 
@@ -89,7 +89,7 @@ So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for
 
 ##### 20:52
 
-> And why? If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
+> And why? If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
 > 
 > (Quote from "Buddhist Wisdom: The Diamond Sutra and The Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 27-28)
 
@@ -203,7 +203,7 @@ That's why Buddha always says, everything is [emptiness](glossary#emptiness). Th
 
 So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
 
-That's why it says, "If, Subhuti, these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with the hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
+That's why it says, "If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathagata with the hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'"
 
 [The] simile of [the] raft [occurs] in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. So that means, no perception of the subject, no perception of the object. That means, if you study at school in order to get a master degree or Ph.D. – get a degree! Study hard, get a degree. But it is not [a] final stage you have to ... stay with. You have to leave Ph.D. [for] the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that's not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud [of] yourself too much: "I am doctor." You are not doctor. "I am doctor. Student, I am teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money." *[laughter]*
 

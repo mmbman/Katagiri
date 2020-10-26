@@ -121,13 +121,13 @@ This is the “at this very moment,” before the reality is dichotomized in two
 
 ##### 46:26
 
-Well, always we have the five [skandhas](glossary#skandhas). We say... 
+Well, always we have the five [skandhas](glossary#skandha). We say... 
 
 *[tape change]*
 
 ... so what you can see, what you can hear, all things, that is form. Form is something which is formed. By what? Feelings, perceptions, [impulses](glossary#impulses), consciousness – simultaneously. This is form. So before the reality is formed – before you take the reality in a position of form – you have to do. That is “at this very moment". That is reality. Reality is not a certain time, it’s not a certain place, it’s not something a person does. [It is] the unity of a person, place, and time, opportunity. It is not dichotomized between time and [person] and occasion and place. All things are unified perfectly, and work; at that time, this is reality. 
 
-In the reality there are three things, at least: [person], opportunity and place. But according to the five [skandhas](glossary#skandhas) – it means “our body and mind” – immediately reality is dichotomized in two. “I”; “my teacher.” "He is an old man, not a baby. I am a young man, his student." That is dichotomized.
+In the reality there are three things, at least: [person], opportunity and place. But according to the five [skandhas](glossary#skandha) – it means “our body and mind” – immediately reality is dichotomized in two. “I”; “my teacher.” "He is an old man, not a baby. I am a young man, his student." That is dichotomized.
 
 Immediately we dichotomize, [and] we are stuck there. That is a problem. Even [dichotomizing] is something which is going on in the stream of life; constantly changing and moving, constantly. So, when you dichotomize, put it aside. All you have to do is pay attention to reality, unified by time, [person], and place. Just do it. At that time, your compassionate attention really penetrates from the top of your head to the tip of your toes, and you can handle [it]. Even though at that time you don’t satisfy, it’s great [mud?], which will [shoot?] in the future. This is the best [way?]. 
 
@@ -135,9 +135,9 @@ Immediately we dichotomize, [and] we are stuck there. That is a problem. Even [d
 
 That’s why, “Whos actions are these? Look into Hsueh Tou’s trailing vines.” Vines are always growing with pine trees; pine trees and other trees. But, sometimes trees die by vines, because [they are] too much. Vine means dichotomy. We can do always: words, feelings, perceptions, [impulses](glossary#impulses), consciousness. But when you do [zazen](glossary#zazen), you’re aware of feelings, or perceptions, consciousness, and your experience. 
 
-"What do you mean? We have to [be] aware of our feelings and the emotions in [zazen](glossary#zazen), on purpose?" This is already nothing but something dichotomized by your five [skandhas](glossary#skandhas); if you do this, your zazen is really deluded. Even though you feel good, that good doesn’t last for long. Because, it’s pretty easy to stumble by it, in the next moment. Even though you say, “Oh, that’s good concentration,” it is already stumbling by it. Don’t you think so? 
+"What do you mean? We have to [be] aware of our feelings and the emotions in [zazen](glossary#zazen), on purpose?" This is already nothing but something dichotomized by your five [skandhas](glossary#skandha); if you do this, your zazen is really deluded. Even though you feel good, that good doesn’t last for long. Because, it’s pretty easy to stumble by it, in the next moment. Even though you say, “Oh, that’s good concentration,” it is already stumbling by it. Don’t you think so? 
 
-If you really see good concentration, saying “I experience good concentration,” that is awareness, don’t you think? But such awareness is not real awareness. Real awareness is no trace of awareness, when you become one completely with full concentration on your [zazen](glossary#zazen), on breath, et cetera. That is perfect awareness. So there is no chance to dichotomize by your five [skandhas](glossary#skandhas) – “I did," “I concentrate pretty good," or “I concentrate badly." There is no chance. That is reality. The “you,” and your object, and place; all things must be unified, and function.
+If you really see good concentration, saying “I experience good concentration,” that is awareness, don’t you think? But such awareness is not real awareness. Real awareness is no trace of awareness, when you become one completely with full concentration on your [zazen](glossary#zazen), on breath, et cetera. That is perfect awareness. So there is no chance to dichotomize by your five [skandhas](glossary#skandha) – “I did," “I concentrate pretty good," or “I concentrate badly." There is no chance. That is reality. The “you,” and your object, and place; all things must be unified, and function.
 
 Sometimes [with] trailing vines, there is something interrupted, so trees sometimes die. But on the other hand, [the] vine is also one of the beings, so it grows. When vines grow with pine trees and other trees, it is beautiful, because it is one [with] nature. But if it grows too much, it’s very dangerous, because it kills the tree. Do you know that happens in California? Do you know that? In California, a family of vines sometimes kills the trees.
 

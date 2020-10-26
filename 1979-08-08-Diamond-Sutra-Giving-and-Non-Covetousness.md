@@ -11,7 +11,7 @@
 
 (The recording begins toward the end of Katagiri quoting the passage below. He then repeats it.)
 
-> (Chapter 8) The Lord then asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit".
+> (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – [Subhuti](glossary#subhuti) replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathagata spoke of the "heap of merit" as a non-heap. That is how the Tathagata speaks of "heap of merit".
 >
 > (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 34-35, immediately following the passage quoted in the previous talk.)
 
@@ -150,7 +150,7 @@ If you try to give something to others, sometimes you can give something materia
 
 ##### 36:00
 
-That's why, "The Lord asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds" – this world system of 1,000 million worlds means the whole universe – "with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?"
+That's why, "The Lord asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds" – this world system of 1,000 million worlds means the whole universe – "with the seven precious things, and then gave it as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?"
 
 The seven precious things is not to be face-to-face always. To walk nicely, close to each-other, sit next to others, holding the shoulders with compassion, et cetera, for example. At that time, that way of practice, giving to others, is really precious more than gold or silver, because people can get something from you, and you can give something to others. 
 
@@ -162,7 +162,7 @@ So, if you're always face to face, [it's] pretty difficult to teach something, o
 
 "Then give it" – precious things – "as a gift to the Tathagatas, [Arhats](glossary#arhat), Fully Enlightened Ones." These are not a particular person, because all are Buddhas. We have to give these precious things to everybody – to trees, to birds, to all sentient beings. That's it. 
 
-At that time, can we beget a great heap of merit? Subhuti said: "Great, O Lord, great, O Well-Gone, would that heap of merit be!" Of course you can get merit. People beget people merit. Even though you don't try to give, people can get something from it. Your parents, your friends can get something [of] what [Buddhism](glossary#buddhism) is, from each pore of your body. 
+At that time, can we beget a great heap of merit? [Subhuti](glossary#subhuti) said: "Great, O Lord, great, O Well-Gone, would that heap of merit be!" Of course you can get merit. People beget people merit. Even though you don't try to give, people can get something from it. Your parents, your friends can get something [of] what [Buddhism](glossary#buddhism) is, from each pore of your body. 
 
 And then: "And why? Because the Tathagata spoke of the 'heap of merit' as a non-heap." Because ... we don't know what is merit, how I can give something precious to others. We don't know how we can teach [Buddhism](glossary#buddhism) to our parents who don't know. But if you just be present with them in peace and harmony, day after day, sitting side by side, and sometimes massage the parents on the shoulders – very naturally they can learn. This is the "heap of merit". But there is nothing you can be covetous [of], there is nothing to hold on [to], because you don't know when [or] how you can give. But [the] only [thing] you can do is, just be present with them side by side, not face to face always. 
 
@@ -186,7 +186,7 @@ Do you understand? Do you? There's no one thing. That means that one thing she c
 
 So this is a very common type of human life; even though, in the United States we create the same problem. So, that's why to give this precious gift to [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), buddhas. Buddhas and bodhisattvas, all of us – we should give in that way. 
 
-And that's why Subhuti replied, "[Great] would that heap of merit be! And why? Because the Tathagata spoke of the 'heap of merit' as a non-heap." There is nothing to be covetous [of]. "You should receive something I can give" – nothing, [no?] give and take. Just be present; just sit side by side. Just set out breakfast, just get up in the morning, greeting "good morning" – that's all we have to do. At that time there is very naturally something you can beget, that is a "heap of merit". That heap of merit has nothing to be covetous. That's a no-heap of merit. No attachment. But if you try to give, and if you expect somebody to receive something I can give, at that time there is always something covetous.
+And that's why [Subhuti](glossary#subhuti) replied, "[Great] would that heap of merit be! And why? Because the Tathagata spoke of the 'heap of merit' as a non-heap." There is nothing to be covetous [of]. "You should receive something I can give" – nothing, [no?] give and take. Just be present; just sit side by side. Just set out breakfast, just get up in the morning, greeting "good morning" – that's all we have to do. At that time there is very naturally something you can beget, that is a "heap of merit". That heap of merit has nothing to be covetous. That's a no-heap of merit. No attachment. But if you try to give, and if you expect somebody to receive something I can give, at that time there is always something covetous.
 
 So, give and take. Face to face, that's pretty hard, in a sense. That's why Buddha's merit through begetting is no-heap of merit. That means, nothing to attach to [any] merit from giving. That means, anyway, just like [the] beautiful poem.
 

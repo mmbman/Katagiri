@@ -671,7 +671,7 @@ One-pointedness. Often the kind achieved in meditation, but it can refer to comp
 [Sanskrit](glossary#sanskrit): saṃskāra संस्कार<br>
 Pali: Saṅkhāra सङ्खार<br>
 
-One of the [five skandhas](glossary#skandhas); often translated as 'formations', 'mental formations', or 'impulses'. 
+One of the [five skandhas](glossary#skandha); often translated as 'formations', 'mental formations', or 'impulses'. 
 
 As "together-maker": see [Fukanzazengi – Lecture 6](1979-06-14-Fukanzazengi-Lecture6)
 
@@ -776,7 +776,7 @@ Usually translated as "emptiness"; also "vastness" or "boundlessness"; lack of i
 
 -------
 
-## Skandhas
+## Skandha
 
 -------
 
