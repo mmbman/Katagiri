@@ -681,8 +681,8 @@ See [Dogen Reference Index: Shobogenzo](dogen#shobogenzo)
 -------
 ## Śūnyatā
 
-[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".
-Also: *emptiness*, *vastness*, *boundlessness*
+[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".<br>
+Also: **emptiness**, **vastness**, **boundlessness**
 
 Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism. The first thing to understand is that it is not a nihilistic kind of emptiness, it really means unlimited potential.
 
