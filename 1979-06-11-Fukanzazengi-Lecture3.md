@@ -103,21 +103,21 @@ But if you do shikantaza, dullness and distraction drop off, from the first.
 
 Even the [karma](glossary#karma). Karma is [dead?], we planted in the past. Some karmas were good, some karmas were evil, some karmas were neutral. Many karmas, we created in the past. And then, you know pretty well, those karmas are where? [They] are at the bottom of our mind. This body and mind. Karma is here. 
 
-So, through your daily living, you can realize. Your present lives are influenced by something else, which you don't understand. Well, maybe some people call it karma – only when they realize something's wrong. Because only when you realize something's wrong, you really get the chance to reflect upon yourself very seriously. That's when you put a certain [level?] on your life: "That is something wrong." That karma is wrong. Evil karma. 
+So, through your daily living, you can realize. Your present lives are influenced by something else, which you don't understand. Well, maybe some people call it [karma](glossary#karma) – only when they realize something's wrong. Because only when you realize something's wrong, you really get the chance to reflect upon yourself very seriously. That's when you put a certain [level?] on your life: "That is something wrong." That karma is wrong. Evil karma. 
 
-But actually, [the] karma [that] exists with you is completely beyond [the] moral sense of good or bad or neutral. 
+But actually, [the] [karma](glossary#karma) [that] exists with you is completely beyond [the] moral sense of good or bad or neutral. 
 
 ##### 32:08
 
-But – I told you very often, that [karmas](glossary#karma) in the past and existing in the present in your life, appear or don't appear when time and occasions are ripe and conditions are arranged. Karmas, all kinds of karmas, are still here. Nothing happens; but only when time and occasions are ripe and conditions arranged perfectly, some karma appears. 
+But – I told you very often, that [karmas](glossary#karma) in the past and existing in the present in your life, appear or don't appear when time and occasions are ripe and conditions are arranged. Karmas, all kinds of karmas, are still here. Nothing happens; but only when time and occasions are ripe and conditions arranged perfectly, some [karma](glossary#karma) appears. 
 
-That is the characteristic of the karma you created in the past. That's why karmas you created in the past are completely beyond moral sense of good, or bad, neutral. They are always there. If you don't touch it, if you don't [have] particular time and opportunity ... created, or conditions ... arranged ... [then] completely karma sits. But if you create certain conditions and time and occasion, it appears. 
+That is the characteristic of the [karma](glossary#karma) you created in the past. That's why karmas you created in the past are completely beyond moral sense of good, or bad, neutral. They are always there. If you don't touch it, if you don't [have] particular time and opportunity ... created, or conditions ... arranged ... [then] completely karma sits. But if you create certain conditions and time and occasion, it appears. 
 
 ##### 33:50 
 
 So [the] question is, ... what kind of time and occasion and conditions we should create in our daily living. That's the point, don't you think? ... Rather than keeping away [or] criticizing [karmas](glossary#karma) you did in the past. Because, karmas in the past are completely quiet, in your daily living. But ... any time, anywhere, [they] appear and disappear according to time and occasion and conditions *you* do. Okay?
 
-So this is karma. 
+So this is [karma](glossary#karma). 
 
 ##### 34:45
 
@@ -135,7 +135,7 @@ So: It is very important, what kind of time and occasion and conditions we shoul
 
 ##### 36:52
 
-[The] important point is, that we have to create a good time and occasion, good conditions, as best as we can. If you create good time and occasion, and good conditions, ... immediately some of the karmas in the past which are called good appear in the present. And, if you have done [it], immediately that will be a seed of the karma which will appear in the future. So, you can always sew a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. But evil karmas [are] always here, very quiet. And if you do always good karma, creating good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
+[The] important point is, that we have to create a good time and occasion, good conditions, as best as we can. If you create good time and occasion, and good conditions, ... immediately some of the karmas in the past which are called good appear in the present. And, if you have done [it], immediately that will be a seed of the [karma](glossary#karma) which will appear in the future. So, you can always sew a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. But evil karmas [are] always here, very quiet. And if you do always good karma, creating good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
 
 What is good? What is a good time and occasion, and what is a good condition? That is a point. This "good" is not the "good" opposed to "evil". [This] good is *super-good*. The supreme good; beyond good or bad, right and wrong. Such a good seed should be stored, right now, right here, from day to day. At that time, that good seed is planted in your blood, and creates new life. 
 
@@ -147,7 +147,7 @@ We call [this] [fukutoku](glossary#fukutoku)[asuru?]. Fukutoku means merit and v
 
 But let me say about this: we don't understand. Still we don't understand, because, well, why is it that dullness and distraction drop off from the first if you accumulate merit and virtue?
 
-In order to understand this point, first of all, we have to see practice for long range, life after life. Not only seeing your life ... in this life, in this world; you have to see your whole life, life after life. Maybe next life, [or] the life after next life. Anyway, life is continually going on, because we created karma in the past, and also, we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means future will exist. So, you can get the chance to be born in the next life. That is [the] meaning or sense of [the theory?] of karma. So as long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
+In order to understand this point, first of all, we have to see practice for long range, life after life. Not only seeing your life ... in this life, in this world; you have to see your whole life, life after life. Maybe next life, [or] the life after next life. Anyway, life is continually going on, because we created [karma](glossary#karma) in the past, and also, we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means future will exist. So, you can get the chance to be born in the next life. That is [the] meaning or sense of [the theory?] of karma. So as long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
 
 ##### 42: 44
 
@@ -219,7 +219,7 @@ While [lotus](glossary#lotus) flower [is] blooming, mud water exists. But it doe
 
 That is shikantaza. And then if you do this, that practice creates merit and virtue, which bloom in the future. In the life after next life, it's blooming. Yes it is. I promise. *[he laughs softly]* I promise.
 
-And then, this way is exactly [to] cut off karma, [the] stream of karma. Without this, nothing else to cut off karma. This is the best way. But we don't know. We really want to [know]; we are always curious of poking our head into a certain hole, always. That is a [dualistic](glossary#dualistic) world, okay? Anyway, stop it. If you stop, everything comes up, very naturally, passing by you.
+And then, this way is exactly [to] cut off [karma](glossary#karma), [the] stream of karma. Without this, nothing else to cut off karma. This is the best way. But we don't know. We really want to [know]; we are always curious of poking our head into a certain hole, always. That is a [dualistic](glossary#dualistic) world, okay? Anyway, stop it. If you stop, everything comes up, very naturally, passing by you.
 
 ##### 1:09:05
 
@@ -341,7 +341,7 @@ So, they're just a river... practicing, waiting for death. But a [Bodhisattva](g
 
 ##### 1:27:13
 
-**Same person**: What about [Doctor Jules Fox?], Roshi? Based on what you were saying about karma, and dropping off *[unintelligible]* and ...
+**Same person**: What about [Doctor Jules Fox?], Roshi? Based on what you were saying about [karma](glossary#karma), and dropping off *[unintelligible]* and ...
 
 Does that relate to your talk?
 

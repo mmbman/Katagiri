@@ -203,7 +203,7 @@ Do you have any questions?
  
 **Same person**: Of truth. 
 
-**Katagiri**: Karma. Enlightenment. The ultimate, utmost, right perfect [enlightenment](glossary#enlightenment). Okay?
+**Katagiri**: [Karma](glossary#karma). Enlightenment. The ultimate, utmost, right perfect [enlightenment](glossary#enlightenment). Okay?
 
 ##### 1:06:45
 

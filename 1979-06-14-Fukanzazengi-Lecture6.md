@@ -185,33 +185,33 @@ Do you understand? This is a very good example. *[The group laughs – perhaps b
 
 One more person was on the train from Fukui City to [Eiheiji](glossary#eiheiji) monastery. Because he thought also, "Oh, today is the particular day of performing a memorial service for [Dogen](glossary#dogen). So let's go back." So he was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off [the track]. But he survived. Do you understand? This is [a] very good example.
 
-**Same person**: Okay, how do these two terms then relate to karma?
+**Same person**: Okay, how do these two terms then relate to [karma](glossary#karma)?
 
 **Katagiri**: I don't know. I don't know. *[some laughter]*
 
-That is karma, maybe past life. Well, you can envision past life, and also, his karma in the past might be good. He planted good karma in the past. That's why he wanted to see the movie, but he thought, "Oh, no, let's go back to [Eiheiji](glossary#eiheiji) monastery." So that is pretty good karma. From where that good sense comes – maybe from a past life. 
+That is [karma](glossary#karma), maybe past life. Well, you can envision past life, and also, his karma in the past might be good. He planted good karma in the past. That's why he wanted to see the movie, but he thought, "Oh, no, let's go back to [Eiheiji](glossary#eiheiji) monastery." So that is pretty good karma. From where that good sense comes – maybe from a past life. 
 
-**Same person**: So the karma in life influences how strong...
+**Same person**: So the [karma](glossary#karma) in life influences how strong...
 
 **Katagiri**: Sure. In many ways. 
 
-But only if the conditions, times, opportunities are ripe and conditions arranged. *[unintelligible]* That's why [Dogen](glossary#dogen)'s memorial day, his day off – all set up. And then, karma starts work. Which would you like? You want to go to movie, or you want go to [Eiheiji](glossary#eiheiji) monastery?
+But only if the conditions, times, opportunities are ripe and conditions arranged. *[unintelligible]* That's why [Dogen](glossary#dogen)'s memorial day, his day off – all set up. And then, [karma](glossary#karma) starts work. Which would you like? You want to go to movie, or you want go to [Eiheiji](glossary#eiheiji) monastery?
 
 ##### 1:00:06
 
- **Same person**: How then are those conditions separate from the body, if karma is involved? I mean, things don't happen randomly. 
+ **Same person**: How then are those conditions separate from the body, if [karma](glossary#karma) is involved? I mean, things don't happen randomly. 
 
-**Katagiri**: How karma... What is your question? 
+**Katagiri**: How [karma](glossary#karma)... What is your question? 
 
 **Same person**: When you talk about conditioned elements and ... not relating to the truth or the mind? Did you say that? Well how is that so, if... ?
 
-**Katagiri**: Well, conditioned elements are very broad. Past, present, future. So, conditioned elements [are?] associated with karma. 
+**Katagiri**: Well, conditioned elements are very broad. Past, present, future. So, conditioned elements [are?] associated with [karma](glossary#karma). 
 
 **Same person**: But isn't that associated with mind?
 
-**Katagiri**: No. Because that karma is completely beyond good or bad, right and wrong. If you judge the karma – it's good, it's bad – that is the mind associated with karma. But karma is just karma. That is a conditioned element. That's why something happens. Rock, [Gensha Shibi](glossary#gensha-shibi)'s toes; something happens. But I don't know; you cannot say it is bad, [or] it is good. Why can you do this? Well, we don't know. For instance if you walk on a bridge, and the bridge immediately crashes, and you die. Why is it you have to die? No one knows. 
+**Katagiri**: No. Because that [karma](glossary#karma) is completely beyond good or bad, right and wrong. If you judge the karma – it's good, it's bad – that is the mind associated with karma. But karma is just karma. That is a conditioned element. That's why something happens. Rock, [Gensha Shibi](glossary#gensha-shibi)'s toes; something happens. But I don't know; you cannot say it is bad, [or] it is good. Why can you do this? Well, we don't know. For instance if you walk on a bridge, and the bridge immediately crashes, and you die. Why is it you have to die? No one knows. 
 
-Well, [that] is a good example. Someone dies in that way, and that is conditioned elements, always. That is completely and good and bad – that is a matter of the mind. So whether it is associated with karma, [or] not associated – completely beyond. Just conditioned elements. But anyway, conditioned elements [are] related with the past, present, future. That is conditioned elements. 
+Well, [that] is a good example. Someone dies in that way, and that is conditioned elements, always. That is completely and good and bad – that is a matter of the mind. So whether it is associated with [karma](glossary#karma), [or] not associated – completely beyond. Just conditioned elements. But anyway, conditioned elements [are] related with the past, present, future. That is conditioned elements. 
 
 Philosophically speaking, that is interdependent co-production. 
 
@@ -261,9 +261,9 @@ The universe includes moon, water, tree, birds; that is [the] real meaning of th
 
 **Same person**: The two monks, your friends that you described. To go back; was that an expression of their life? Or were they picking and choosing? And what's the difference?
 
-**Katagiri**: Oh of course, he chose. He chose – his life. But by *what*? What part of his mind did he choose [with?]? I don't know. Maybe karma; it's connected with the past life, present life, future life. 
+**Katagiri**: Oh of course, he chose. He chose – his life. But by *what*? What part of his mind did he choose [with?]? I don't know. Maybe [karma](glossary#karma); it's connected with the past life, present life, future life. 
 
-There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his – maybe – karma, he planted a seed in the past. And then many things combined, unified, and he can see. Something happened. 
+There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his – maybe – [karma](glossary#karma), he planted a seed in the past. And then many things combined, unified, and he can see. Something happened. 
 
 And then his mind catches that event. Monastery, and movies, and his karmas; all things put together, and then something happens. And then [the] mind catches it *[unintelligible]*. And then [the] mind chooses, "Let's go there."
 

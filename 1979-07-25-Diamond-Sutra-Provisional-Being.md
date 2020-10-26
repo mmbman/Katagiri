@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Diamond Sutra – Provisional Being
+# Diamond Sutra: Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index.md)
@@ -39,9 +39,9 @@ The third: if you believe there is that which is continuous, that is kind of a "
 
 ##### 8:10
 
-The fourth kind of ego consciousness is: we want to believe something particular [exists] which is called karma, which leads you to be reborn in the next life. So [we believe] karma is something particular, which is [an] eternal entity which leads you to [your] next life. But actually, karma doesn't exist in that way, as an idea of [an] entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. 
+The fourth kind of ego consciousness is: we want to believe something particular [exists] which is called [karma](glossary#karma), which leads you to be reborn in the next life. So [we believe] karma is something particular, which is [an] eternal entity which leads you to [your] next life. But actually, karma doesn't exist in that way, as an idea of [an] entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. 
 
-When you yawn, that is your karma. If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But [if] right after expression of your anger, you smile – well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that's why, no perception of a person. This is a kind of idea of karma. 
+When you yawn, that is your [karma](glossary#karma). If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But [if] right after expression of your anger, you smile – well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that's why, no perception of a person. This is a kind of idea of karma. 
 
 ##### 9:54
 
@@ -271,6 +271,6 @@ Finally, self is broad, but what is that? I cannot explain. But, it's there. It'
 
 ##### 1:05:11 end of recording
 
-[Next Talk: Diamond Sutra – Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
+[Next Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 
 [Home](index.md)

@@ -75,7 +75,7 @@ But trans-personality immediately smells: "I smell something," "I smell myself a
 
 So, whatever I feel from my personality, there is always some confusion. Waves of the mind, always. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from – anyway, stink. What is called total personality. 
 
-Because I don't know, what is my karma? Why did you become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why, so I cannot say. 
+Because I don't know, what is my [karma](glossary#karma)? Why did you become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why, so I cannot say. 
 
 That is really stink.... From where that stink of Katagiri comes? Nowhere. You have to really go back to beginingless past, to the endless future. 
 
@@ -87,7 +87,7 @@ You are already under this core, under this huge tree. It's vast; *huge* tree. B
 
 ##### 28:39
 
-So that is [what is] called [Buddha Nature](glossary#buddha-nature) . And also, what is Buddha Nature? If you want to know psychologically, that is called alayavijñāna, in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that [it] is karma. Karma is completely beyond good or bad, right and wrong. But simultaneously, karma is something which is very powerful to carry your life in [the] samsaric world. But on the other hand, karma is – anyway, if you want to know karma, you have to go back into beginning-less past, and endless future. Finally, no [object?]. What is karma? No [object?]. But karma is [real?]. How do you know? [*unintelligible*] You [can? can't?] know. 
+So that is [what is] called [Buddha Nature](glossary#buddha-nature) . And also, what is Buddha Nature? If you want to know psychologically, that is called alayavijñāna, in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that [it] is [karma](glossary#karma). Karma is completely beyond good or bad, right and wrong. But simultaneously, karma is something which is very powerful to carry your life in [the] samsaric world. But on the other hand, karma is – anyway, if you want to know karma, you have to go back into beginning-less past, and endless future. Finally, no [object?]. What is karma? No [object?]. But karma is [real?]. How do you know? [*unintelligible*] You [can? can't?] know. 
 
 ##### 30:00
 
@@ -101,7 +101,7 @@ On the other hand, same applied to me. "Why are you practicing hard, in [zazen](
 
 From this point, in everyday life, we can create our own everyday life. On the other hand, there is other aspect of life we cannot create. Something compels you to do. So, your daily living is, in some aspect, understandable; but your daily living is in some sense not understandable. So, life is pretty [*unintelligible*]. 
 
-That is called karma; that is called [Buddha Nature](glossary#buddha-nature) . We don't understand. Because the present, your life, comes from beginningless past, endless future. We should be there. And finally, we should accept this, and we must be present there, constantly on the big tree.... Psychologically speaking, this is total personality.
+That is called [karma](glossary#karma); that is called [Buddha Nature](glossary#buddha-nature) . We don't understand. Because the present, your life, comes from beginningless past, endless future. We should be there. And finally, we should accept this, and we must be present there, constantly on the big tree.... Psychologically speaking, this is total personality.
 
 ##### 34:20
 
@@ -121,7 +121,7 @@ So that is how to make arrangement of sensory world, instead of destroying, esca
 
 ##### 39:42
 
-And next, movement system. Movement system comes from unity of your physical and mental focus. Your body and mind work, then simultaneously movement comes up. You cannot destroy your movement. Sometimes movement comes from instinct, sometimes comes from sensory world, sometimes comes from higher level of [thought?]. Sometimes, we don't know. Karma? But anyway, there is always movement. 
+And next, movement system. Movement system comes from unity of your physical and mental focus. Your body and mind work, then simultaneously movement comes up. You cannot destroy your movement. Sometimes movement comes from instinct, sometimes comes from sensory world, sometimes comes from higher level of [thought?]. Sometimes, we don't know. [Karma](glossary#karma)? But anyway, there is always movement. 
 
 So, we have to make arrangement of movement. For this, [Dogen Zenji](glossary#dogen) says, that is half lotus position or full lotus position. Or Dogen Zenji says, "Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel." Or, "Sitting upright in proper position, neither inclining to the left nor to right; leaning neither forward nor backward. Sitting in [zazen](glossary#zazen)  silently, and immobile." 
 

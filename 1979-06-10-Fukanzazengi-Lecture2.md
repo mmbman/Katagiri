@@ -35,7 +35,7 @@ Also number six is, I told you yesterday ... the whole personality, or total per
 
 ##### 4:32
 
-So, total personality. The total personality has [a] double face. One is karma; you have carried [this] from the past. And also, the other face is that total personality [which] is completely beyond human criticism. That is really [Buddha Nature](glossary#buddha-nature). 
+So, total personality. The total personality has [a] double face. One is [karma](glossary#karma); you have carried [this] from the past. And also, the other face is that total personality [which] is completely beyond human criticism. That is really [Buddha Nature](glossary#buddha-nature). 
 
 So, you cannot know what is [karma](glossary#karma), because karma comes from beginingless past, and [is] going to endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen) says, "The origin of the way is perfect and all-pervading." And then also, if you do [zazen](glossary#zazen), [the] original face of existence appears, manifests itself. So, that is, [as] Dogen mentions zazen in Fukanzazengi, all-perfect.... The origin of the way, origin of existence is perfect and all-pervading. That is [Buddha Nature](glossary#buddha-nature). If you do zazen, immediately it appears. That is what is called original nature of existence, manifest[ing] itself. So Dogen Zenji says in Fukanzazengi. 
 

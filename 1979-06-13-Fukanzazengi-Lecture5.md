@@ -106,7 +106,7 @@ We don't understand. But "we don't understand" doesn't mean we should stop. We h
 
 ##### 30:10
 
-Of course, we are in the [dualistic](glossary#dualistic) world. That's why we want to be free. But how can you be free? We have karma; of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape. How can you [be] free? If you think, if you deal with your life in [the] dualistic world, no matter how long you walk, whatever kind of final goal you get, it's not a real goal. So, constantly, there is [dullness](glossary#dullness) and [distraction](glossary#distraction). So that's why [shikantaza](), [the] [zazen](glossary#zazen) we do, is nothing to be involved in [the] dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
+Of course, we are in the [dualistic](glossary#dualistic) world. That's why we want to be free. But how can you be free? We have [karma](glossary#karma); of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape. How can you [be] free? If you think, if you deal with your life in [the] dualistic world, no matter how long you walk, whatever kind of final goal you get, it's not a real goal. So, constantly, there is [dullness](glossary#dullness) and [distraction](glossary#distraction). So that's why [shikantaza](), [the] [zazen](glossary#zazen) we do, is nothing to be involved in [the] dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
 
 ##### 31:34
 
@@ -180,7 +180,7 @@ Is that okay? No? *[he laughs]*
 
 **Same person**: So thoughts themselves are not a problem.
 
-**Katagiri**: No. No problem. Only [when] you meddle with [it], it's a problem. So, if you get back here: "What kind of a soup should I do for dinner?" Immediately you take a piece of paper and pencil and you take a note. That is creating new karma, don't you think so? 
+**Katagiri**: No. No problem. Only [when] you meddle with [it], it's a problem. So, if you get back here: "What kind of a soup should I do for dinner?" Immediately you take a piece of paper and pencil and you take a note. That is creating new [karma](glossary#karma), don't you think so? 
 
 **Same person**: Mmm hmm.
 
