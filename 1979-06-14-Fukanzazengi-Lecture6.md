@@ -4,7 +4,9 @@
 
 [Home](index#fukanzazengi-lecture-6)
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
+[Previous Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
+
+[Audio file (mnzencenter.org link)](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording

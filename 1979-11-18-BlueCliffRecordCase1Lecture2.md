@@ -4,7 +4,9 @@
 
 [Home](index#blue-cliff-record-case-1-lecture-2)
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
+[Previous Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
+
+[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording

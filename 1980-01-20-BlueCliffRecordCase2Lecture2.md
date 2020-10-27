@@ -4,7 +4,9 @@
 
 [Home](index#blue-cliff-record-case-2-lecture-2)
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800120.mp3)
+[Previous Talk: Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
+
+[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800120.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -217,5 +219,7 @@ Do you have some questions?
 Commentary is... Engo’s commentary is pretty nice. So, if you have time to read the commentary to this case. I don’t have enough time to study with you the verses, the poem and commentary to the poem.
 
 Okay.
+
+*Next Talk: Save All Sentient Beings*
 
 [Home](index#blue-cliff-record-case-2-lecture-2)
