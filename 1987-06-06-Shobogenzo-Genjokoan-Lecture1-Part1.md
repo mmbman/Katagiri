@@ -2,8 +2,9 @@
 # Shobogenzo: Genjokoan – Lecture 1 – Part 1
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#genjokoan-lecture-1-part-1)
+[Home](index#genjokoan-lecture-1-part-1) – [Previous](talks-2#0) – [Next](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
 
+---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606a.mp3)
 
 <a name="000"></a>
@@ -221,6 +222,7 @@ That is compassion. So, where is the compassion? Something more than the idea of
 
 Is that okay? Do you have any other questions? We will have discussion (later?)... 
 
+---
 [Next Talk Shobogenzo: Genjokoan – Lecture 1 – Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
 
 [Home](index#genjokoan-lecture-1-part-1)
