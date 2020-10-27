@@ -5,10 +5,11 @@
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
-[A](#a) - [B](#b) - [C](#c) - [D](#d) [E](#e) [F](#f) [G](#g) [H](#h) [I](#i) [J](#j) [K](#k) [L](#l) [M](#m) [N](#n) [O](#o) [P](#p) [Q](#q) [R](#r) [S](#s) [T](#t) [U](#u) [V](#v) [W](#w) [X](#x) [Y](#y) [Z](#z)
+[A](#a) - [B](#b) - [C](#c) - [D](#d) - [E](#e) - [F](#f) - [G](#g) - [H](#h) - [I](#i) - [J](#j) - [K](#k) - [L](#l) - [M](#m) - [N](#n) - [O](#o) - [P](#p) - [Q](#q) - [R](#r) - [S](#s) - [T](#t) - [U](#u) - [V](#v) - [W](#w) - [X](#x) - [Y](#y) - [Z](#z)
 
 ---
-<a name="a">
+# A
+
 ## Abhidharma
 
 [Sanskrit](glossary#sanskrit): Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
@@ -114,7 +115,9 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 - [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 ---
-<a name="b">
+
+# B
+
 ## Blue Cliff Record
 
 Japanese: Hekiganroku
@@ -187,6 +190,8 @@ The original nature of existence, perfect and all pervading.
 - [Fukanzazengi – Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
 
 ---
+#C
+
 ## Calligraphy
 
 A traditional art practiced by Zen priests and monks.
@@ -213,6 +218,8 @@ Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese. Both words 
 Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word for "Chan". Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
 
 ---
+# D
+
 ## Dainin
 
 Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagiri).
@@ -268,6 +275,8 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 - [Fukanzazengi – Lecture 1 (48:16)](1979-06-09-Fukanzazengi-Lecture1#4816)
 
 ---
+# E
+
 ## Edward Conze
 
 ---
@@ -301,6 +310,8 @@ See [śūnyatā](glossary#śūnyatā).
 ## Enlightenment
 
 ---
+# F
+
 ## Four Dharma Seals
 
 The Four Dharma Seals are:
@@ -333,6 +344,8 @@ See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 - [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
 
 ---
+# G
+
 ## Genjokoan
 
 See [Dogen Index: Genjokoan](dogen#genjokoan)
@@ -355,6 +368,8 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 - [Fukanzazengi – Lecture 3 (59:40)](1979-06-11-Fukanzazengi-Lecture3#5940)
 
 ---
+#H
+
 ## Han
 
 “Han: In Zen monasteries, a wooden board that is struck with a mallet to summon monastics to the zendo or other practice hall, as well as serving as a time-keeping signal during the monastic day. The pattern of strikes often includes three “roll downs”, a series of strikes gradually becoming accelerando and crescendo.”
@@ -375,6 +390,8 @@ Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Kat
 ## Hinayana
 
 ---
+#I
+
 ## Ino
 
 zendo (meditation hall ) manager 
@@ -413,6 +430,10 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 - [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
 ---
+# J
+
+# K
+
 ## Kapleau Roshi
 
 ---
@@ -439,6 +460,8 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 - [Fukanzazengi – Lecture 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
 
 ---
+# L
+
 ## Lotus
 
 - [Fukanzazengi – Lecture 3 (1:07:26)](1979-06-11-Fukanzazengi-Lecture3#10726)
@@ -449,6 +472,8 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 [Sanskrit](glossary#sanskrit): Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
 
 ---
+# M
+
 ## Madhyamaka
 
 ---
@@ -490,6 +515,8 @@ pronounced "Ah-bay"
 - [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
 
 ---
+# N
+
 ## Nakagawa Roshi
 
 Probably Soen Nakagawa. [Wikipedia](https://en.wikipedia.org/wiki/Soen_Nakagawa)
@@ -525,6 +552,10 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 ## Nondualism
 
 ---
+# O
+
+# P
+
 ## Pali
 
 ---
@@ -582,6 +613,10 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 - [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
 ---
+# Q
+
+# R
+
 ## Reb Anderson
 
 Tenshin Reb Anderson Roshi, of San Francisco Zen Center
@@ -593,6 +628,8 @@ Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 ## Roshi
 
 ---
+# S
+
 ## Saddharma Puṇḍarīka Sutra
 
 The Lotus Sutra. 
@@ -755,6 +792,8 @@ suki (Japanese): gap; space.
 ## Sutra
 
 ---
+# T
+
 ## Tathāgata
 
 A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
@@ -772,6 +811,10 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 ## Tibetan Buddhism
 
 ---
+# U
+
+# V
+
 ## Vasubandhu
 
 - [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
@@ -780,6 +823,12 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 ## Vimalakirti Sutra
 
 ---
+# W
+
+# X
+
+#Y
+
 ## Yogachara
 
 Yogācāra; literally "yoga practice" is an influential tradition of Buddhist philosophy and psychology emphasizing the study of cognition, perception, and consciousness through the interior lens of meditative and yogic practices.
@@ -787,6 +836,8 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 [Wikipedia: Yogachara](https://en.wikipedia.org/wiki/Yogachara)
 
 ---
+# Z
+
 ## Zazen
 
 "Seated meditation"
