@@ -1,7 +1,7 @@
 <a name="0"></a>
 # About This Website
 
-[Home](index#0) – [Previous](index) – [Next](1979-05-09-Diamond-Sutra-Introduction#0)
+[Home](index) – [Previous](index) – [Next](1979-05-09-Diamond-Sutra-Introduction#0)
 
 ---
 I’ve transcribed these talks from audio recordings in the online [Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). The talks are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in the four books that have been compiled from Dainin Katagiri’s teachings. You can read the transcripts on their own, or follow along while listening to the recordings, which are referenced at the top of each talk. 
