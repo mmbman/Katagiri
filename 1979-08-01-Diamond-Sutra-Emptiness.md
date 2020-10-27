@@ -14,7 +14,7 @@ Chapter 7:
 
 > The Lord asked: What do you think, [Subhuti](glossary#subhuti), is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as "the utmost, right and perfect [enlightenment](glossary#enlightenment)," or is there any dharma which the Tathāgata has demonstrated? Subhuti replied: No, not as I understand what the Lord has said. And why? This dharma which the Tathāgata has fully known or demonstrated – it cannot be grasped, it cannot be talked about, it is neither a dharma nor a no-dharma. And why? Because an Absolute exalts the Holy Persons.
 > 
-> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
+> (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
 
 In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the dharmas taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
 

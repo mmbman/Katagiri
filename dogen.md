@@ -79,9 +79,11 @@ This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 ---
 # Eihei Koroku
 
-Eihei Koroku is a collection of [Dogen Zenji](glossary#dogen)’s Dharma Hall Discourses (short dharma talks). There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
+Eihei Koroku is a collection of [Dogen Zenji](glossary#dogen)’s Dharma Hall Discourses (short dharma talks). 
 
-The titles for these discourses are taken from [“Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,”](resources#dogen) translated by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dogen, but are useful for reference.
+There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
+
+The titles for these discourses are taken from “Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,” translated by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dogen, but are useful for reference.
 
 ---
 <a name="ek-372"></a>

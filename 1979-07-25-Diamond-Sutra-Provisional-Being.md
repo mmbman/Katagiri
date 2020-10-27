@@ -92,7 +92,7 @@ So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for
 
 > And why? If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn't seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with hidden meaning: 'By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.'
 > 
-> (Quote from "Buddhist Wisdom: The Diamond Sutra and The Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 27-28)
+> (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 27-28)
 
 ##### 21:44
 

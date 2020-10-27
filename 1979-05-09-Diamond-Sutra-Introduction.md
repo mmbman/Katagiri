@@ -67,7 +67,7 @@ So [Prajnaparamita](glossary#prajnaparamita)
 
 > [Subhuti](glossary#subhuti) asked: What then, O Lord, is this discourse on [dharma](glossary#dharma), and how should I bear it in mind? – The Lord replied: This discourse on dharma, Subhuti, is called "Wisdom which has gone beyond," and as such should you bear it in mind!
 >
-> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 49)
+> (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 49)
 
 Wisdom is expressed – explained, described – by [a] pretty conceptualized thing.
 
@@ -179,7 +179,7 @@ Okay. Next time, we will study \[the chapters of the [Diamond Sutra](glossary#di
 
 Do you have some questions? 
 
-Ah, the textbook is the combined textbook, Buddhist Wisdom Books, compiled two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find cheaper, not hard copy – paperback cover, you can find. ("Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze).)
+Ah, the textbook is the combined textbook, Buddhist Wisdom Books, compiled two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find cheaper, not hard copy – paperback cover, you can find. (["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 
 He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra) 
 . Without [the] commentary, it's very difficult to understand, because very often you can see very contradictory expression of the Buddhist teaching.

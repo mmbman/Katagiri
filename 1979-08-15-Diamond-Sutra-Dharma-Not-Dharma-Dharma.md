@@ -12,7 +12,7 @@
 
 > (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the "heap of merit" as a non-heap. That is how the Tathāgata speaks of "heap of merit". – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says "illustrate") it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathāgatas, Arhats, Fully Enlightened Ones, and from it have issued the [Buddhas](glossary#buddha), the Lords. And why? For the Tathāgata has taught that the dharmas special to the Buddhas are just not a [Buddha](glossary#buddha)'s special dharmas. That is why they are called "the dharmas special to the Buddhas."
 >
-> (From "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze), pp. 34-35.)
+> (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 34-35.)
 
 ##### 2:38
 
