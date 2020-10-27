@@ -58,7 +58,7 @@
 
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 	
-	... 
+	<a name="talks-3"></a>[***Talks Not Yet Transcribed – Part 3***](talks-3#0)
 
 - <a name="glossary"></a>[Glossary](glossary#0)
 
