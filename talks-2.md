@@ -240,7 +240,7 @@
 1. 11/07/1986	T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 1	
 1. 11/14/1986	T'ein T'ai Buddhism:: Outline of 4-Fold Teaching – Lecture 2	
 1. 11/15/1986	Blue Cliff Record: Case 79 – Lecture 1
-1. 11/21/1986	T'ien T'ai Buddhism:: Conclusion	
+1. 11/21/1986	T'ien T'ai Buddhism:: Conclusion
 1. 11/22/1986	Bowing
 1. 12/01/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 1	
 1. 12/03/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 3	
@@ -252,14 +252,14 @@
 1. 12/27/1986	Obedience
 1. 01/10/1987	Dogen Four Points: Track 1 of 2	
 1. 01/10/1987	Dogen Four Points: Track 2 of 2
-1. 01/17/1987	Blue Cliff Record: Case 80 – Lecture 1	
-1. 01/18/1987	Blue Cliff Record: Case 80 – Lecture 2	
-1. 01/24/1987	Zazen: Dropping off Body and Mind	
-1. 01/31/1987	Inconceivable, Universal, Cosmic Life	
+1. 01/17/1987	Blue Cliff Record: Case 80 – Lecture 1
+1. 01/18/1987	Blue Cliff Record: Case 80 – Lecture 2
+1. 01/24/1987	Zazen: Dropping off Body and Mind
+1. 01/31/1987	Inconceivable, Universal, Cosmic Life
 1. 02/21/1987	Blue Cliff Record: Case 81 – Lecture 1
 1. 02/22/1987	Blue Cliff Record: Case 81 – Lecture 2
-1. 03/06/1987	Platform Sutra – Lecture 1	
-1. 03/07/1987	Shobogenzo: Bendowa: Entry to the Buddha Dharma	
+1. 03/06/1987	Platform Sutra – Lecture 1
+1. 03/07/1987	Shobogenzo: Bendowa: Entry to the Buddha Dharma
 1. 03/11/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 1	
 1. 03/12/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 2
 1. 03/13/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 3	
