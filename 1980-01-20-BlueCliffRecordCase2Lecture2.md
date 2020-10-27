@@ -4,7 +4,7 @@
 
 [Home](index#blue-cliff-record-case-2-lecture-2)
 
-[Previous Talk: Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
+[Previous Talk: Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800120.mp3)
 

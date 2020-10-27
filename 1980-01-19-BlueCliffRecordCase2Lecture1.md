@@ -4,7 +4,7 @@
 
 [Home](index#blue-cliff-record-case-2-lecture-1)
 
-[Previous Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2)
+[Previous Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800119.mp3)
 

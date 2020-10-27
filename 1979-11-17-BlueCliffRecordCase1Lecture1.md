@@ -145,6 +145,6 @@ Sometimes [with] trailing vines, there is something interrupted, so trees someti
 
 ##### 53:44 end of recording
 
-[Next Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2)
+[Next Talk: Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths, Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 
 [Home](index#blue-cliff-record-case-1-lecture-1)

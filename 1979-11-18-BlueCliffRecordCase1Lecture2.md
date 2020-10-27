@@ -404,6 +404,6 @@ That’s why he says he doesn’t know the great illumination shines from under 
 
 ##### 1:18:32 end of recording
 
-[Next Talk: Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1)
+[Next Talk: Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 
 [Home](index#blue-cliff-record-case-1-lecture-2)
