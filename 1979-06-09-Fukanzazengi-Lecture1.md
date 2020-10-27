@@ -245,6 +245,6 @@ By the [zazen](glossary#zazen) , if you believe "I should be happy," or "I want 
 
 ##### 1:07:20 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
+[Next Talk: Fukanzazengi – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
 
 [Home](index#fukanzazengi-lecture-1)

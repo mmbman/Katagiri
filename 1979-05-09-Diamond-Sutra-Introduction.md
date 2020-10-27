@@ -227,6 +227,6 @@ That's why we have to continue to sit. I don't know why. *[he chuckles]* But you
 
 ##### 58:09 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
+[Next Talk: Fukanzazengi – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
 
 [Home](index#diamond-sutra-introduction)

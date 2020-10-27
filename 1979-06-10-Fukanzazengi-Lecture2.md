@@ -4,7 +4,7 @@
 
 [Home](index#fukanzazengi-lecture-2)
 
-[Previous Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
+[Previous Talk: Fukanzazengi – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790610.mp3)
 
@@ -551,6 +551,6 @@ That's why that is number six: total personality. Let's be there.
 
 ##### 1:30:30 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
+[Next Talk: Fukanzazengi – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
 
 [Home](index#fukanzazengi-lecture-2)

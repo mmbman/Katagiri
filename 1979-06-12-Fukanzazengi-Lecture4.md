@@ -4,7 +4,7 @@
 
 [Home](index#fukanzazengi-lecture-4)
 
-[Previous Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
+[Previous Talk: Fukanzazengi – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790612.mp3)
 
@@ -243,6 +243,6 @@ At that time, you can die while you're sitting, you can die while you're standin
 
 ##### 1:10:30 end of recording
 
-[Next Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
+[Next Talk: Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 [Home](index#fukanzazengi-lecture-4)
