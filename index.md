@@ -1,8 +1,6 @@
 <a name="0"></a>
 # Table of Contents
 
-[Go to end](#end)
-
 - [About This Website](about#0)
 
 1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
@@ -69,4 +67,3 @@
 - <a name="tools"></a>[Tools](tools#0)
 
 <a name="end">
-[Go to top](#0)
