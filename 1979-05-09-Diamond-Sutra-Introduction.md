@@ -2,10 +2,9 @@
 # Diamond Sutra: Introduction
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#diamond-sutra-introduction)
+[Home](index#diamond-sutra-introduction) | [Previous](about) | [Next](1979-06-09-Fukanzazengi-Lecture1#0)
 
-*No previous talk*
-
+-----
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
 <a name="000"></a>

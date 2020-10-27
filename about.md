@@ -15,4 +15,7 @@ If you need to contact me with comments or questions, email [Kikan Mike Howard](
 
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
+-----
+</a>[First Talk: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
+
 [Home](index#0)
