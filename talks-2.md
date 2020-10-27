@@ -115,9 +115,9 @@
 1. 04/06/1984	The Awakening of Faith (4/6/84)	
 1. 04/11/1984	Blue Cliff Record: Case 55, Lecture 3
 1. 04/20/1984	The Awakening of Faith (4/20/84)	
-1. 04/25/1984	Blue Cliff Record: Case 57 (1 of 2)	
+1. 04/25/1984	Blue Cliff Record: Case 57 – Lecture 1	
 1. 04/27/1984	The Awakening of Faith (4/20/84)	
-1. 05/02/1984	Blue Cliff Record: Case 57 (2 of 2)	
+1. 05/02/1984	Blue Cliff Record: Case 57 – Lecture 2	
 1. 05/04/1984	The Awakening of Faith (5/4/84)	
 1. 05/11/1984	The Awakening of Faith (5/11/84)	
 1. 05/14/1984	The Awakening of Faith (5/14/84): Two Kinds of Nowness	
@@ -125,15 +125,15 @@
 1. 05/18/1984	The Awakening the Faith (5/18/84): Alayavijnana & Tathagatagarbha	
 1. 05/22/1984	The Awakening of Faith (5/22/84): Tathagatagarbha	
 1. 05/24/1984	The Awakening of Faith (5/24/84): Tathagatagarbha & Alayavijinana	
-1. 05/28/1984	Shobogenzo, Juundo Shiki, Rules for the Monks Annex (1 of 11)	
-1. 05/29/1984	Shobogenzo, Juundo Shiki, Rules for the Monks Annex (2 of 11)	
-1. 05/30/1984	Shobogenzo, Juundo Shiki, Rules for the Monks Annex (3 of 11)	
-1. 05/31/1984	Shobogenzo, Juundo Shiki, Rules for the Monks Annex (4 of 11)	
-1. 06/01/1984	Shobogenzo: Juundo Shiki, Rules fo the Monks Annex (5 of 11)	
-1. 06/03/1984	Shobogenzo: Juundo Shiki, Rules for the Monks Annex (7 of 11)	
-1. 06/04/1984	Shobogenzo: Juundo Shiki, Rules for the Monks Annex (8 of 11)
-1. 06/06/1984	Shobogenzo: Juundo Shiki, Rules for the Monks Annex (10 of 11)	
-1. 06/07/1984	Shobogenzo: Juundo Shiki, Rules for the Monks Annex (11 of 11)	
+1. 05/28/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 1	
+1. 05/29/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 2	
+1. 05/30/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 3	
+1. 05/31/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 4	
+1. 06/01/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 5	
+1. 06/03/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 7	
+1. 06/04/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 8
+1. 06/06/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 10	
+1. 06/07/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 11	
 1. 06/13/1984	Blue Cliff Record: Case 58, Lecture 1
 1. 06/16/1984	Blue Cliff Record: Case 58, Lecture 2
 1. 08/15/1984	Blue Cliff Record: Case 59: Case 59	
@@ -141,12 +141,12 @@
 1. 10/13/1984	A Basis for Practice	
 1. 10/17/1984	Blue Cliff Record: Case 61, Lecture 1
 1. 10/19/1984	The Awakening of Faith (10/19/1984)	
-1. 10/20/1984	Book of Equanimity, Dongshan's "Always Close" (1 of 2)
-1. 10/21/1984	Book of Equanimity, Dongshan's "Always Close" (2 of 2)	
+1. 10/20/1984	Book of Equanimity, Dongshan's "Always Close" – Lecture 1
+1. 10/21/1984	Book of Equanimity, Dongshan's "Always Close" – Lecture 2	
 1. 10/24/1984	Blue Cliff Record: Case 61, Lecture 2
 1. 10/26/1984	The Awakening of Faith (10/26/84)	
-1. 10/27/1984	The Four Sustenances (1 of 2)	
-1. 11/03/1984	The Four Sustennces (2 of 2)	
+1. 10/27/1984	The Four Sustenances – Lecture 1	
+1. 11/03/1984	The Four Sustenances – Lecture 2	
 1. 11/07/1984	Blue Cliff Record: Case 62, Lecture 1
 1. 11/10/1984	Buddha's Impermancence	
 1. 11/17/1984	Blue Cliff Record: Case 62, Lecture 2
@@ -206,9 +206,9 @@
 1. 05/03/1986	Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts	
 1. 05/31/1986	The Goldenness of the Earth, the Sweet Milk of the Long River	
 1. 06/28/1986	Turning the Three Poisons into Wheels	
-1. 07/02/1986	Meal Chants (1 of 3)	
-1. 07/09/1986	Meal Chants (2 of 3)	
-1. 07/16/1986	Meal Chants (3 of 3)	
+1. 07/02/1986	Meal Chants – Lecture 1	
+1. 07/09/1986	Meal Chants – Lecture 2	
+1. 07/16/1986	Meal Chants – Lecture 3	
 1. 07/19/1986	Blue Cliff Record: Case 78, Lecture 1
 1. 07/20/1986	Blue Cliff Record: Case 78, Lecture 2
 1. 07/23/1986	Gatha of Opening the Sutra
@@ -217,39 +217,39 @@
 1. 08/03/1986	Taking Refuge in the Buddha	
 1. 08/06/1986	Verse of Offering Incense	
 1. 08/22/1986	Bowing	
-1. 09/01/1986	Shobogenzo, Hossho: Dharma Nature (5 of 13)	
-1. 09/05/1986	Shobogenzo, Hossho: Dharma Nature (6 of 13)	
-1. 09/07/1986	Shobogenzo, Hossho: Dharma Nature (7 of 13)	
-1. 09/10/1986	Shobogenzo, Hossho: Dharma Nature (8 of 13)	
-1. 09/12/1986	Shobogenzo, Hossho: Dharma Nature (9 of 13)
-1. 09/22/1986	Shobogenzo: Tsuki: The Moon (1 of 7)	
-1. 09/23/1986	Shobogenzo: Tsuki: The Moon (2 of 7)	
-1. 09/24/1986	Shobogenzo: Tsuki: The Moon (3 of 7)	
-1. 09/25/1986	Shobogenzo: Tsuki: The Moon (4 of 7)	
-1. 09/26/1986	Shobogenzo: Tsuki: The Moon (5 of 7)	
-1. 09/27/1986	Shobogenzo: Tsuki: The Moon (6 of 7)	
-1. 09/28/1986	Shobogenzo: Tsuki: The Moon (7 of 7)	
-1. 09/30/1986	Shobogenzo, Hossho: Dharma Nature (10 of 13)	
-1. 10/01/1986	Shobogenzo, Hossho: Dharma Nature (11 of 13)	
-1. 10/06/1986	Shobogenzo, Hossho: Dharma Nature (12 of 13)
-1. 10/07/1986	Shobogenzo, Hossho: Dharma Nature (13 of 13)	
-1. 10/18/1986	Shobogenzo, Kokyo: Form and Mirror (1 of 2)	
-1. 10/19/1986	Shobogenzo, Kokyo: Form and Mirror (2 of 2)	
+1. 09/01/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 5	
+1. 09/05/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 6	
+1. 09/07/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 7	
+1. 09/10/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 8	
+1. 09/12/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 9
+1. 09/22/1986	Shobogenzo: Tsuki: The Moon – Lecture 1	
+1. 09/23/1986	Shobogenzo: Tsuki: The Moon – Lecture 2	
+1. 09/24/1986	Shobogenzo: Tsuki: The Moon – Lecture 3	
+1. 09/25/1986	Shobogenzo: Tsuki: The Moon – Lecture 4	
+1. 09/26/1986	Shobogenzo: Tsuki: The Moon – Lecture 5	
+1. 09/27/1986	Shobogenzo: Tsuki: The Moon – Lecture 6	
+1. 09/28/1986	Shobogenzo: Tsuki: The Moon – Lecture 7	
+1. 09/30/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 10	
+1. 10/01/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 11	
+1. 10/06/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 12
+1. 10/07/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 13	
+1. 10/18/1986	Shobogenzo: Kokyo: Form and Mirror – Lecture 1	
+1. 10/19/1986	Shobogenzo: Kokyo: Form and Mirror – Lecture 2	
 1. 10/31/1986	T'ien T'ai Buddhism:: Historical Background	
 1. 11/06/1986	Zen and Writing: Word and its Spirit	
-1. 11/07/1986	T'ien T'ai Buddhism: Outline of 4-Fold Teaching (1 of 2)	
-1. 11/14/1986	T'ein T'ai Buddhism:: Outline of 4-Fold Teaching (2 of 2)	
+1. 11/07/1986	T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 1	
+1. 11/14/1986	T'ein T'ai Buddhism:: Outline of 4-Fold Teaching – Lecture 2	
 1. 11/15/1986	Blue Cliff Record: Case 79, Lecture 1: Case 79, Lecture 1	
 1. 11/21/1986	T'ien T'ai Buddhism:: Conclusion	
 1. 11/22/1986	Bowing
-1. 12/01/1986	Shobogenzo, "Gabyo": Painting of a Rice Cake (1 of 7)	
-1. 12/03/1986	Shobogenzo, "Gabyo": Painting of a Rice Cake (3 of 7)	
-1. 12/04/1986	Shobogenzo, "Gabyo": Painting of a Rice Cake (4 of 7)	
-1. 12/05/1986	Shobogenzo, "Gabyo": Painting of a Rice Cake (5 of 7)	
-1. 12/06/1986	Shobogenzo, "Gabyo": Painting of a Rice Cake (6 of 7)	
-1. 12/07/1986	Shobogenzo, "Gabyo": Painting of a Rice Cake (7 of 7)	
+1. 12/01/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 1	
+1. 12/03/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 3	
+1. 12/04/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 4	
+1. 12/05/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 5	
+1. 12/06/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 6	
+1. 12/07/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 7	
 1. 12/20/1986	Commentary on Shobogenzo Gabyo (Painted Rice Cake)	
-1. 12/27/1986	Obedience	
+1. 12/27/1986	Obedience
 1. 01/10/1987	Dogen Four Points: Track 1 of 2	
 1. 01/10/1987	Dogen Four Points: Track 2 of 2
 1. 01/17/1987	Blue Cliff Record: Case 80, Lecture 1	
@@ -258,25 +258,25 @@
 1. 01/31/1987	Inconceivable, Universal, Cosmic Life	
 1. 02/21/1987	Blue Cliff Record: Case 81, Lecture 1
 1. 02/22/1987	Blue Cliff Record: Case 81, Lecture 2
-1. 03/06/1987	Platform Sutra (1 of 7)	
+1. 03/06/1987	Platform Sutra – Lecture 1	
 1. 03/07/1987	Shobogenzo: Bendowa: Entry to the Buddha Dharma	
-1. 03/11/1987	Shobogenzo Bendowa: Dogen's Questions & Answers (1 of 5)	
-1. 03/12/1987	Shobogenzo Bendowa: Dogen's Questions & Answers (2 & 5)
-1. 03/13/1987	Shobogenzo Bendowa: Dogen's Questions and Answers (3 of 5)	
-1. 03/14/1987	Shobogenzo Bendowa: Dogen's Questions & Answers (4 of 5)	
-1. 03/15/1987	Shobogenzo Bendowa: Dogen's Questions & Answers (5 of 5)	
-1. 03/20/1987	Platform Sutra (2 of 7)	
-1. 03/27/1987	Platform Sutra (3 of 7)	
+1. 03/11/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 1	
+1. 03/12/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 2
+1. 03/13/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 3	
+1. 03/14/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 4	
+1. 03/15/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 5	
+1. 03/20/1987	Platform Sutra – Lecture 2	
+1. 03/27/1987	Platform Sutra – Lecture 3	
 1. 03/28/1987	Living in Vow Life after Life	
-1. 04/03/1987	Platform Sutra (4 of 7)	
-1. 04/10/1987	Platform Sutra (5 of 7)	
-1. 04/17/1987	Platform Sutra (6 of 7)	
-1. 04/18/1987	Deepening the Experience of Our Lives (1 of 2)	
-1. 04/18/1987	Deepening the Experience of Our Lives (2 of 2)
-1. 04/24/1987	Platform Sutra (7 of 7)	
+1. 04/03/1987	Platform Sutra – Lecture 4	
+1. 04/10/1987	Platform Sutra – Lecture 5	
+1. 04/17/1987	Platform Sutra – Lecture 6	
+1. 04/18/1987	Deepening the Experience of Our Lives – Lecture 1	
+1. 04/18/1987	Deepening the Experience of Our Lives – Lecture 2
+1. 04/24/1987	Platform Sutra – Lecture 7	
 1. 05/02/1987	Prajna Paramita and Emptiness	
-1. 05/23/1987	Karma in Buddhism, Part 1
-1. 05/23/1987	Karma in Buddhism, Part 2
+1. 05/23/1987	Karma in Buddhism – Part 1
+1. 05/23/1987	Karma in Buddhism – Part 2
 
 ---
 [Next Talk: Shobogenzo: Genjokoan – Lecture 1 – Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
