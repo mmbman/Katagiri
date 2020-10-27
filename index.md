@@ -40,13 +40,13 @@
 
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
 	
-	<a name="talks-1"></a>[*Talks Not Yet Transcribed - Part 1*](talks-1#0)
+- <a name="talks-1"></a>[*Talks Not Yet Transcribed - Part 1*](talks-1#0)
 
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
 
 1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
-	
-	<a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
+
+- <a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 
 1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1 – Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 	

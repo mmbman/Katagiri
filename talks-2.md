@@ -42,6 +42,16 @@
 1. 10/15/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 2
 1. 10/16/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 5, Part 1
 1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 1
+1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 2
+1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 3
+1. 10/18/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 1
+1. 10/18/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 2
+1. 10/21/1981	Blue Cliff Record: Case 23 – Lecture 1
+1. 10/28/1981	Blue Cliff Record: Case 23 – Lecture 3	
+1. 11/11/1981	Blue Cliff Record: Case 24
+1. 11/21/1981	Blue Cliff Record: Case 25 – Lecture 1
+1. 11/22/1981	Blue Cliff Record: Case 25 – Lecture 2	
+1. 12/16/1981	Blue Cliff Record: Case 27 – Lecture 1
 
 ---
 [Next Talk: Shobogenzo: Genjokoan – Lecture 1 – Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
