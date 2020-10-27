@@ -66,6 +66,6 @@
 
 - <a name="resources"></a>[Resources](resources#0)
 
-- <a name="technical"></a>[Technical](tools#0)
+- <a name="technical"></a>[Technical](technical#0)
 
 <a name="end">
