@@ -11,6 +11,7 @@
 ---
 # A
 
+---
 ## Abhidharma
 
 [Sanskrit](glossary#sanskrit): Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
@@ -116,9 +117,9 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 - [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 ---
-
 # B
 
+---
 ## Blue Cliff Record
 
 Japanese: Hekiganroku
@@ -193,6 +194,7 @@ The original nature of existence, perfect and all pervading.
 ---
 # C
 
+---
 ## Calligraphy
 
 A traditional art practiced by Zen priests and monks.
@@ -221,6 +223,7 @@ Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word 
 ---
 # D
 
+---
 ## Dainin
 
 Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagiri).
@@ -278,6 +281,7 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 ---
 # E
 
+---
 ## Edward Conze
 
 ---
@@ -313,6 +317,7 @@ See [śūnyatā](glossary#śūnyatā).
 ---
 # F
 
+---
 ## Four Dharma Seals
 
 The Four Dharma Seals are:
@@ -347,6 +352,7 @@ See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 ---
 # G
 
+---
 ## Genjokoan
 
 See [Dogen Index: Genjokoan](dogen#genjokoan)
@@ -371,6 +377,7 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 ---
 # H
 
+---
 ## Han
 
 “Han: In Zen monasteries, a wooden board that is struck with a mallet to summon monastics to the zendo or other practice hall, as well as serving as a time-keeping signal during the monastic day. The pattern of strikes often includes three “roll downs”, a series of strikes gradually becoming accelerando and crescendo.”
@@ -393,6 +400,7 @@ Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Kat
 ---
 # I
 
+---
 ## Ino
 
 zendo (meditation hall ) manager 
@@ -433,6 +441,7 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 ---
 # J
 
+---
 # K
 
 ## Kapleau Roshi
@@ -463,6 +472,7 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 ---
 # L
 
+---
 ## Lotus
 
 - [Fukanzazengi – Lecture 3 (1:07:26)](1979-06-11-Fukanzazengi-Lecture3#10726)
@@ -518,6 +528,7 @@ pronounced "Ah-bay"
 ---
 # N
 
+---
 ## Nakagawa Roshi
 
 Probably Soen Nakagawa. [Wikipedia](https://en.wikipedia.org/wiki/Soen_Nakagawa)
@@ -555,8 +566,10 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 ---
 # O
 
+---
 # P
 
+---
 ## Pali
 
 ---
@@ -616,8 +629,10 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 ---
 # Q
 
+---
 # R
 
+---
 ## Reb Anderson
 
 Tenshin Reb Anderson Roshi, of San Francisco Zen Center
@@ -631,6 +646,7 @@ Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 ---
 # S
 
+---
 ## Saddharma Puṇḍarīka Sutra
 
 The Lotus Sutra. 
@@ -795,6 +811,7 @@ suki (Japanese): gap; space.
 ---
 # T
 
+---
 ## Tathāgata
 
 A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
@@ -814,8 +831,10 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 ---
 # U
 
+---
 # V
 
+---
 ## Vasubandhu
 
 - [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
@@ -826,10 +845,13 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 ---
 # W
 
+---
 # X
 
+---
 # Y
 
+---
 ## Yogachara
 
 Yogācāra; literally "yoga practice" is an influential tradition of Buddhist philosophy and psychology emphasizing the study of cognition, perception, and consciousness through the interior lens of meditative and yogic practices.
@@ -839,6 +861,7 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 ---
 # Z
 
+---
 ## Zazen
 
 "Seated meditation"
