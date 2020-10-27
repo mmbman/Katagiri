@@ -48,9 +48,9 @@
 	
 	<a name="talks-2"></a>[***Talks Not Yet Transcribed – Part 2***](talks-2#0)
 	
-1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1 – Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
+1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 	
-1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Lecture 1 – Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
+1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Lecture 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
 
 1. <a name="genjokoan-lecture-2"></a>[Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 

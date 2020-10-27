@@ -279,6 +279,6 @@
 1. 05/23/1987	Karma in Buddhism – Part 2
 
 ---
-[Next Talk: Shobogenzo: Genjokoan – Lecture 1 – Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
+[Next Talk: Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 
 [Home](index#talks-2)
