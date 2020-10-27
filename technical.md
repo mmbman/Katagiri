@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Tools
+# Technical
 
 The [Katagiri Transcripts](https://katagiritranscripts.net) website is written in [Markdown](https://guides.github.com/features/mastering-markdown/) using [BBEdit for Mac](https://www.barebones.com/products/bbedit/), and is hosted on [GitHub Pages](https://pages.github.com).
 
@@ -20,5 +20,5 @@ all brackets					|	`\[(.*?)\](?=\(?)`				|
 all brackets 2				|	`\[[^\]\n]*\]`					|
 (T|t)athagata(s?)			|	`\b(T|t)athagata(s?)\b`	| \1athāgata\2
 
-[Home](index#tools)
+[Home](index#technical)
 

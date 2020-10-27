@@ -62,8 +62,10 @@
 
 - <a name="BCR"></a>[Blue Cliff Record Index](BCR#0)
 
+- <a name="books"></a>[Books](resources#0)
+
 - <a name="resources"></a>[Resources](resources#0)
 
-- <a name="tools"></a>[Tools](tools#0)
+- <a name="technical"></a>[Technical](tools#0)
 
 <a name="end">
