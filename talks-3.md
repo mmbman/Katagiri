@@ -1,6 +1,6 @@
 <a name="0"></a>
 # Talks Not Yet Transcribed – Part 3
-## 
+## 07/15/1987 - 01/07/1989
 
 [Home](index#talks-2) – [Previous](1987-06-27-A-B-and-C-Worlds#0) – [Next](glossary#0)
 

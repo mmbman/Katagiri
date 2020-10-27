@@ -1,6 +1,6 @@
 <a name="0"></a>
 # Talks Not Yet Transcribed – Part 2
-## 07/03/1980 – 05/23/1987
+## 07/03/1980 - 05/23/1987
 
 [Home](index#talks-2) – [Previous](1980-07-02-Karma-WhereKarmaOriginates#0) – [Next](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 

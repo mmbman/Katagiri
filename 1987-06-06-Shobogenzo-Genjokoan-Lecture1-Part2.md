@@ -2,9 +2,12 @@
 # Shobogenzo: Genjokoan – Lecture 1, Part 2
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#genjokoan-lecture-1-part-2)
+[Home](index#genjokoan-lecture-1-part-2) – [Previous](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0) – [Next](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 
+---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606b.mp3)
+
+**This transcript is still in rough draft form**
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -251,6 +254,9 @@ Any others?
 
 So, always connected. Something like that.
 
+##### end of recording
+
+---
 [Next Talk: Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 
 [Home](index#genjokoan-lecture-1-part-2)

@@ -7,6 +7,8 @@
 ---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
 
+**This transcript is still in rough draft form**
+
 (The online audio of this first talk is only about five minutes long: apparently the first side of the tape was blank. Very unfortunate. However, the talk from the following day appears after this one.)
 
 … the words come up. And then, everyone, can people look at this form of circles(?). And then how do they agree with this existence of a form of circle, coming from a movement. How? Just words. Without words, we cannot get our agreement. Don’t you think so?

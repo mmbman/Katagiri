@@ -1,6 +1,6 @@
 <a name="0"></a>
 # Talks Not Yet Transcribed – Part 1
-## 03/15/1980 – 05/17/1980
+## 03/15/1980 - 05/17/1980
 
 [Home](index#talks-1) – [Previous](1980-01-20-BlueCliffRecordCase2Lecture2#0) – [Next](1980-07-01-Karma-TwelveChainsOfCausation#0)
 

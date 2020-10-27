@@ -1,8 +1,9 @@
 <a name="0"></a>
 # Blue Cliff Record Index
 
-[Home](index#BCR)
+[Home](index#BCR) – [Previous](dogen#0) – [Next](resources#0)
 
+---
 This is an index to where koans from [The Blue Cliff Record](glossary#blue-cliff-record) appear in [Katagiri Roshi's](glossary#katagiri) talks. **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
 
 ---

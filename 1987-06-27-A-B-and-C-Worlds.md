@@ -2,9 +2,12 @@
 # A, B, and C Worlds
 ## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#a-b-and-c-worlds)
+[Home](index#a-b-and-c-worlds) – [Previous](1987-06-20-Manas#0) – [Next](talks-3#0)
 
+---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
+
+**This transcript is still in rough draft form**
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -110,5 +113,8 @@ From this point, that is, I think, practically... maybe someday I mentioned, all
 But practically speaking, for instance, if you want to master downhill skiing, and whatever... you can see the future visions of skiing (skiers), or rock mountaineers; you can see the future vision. But if you see the future vision, very naturally we try to have lots of expectations from that future vision. 
 
 ##### end of recording
+
+---
+[Next: Talks Not Yet Transcribed – Part 3](talks-3#0)
 
 [Home](index#a-b-and-c-worlds)

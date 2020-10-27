@@ -6,6 +6,8 @@
 
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800702.mp3)
 
+**This transcript is still in rough draft form**
+
 <a name="000"></a>
 ##### 0:00 start of recording 
 

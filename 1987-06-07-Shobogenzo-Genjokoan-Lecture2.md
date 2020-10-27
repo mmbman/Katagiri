@@ -2,9 +2,12 @@
 # Shobogenzo: Genjokoan – Lecture 2
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#genjokoan-lecture-2)
+[Home](index#genjokoan-lecture-2) – [Previous](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0) – [Next](1987-06-20-Manas#0)
 
+---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
+
+**This transcript is still in rough draft form**
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -378,6 +381,7 @@ Okay, do you have a question? I'm sorry, I didn't finish.
 
 That's spiritual teacher. If you become a spiritual teacher, you must be like that. You cannot be a front. If you become a front person, if you become a person in front, it's trouble maker. So if you become a spiritual teacher, you must be always a person of behind. But, it really helps.
 
+---
 [Next Talk: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
 [Home](index#genjokoan-lecture-2)
