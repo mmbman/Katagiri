@@ -4,6 +4,8 @@
 
 [Home](index#fukanzazengi-lecture-1)
 
+[Previous Talk: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
+
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790609.mp3)
 
 <a name="000"></a>
