@@ -2,10 +2,9 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3
 ## June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#fukanzazengi-lecture-3)
+[Home](index#fukanzazengi-lecture-3) – [Previous](1979-06-10-Fukanzazengi-Lecture2#0) – [Next](1979-06-12-Fukanzazengi-Lecture4#0)
 
-[Previous Talk: Fukanzazengi – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
-
+---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790611.mp3)
 
 <a name="000"></a>
@@ -459,6 +458,7 @@ Such delusions come up, always. This is really flickering. But whatever you say,
 
 ##### 1:51:05 end of recording
 
+---
 [Next Talk: Fukanzazengi – Lecture 4](1979-06-12-Fukanzazengi-Lecture4#0)
 
 [Home](index#fukanzazengi-lecture-3)
