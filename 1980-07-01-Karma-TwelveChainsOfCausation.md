@@ -2,10 +2,9 @@
 # Karma: Twelve Chains of Causation
 ## July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#karma-twelve-chains-of-causation)
+[Home](index#karma-twelve-chains-of-causation) – Previous – [Next](1980-07-02-Karma-WhereKarmaOriginates#0)
 
-*Previous Talk: Blue Cliff Record: Case 4 – Lecture 1*
-
+---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
 
 (The online audio of this first talk is only about five minutes long: apparently the first side of the tape was blank. Very unfortunate. However, the talk from the following day appears after this one.)
@@ -20,6 +19,7 @@ So what is agreement? Oh yes, it is a form of a circle. This is nothing but the 
 
 So before time and space is completely normal sense of ignorance. This is birth of the [Buddhas](glossary#buddha). That is the truth, regardless of the [Buddha](glossary#buddha) … in this world, or he describes the forms, or not. Anyway, this is before time and space arises. Okay.
 
+---
 [Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
 
 [Home](index#karma-twelve-chains-of-causation)
