@@ -2,10 +2,9 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1
 ## June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#fukanzazengi-lecture-1)
+[Home](index#fukanzazengi-lecture-1) - [Previous](1979-05-09-Diamond-Sutra-Introduction#0) - [Next](1979-06-10-Fukanzazengi-Lecture2#0)
 
-[Previous Talk: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
-
+---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790609.mp3)
 
 <a name="000"></a>
@@ -245,6 +244,7 @@ By the [zazen](glossary#zazen) , if you believe "I should be happy," or "I want 
 
 ##### 1:07:20 end of recording
 
+---
 [Next Talk: Fukanzazengi – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
 
 [Home](index#fukanzazengi-lecture-1)
