@@ -62,9 +62,9 @@
 
 - <a name="glossary"></a>[Glossary](glossary#0)
 
-- <a name="dogen"></a>[Dogen Reference Index](dogen#0)
+- <a name="dogen"></a>[Dogen Index](dogen#0)
 
-- <a name="BCR"></a>[Blue Cliff Record Reference Index](BCR#0)
+- <a name="BCR"></a>[Blue Cliff Record Index](BCR#0)
 
 - <a name="resources"></a>[Resources](resources#0)
 

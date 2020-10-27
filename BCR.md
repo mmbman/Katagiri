@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Blue Cliff Record Reference Index
+# Blue Cliff Record Index
 
 [Home](index#BCR)
 

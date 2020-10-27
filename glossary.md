@@ -115,7 +115,7 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 
 Japanese: Hekiganroku
 
-- [Blue Cliff Record Reference Index](BCR)
+- [Blue Cliff Record Index](BCR)
 
 -------
 ## Bodhidharma
@@ -245,7 +245,7 @@ Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Pe
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
-- [Dogen Reference Index](dogen)
+- [Dogen Index](dogen)
 
 - [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
 
@@ -317,7 +317,7 @@ It is said that if a teaching contains the Four Dharma Seals then it can be cons
 
 [Dogen](glossary#dogen)'s “Universal Recommendation for Zazen”
 
-See [Dogen Reference Index: Fukanzazengi](dogen#fukanzazengi)
+See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 
 -------
 ## Fukutoku
@@ -331,7 +331,7 @@ See [Dogen Reference Index: Fukanzazengi](dogen#fukanzazengi)
 -------
 ## Genjokoan
 
-See [Dogen Reference Index: Genjokoan](dogen#genjokoan)
+See [Dogen Index: Genjokoan](dogen#genjokoan)
 
 -------
 ## Gensha Shibi 
@@ -676,7 +676,7 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 
 "Treasury of the True Dharma Eye": the main collection of Dogen's works. 
 
-See [Dogen Reference Index: Shobogenzo](dogen#shobogenzo)
+See [Dogen Index: Shobogenzo](dogen#shobogenzo)
 
 -------
 ## Śūnyatā
@@ -785,7 +785,7 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 
 "Seated meditation"
 
-For detailed guidance on how to practice zazen, see [Dogen Reference Index: Fukanzazengi](dogen#fukanzazengi).
+For detailed guidance on how to practice zazen, see [Dogen Index: Fukanzazengi](dogen#fukanzazengi).
 
 -------
 ## Zen

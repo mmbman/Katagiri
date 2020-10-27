@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Dogen Reference Index
+# Dogen Index
 
 [Home](index#dogen)
 
