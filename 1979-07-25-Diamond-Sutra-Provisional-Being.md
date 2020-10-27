@@ -2,10 +2,9 @@
 # Diamond Sutra: Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#diamond-sutra-provisional-being)
+[Home](index#diamond-sutra-provisional-being) – [Previous](1979-06-15-Fukanzazengi-Lecture7#0) – [Next](1979-08-01-Diamond-Sutra-Emptiness#0)
 
-[Previous Talk: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
-
+---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790725.mp3)
 
 <a name="000"></a>
@@ -271,6 +270,7 @@ Finally, self is broad, but what is that? I cannot explain. But, it's there. It'
 
 ##### 1:05:11 end of recording
 
+---
 [Next Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 
 [Home](index#diamond-sutra-provisional-being)

@@ -2,10 +2,9 @@
 # Diamond Sutra: Giving and Non-Covetousness
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#diamond-sutra-giving-and-non-covetousness)
+[Home](index#diamond-sutra-giving-and-non-covetousness) – [Previous](1979-08-01-Diamond-Sutra-Emptiness#0) – [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
-[Previous Talk: Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
-
+---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790808.mp3)
 
 <a name="000"></a>
@@ -222,6 +221,7 @@ It is okay to pick up a lantern. But people didn't ask us; people didn't sit sid
 
 ##### 1:07:09 end of recording
 
+---
 [Next Talk: Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
 [Home](index#diamond-sutra-giving-and-non-covetousness)

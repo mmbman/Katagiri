@@ -2,10 +2,9 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6
 ## June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#fukanzazengi-lecture-6)
+[Home](index#fukanzazengi-lecture-6) – [Previous Talk: Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0) - [Next](1979-06-15-Fukanzazengi-Lecture7#0)
 
-[Previous Talk: Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
-
+---
 [Audio file (mnzencenter.org link)](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
 
 <a name="000"></a>
@@ -425,6 +424,7 @@ According to [that] ... I told you, right in the middle of the Universe there is
 
 ##### 1:35:52 end of recording
 
+---
 [Next Talk: Fukanzazengi – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
 
 [Home](index#fukanzazengi-lecture-6)
