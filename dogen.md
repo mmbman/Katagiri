@@ -25,7 +25,7 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 ---
 
-## Shobogenzo
+# Shobogenzo
 
 Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
 
@@ -33,7 +33,7 @@ Fascicles from Shobogenzo referenced in Katagiri’s talks are listed below.
 
 ---
 
-### Genjokoan
+## Genjokoan
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
@@ -52,13 +52,13 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 ---
 
-### Prajnaparamita
+## Prajnaparamita
 
 - [Fukanzazengi – Lecture 6 (1:16:36)](1979-06-14-Fukanzazengi-Lecture6#11636)
 
 ---
 
-### One Bright Pearl
+## One Bright Pearl
 
 Japanese: Ikka myōju – 顆明珠
 
@@ -66,7 +66,7 @@ Japanese: Ikka myōju – 顆明珠
 
 ---
 
-### Life and Death
+## Life and Death
 
 Japanese: Shōji
 
@@ -74,7 +74,7 @@ Japanese: Shōji
 
 ---
 
-### Zazengi
+## Zazengi
 
 This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 
@@ -85,7 +85,7 @@ This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 
 ---
 
-## Eihei Koroku
+# Eihei Koroku
 
 Eihei Koroku is a collection of [Dogen Zenji](glossary#dogen)’s Dharma Hall Discourses (short dharma talks). There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
 
@@ -94,7 +94,7 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 ---
 
 <a name="ek-372"></a>
-### Dharma Discourse 372: “Undisturbed by Thunderclaps”
+## Dharma Discourse 372: “Undisturbed by Thunderclaps”
 
 - [Fukanzazengi – Lecture 7 (6:15-)](1979-06-15-Fukanzazengi-Lecture7#615)
 
