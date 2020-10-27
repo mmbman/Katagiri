@@ -190,7 +190,7 @@ The original nature of existence, perfect and all pervading.
 - [Fukanzazengi – Lecture 5 (5:14)](1979-06-13-Fukanzazengi-Lecture5#514)
 
 ---
-#C
+# C
 
 ## Calligraphy
 
@@ -368,7 +368,7 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 - [Fukanzazengi – Lecture 3 (59:40)](1979-06-11-Fukanzazengi-Lecture3#5940)
 
 ---
-#H
+# H
 
 ## Han
 
@@ -390,7 +390,7 @@ Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Kat
 ## Hinayana
 
 ---
-#I
+# I
 
 ## Ino
 
@@ -827,7 +827,7 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 
 # X
 
-#Y
+# Y
 
 ## Yogachara
 
