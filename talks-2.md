@@ -10,7 +10,7 @@
 1. 07/10/1980	Karma: Attribution in Present Life	
 1. 07/11/1980	Karma as Energy/ Emptiness	
 1. 07/12/1980	Karma: Conclusion: Conclusion	
-1. 07/16/1980	Diamond Sutra: Chapter 32, Emptiness and Mind	
+1. 07/16/1980	Diamond Sutra: Chapter 32: Emptiness and Mind	
 1. 07/19/1980	Blue Cliff Record: Case 5 – Lecture 1
 1. 07/20/1980	Blue Cliff Record: Case 5 – Lecture 2	
 1. 07/23/1980	Diamond Sutra: Final Lecture
@@ -113,7 +113,7 @@
 1. 03/25/1984	Mindfullness 5 of 5: Track 1 of 2	
 1. 03/25/1984	Mindfullness 5 of 5: Track 2 of 2
 1. 04/06/1984	The Awakening of Faith (4/6/84)	
-1. 04/11/1984	Blue Cliff Record: Case 55, Lecture 3
+1. 04/11/1984	Blue Cliff Record: Case 55 – Lecture 3
 1. 04/20/1984	The Awakening of Faith (4/20/84)	
 1. 04/25/1984	Blue Cliff Record: Case 57 – Lecture 1	
 1. 04/27/1984	The Awakening of Faith (4/20/84)	
@@ -134,22 +134,22 @@
 1. 06/04/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 8
 1. 06/06/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 10	
 1. 06/07/1984	Shobogenzo: Juundo Shiki (Rules for the Monks Annex) – Lecture 11	
-1. 06/13/1984	Blue Cliff Record: Case 58, Lecture 1
-1. 06/16/1984	Blue Cliff Record: Case 58, Lecture 2
-1. 08/15/1984	Blue Cliff Record: Case 59: Case 59	
-1. 10/03/1984	Blue Cliff Record: Case 60: Case 60	
+1. 06/13/1984	Blue Cliff Record: Case 58 – Lecture 1
+1. 06/16/1984	Blue Cliff Record: Case 58 – Lecture 2
+1. 08/15/1984	Blue Cliff Record: Case 59	
+1. 10/03/1984	Blue Cliff Record: Case 60
 1. 10/13/1984	A Basis for Practice	
-1. 10/17/1984	Blue Cliff Record: Case 61, Lecture 1
+1. 10/17/1984	Blue Cliff Record: Case 61 – Lecture 1
 1. 10/19/1984	The Awakening of Faith (10/19/1984)	
-1. 10/20/1984	Book of Equanimity, Dongshan's "Always Close" – Lecture 1
-1. 10/21/1984	Book of Equanimity, Dongshan's "Always Close" – Lecture 2	
-1. 10/24/1984	Blue Cliff Record: Case 61, Lecture 2
+1. 10/20/1984	Book of Equanimity: Dongshan's "Always Close" – Lecture 1
+1. 10/21/1984	Book of Equanimity: Dongshan's "Always Close" – Lecture 2	
+1. 10/24/1984	Blue Cliff Record: Case 61 – Lecture 2
 1. 10/26/1984	The Awakening of Faith (10/26/84)	
 1. 10/27/1984	The Four Sustenances – Lecture 1	
 1. 11/03/1984	The Four Sustenances – Lecture 2	
-1. 11/07/1984	Blue Cliff Record: Case 62, Lecture 1
+1. 11/07/1984	Blue Cliff Record: Case 62 – Lecture 1
 1. 11/10/1984	Buddha's Impermancence	
-1. 11/17/1984	Blue Cliff Record: Case 62, Lecture 2
+1. 11/17/1984	Blue Cliff Record: Case 62 – Lecture 2
 1. 11/21/1984	Blue Cliff Record: Case 63: Case 63	
 1. 11/24/1984	Suffering: Three Stages
 1. 12/01/1984	Always There Is a Scream: Track 1 of 2	
@@ -159,21 +159,21 @@
 1. 01/12/1985	True Heart is not Infactuation	
 1. 04/17/1985	The Simple Practice	
 1. 05/08/1985	Blue Cliff Record: Case 67
-1. 06/19/1985	Blue Cliff Record: Case 68, Lecture 1
+1. 06/19/1985	Blue Cliff Record: Case 68 – Lecture 1
 1. 06/22/1985	Introduction to Buddhism	
-1. 06/26/1985	Blue Cliff Record: Case 68, Lecture 2
-1. 07/03/1985	Blue Cliff Record: Case 69, Lecture 1
+1. 06/26/1985	Blue Cliff Record: Case 68 – Lecture 2
+1. 07/03/1985	Blue Cliff Record: Case 69 – Lecture 1
 1. 07/13/1985	Buddha Dharma: Big Sky Does not Bother with the Function of a Small Cloud	
 1. 07/17/1985	From Blue Cliff Record: Case 69, Note 2: Symmetry and Unsymmetry	
-1. 07/24/1985	Blue Cliff Record: Case 69, Lecture 2
-1. 07/31/1985	Blue Cliff Record: Case 70, Lecture 1
+1. 07/24/1985	Blue Cliff Record: Case 69 – Lecture 2
+1. 07/31/1985	Blue Cliff Record: Case 70 – Lecture 1
 1. 08/03/1985	Zazen and Creating Space	
 1. 08/07/1985	Truth, Phenomenology, Noumenology	
 1. 08/10/1985	Creating Space Between	
 1. 08/17/1985	Letting Go of Labels	
 1. 10/16/1985	Blue Cliff Record: Case 71
 1. 10/18/1985	The Awakening of Faith (10/18/85)	
-1. 10/23/1985	Blue Cliff Record, Case 72	
+1. 10/23/1985	Blue Cliff Record: Case 72	
 1. 10/25/1985	The Awakening of Faith (10/25/85)	
 1. 10/30/1985	Blue Cliff Record: Case 73
 1. 11/01/1985	The Awakening of Faith (11/01/1985)	
@@ -199,8 +199,8 @@
 1. 04/12/1986	Lay Ordination Lecture 5 of 7: Recieving the Precepts	
 1. 04/13/1986	Buddha's Birthday	
 1. 04/18/1986	The Awakening of Faith (4/18/84)	
-1. 04/19/1986	Book of Equanimity: Case 5, Lecture 1	
-1. 04/20/1986	Book of Equanimity: Case 5, Lecture 2	
+1. 04/19/1986	Book of Equanimity: Case 5 – Lecture 1	
+1. 04/20/1986	Book of Equanimity: Case 5 – Lecture 2	
 1. 04/26/1986	Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts
 1. 05/02/1986	The Awakening of Faith (5/2/86)	
 1. 05/03/1986	Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts	
@@ -209,8 +209,8 @@
 1. 07/02/1986	Meal Chants – Lecture 1	
 1. 07/09/1986	Meal Chants – Lecture 2	
 1. 07/16/1986	Meal Chants – Lecture 3	
-1. 07/19/1986	Blue Cliff Record: Case 78, Lecture 1
-1. 07/20/1986	Blue Cliff Record: Case 78, Lecture 2
+1. 07/19/1986	Blue Cliff Record: Case 78 – Lecture 1
+1. 07/20/1986	Blue Cliff Record: Case 78 – Lecture 2
 1. 07/23/1986	Gatha of Opening the Sutra
 1. 07/26/1986	Gatha of Closing the Sutra	
 1. 08/02/1986	Settling in the Vast Openness of the Sky	
@@ -239,7 +239,7 @@
 1. 11/06/1986	Zen and Writing: Word and its Spirit	
 1. 11/07/1986	T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 1	
 1. 11/14/1986	T'ein T'ai Buddhism:: Outline of 4-Fold Teaching – Lecture 2	
-1. 11/15/1986	Blue Cliff Record: Case 79, Lecture 1: Case 79, Lecture 1	
+1. 11/15/1986	Blue Cliff Record: Case 79 – Lecture 1
 1. 11/21/1986	T'ien T'ai Buddhism:: Conclusion	
 1. 11/22/1986	Bowing
 1. 12/01/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 1	
@@ -252,12 +252,12 @@
 1. 12/27/1986	Obedience
 1. 01/10/1987	Dogen Four Points: Track 1 of 2	
 1. 01/10/1987	Dogen Four Points: Track 2 of 2
-1. 01/17/1987	Blue Cliff Record: Case 80, Lecture 1	
-1. 01/18/1987	Blue Cliff Record: Case 80, Lecture 2	
+1. 01/17/1987	Blue Cliff Record: Case 80 – Lecture 1	
+1. 01/18/1987	Blue Cliff Record: Case 80 – Lecture 2	
 1. 01/24/1987	Zazen: Dropping off Body and Mind	
 1. 01/31/1987	Inconceivable, Universal, Cosmic Life	
-1. 02/21/1987	Blue Cliff Record: Case 81, Lecture 1
-1. 02/22/1987	Blue Cliff Record: Case 81, Lecture 2
+1. 02/21/1987	Blue Cliff Record: Case 81 – Lecture 1
+1. 02/22/1987	Blue Cliff Record: Case 81 – Lecture 2
 1. 03/06/1987	Platform Sutra – Lecture 1	
 1. 03/07/1987	Shobogenzo: Bendowa: Entry to the Buddha Dharma	
 1. 03/11/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Lecture 1	
