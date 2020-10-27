@@ -15,8 +15,7 @@
 
 1. <a name="fukanzazengi-lecture-5"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
-	<a name="fukanzazengi-lecture-6"></a>
-1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
+1. <a name="fukanzazengi-lecture-6"></a> [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
 
 1. <a name="fukanzazengi-lecture-7"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
 
@@ -36,13 +35,13 @@
 
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
 	
-	<a name="talks-1"></a>[Talks Not Yet Transcribed - Part 1](talks-1#0)
+	<a name="talks-1"></a>[*Talks Not Yet Transcribed - Part 1*](talks-1#0)
 	
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
 
 1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
 	
-	<a name="talks-2"></a>[Talks Not Yet Transcribed – Part 2](talks-2#0)
+	<a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 	
 1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 	
@@ -54,7 +53,7 @@
 
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 	
-	<a name="talks-3"></a>[Talks Not Yet Transcribed – Part 3](talks-3#0)
+	<a name="talks-3"></a>[*Talks Not Yet Transcribed – Part 3*](talks-3#0)
 
 - <a name="glossary"></a>[Glossary](glossary#0)
 
