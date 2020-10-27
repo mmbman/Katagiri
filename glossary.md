@@ -1,7 +1,7 @@
 <a name="0"></a>
 # Glossary
 
-[Home](index#glossary)
+[Home](index#glossary) – [Previous](talks-3#0) – [Next](dogen#0)
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
