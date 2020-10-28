@@ -23,23 +23,14 @@
 ### 1980
 
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
-
-1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
-	
+1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)	
 1. Save All Sentient Beings
-
 1. Blue Cliff Record: Case 3 – Lecture 1
-
 1. Blue Cliff Record: Case 3 – Lecture 2
-
 1. Blue Cliff Record: Case 4 – Lecture 2
-
 1. Blue Cliff Record: Case 4 – Lecture 1
-	
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
-
 1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
-	
 1.	Karma: Unmanifested	
 1. Karma: Taking Care of Karma
 1. Karma: Attribution in Present Life	
@@ -58,16 +49,12 @@
 - <a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 	
 1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
-	
 1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Lecture 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
-
 1. <a name="genjokoan-lecture-2"></a>[Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
-
 1. <a name="manas"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
-
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
-	
-	<a name="talks-3"></a>[*Talks Not Yet Transcribed – Part 3*](talks-3#0)
+
+- <a name="talks-3"></a>[*Talks Not Yet Transcribed – Part 3*](talks-3#0)
 
 - <a name="glossary"></a>[Glossary](glossary#0)
 
