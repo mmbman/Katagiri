@@ -813,16 +813,6 @@ A Japanese word meaning "just sitting"; not "just" in a casual sense, but with e
 See [Dogen Index: Shobogenzo](dogen#shobogenzo)
 
 ---
-## Śūnyatā
-
-[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".<br>
-Also: **emptiness**, **vastness**, **boundlessness**
-
-Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism. The first thing to understand is that it is not a nihilistic kind of emptiness, it really means unlimited potential.
-
-- [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
-
----
 ## Sitting
 
 "Sitting" is often short for "doing [zazen](#zazen)", "seated meditation", or even [shikantaza](#shikantaza).
@@ -832,7 +822,7 @@ Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently 
 
 - [Fukanzazengi – Lecture 3 (19:15)](1979-06-11-Fukanzazengi-Lecture3#1915)
 
-- [Wheel of Life Infographic by Kikan](Wheel-of-Life-Infographic) (20MB PDF File)
+- [Wheel of Life Infographic by Kikan](Wheel-of-Life-Infographic.pdf) (20MB PDF File)
 
 ---
 ## Skandha
@@ -859,6 +849,16 @@ Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently 
 ## Suffering
 
 One of the [Four Dharma Seals](#four-dharma-seals).
+
+---
+## Śūnyatā
+
+[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".<br>
+Also: **emptiness**, **vastness**, **boundlessness**
+
+Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism. The first thing to understand is that it is not a nihilistic kind of emptiness, it really means unlimited potential.
+
+- [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
 
 ---
 ## Suzuki Roshi
