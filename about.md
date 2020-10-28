@@ -14,9 +14,11 @@ This is an ongoing project. I am currently updating the talks I’ve already tra
 
 For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
-If you need to contact me with comments or questions, email [Kikan Mike Howard](mailto:michaelhoward@mac.com).
-
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
+
+If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
+
+\- Kikan Mike Howard
 
 ---
 [First Talk: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
