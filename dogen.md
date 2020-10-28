@@ -92,5 +92,6 @@ The titles for these discourses are taken from “Dōgen’s Extensive Record: A
 - [Fukanzazengi – Lecture 7 (6:15-)](1979-06-15-Fukanzazengi-Lecture7#615)
 
 ---
+[Next: Blue Cliff Record Index](BCR#0)
 
 [Home](index#dogen)
