@@ -6,6 +6,22 @@
 This is an index of books or other publications referenced in Katagiri Roshi's talks, or which I've added to the transcripts as additional sources. This list will be built up as I transcribe more talks.
 
 ---
+<a name="BCR"></a>
+### "The Blue Cliff Record" translated by Thomas Cleary
+
+Quotes from the Blue Cliff Record in the talks usually refer to Cleary's translation. ([Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)).
+
+- [Blue Cliff Record Index](BCR#0).
+
+---
+<a name="eihei-koroku"></a>
+### “Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,” translated by Taigen Dan Leighton and Shohaku Okumura
+
+This translation did not exist when Katagiri gave his talks, but now it is an essential reference.
+
+- [Eihei Koroku Index](dogen#eihei-koroku)
+
+---
 <a name="buddhist-wisdom"></a>
 ### "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze)
 
@@ -16,16 +32,10 @@ This is an index of books or other publications referenced in Katagiri Roshi's t
 - [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
 ---
-<a name="BCR"></a>
-### "The Blue Cliff Record" translated by Thomas Cleary
-
-Quotes from the Blue Cliff Record in the talks usually refer to Cleary's translation. ([Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)).
-
-- [Blue Cliff Record Index](BCR#0).
-
----
 <a name="central-conception"></a>
 ### "The Central Conception of Buddhism and the Meaning of the Word Dharma" by Theodore Stcherbatsky
+
+- [Fukanzazengi – Lecture 6 (5:12)](1979-06-14-Fukanzazengi-Lecture6#512)
 
 - [archive.org link to the text](https://archive.org/stream/in.ernet.dli.2015.189881/2015.189881.The-Central-Conception-Of-Buddhism_djvu.txt)
 - [Google Books link](https://books.google.com/books?id=C4HSakZwijIC&pg=PA18&lpg=PA18&dq=%22This+is+samskara+in+the+Buddhist+system%22&source=bl&ots=5i_tVITDm8&sig=ACfU3U2sXeTWnfGnSqQzvOecj4Vb2F04rQ&hl=en&sa=X&ved=2ahUKEwihipGzq9DrAhUYK80KHQTICW8Q6AEwAXoECAIQAQ#v=onepage&q=%22This%20is%20samskara%20in%20the%20Buddhist%20system%22&f=false))
