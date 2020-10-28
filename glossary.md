@@ -60,6 +60,13 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 Also: *patriarch*
 
 ---
+## Anja
+
+An attendant to a teacher. Similar to the ceremonial [jisha](glossary#jisha) position, but closer to a full-time butler and cleaning person.
+
+- [Blue Cliff Record: Case1 – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#1036)
+
+---
 ## Aprāpti
 
 [Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). 
@@ -328,6 +335,7 @@ Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glo
 - [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)
 - [Blue Cliff Record Index](BCR#0)
 
+---
 ## Enlightenment
 
 ---
@@ -369,6 +377,13 @@ See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 # G
 
 ---
+## Gempo Yamamoto
+
+Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa).
+
+- [Blue Cliff Record: Case 2, Lecture 1 (44:30)](1980-01-19-BlueCliffRecordCase2Lecture1#4430)
+
+---
 ## Genjokoan
 
 See [Dogen Index: Genjokoan](dogen#genjokoan)
@@ -402,7 +417,7 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 ---
 ## Hashimoto Roshi
 
-Abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
+Eko Hashimoto: abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
  
 - [Fukanzazengi – Lecture 2 (1:25:50)](1979-06-10-Fukanzazengi-Lecture2#12550)
 - [Fukanzazengi – Lecture 3 (0:00)](1979-06-11-Fukanzazengi-Lecture3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Lecture3#11402)
@@ -456,6 +471,13 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 
 ---
 # J
+
+---
+## Jisha
+
+Ceremonial attendant. See also [anja](glossary#anja).
+
+- [Blue Cliff Record: Case1 – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#1036)
 
 ---
 # K
@@ -659,6 +681,8 @@ Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 ---
 ## Roshi
 
+A distinguished elder teacher.
+
 ---
 # S
 
@@ -696,7 +720,7 @@ Sandhinirmocana Sutra.
 ---
 ## San Francisco Zen Center
 
-The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with Suzuki Roshi in the 60's. 
+The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with [Suzuki Roshi](glossary#suzuki-roshi) in the 60's. 
 
 - [Fukanzazengi – Lecture 3 (1:40:15)](1979-06-11-Fukanzazengi-Lecture3#14015),
 - [Fukanzazengi – Lecture 4 (54:16)](1979-06-12-Fukanzazengi-Lecture4#5416)
@@ -737,6 +761,7 @@ Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record)
 - [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)
 - [Blue Cliff Record Index](BCR#0)
 
+---
 ## Shakyamuni Buddha
 
 ---
@@ -786,6 +811,11 @@ Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently 
 
 ---
 ## Skandha
+
+---
+## Sōen Nakagawa
+
+- [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 
 ---
 ## Soto Zen

@@ -101,7 +101,7 @@ Let's go back to the first paragraph.
 
 Let's divide [Genjokoan](shobogenjo#genjokoan) into eleven sections... 
 
-(From 18:20 to 21:05, Roshi divides the text into sections. As we don't have the text that he is using, and since he doesn't end up covering all the sections in this talk, this division doesn't seem particularly useful, so is omitted here.)
+(From 18:20 to 21:05, Katagiri divides the text into sections. As we don't have the text that he is using, and since he doesn't end up covering all the sections in this talk, this division doesn't seem particularly useful, so is omitted here.)
 
 ##### 21:10
 

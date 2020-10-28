@@ -331,7 +331,7 @@ Questions?
 
 ##### 1:08:03
 
-**Question**: Roshi? The commentator was saying that the [Zen Master](glossary#zen-master) who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
+**Question**: [Roshi](glossary#roshi)? The commentator was saying that the [Zen Master](glossary#zen-master) who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
 
 **Katagiri**: Mmm hmm. 
 

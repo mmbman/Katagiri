@@ -258,7 +258,7 @@ I hope.
 
 ##### 1:01:36
 
-**Question**: Roshi? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
+**Question**: [Roshi](glossary#roshi)? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
 
 **Katagiri**: [No-self](glossary#no-self) doesn't mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, [then] through the present life, you can realize how sublime it is, how unfathomable yourself is. And you cannot understand yourself in the present, according to present time, because your life is pretty broad. Sometimes you don't understand. Sometimes you understand who you are, but strictly speaking you don't understand who you are, because your life may have been connected with a past life. 
 

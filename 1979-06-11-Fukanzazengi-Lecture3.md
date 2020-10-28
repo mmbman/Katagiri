@@ -248,7 +248,7 @@ Okay ... Shall I discuss now, or tomorrow? If you have some questions – tomorr
 
 ##### 1:14:57
 
-**Question**: Roshi, what's the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn't that the same thing? 
+**Question**: [Roshi](glossary#roshi), what's the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn't that the same thing? 
 
 **Katagiri**: What is the ... ?
 
@@ -282,7 +282,7 @@ It [sees?] the [Buddha Nature](glossary#buddha-nature) of the second one. But, i
 
 ##### 1:18:00
 
-**Question**: Roshi, were you making a distinction between the [enlightenment](glossary#enlightenment) of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+**Question**: [Roshi](glossary#roshi), were you making a distinction between the [enlightenment](glossary#enlightenment) of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
 **Katagiri**: Uh, [Bodhisattva](glossary#bodhisattva) practice, yes... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next.
 
@@ -300,7 +300,7 @@ When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see 
 
 ##### 1:21:10
 
-**Question**: Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
+**Question**: [Roshi](glossary#roshi), is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
 
 **Katagiri**: The goal in third type of [zazen](glossary#zazen) is broad. It's really broad. That goal is not [sic] open to him, his practice, and also to others practice. 
 
@@ -316,7 +316,7 @@ So finally, [the] third type of [zazen](glossary#zazen) doesn't have a goal. We 
 
 ##### 1:24:22
 
-**Question**: So what is the practice of the [arhat](glossary#arhat), Roshi? When he's already an arhat, what is his practice? You said he just waits for death, but he has to practice something. 
+**Question**: So what is the practice of the [arhat](glossary#arhat), [Roshi](glossary#roshi)? When he's already an arhat, what is his practice? You said he just waits for death, but he has to practice something. 
 
 **Katagiri**: *[quietly]* Oh. Of course. Waiting for death is also practice for you.
 
@@ -342,7 +342,7 @@ So, they're just a river... practicing, waiting for death. But a [Bodhisattva](g
 
 ##### 1:27:13
 
-**Same person**: What about [Doctor Jules Fox?], Roshi? Based on what you were saying about [karma](glossary#karma), and dropping off *[unintelligible]* and ...
+**Same person**: What about [Doctor Jules Fox?], [Roshi](glossary#roshi)? Based on what you were saying about [karma](glossary#karma), and dropping off *[unintelligible]* and ...
 
 Does that relate to your talk?
 

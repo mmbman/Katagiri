@@ -185,7 +185,7 @@ Do you have questions?
 
 **Katagiri**: Yeah, but be careful, okay? Be careful sometimes, because if your feet get numb, sometimes after standing, usually numbness goes away. But if numbness is staying with your feet for long, you must be careful. Sometimes, such a thing can happen. But usually, when you stand up, the numbness gone, no problem. It’s very natural, because if you cross legs, circulation stops. The circulation stops, it’s very good for you. Next moment, after that, after stopping the circulation a while, circulation goes well. Just like day and night. You cannot always stay in the day time. If you want to get the vitality of the daytime, anyway you should sleep. So, stop the circulation for a while. That’s good.
 
-**Person 2**: Roshi, is it good to also work at strengthening your muscles? To do some other kinds of exercise, or running, so that your body would be strong, and it’s not going to eliminate the pain.
+**Person 2**: [Roshi](glossary#roshi), is it good to also work at strengthening your muscles? To do some other kinds of exercise, or running, so that your body would be strong, and it’s not going to eliminate the pain.
 
 **Katagiri**: Strength? Oh, yes. Yes. Flexible. 
 

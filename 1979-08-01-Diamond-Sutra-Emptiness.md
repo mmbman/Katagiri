@@ -198,7 +198,7 @@ Do you have any questions?
 
 ##### 1:06:00
 
-**Question**: Roshi? When you talk about the marklessness of all things, or the [emptiness](glossary#śūnyatā) of *[unintelligible]*, are those the three aspects of emptiness, or the three aspects of what?
+**Question**: [Roshi](glossary#roshi)? When you talk about the marklessness of all things, or the [emptiness](glossary#śūnyatā) of *[unintelligible]*, are those the three aspects of emptiness, or the three aspects of what?
 
 **Katagiri**: Truth.
  
@@ -208,7 +208,7 @@ Do you have any questions?
 
 ##### 1:06:45
 
-**Question**: Roshi, would one good way of putting it be, everything is within [emptiness](glossary#śūnyatā) and emptiness is within everything? 
+**Question**: [Roshi](glossary#roshi), would one good way of putting it be, everything is within [emptiness](glossary#śūnyatā) and emptiness is within everything? 
 
 **Katagiri**: Hmm? Emptiness is everything, everything is emptiness?
 

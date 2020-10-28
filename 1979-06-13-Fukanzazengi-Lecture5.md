@@ -135,7 +135,7 @@ Do you have some questions?
 
 ##### 38:19
 
-**Question**: Roshi? Is there any value in, I have a thought? *[unintelligible]* During [zazen](glossary#zazen) I had a thought, it was what I'll have for dinner. And the next moment, I don't have that thought anymore. So I'm aware that I have a thought, and then I drop it; I don't have to spend any time judging it, just being with the moment. And if it comes up again, just put it down *[unintelligible]*
+**Question**: [Roshi](glossary#roshi)? Is there any value in, I have a thought? *[unintelligible]* During [zazen](glossary#zazen) I had a thought, it was what I'll have for dinner. And the next moment, I don't have that thought anymore. So I'm aware that I have a thought, and then I drop it; I don't have to spend any time judging it, just being with the moment. And if it comes up again, just put it down *[unintelligible]*
 
 **Katagiri**: Do you mean in [zazen](glossary#zazen)?
 
@@ -193,7 +193,7 @@ Is that okay? No? *[he laughs]*
 
 ##### 45:10
 
-**Question**: Roshi? *[unintelligible]* working on [zazen](glossary#zazen), sometimes the thoughts come up. And then, sometimes there's a judgement... *[unintelligible]* Then there is effort to throw that away. Does that happen right in the middle of your zazen too?
+**Question**: [Roshi](glossary#roshi)? *[unintelligible]* working on [zazen](glossary#zazen), sometimes the thoughts come up. And then, sometimes there's a judgement... *[unintelligible]* Then there is effort to throw that away. Does that happen right in the middle of your zazen too?
 
 **Katagiri**: You can see... You mean attachment?
 
@@ -265,7 +265,7 @@ Is that okay? Okay.
 
 ##### 52:33
 
-**Question**: Roshi? What happens – It's been my experience a lot of times during sesshin, and other people have said this sort of thing too, that they'll be struggling along maybe for several periods, having a lot of pain. And then, apparently you slip into concentration with  [samadhi](glossary#samadhi), and all of a sudden there's a period that's very nice, and time sort of disappears, and the pain disappears, and you're able to sit there very quietly. And I guess I can understand how from concentration, pain wouldn't bother you. But sometimes, the period ends, and it's time to straighten your legs out, and your legs aren't even stiff. You know, it's as though I wasn't sitting at all. It's as though something changed in my body. I don't understand; it seems like the muscles should still be sore afterwards, but sometimes they're not. It's as though that period of [zazen](glossary#zazen) didn't even exist. Can you explain what happens, or... can you explain that at all? 
+**Question**: [Roshi](glossary#roshi)? What happens – It's been my experience a lot of times during sesshin, and other people have said this sort of thing too, that they'll be struggling along maybe for several periods, having a lot of pain. And then, apparently you slip into concentration with  [samadhi](glossary#samadhi), and all of a sudden there's a period that's very nice, and time sort of disappears, and the pain disappears, and you're able to sit there very quietly. And I guess I can understand how from concentration, pain wouldn't bother you. But sometimes, the period ends, and it's time to straighten your legs out, and your legs aren't even stiff. You know, it's as though I wasn't sitting at all. It's as though something changed in my body. I don't understand; it seems like the muscles should still be sore afterwards, but sometimes they're not. It's as though that period of [zazen](glossary#zazen) didn't even exist. Can you explain what happens, or... can you explain that at all? 
 
 **Katagiri**: There are things, I have told you before, [there are] lots of pictures you can see after doing [zazen](glossary#zazen). Do you understand that point? 
 
@@ -291,7 +291,7 @@ That's why [Dogen Zenji](glossary#dogen) says, "From the first, [dullness](gloss
 
 We get use [out] of looking at the before striking and after striking – that is very common. But we don't pay attention to the striking itself. Striking itself is no striking, because no thought. Striking from where? From where does the striking come? "I hear the striking come" [is] already [an] idea. [The] idea comes [as] the result of you [being] present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely unified. Perfect.
 
-**Same person**: Roshi?
+**Same person**: [Roshi](glossary#roshi)?
 
 **Katagiri**: Okay ... you understand [that], huh? And then, what is your question? I forgot.
 
@@ -339,7 +339,7 @@ Okay?
 
 ##### 1:02:14
 
-**Question**: Roshi? I have a question on what is the best thing to do when you're feeling burned out from doing concentrated [zazen](glossary#zazen). Like when you sit and you see all thoughts coming, and you know that you can really put effort, and really get with the zazen from the thoughts, but you're just not willing to put the effort out. Or, you could put your body in a position where there was a lot of pain...
+**Question**: [Roshi](glossary#roshi)? I have a question on what is the best thing to do when you're feeling burned out from doing concentrated [zazen](glossary#zazen). Like when you sit and you see all thoughts coming, and you know that you can really put effort, and really get with the zazen from the thoughts, but you're just not willing to put the effort out. Or, you could put your body in a position where there was a lot of pain...
 
 **Katagiri**: When we think, "I should keep away from the thoughts," or "I shouldn't," or "I don't care," – whatever you say, that is something extra. Something extra you are involved in. [Those are] all things you can see *after* doing [zazen](glossary#zazen), after [the] real experience. Always we see this. 
 
@@ -349,7 +349,7 @@ So actually, physical exhaustion itself knows pretty well what to do next. Becau
 
 ##### 1:05:03
 
-**Same person**: Well, so maybe exhaustion isn't the right word, Roshi. It's a state like, where I can be sitting, and pretty quiet, you know, not moving a lot, because I'm in a position where I'm not in a lot of pain, in an easier position. And, it's like the thoughts keep coming, and keep coming, and keep coming. And it's like how you live your everyday life; you know, you walk around the street and all these thoughts keep coming. And I feel like I can go on like that for months, and that to stop that would take a lot of effort, but I just don't have it to put the effort out.
+**Same person**: Well, so maybe exhaustion isn't the right word, [Roshi](glossary#roshi). It's a state like, where I can be sitting, and pretty quiet, you know, not moving a lot, because I'm in a position where I'm not in a lot of pain, in an easier position. And, it's like the thoughts keep coming, and keep coming, and keep coming. And it's like how you live your everyday life; you know, you walk around the street and all these thoughts keep coming. And I feel like I can go on like that for months, and that to stop that would take a lot of effort, but I just don't have it to put the effort out.
 
 **Katagiri**: But, mostly, even in your daily living, you cannot chase after each thought you have had. Don't you think? You throw away most of the thoughts that you have had. For instance, if you walk on the street, maybe you are caught by some ideas: "Oh, I want to go to Japan." But, sometimes: "Oh, it's ridiculous." Even if you don't say it's ridiculous, you completely forget. And then another thought comes up, and then if you are interested in certain ideas, you just attach to [them] for a certain moment, a certain period of time. So you are always handling just the one thought, one view. That's all. And then, another thought comes up, and then if you are not interested, you can throw [it] away pretty easily. We do [this] always. But in [zazen](glossary#zazen), problem is ... the surroundings are completely quiet. And also, the surroundings are limited in what is called zazen. It's a small room. So mind cannot stand up *[he chuckles]* in a small room, because [the] mind wants to run wild in the universe, completely beyond time and space. Going to Europe, going to Japan, always; this is characteristic of mind. But if you sit down and let the mind rest in the small room, which is called zazen: mind cannot stand up. It's very hard. That's why [the] mind becomes more picky of it's thoughts. Do you understand? 
 
@@ -375,7 +375,7 @@ But actually, you do [let go of thoughts] always in your daily living, exactly a
 
 ##### 1:12:16
 
-**Same person**: Yeah, I understand that. One thought that I had about it, Roshi, is that sometimes it feels like building up bad habits in [zazen](glossary#zazen). That if I'm going to sit, I should sit with effort; I shouldn't get in the habit of sitting with no effort. That's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
+**Same person**: Yeah, I understand that. One thought that I had about it, [Roshi](glossary#roshi), is that sometimes it feels like building up bad habits in [zazen](glossary#zazen). That if I'm going to sit, I should sit with effort; I shouldn't get in the habit of sitting with no effort. That's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
 
 **Katagiri**: Well the point is just to spit out. But, you shouldn't think that, in that way. That's all. If you think in that way, "I am creating bad habit," that is extra. So immediately, you create another thing. 
 
@@ -405,13 +405,13 @@ Without mind, you cannot do [zazen](glossary#zazen).
 
 ##### 1:15:12
 
-**Question**: Roshi. I think you told the story of [Gensha](glossary#gensha-shibi) several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
+**Question**: [Roshi](glossary#roshi). I think you told the story of [Gensha](glossary#gensha-shibi) several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
 
 **Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper. Why [does] he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on [impermanence](glossary#impermanence), transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this. But it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality [that] his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
 
 ##### 1:17:17
 
-**Question**: Roshi? I *[unintelligible]*, but when so much, not just thought, but lots of emotion, and thought, and "I want to escape from [zazen](glossary#zazen)," and too much uncomfortableness, and just everything, so that everything is just zipping around. So you feel like, squeezed. *[she laughs]*
+**Question**: [Roshi](glossary#roshi)? I *[unintelligible]*, but when so much, not just thought, but lots of emotion, and thought, and "I want to escape from [zazen](glossary#zazen)," and too much uncomfortableness, and just everything, so that everything is just zipping around. So you feel like, squeezed. *[she laughs]*
 
 **Katagiri**: Yes. That is your life, don't you think? *[he and others laugh]* That's why I told you, that is your life. "Zipping", and squeezing ... *[laughter]* I understand. That's nice, [don't you think?] *[more laughter]*
 
@@ -479,7 +479,7 @@ Okay?
 
 ##### 1:25:31
 
-**Question**: Roshi? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach [zazen](glossary#zazen) is what I would call a very pure point of view. Like, if you're going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us by ... saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in [Tibetan Buddhism](glossary#tibetan-buddhism ), how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
+**Question**: [Roshi](glossary#roshi)? I don't know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach [zazen](glossary#zazen) is what I would call a very pure point of view. Like, if you're going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that's the point you always emphasize. It seems like you really stay away from complicating us by ... saying you work through these levels of consciousness, and you have to go through these various stages. But to me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, "Well yeah, my mind is wandering all over and I'm having all these problems," if you could say well, I'm at a certain stage, or give some indication of where on the path I'm at, or where we're at. Do you see what I'm trying to say? Like say in yoga, they'll talk about the different levels of consciousness, and how you step-by-step work through them. Or in [Tibetan Buddhism](glossary#tibetan-buddhism ), how you step-by-step work toward that very pure state of mind. And it seems like you're hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, "Just enter into it. Just sit; just enter nonduality." 
 
 **Katagiri**: Well, I don't know; I'm talking about the [zazen](glossary#zazen) in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. *[he laughs]* Now ... I don't mean that I try to escape. Because we have to be centered. If you're not centered, whatever kind of [thing] you do, you are confused. So important point is, you must be centered. If you are centered, you can handle many things in [a] proper way. So, my focus is ... the zazen in which we must be free, perfectly free. 
 
@@ -503,7 +503,7 @@ Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teac
 
 **Katagiri**: Right, right. Right.
 
-**Different person**: Give him some hope, Roshi. 
+**Different person**: Give him some hope, [Roshi](glossary#roshi). 
 
 *[there is some crosstalk]*
 
@@ -519,7 +519,7 @@ Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teac
 
 ##### 1:32:00
 
-**Question**: Roshi? How is the [zazen](glossary#zazen) that we do for future generations?
+**Question**: [Roshi](glossary#roshi)? How is the [zazen](glossary#zazen) that we do for future generations?
 
 **Katagiri**: Well, if you do [zazen](glossary#zazen), and not zippy zazen, if you do real [shikantaza](shikantaza), that is really good zazen for generations.
 
@@ -529,7 +529,7 @@ Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teac
 
 ##### 1:32:54
 
-**Question**: Roshi? *[unintelligible]* pain during [zazen](glossary#zazen) *[unintelligible]* does it exist at all?
+**Question**: [Roshi](glossary#roshi)? *[unintelligible]* pain during [zazen](glossary#zazen) *[unintelligible]* does it exist at all?
 
 **Katagiri**: [Pain] exists. 
 
@@ -547,7 +547,7 @@ For instance, I always tell you that talking like this, and doing [zazen](glossa
 
 ##### 1:34:28
 
-**Question**: Roshi? When [Dogen](glossary#dogen) says, "From the beginning, [dullness](glossary#dullness) and [distraction](glossary#distraction) are [struck aside]," what does he mean, "From the beginning"? 
+**Question**: [Roshi](glossary#roshi)? When [Dogen](glossary#dogen) says, "From the beginning, [dullness](glossary#dullness) and [distraction](glossary#distraction) are [struck aside]," what does he mean, "From the beginning"? 
 
 **Katagiri**: Simultaneously.
 

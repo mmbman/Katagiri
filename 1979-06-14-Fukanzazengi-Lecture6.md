@@ -158,7 +158,7 @@ Do you have questions?
 
 ##### 52:33
 
-**Question**: Roshi? In *[unintelligible]* Buddhism, I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and it's, well not exactly opposite, but *[unintelligible]* apropti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
+**Question**: [Roshi](glossary#roshi)? In *[unintelligible]* Buddhism, I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and it's, well not exactly opposite, but *[unintelligible]* apropti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
 
 **Katagiri**: Positives, yes.
 
@@ -246,7 +246,7 @@ So, according to my talk yesterday, we are always seeing before [zazen](glossary
 
 ##### 1:06:26
 
-**Question**: Roshi? In [Dogen](glossary#dogen)'s writings, the water reflects the Moon? What is the water?
+**Question**: [Roshi](glossary#roshi)? In [Dogen](glossary#dogen)'s writings, the water reflects the Moon? What is the water?
 
 **Katagiri**: Water is, according to [Dogen](glossary#dogen)'s understanding, that is the whole universe. That water is occupying a certain space; water is universe. When the water becomes one with moon, when the water reflects the moon, at that time, water is not water, water is [the] whole universe. At that time, there is no combination of water and moon.
 
@@ -256,7 +256,7 @@ The universe includes moon, water, tree, birds; that is [the] real meaning of th
 
 ##### 1:08:19
 
-**Question**: Roshi? Were the two monks expressing their life when they went back to the monastery? Or were they picking and choosing?
+**Question**: [Roshi](glossary#roshi)? Were the two monks expressing their life when they went back to the monastery? Or were they picking and choosing?
 
 **Katagiri**: Two monks?
 
@@ -290,7 +290,7 @@ And then we say that is, body and mind exist. But I don't think so. But we canno
 
 ##### 1:16:36
 
-**Question**: You said we have already mind, and you had some other statements, Roshi. Does mind exist before these things take place?
+**Question**: You said we have already mind, and you had some other statements, [Roshi](glossary#roshi)? When I asked about the water before, if I understood you, your explanation *[unintelligible]* What I wanted to know is, what the water is right now.
 
 **Katagiri**: The mind ... already exists. 
 
@@ -318,7 +318,7 @@ Do you understand? That is the meaning of no mind. No mind doesn't mean to destr
 
 ##### 1:20:44
 
-**Question**: ... In the past, you or [someone], or Suzuki Roshi, talked about big mind and small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
+**Question**: ... In the past, you or [someone], or [Suzuki Roshi](glossary#suzuki-roshi), talked about big mind and small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
 
 **Katagiri**: Both. I'm talking about both.
 
@@ -330,7 +330,7 @@ So picky mind, monkey mind, is small mind. But original nature of the mind is bi
 
 ##### 1:22:10
 
-**Question**: Roshi? When I asked about the water before, if I understood you, your explanation *[unintelligible]* What I wanted to know is, what the water is right now.
+**Question**: [Roshi](glossary#roshi)? When I asked about the water before, if I understood you, your explanation *[unintelligible]* What I wanted to know is, what the water is right now.
 
 **Katagiri**: That's why I said the universe. [Which?] is right now. 
 
@@ -360,7 +360,7 @@ But [the] important point is, when we practice, we have to practice [zazen](glos
 
 ##### 1:27:50
 
-**Question**: Roshi? Is [aprāpti](glossary#aprāpti) always present when [prāpti](glossary#prāpti) is present? 
+**Question**: [Roshi](glossary#roshi)? Is [aprāpti](glossary#aprāpti) always present when [prāpti](glossary#prāpti) is present? 
 
 **Katagiri**: That is a very conceptualized term. There are lots of terms there; but in [Mahayana Buddhism](glossary#mahayana) we don't believe [they are] really something which exist. If you say something which exists, it has substance. 
 
@@ -368,13 +368,13 @@ But [the] important point is, when we practice, we have to practice [zazen](glos
 
 **Katagiri**: [Aprāpti](glossary#aprāpti) is kind of a force which kept my friend [at] [Eiheiji](glossary#eiheiji) monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprāpti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprāpti.
 
-**Question**: Do you mean, Roshi, because he changed his mind?
+**Question**: Do you mean, [Roshi](glossary#roshi), because he changed his mind?
 
 **Katagiri***: [Aprāpti](glossary#aprāpti) is not obtaining or not getting. That is a force, a kind of force. That means a conditioned element. So, before your mind is exercised, there is some kind of force, to attach to, or to separate from. To put together, or to separate. That is total dynamic working.
 
 Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from something. 
 
-**Same person**: Is that like inertia, Roshi?
+**Same person**: Is that like inertia, [Roshi](glossary#roshi)?
 
 **Katagiri**: Nausea?
 
@@ -390,7 +390,7 @@ Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from som
 
 **Katagiri**: No.
 
-**Another person**: Roshi? What simplified it for me was when you explained in the book that [aprāpti](glossary#aprāpti) was more a force that kept away the negatives, and [prāpti](glossary#prāpti) was the force that brought towards you positives. Is that correct understanding?
+**Another person**: [Roshi](glossary#roshi)? What simplified it for me was when you explained in the book that [aprāpti](glossary#aprāpti) was more a force that kept away the negatives, and [prāpti](glossary#prāpti) was the force that brought towards you positives. Is that correct understanding?
 
 **Katagiri**: Towards you or towards your object. 
 
@@ -406,13 +406,13 @@ Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from som
 
 ##### 1:31:51
 
-**Question**: Are they simultaneous, Roshi? [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti)? Do they operate simultaneously? 
+**Question**: Are they simultaneous, [Roshi](glossary#roshi)? [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti)? Do they operate simultaneously? 
 
 **Katagiri**: Sometimes together, sometimes different, okay? Because sometimes you can see them both. Say "I want to go there," "I don't want to go there," simultaneously, so you don't know what to do. The sort of original nature of such a feeling comes from [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti). Intellectually, you know pretty well you should choose this one, but actually you don't know what to do, so you can see them both. So sometimes both work together, sometimes separately. 
 
 ##### 1:33:42
 
-**Question**: Roshi, do you know the term "creation stories"? Most cultures have them; religions have creation stories that explain how it all started. Like "Adam and Eve" is a creation story...
+**Question**: [Roshi](glossary#roshi), do you know the term "creation stories"? Most cultures have them; religions have creation stories that explain how it all started. Like "Adam and Eve" is a creation story...
 
 *[tape change]*
 

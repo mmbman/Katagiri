@@ -194,21 +194,21 @@ Next, “The treasury of teachings of the whole age cannot explain it thoroughly
 
 ##### 44:30
 
-There is a very interesting story of one of the famous Japanese scholars – he was a scholar and also he was a communist. He practiced under the guidance of Gempo Yamamoto, who was teacher of Sōen Nakagawa. This gentleman worked in the kitchen as a clerk. 
+There is a very interesting story of one of the famous Japanese scholars – he was a scholar and also he was a communist. He practiced under the guidance of [Gempo Yamamoto](glossary#gempo-yamamoto), who was teacher of [Sōen Nakagawa](glossary#sōen-nakagawa). This gentleman worked in the kitchen as a clerk. 
 
-One day, Gempo-roshi passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” He said, “I am practicing Zen to save all sentient beings.” Then Gempo-roshi said, “Oh, is that so.” Then he left. 
+One day, [Gempo Roshi](glossary#gempo-yamamoto) passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” He said, “I am practicing Zen to save all sentient beings.” Then Gempo Roshi said, “Oh, is that so.” Then he left. 
 
 And in a few days, when he passed through the kitchen, and he saw him making the rice on the stove, he asked, “What for do you practice [zazen](glossary#zazen)?” He said, “I want to save all sentient beings.” He said, “Oh.” He left.
 
 Next time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” 
 
-So immediately, Gempo-roshi screamed, “*Stupid*!” *[he laughs]* “That practice is just for you!”
+So immediately, [Gempo Roshi](glossary#gempo-yamamoto) screamed, “*Stupid*!” *[he laughs]* “That practice is just for you!”
 
 *[tape change]*
 
 ... because my practice is evaluated in [a] great way, so you should be patient, please take care of me. 
 
-Well, if you have a family, “I want to go to [zazen](glossary#zazen), so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s very true. That’s why Gempo-roshi crashed that idea: “Stupid! Your practice is just for you.” 
+Well, if you have a family, “I want to go to [zazen](glossary#zazen), so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s very true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) crashed that idea: “Stupid! Your practice is just for you.” 
 
 I don’t think practice is just for you – but don’t touch it, okay? Don’t get one "setting" for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 

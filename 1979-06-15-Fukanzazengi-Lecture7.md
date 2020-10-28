@@ -126,7 +126,7 @@ Okay, do you have any questions?
 
 ##### 39:44
 
-**Question**: Roshi? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops." And you just mentioned that [Buddha](glossary#buddha) said he didn't hear the thunder. Are they saying the same thing as ... ?
+**Question**: [Roshi](glossary#roshi)? Earlier on, you told us the story of the monk who asked the master, "Do you hear the raindrops?" And he said, "I almost hear the raindrops." And you just mentioned that [Buddha](glossary#buddha) said he didn't hear the thunder. Are they saying the same thing as ... ?
 
 **Katagiri**: Same. [The] expression is different, but same situation. 
 
@@ -158,9 +158,9 @@ Before, I told you always, there is a scale. Now why don't you point out the *mi
 
 Is there anyone who attained [enlightenment](glossary#enlightenment)? No one? *[laughter]*
 
-Nakagawa Roshi ... at the last day of sesshin, he would say – He is very interesting [Zen Master](glossary#zen-master). He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the [Rinzai Zen](glossary#rinzai-zen ) style, so that's okay; beautiful, anyway. 
+Nakagawa Roshi (probably [Sōen Nakagawa](glossary#sōen-nakagawa)) – at the last day of sesshin, he would say... He is a very interesting [Zen Master](glossary#zen-master). He is very dramatic, and sometimes he is very mysterious, and sometimes he'd behave very strangely. But that is the [Rinzai Zen](glossary#rinzai-zen ) style, so that's okay; beautiful, anyway. 
 
-So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and *[he laughs]* he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained [enlightenment](glossary#enlightenment). Do you know who it is?" *[everyone laughs]* That is a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" *[he loudly slams down a stick or something]* *[raucous laughter]* *[unintelligible]* 
+So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked [it] very much, so he played that, and *[he laughs]* he immediately said: *[in a loud voice]* "At this time during sesshin, there is one person who attained [enlightenment](glossary#enlightenment). Do you know who it is?" *[everyone laughs]* That is [in] a very big voice: "DO YOU KNOW WHO IT IS?" *[laughter]* And then no one said. *[laughter]* And then anyway, he said, "DO YOU WANT TO KNOW WHO WHO YOU ARE?" *[laughter]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully]* "*This* person?" *[he loudly slams down a stick or something]* *[raucous laughter]* *[unintelligible]* 
 
 That's interesting, isn't it? *[unintelligible]* Everybody [searches], "Who? Who? Who?" ... "Maybe I?" *[laughter]* But he says, "No, no, no. I don't either." He's a nice guy, huh? Finally, all *[unintelligible]*. "Yes." *[laughter]*
 

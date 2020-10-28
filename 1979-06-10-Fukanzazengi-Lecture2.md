@@ -176,7 +176,7 @@ So that's why the regulation of the mind, that is very important.
 
 ##### 34:20
 
-**Question**: Roshi? We talk about, we chant that the natural condition of mind is to be free from clinging. And sometimes I wonder about, I'm not clear about, if it's our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it's almost impossible to attain it. Why is this called the natural condition in life?
+**Question**: [Roshi](glossary#roshi)? We talk about, we chant that the natural condition of mind is to be free from clinging. And sometimes I wonder about, I'm not clear about, if it's our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it's almost impossible to attain it. Why is this called the natural condition in life?
 
 **Katagiri**: Well, in a sense it's not difficult. In a sense it's a very simple practice. You think this is difficult because [of] your consciousness, limited by your education, your environment, and you try to see your experience. At *that* time, it's really difficult to know, to experience [what is] natural, or [the] basis of [ego consciousness](glossary#ego-consciousness) itself. But usually, I told you, total personality. Total personality is – well, through this man, through this "you," we can see the total personality. In a sense – according to the common sense, you know, consciousness; our sense, our mind – I can smell you. Or, I can smell myself. There is [a] stink. In a sense; in a bad sense. But in a good sense, it's pretty good. So, stink, the total personality shows you the judgement, good or bad. But that good or bad is something you understand through the consciousness. On the other hand, that total personality comes from – where? Beginingless past, and endless future. So finally, that's total personality, where [Katagiri](glossary#katagiri) is Katagiri. So why don't you take care of Katagiri, [being?] careful of compassionate attention. [It's] completely beyond judgement, good or bad, right and wrong. So, we must be right in the middle of total personality, everyday life, always – the core of living. The total personality is [the] core of life. So you must be there, always.
 
@@ -202,7 +202,7 @@ There is pain and ache, and, well, physical ache, physical pain... Well, it's pa
 
 ##### 40:42
 
-**Question**: *[mostly unintelligible on the recording]* Roshi? ... regulation ... if at some point you're experiencing something that seems good, pleasant, then there's a natural tendency to think you're doing something right in terms of regulating the body ... Then the next moment, you experience something ... and there's a natural tendency to *[unintelligible]* Is that the correct way to look at it?
+**Question**: *[mostly unintelligible on the recording]* [Roshi](glossary#roshi)? ... regulation ... if at some point you're experiencing something that seems good, pleasant, then there's a natural tendency to think you're doing something right in terms of regulating the body ... Then the next moment, you experience something ... and there's a natural tendency to *[unintelligible]* Is that the correct way to look at it?
 
 **Katagiri**: If you see the sleep – well, it's not right, but it's not wrong. 
 
@@ -216,7 +216,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 ##### 45:45
 
-**Question**: Roshi? It seems like that adjustment constantly in the direction of  [samadhi](glossary#samadhi), constantly making that adjustment... But how do you...
+**Question**: [Roshi](glossary#roshi)? It seems like that adjustment constantly in the direction of  [samadhi](glossary#samadhi), constantly making that adjustment... But how do you...
 
 **Katagiri**: Well, maybe it depends on the individual. Maybe so. But, constantly adjusting, adjusting what's wrong, *[unintelligible]*. Just adjustments. But if you adjust and you say, "Oh, constantly I have to adjust," is there something wrong? 
 
@@ -226,7 +226,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 ##### 46:52
 
-**Question**: Roshi, I wonder the same thing. I sort of feel like the effort is to follow the breath, and then suddenly I realize I'm getting a little sleepy, or I catch myself thinking about something. And at that time, you're saying, just return to your effort to follow the breath. 
+**Question**: [Roshi](glossary#roshi), I wonder the same thing. I sort of feel like the effort is to follow the breath, and then suddenly I realize I'm getting a little sleepy, or I catch myself thinking about something. And at that time, you're saying, just return to your effort to follow the breath. 
 
 **Katagiri**: Mmm-hmm. That's all.
 
@@ -240,7 +240,7 @@ Is that something wrong?
 
 ##### 47:47
 
-**Question**: Roshi? Sometimes so many things come up, especially the first couple days of [sesshin](glossary#sesshin), [it] seems like it takes an enormous effort to return to the breath. Is that – should we use effort?
+**Question**: [Roshi](glossary#roshi)? Sometimes so many things come up, especially the first couple days of [sesshin](glossary#sesshin), [it] seems like it takes an enormous effort to return to the breath. Is that – should we use effort?
 
 **Katagiri**: Uh, enormous effort – we cannot continue enormous effort. So, sometimes. Don't attach to enormous effort constantly. Sometimes enormous effort makes you exhaust[ed]. At that time, forget it! Just *relax*, okay? *[the group laughs]* Just relax! And, you know, taking a breath, and short breath, and long breath. Letting it go. 
 
@@ -248,7 +248,7 @@ And then, while you take a breath, very naturally – *[unintelligible]*. And th
 
 ##### 49:08
 
-**Question**: Roshi? Are you saying that you should just go with whatever amount of effort you feel?
+**Question**: [Roshi](glossary#roshi)? Are you saying that you should just go with whatever amount of effort you feel?
 
 **Katagiri**: Mmm-mmm. No. No. 
 
@@ -340,7 +340,7 @@ Is that clear? Is that okay?
 
 ##### 1:03:07
 
-**Question**: Roshi? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do [zazen](glossary#zazen) with a teacher ... and his teaching; [Dogen](glossary#dogen), [Buddha](glossary#buddha); again and again you're doing the [calligraphy](glossary#calligraphy), until it's like the teacher's calligraphy?
+**Question**: [Roshi](glossary#roshi)? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do [zazen](glossary#zazen) with a teacher ... and his teaching; [Dogen](glossary#dogen), [Buddha](glossary#buddha); again and again you're doing the [calligraphy](glossary#calligraphy), until it's like the teacher's calligraphy?
 
 **Katagiri**: Mmm hmm. I think so; that is the best way. 
 
@@ -356,7 +356,7 @@ So, teacher is important, but teacher is a teacher – that this teacher also fo
 
 ##### 1:05:15
 
-**Question**: Roshi? Is that why you don't see [Zen](glossary#zen ) emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva), and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that. And like [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
+**Question**: [Roshi](glossary#roshi)? Is that why you don't see [Zen](glossary#zen ) emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva), and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that. And like [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
 
 **Katagiri**: Sure. Even though I don't emphasize, right, we are within [them] already. Don't you think so?
 
@@ -374,7 +374,7 @@ Can you see them? I want to ask you. I think so.
 
 ##### 1:06:32
 
-**Question**: Roshi? It seems to me that you're trying to do something a little different than most of the other teachers in the United States. It seems that you're not so concerned with us fitting *exactly* to the old, old way of teaching, and that people who won't fit exactly into it should leave and not participate, and either you should sit or go. It seems more like you're trying to show us that anybody can practice, and can fit their lives at least partially to practice. So that you're more willing to have people fit as much as they can, and if they don't fit a hundred percent, that's okay. You know, just fit your life to practice as much as you can. Is that true? Is that what you see yourself doing?
+**Question**: [Roshi](glossary#roshi)? It seems to me that you're trying to do something a little different than most of the other teachers in the United States. It seems that you're not so concerned with us fitting *exactly* to the old, old way of teaching, and that people who won't fit exactly into it should leave and not participate, and either you should sit or go. It seems more like you're trying to show us that anybody can practice, and can fit their lives at least partially to practice. So that you're more willing to have people fit as much as they can, and if they don't fit a hundred percent, that's okay. You know, just fit your life to practice as much as you can. Is that true? Is that what you see yourself doing?
 
 **Katagiri**: *[quietly]* I don't understand exactly... 
 
@@ -448,7 +448,7 @@ Is that clear?
 
 ##### 1:17:37
 
-**Question**: Roshi? I have a question about the regulation of the breath? If I feel like I can't breathe, is that my mind attaching to the difficulty?
+**Question**: [Roshi](glossary#roshi)? I have a question about the regulation of the breath? If I feel like I can't breathe, is that my mind attaching to the difficulty?
 
 **Katagiri**: Yes, in a sense, the mind is connected with your breath and body. So, sometimes when your mind is very agitated and very unrest[ful], uneasy, it's pretty hard to breathe smoothly. But sometimes breath is connected with the body, and also nerve[s]. Well, many ways. And also sometimes, circumstances, environment. So, we have to check. Okay?
 
@@ -474,7 +474,7 @@ Is that okay?
 
 ##### 1:20:50
 
-**Question**: Roshi? *[unintelligible]* It seems like the greater your teacher, the less likely it is that you'll do everything *[unintelligible]* 
+**Question**: [Roshi](glossary#roshi)? *[unintelligible]* It seems like the greater your teacher, the less likely it is that you'll do everything *[unintelligible]* 
 
 *[laughter]*
 

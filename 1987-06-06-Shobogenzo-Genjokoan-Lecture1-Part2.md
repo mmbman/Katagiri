@@ -220,7 +220,7 @@ But manas is always, we have [alayavijñāna](glossary#alayavijñāna) as object
 
 **Question**: So does that pertain specifically to what you think is your self?
 
-**Katagiri**: Yes! You can feel this one. For instance, in Second World War, I was electrician in Japan. Before I went to the Air Force, I had decided to die anytime, anywhere, for Japan. [laughs] That's human beings. You can have a strong patriotism for America, you know? You have it, otherwise you are not American. [laughs] So, same applied to me. Then, I always am ready to die, anytime, anywhere. But when the bomb comes, I *run away*! [much laughter, Roshi laughs] And chanting the name of Amitaba: "Help, please!" Do you understand this one?
+**Katagiri**: Yes! You can feel this one. For instance, in Second World War, I was electrician in Japan. Before I went to the Air Force, I had decided to die anytime, anywhere, for Japan. [laughs] That's human beings. You can have a strong patriotism for America, you know? You have it, otherwise you are not American. [laughs] So, same applied to me. Then, I always am ready to die, anytime, anywhere. But when the bomb comes, I *run away*! [much laughter, Katagiri laughs] And chanting the name of Amitaba: "Help, please!" Do you understand this one?
 
 **Question**: ....
 

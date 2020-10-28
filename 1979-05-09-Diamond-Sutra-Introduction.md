@@ -194,7 +194,7 @@ Okay, do you have any questions?
 
 ##### 53:00
 
-**Question**: Roshi? Do you *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
+**Question**: [Roshi](glossary#roshi)? Do you *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
 
 *[some confusion]*
 
@@ -204,7 +204,7 @@ Okay, do you have any questions?
 
 ##### 54:13
 
-**Question**: Roshi, two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. And this came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
+**Question**: [Roshi](glossary#roshi), two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. And this came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
 *[laughter]*
 
