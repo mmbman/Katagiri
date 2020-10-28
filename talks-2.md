@@ -99,19 +99,19 @@
 1. 02/29/1984	Precepts for Lay Ordination – Part 1
 1. 02/29/1984	Precepts for Lay Ordination – Part 2
 1. 03/16/1984	The Awakening of Faith (3/16/84)	
-1. 03/21/1984	Mindfullness 1 of 5: Track 1 of 3	
-1. 03/21/1984	Mindfullness 1 of 5: Track 2 of 3	
-1. 03/21/1984	Mindfullness 1 of 5: Track 3 of 3
-1. 03/22/1984	Mindfullness 2 of 5: Track 1 of 3	
-1. 03/22/1984	Mindfullness 2 of 5: Track 2 of 3	
-1. 03/22/1984	Mindfullness 2 of 5: Track 3 of 3	
-1. 03/23/1984	Mindfullness 3 of 5: Track 1 of 2	
-1. 03/23/1984	Mindfullness 3 of 5: Track 2 of 2	
-1. 03/24/1984	Mindfullness 4 of 5: Track 1 of 3	
-1. 03/24/1984	Mindfullness 4 of 5: Track 2 of 3	
-1. 03/24/1984	Mindfullness 4 of 5: Track 3 of 3	
-1. 03/25/1984	Mindfullness 5 of 5: Track 1 of 2	
-1. 03/25/1984	Mindfullness 5 of 5: Track 2 of 2
+1. 03/21/1984	Mindfullness Mindfulness – Lecture 1, Part 1	
+1. 03/21/1984	Mindfullness Mindfulness – Lecture 1, Part 2	
+1. 03/21/1984	Mindfullness Mindfulness – Lecture 1, Part 3
+1. 03/22/1984	Mindfullness Mindfulness – Lecture 2, Part 1	
+1. 03/22/1984	Mindfullness Mindfulness – Lecture 2, Part 2	
+1. 03/22/1984	Mindfullness Mindfulness – Lecture 2, Part 3	
+1. 03/23/1984	Mindfullness Mindfulness – Lecture 3, Part 1	
+1. 03/23/1984	Mindfullness Mindfulness – Lecture 3, Part 2	
+1. 03/24/1984	Mindfullness Mindfulness – Lecture 4, Part 1	
+1. 03/24/1984	Mindfullness Mindfulness – Lecture 4, Part 2	
+1. 03/24/1984	Mindfullness Mindfulness – Lecture 4, Part 3	
+1. 03/25/1984	Mindfullness Mindfulness – Lecture 5, Part 1	
+1. 03/25/1984	Mindfullness Mindfulness – Lecture 5, Part 2
 1. 04/06/1984	The Awakening of Faith (4/6/84)	
 1. 04/11/1984	Blue Cliff Record: Case 55 – Lecture 3
 1. 04/20/1984	The Awakening of Faith (4/20/84)	
