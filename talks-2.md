@@ -22,8 +22,8 @@
 1. 01/28/1981	Blue Cliff Record: Case 9
 1. 02/11/1981	Blue Cliff Record: Case 10
 1. 02/18/1981	Blue Cliff Record: Case 11
-1. 02/25/1981	Blue Cliff Record: Case 12 – Part 1	
-1. 02/25/1981	Blue Cliff Record: Case 12 – Part 2
+1. 02/25/1981	Blue Cliff Record: Case 12 – part 1	
+1. 02/25/1981	Blue Cliff Record: Case 12 – part 2
 1. 03/18/1981	Blue Cliff Record: Case 13
 1. 04/01/1981	Blue Cliff Record: Case 14
 1. 04/25/1981	Blue Cliff Record: Case 15
@@ -31,21 +31,21 @@
 1. 08/26/1981	Blue Cliff Record: Case 20 – Lecture 1
 1. 09/02/1981	Blue Cliff Record: Case 20 – Lecture 2
 1. 09/30/1981	Blue Cliff Record: Case 22
-1. 10/12/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, Part 1
-1. 10/12/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, Part 2
-1. 10/13/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, Part 1
-1. 10/13/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, Part 2
-1. 10/14/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 1
-1. 10/14/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 2
-1. 10/14/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 3
-1. 10/15/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 1
-1. 10/15/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 2
-1. 10/16/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 5, Part 1
-1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 1
-1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 2
-1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 3
-1. 10/18/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 1
-1. 10/18/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 2
+1. 10/12/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, part 1
+1. 10/12/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, part 2
+1. 10/13/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, part 1
+1. 10/13/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, part 2
+1. 10/14/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, part 1
+1. 10/14/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, part 2
+1. 10/14/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, part 3
+1. 10/15/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, part 1
+1. 10/15/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, part 2
+1. 10/16/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 5, part 1
+1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, part 1
+1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, part 2
+1. 10/17/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, part 3
+1. 10/18/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, part 1
+1. 10/18/1981	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, part 2
 1. 10/21/1981	Blue Cliff Record: Case 23 – Lecture 1
 1. 10/28/1981	Blue Cliff Record: Case 23 – Lecture 3	
 1. 11/11/1981	Blue Cliff Record: Case 24
@@ -83,10 +83,10 @@
 1. 06/01/1983	Blue Cliff Record: Case 45 – Lecture 2
 1. 06/15/1983	Blue Cliff Record: Case 46 – Lecture 1
 1. 08/24/1983	Blue Cliff Record: Case 46 – Lecture 2
-1. 10/29/1983	Arts and Buddhism – Part 1
-1. 10/29/1983	Arts and Buddhism – Part 2
-1. 11/05/1983	Westerners' Reluctance Toward Bowing – Part 1
-1. 11/05/1983	Westerners' Reluctance Toward Bowing – Part 2
+1. 10/29/1983	Arts and Buddhism – part 1
+1. 10/29/1983	Arts and Buddhism – part 2
+1. 11/05/1983	Westerners' Reluctance Toward Bowing – part 1
+1. 11/05/1983	Westerners' Reluctance Toward Bowing – part 2
 1. 12/21/1983	Blue Cliff Record: Case 49 – Lecture 1
 1. 12/28/1983	Blue Cliff Record: Case 49 – Lecture 2
 1. 01/04/1984	Blue Cliff Record: Case 50
@@ -96,22 +96,22 @@
 1. 01/25/1984	Blue Cliff Record: Case 53
 1. 02/08/1984	Blue Cliff Record: Case 54
 1. 02/18/1984	Blue Cliff Record: Case 55 – Lecture 1
-1. 02/29/1984	Precepts for Lay Ordination – Part 1
-1. 02/29/1984	Precepts for Lay Ordination – Part 2
+1. 02/29/1984	Precepts for Lay Ordination – part 1
+1. 02/29/1984	Precepts for Lay Ordination – part 2
 1. 03/16/1984	The Awakening of Faith (3/16/84)	
-1. 03/21/1984  Mindfulness – Lecture 1, Part 1	
-1. 03/21/1984  Mindfulness – Lecture 1, Part 2	
-1. 03/21/1984  Mindfulness – Lecture 1, Part 3
-1. 03/22/1984  Mindfulness – Lecture 2, Part 1	
-1. 03/22/1984  Mindfulness – Lecture 2, Part 2	
-1. 03/22/1984  Mindfulness – Lecture 2, Part 3	
-1. 03/23/1984  Mindfulness – Lecture 3, Part 1	
-1. 03/23/1984  Mindfulness – Lecture 3, Part 2	
-1. 03/24/1984  Mindfulness – Lecture 4, Part 1	
-1. 03/24/1984  Mindfulness – Lecture 4, Part 2	
-1. 03/24/1984  Mindfulness – Lecture 4, Part 3	
-1. 03/25/1984  Mindfulness – Lecture 5, Part 1	
-1. 03/25/1984  Mindfulness – Lecture 5, Part 2
+1. 03/21/1984  Mindfulness – Lecture 1, part 1	
+1. 03/21/1984  Mindfulness – Lecture 1, part 2	
+1. 03/21/1984  Mindfulness – Lecture 1, part 3
+1. 03/22/1984  Mindfulness – Lecture 2, part 1	
+1. 03/22/1984  Mindfulness – Lecture 2, part 2	
+1. 03/22/1984  Mindfulness – Lecture 2, part 3	
+1. 03/23/1984  Mindfulness – Lecture 3, part 1	
+1. 03/23/1984  Mindfulness – Lecture 3, part 2	
+1. 03/24/1984  Mindfulness – Lecture 4, part 1	
+1. 03/24/1984  Mindfulness – Lecture 4, part 2	
+1. 03/24/1984  Mindfulness – Lecture 4, part 3	
+1. 03/25/1984  Mindfulness – Lecture 5, part 1	
+1. 03/25/1984  Mindfulness – Lecture 5, part 2
 1. 04/06/1984	The Awakening of Faith (4/6/84)	
 1. 04/11/1984	Blue Cliff Record: Case 55 – Lecture 3
 1. 04/20/1984	The Awakening of Faith (4/20/84)	
@@ -275,8 +275,8 @@
 1. 04/18/1987	Deepening the Experience of Our Lives – Lecture 2
 1. 04/24/1987	Platform Sutra – Lecture 7	
 1. 05/02/1987	Prajna Paramita and Emptiness	
-1. 05/23/1987	Karma in Buddhism – Part 1
-1. 05/23/1987	Karma in Buddhism – Part 2
+1. 05/23/1987	Karma in Buddhism – part 1
+1. 05/23/1987	Karma in Buddhism – part 2
 
 ---
 [Next Talk: Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
