@@ -46,11 +46,11 @@ So in [the] [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary
 
 But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual (normal?) persons, but unusual persons, sort of genuine religious persons, who understood perfectly [Buddha](glossary#shakyamuni-buddha) 's teachings, and who understood perfectly the tendency of the religious thought of those days – the stream of Buddhist thought, religious thought of those days. They were really concerned about the Buddha's teaching, how they should compile Buddha's teaching, how they should transmit Buddha's teaching. So they were required, by tendency of very public religious thought, to compile Buddha's teachings based on original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and nirvana. 
 
-Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha) , Indian people believe those scriptures are really Buddha's teaching. They don't have any doubt. They accept perfectly those scriptures as Buddha's teachings. That's why we don't know who wrote [them]. But it doesn't matter; it doesn't matter.
+Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha), Indian people believe those scriptures are really Buddha's teaching. They don't have any doubt. They accept perfectly those scriptures as Buddha's teachings. That's why we don't know who wrote [them]. But it doesn't matter; it doesn't matter.
 
 Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don't know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote [it] – but we are "suspicious" whether such a person was existing or not. Well anyway, we don't know who wrote it. But huge Buddhist scriptures exist. 
 
-So those authors were really genuine religious persons, who understood [the] religious spirit mentioned by [Buddha](glossary#shakyamuni-buddha) , and also [the] tendency of the religious thought and philosophical thought of those days. 
+So those authors were really genuine religious persons, who understood [the] religious spirit mentioned by [Buddha](glossary#shakyamuni-buddha), and also [the] tendency of the religious thought and philosophical thought of those days. 
 
 ##### 17:40
 
@@ -87,11 +87,13 @@ For instance, you know the koan; [Zen Buddhists](glossary#zen-buddhism ) always 
 
 ##### 24:10
 
-Oh, yes, here is a very good example. \[A] [Zen Master](glossary#zen-master) said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan. So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
+Oh, yes, here is a very good example. \[A] [Zen Master](glossary#zen-master) said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
+
+So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call me?" How do you call it? Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
 
 For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is cow. *[he laughs]* But you say "cow"; it's not cow. 
 
-[Or,] for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: [Katagiri](glossary#katagiri) , Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it?
+[Or,] for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it?
 
 That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhist philosophy. A is A, but A is not A. But A is really A.
 
@@ -99,11 +101,13 @@ That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhis
 
 This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, [the] matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri)  is one of the beings which is always floating in the stream of change. So, nothing to get. We are always chasing after something. But we cannot get it. 
 
-So [the] important point is, the existential reality. What is existential reality? If you say [Katagiri](glossary#katagiri) , what his existential fact, or reality is. That is a point. But usually you don't believe that; we don't say that, we don't understand in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's very shallow understanding. 
+So [the] important point is, the existential reality. What is existential reality? If you say [Katagiri](glossary#katagiri), what his existential fact, or reality is. That is a point. But usually you don't believe that; we don't say that, we don't understand in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's very shallow understanding. 
 
 ##### 28:40
 
-Existential fact is very vast, very vast. Which is never limited by a certain thing called [Katagiri](glossary#katagiri) , or buffalo, or A, or B, or C, or mountain, or river. That is existential fact or reality. Because, completely... well, what would you say... nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is [the] basic nature of being. In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separate. That's why, first of all, we have to deny your understanding. But... to deny is not to destroy existence. To deny is to enable you to realize something else around [the] subject you have understood. 
+Existential fact is very vast, very vast. Which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or A, or B, or C, or mountain, or river. That is existential fact or reality. Because, completely... well, what would you say... nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is [the] basic nature of being. 
+
+In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separate. That's why, first of all, we have to deny your understanding. But... to deny is not to destroy existence. To deny is to enable you to realize something else around [the] subject you have understood. 
 
 ##### 31:11 
 

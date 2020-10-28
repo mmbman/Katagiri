@@ -12,7 +12,7 @@
 
 [The] last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says, "For you must know that just there, in [Zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." [*he repeats the quote*] 
 
-This is a sort of conclusion of [the] main subject in [Fukanzazengi](glossary#fukanzazengi) . It means that, if you do [zazen](glossary#zazen) , in zazen, "right [dharma](glossary#dharma)  is manifesting itself" means original nature of the self is manifested, very naturally. And also that "from the first, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  are struck aside": from the first, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It's pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
+This is a sort of conclusion of [the] main subject in [Fukanzazengi](glossary#fukanzazengi) . It means that, if you do [zazen](glossary#zazen), in zazen, "right [dharma](glossary#dharma)  is manifesting itself" means original nature of the self is manifested, very naturally. And also that "from the first, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  are struck aside": from the first, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It's pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
 
 When you yourself manifest, if you manifest yourself as you really are, at that time, very naturally from the first, [dullness](glossary#dullness)  and confusion and [distraction](glossary#distraction)  are struck aside. Because you are manifesting yourself as you really are from moment to moment; in other words, you can stand up straight, right now, right here, but that means you can manifest yourself. So if you can stand up straight, right now, right here, that means you can't be stumbling over distractions; from the first, [they] are struck aside.
 
@@ -34,9 +34,9 @@ So, if it is true, even though you don't understand, why don't you express the d
 
 ##### 10:30
 
-Before you [bow](glossary#bowing), you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, [ego consciousness](glossary#ego-consciousness). Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely [Buddha](glossary#buddha) , when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
+Before you [bow](glossary#bowing), you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, [ego consciousness](glossary#ego-consciousness). Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely [Buddha](glossary#buddha), when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
 
-That is \[what] [Dogen Zenji](glossary#dogen) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] [patriarchs](glossary#ancestor) mention, or [Buddha's](glossary#buddha) suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma) , original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  from the first [are] struck aside. It's going away. 
+That is \[what] [Dogen Zenji](glossary#dogen) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] [patriarchs](glossary#ancestor) mention, or [Buddha's](glossary#buddha) suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma), original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  from the first [are] struck aside. It's going away. 
 
 ##### 12:45
 
@@ -76,7 +76,7 @@ But trans-personality immediately smells: "I smell something," "I smell myself a
 
 So, whatever I feel from my personality, there is always some confusion. Waves of the mind, always. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from – anyway, stink. What is called total personality. 
 
-Because I don't know, what is my [karma](glossary#karma)? Why did you become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why, so I cannot say. 
+Because I don't know, what is my [karma](glossary#karma)? Why did [I] become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why, so I cannot say. 
 
 That is really stink.... From where that stink of Katagiri comes? Nowhere. You have to really go back to beginingless past, to the endless future. 
 
@@ -106,9 +106,9 @@ That is called [karma](glossary#karma); that is called [Buddha Nature](glossary#
 
 ##### 34:20
 
-And circumstances: In order to realize this core of the human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and also brain-nerve system. Anyway, we have to make arrangement. That's why [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](glossary#fukanzazengi) , "Cast aside all involvements; cease all affairs." This is arrangement of circumstances. 
+And circumstances: In order to realize this core of the human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and also brain-nerve system. Anyway, we have to make arrangement. That's why [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](glossary#fukanzazengi), "Cast aside all involvements; cease all affairs." This is arrangement of circumstances. 
 
-If you meddle with all environment or all affairs right in the middle of [zazen](glossary#zazen) , you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement [of] circumstances. Instead of expressing hatred [of] circumstances, or destroying circumstances; just to make arrangement. 
+If you meddle with all environment or all affairs right in the middle of [zazen](glossary#zazen), you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement [of] circumstances. Instead of expressing hatred [of] circumstances, or destroying circumstances; just to make arrangement. 
 
 ##### 36:23
 
@@ -176,7 +176,7 @@ So ... first of all, if you want to deal with this book [for example], you have 
 
 ##### 51:42
 
-So that is [egolessness](glossary#egolessness). And also, at that time, if you throw away yourself, your body and mind, into the house of the [Buddha](glossary#buddha) , at that time, [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, "When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any man's mind." At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing [the] original nature of existence. Very natural. Simultaneous. 
+So that is [egolessness](glossary#egolessness). And also, at that time, if you throw away yourself, your body and mind, into the house of the [Buddha](glossary#buddha), at that time, [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, "When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any man's mind." At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing [the] original nature of existence. Very natural. Simultaneous. 
 
 ##### 52:56
 
@@ -184,19 +184,19 @@ So, there is [zazen](glossary#zazen). Zazen and you: if you see [them] separatel
 
 ##### 54:00
 
-At that time, the practice of [egolessness](glossary#egolessness) is to throw away yourself into [zazen](glossary#zazen) , perfectly in the flow of zazen. Offer your body and mind to zazen, completely. At that time, there is [no-self](glossary#no-self). No self.
+At that time, the practice of [egolessness](glossary#egolessness) is to throw away yourself into [zazen](glossary#zazen), perfectly in the flow of zazen. Offer your body and mind to zazen, completely. At that time, there is [no-self](glossary#no-self). No self.
 
-But if you completely offer yourself to [zazen](glossary#zazen) , that zazen helps you, simultaneously. 
+But if you completely offer yourself to [zazen](glossary#zazen), that zazen helps you, simultaneously. 
 
 ##### 54:42
 
 That's [egolessness](glossary#egolessness). Egolessness, based on spirit of throwing away, offering yourself into [zazen](glossary#zazen), is based on the help of [samadhi](glossary#samadhi). Only you can throw [yourself] away into zazen; at that time, you cannot do it without samadhi. One-pointedness. If you want to practice samadhi, one-pointedness, you have to arrange circumstances. Cease all affairs, and all involvements. There is no chance to involve in some of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is samadhi. If you practice samadhi, if you are right in the middle of samadhi, very naturally there is practice of egolessness. Because, you can offer yourself to zazen. 
 
-So, very simple task. And then, at that time, if you offer yourself, and then after that [if] there is no design on becoming a [Buddha](glossary#buddha) , or expecting a reward, et cetera ... at that time, this practice is exactly to manifest [the] original nature of the Buddha, existence.
+So, very simple task. And then, at that time, if you offer yourself, and then after that [if] there is no design on becoming a [Buddha](glossary#buddha), or expecting a reward, et cetera ... at that time, this practice is exactly to manifest [the] original nature of the Buddha, existence.
 
 ##### 56:36
 
-So, there are three important [points]:  [samadhi](glossary#samadhi), and [egolessness](glossary#egolessness), and no design on becoming [Buddha](glossary#buddha) , no design of expecting reward. [Those] three points are very important. 
+So, there are three important [points]:  [samadhi](glossary#samadhi), and [egolessness](glossary#egolessness), and no design on becoming [Buddha](glossary#buddha), no design of expecting reward. [Those] three points are very important. 
 
 [Egolessness](glossary#egolessness). That property, that is to regulate the mind. How to regulate the mind? Well, egolessness. How to practice? Egolessness. Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen) . How can you do that? By the help of  [samadhi](glossary#samadhi), one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
@@ -206,7 +206,7 @@ If you really want to accomplish one thing which you want to do, you have to cut
 
 ##### 58:35
 
-This is [a] very natural attitude to our life. That's why [Dogen Zenji](glossary#dogen) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen) , [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice  [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
+This is [a] very natural attitude to our life. That's why [Dogen Zenji](glossary#dogen) says, "Cease all involvement. Throw away all affairs." Don't worry about certain sound of the cars; so what? How can you throw away? Simplify; you should simplify your activity, yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen), [or] study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Anyway, let's practice  [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. Manifest simplicity; simplify your life. Because you can offer yourself into the object; zazen, and study, et cetera. 
 
 ##### 1:00:05
 
@@ -214,7 +214,7 @@ Simplify, unify; that is what is called harmonious. Or regulating; we use the te
 
 ##### 1:00:58
 
-And then this total personality, which is called [Buddha](glossary#buddha) , is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
+And then this total personality, which is called [Buddha](glossary#buddha), is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, "The origin of the way is perfect and all-pervading." And also manifesting original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into, and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect: perfect, harmonious life. That is peaceful life.
 
 And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
 
@@ -240,7 +240,7 @@ And release. If you release, [there] is nothing but being, which is helping all 
 
 So, that is the conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi) . That's why [Dogen Zenji](glossary#dogen) said, if you do [zazen](glossary#zazen)  according to [what] Dogen mentions, very naturally, the [dharma](glossary#dharma)  is manifesting itself, and from the first, [dullness](glossary#dullness)  and [distraction](glossary#distraction)  are struck aside. Very naturally. That is [the] meaning of zazen. We do always.
 
-By the [zazen](glossary#zazen) , if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself [are] also a person far from real person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not [the] practice for us.
+By the [zazen](glossary#zazen), if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself [are] also a person far from real person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not [the] practice for us.
 
 ##### 1:07:20 end of recording
 
