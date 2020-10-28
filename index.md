@@ -6,31 +6,18 @@
 ### 1979
 
 1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
-
 1. <a name="fukanzazengi-lecture-1"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
-
 1. <a name="fukanzazengi-lecture-2"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
-
 1. <a name="fukanzazengi-lecture-3"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
-
 1. <a name="fukanzazengi-lecture-4"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 4](1979-06-12-Fukanzazengi-Lecture4#0)
-
 1. <a name="fukanzazengi-lecture-5"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
-
-1. <a name="fukanzazengi-lecture-6"></a> [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
-
+1. <a name="fukanzazengi-lecture-6"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
 1. <a name="fukanzazengi-lecture-7"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
-
 1. <a name="diamond-sutra-provisional-being"></a>[Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
-
 1. <a name="diamond-sutra-emptiness"></a>[Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
-
 1. <a name="diamond-sutra-giving-and-non-covetousness"></a>[Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0)
-
 1. <a name="diamond-sutra-dharma-not-dharma-dharma"></a>[Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
-
 1. <a name="blue-cliff-record-case-1-lecture-1"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
-
 1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 		
 ### 1980
@@ -40,9 +27,13 @@
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
 	
 1. Save All Sentient Beings
+
 1. Blue Cliff Record: Case 3 – Lecture 1
+
 1. Blue Cliff Record: Case 3 – Lecture 2
+
 1. Blue Cliff Record: Case 4 – Lecture 2
+
 1. Blue Cliff Record: Case 4 – Lecture 1
 	
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
