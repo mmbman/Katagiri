@@ -281,12 +281,12 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Shobogenzo: Hossho: Dharma Nature – Lecture 13	
 1.	Shobogenzo: Kokyo: Form and Mirror – Lecture 1	
 1.	Shobogenzo: Kokyo: Form and Mirror – Lecture 2	
-1.	T'ien T'ai Buddhism:: Historical Background	
+1.	T'ien T'ai Buddhism: Historical Background	
 1.	Zen and Writing: Word and its Spirit	
 1.	T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 1	
-1.	T'ein T'ai Buddhism:: Outline of 4-Fold Teaching – Lecture 2	
+1.	T'ein T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 2	
 1.	Blue Cliff Record: Case 79 – Lecture 1
-1.	T'ien T'ai Buddhism:: Conclusion
+1.	T'ien T'ai Buddhism: Conclusion
 1.	Bowing
 1.	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 1	
 1.	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 3	
