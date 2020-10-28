@@ -18,11 +18,11 @@ For instance, in [Abhidharmakosha](glossary#abhidharmakosha), we learned this ye
 
 ##### 5:12
 
-In [Abhidharmakosha](glossary#abhidharmakosha), [samskara](glossary#samskara) is divided into many things. But a point is, that element – I am very interested in this element, which is not associated with mind, and not associated with truth – [samskara] is sort of a force. According to this book, "The Central Conception Of Buddhism," he said about this: 
+In [Abhidharmakosha](glossary#abhidharmakosha), [samskara](glossary#samskara) is divided into many things. But a point is, that element – I am very interested in this element, which is not associated with mind, and not associated with truth – [samskara] is sort of a force. According to this book, ["The Central Conception Of Buddhism,"](books#central-conception) he said about this: 
 
 > A force, it must be recalled, shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. But, simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is [samskara](glossary#samskara) in the Buddhist system.
 >
->(From "The Central Conception of Buddhism and the Meaning of the Word Dharma" by Theodore Stcherbatsky – [archive.org link](https://archive.org/stream/in.ernet.dli.2015.189881/2015.189881.The-Central-Conception-Of-Buddhism_djvu.txt); [Google Books link](https://books.google.com/books?id=C4HSakZwijIC&pg=PA18&lpg=PA18&dq=%22This+is+samskara+in+the+Buddhist+system%22&source=bl&ots=5i_tVITDm8&sig=ACfU3U2sXeTWnfGnSqQzvOecj4Vb2F04rQ&hl=en&sa=X&ved=2ahUKEwihipGzq9DrAhUYK80KHQTICW8Q6AEwAXoECAIQAQ#v=onepage&q=%22This%20is%20samskara%20in%20the%20Buddhist%20system%22&f=false))
+> (From ["The Central Conception of Buddhism and the Meaning of the Word Dharma"](books#central-conception) by Theodore Stcherbatsky
 
 So, [samskara](glossary#samskara) as a force shouldn't be regarded as [a] mere influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects. But mainly these conditions are what is called origination and decay – according to [primitive Buddhism](glossary#primitive-buddhism ), that is [impermanence](glossary#impermanence) or constant change. Appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 

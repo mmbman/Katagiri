@@ -10,7 +10,7 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-I have never studied [The] [Blue Cliff Record](glossary#blue-cliff-record) (Japanese: Hekiganroku) with you, since I moved to Minneapolis. We studied Shōyōroku (“Book of Equanimity”) which is pretty similar [to] Blue Cliff Record. But this Blue Cliff Record is a little different, and pretty unique, from Shōyōroku we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this Blue Cliff Record so much. 
+I have never studied \[The] [Blue Cliff Record](glossary#blue-cliff-record) with you since I moved to Minneapolis. We studied Shōyōroku (“Book of Equanimity”) which is pretty similar [to] Blue Cliff Record (Japanese: Hekiganroku). But this Blue Cliff Record is a little different, and pretty unique, from Shōyōroku we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this Blue Cliff Record so much. 
 
 [Blue Cliff Record](glossary#blue-cliff-record) consists of five parts. The main subjects are [a collection of 100 very] short stories, in question and answer style, or in conversation style, or sometimes, pretty usually, in short story style. And [also], each story has a verse of its own, by Setchō [Zen Master](glossary#zen-master) (Setchō Jūken is the Japanese name for Hsueh Tou Ch’ung Hsien or Xuedou Chongxian, 雪竇重顯), who lived 980-1052 (AD). Also, later, Engo [Zen Master](glossary#zen-master) (Engo Kokugon is the Japanese name for Yuan Wu K’e Ch’in or Yuanwu Keqin, 圓悟克勤), who lived from 1063-1135, added the introduction to the main subject, and also the notes; D.T. Suzuki used the term “pithy remarks”. Engo Zen Master added the notes to each phrase, and also commentary to the main subject and [to the] verses by Setchō Zen Master. So [each case in the] Blue Cliff Record consists of five parts. In this book, [the] introduction [to each case] is represented as "Pointer". So Pointer, and Case, and Notes, Commentary, and Verse, and Commentary. The verses' commentary, and also the main subjects' commentary. 
 
@@ -33,6 +33,8 @@ Let me read the main subject:
 > Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma), “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
 > 
 > Later the Emperor brought this up to Master Chih and asked him about it. Master Chih asked, “Does your majesty know who this man is?” The Emperor said, “I don’t know.” Master Chih said, “He is the Mahasattva Avalokitesvara, transmitting the Buddha Mind Seal.” The Emperor felt regretful, so he wanted to send an emissary to go invite ([Bodhidharma](glossary#bodhidharma) to return). Master Chih told him, “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.”
+> 
+> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
 
 That is [the] main subject. And the introduction is – I’ll read it [again]. *[he reads it again]*
 

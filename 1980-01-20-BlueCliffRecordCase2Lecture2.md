@@ -21,6 +21,8 @@
 > The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
 > 
 > Chao Chou said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
+>
+> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
 
 ##### 1:20
 
