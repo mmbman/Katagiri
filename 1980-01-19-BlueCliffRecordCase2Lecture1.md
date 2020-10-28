@@ -128,9 +128,9 @@ If you always see the [zazen](glossary#zazen) from your viewpoint, always there 
 
 But even though you don’t know, or you don’t know how much your life or your personality develops or not, well, get someone with open eyes, that knows pretty much how well you have been developing. 
 
-At that time, there is no need for your particular effort, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into [zazen](glossary#zazen). At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
+At that time, there is no need for your particular, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into [zazen](glossary#zazen). At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
 
-That’s why that is the path of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right there, right on this vehicle, 100 points. That is really vast; nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
+That’s why that is the task of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right there, right on this vehicle, 100 points. That is really vast; nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
 
 ##### 32:44
 
@@ -138,25 +138,25 @@ So, let’s read [the pointer], one by one.
 
 > Heaven and earth are narrow; sun, moon, and stars all at once go dark.
 
-"Heaven and earth are narrow": incompatible with this task of that fundamental vehicle of transcendence, which is called vastness, and the truth. If you actualize it, this is actual practice. What is that? Throw yourself into it, into the bar; that means do something with wholeheartedness. At that time, you can create vastness. 
+"Heaven and earth are narrow" – in comparison with this task of that fundamental vehicle of transcendence, which is called vastness, and the truth. If you actualize it, this is actual practice. What is that? Throw yourself into it, into the bar; that means do something with wholeheartedness. At that time, you can create vastness. 
 
-If you compare [them] with this vastness which is called truth, even the heaven and earth are very narrow. Even the earth and any other planets; whatever you see [or] you can picture [in] the human world, including other planets, that is still pretty narrow, because it is still something you can think, you can envision. In comparison with vastnesss and the truth, even the heavens and earth are too narrow. 
+If you compare [them] with this vastness which is called truth, even heaven and earth are very narrow. Even the earth and any other planets; whatever you see [or] you can picture [in] the human world, including other planets, that is still pretty narrow, because it is still something you can think, you can envision. In comparison with vastnesss and the truth, even the heavens and earth are too narrow. 
 
-And "sun and moon and stars all at once go dark". Even the planets, even the moon, even the stars - all are still dark, because that vastness is completely clear. You cannot stay there; but it’s very clear. Even the sun – it’s bright, very bright in this world, brightest being in this world – it’s still dark. That is what [Engo Zen Master](glossary#engo-kokugon) wants to say. 
+And "sun and moon and stars all at once go dark". Even the sun, even the moon, even the stars – all are still dark, because that vastness is completely clear. You cannot stay there; but it’s very clear. Even the sun – it’s bright, very bright in this world, brightest being in this world – it’s still dark. That is what [Engo Zen Master](glossary#engo-kokugon) wants to say. 
 
 ##### 34:52
 
 > Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. 
 
-“Even if blows of the staff fall like rain“: that means, [Rinzai](glossary#rinzai-zen ) [Zen Masters](glossary#zen-master) or other Zen Masters use a staff [or] stick, hitting the monks in order to encourage insight. That giving the blows to the monks is just like rain, falling rain, constantly hitting – but still you can’t live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means shouting just like thunder, a big shout which makes everybody wake up. Even though you use this, still you cannot live up to the truth. It’s still something explained, demonstrated. 
+“Even if blows of the staff fall like rain“: that means, [Rinzai](glossary#rinzai-zen ) [Zen Masters](glossary#zen-master) or other Zen Masters use a staff [or] stick, hitting the monks in order to encourage insight. That giving the blows to the monks is just like rain, falling rain, constantly hitting – but still you cannot live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means shouting just like thunder, a big shout which makes everybody wake up. Even though you use this, still you cannot live up to the truth. It’s still something explained, demonstrated. 
 
 So that’s why he says he says, “Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence."
 
 ##### 36:45
 
-> Even the [Buddhas](glossary#buddha) of the three times can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) have not been able to bring it up in its entirety. 
+> Even the [Buddhas](glossary#buddha) of the [three times](glossary#three-times) can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) have not been able to bring it up in its entirety. 
 
-"Even the [Buddhas](glossary#buddha) of the three times..." – Past, present, future; all Buddhas.
+"Even the [Buddhas](glossary#buddha) of the [three times](glossary#three-times)..." – Past, present, future; all Buddhas.
 
 "... can only know it for themselves." What, just for themselves? Not for the good of all beings? 
 
@@ -178,39 +178,33 @@ That’s why he says, “the successive generations of [patriarchs](glossary#anc
 
 ##### 41:23
 
-Look at the Chinese Zen histories. If [Buddhism](glossary#buddhism) were completely destroyed by the “politics,” the Chinese politics; if all monks were completely destroyed, and the government kicked them out of the temples – wherever the Zen monks went, either fishermen, either boatmen, still Zen [is] alive, in their life. Now when the world becomes peaceful, harmonious, all the Zen monks come back to Buddhism. It’s very strange, but it is very true. Only the Zen monks come back very naturally when the war gets peace. But when the government is excited and gets angry – well they can live any time, anywhere. “Goodbye”; but it doesn’t mean that [Zen Buddhism](glossary#zen-buddhism ) dies; it’s still alive in their life. That’s why when the time comes, conditions are right: it comes back. 
+Look at the Chinese Zen histories. If [Buddhism](glossary#buddhism) were completely destroyed by the “politics,” the Chinese politics; if all monks were completely destroyed, and the government kicked them out of the temples – wherever the Zen monks went, either fishermen, either boatmen, still Zen [is] alive, in their life. Now when the world becomes peaceful, harmonious, all the Zen monks come back to Buddhism. It’s very strange, but it is very true. Only the Zen monks come back very naturally when the war gets peace. But when the government is excited and gets angry – well they can live any time, anywhere. “Goodbye”; but it doesn’t mean that [Zen Buddhism](glossary#zen-buddhism ) dies; it’s still alive in their life. That’s why when the time comes, conditions are arranged, it comes back. 
 
 ##### 43:00
 
 > The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patchrobed monks cannot save themselves completely.
 
-Next, “The treasury of teachings of the whole age cannot explain it thoroughly.” 
-
 “The treasury of teachings of the whole age” – that means all Buddhist scriptures, from generation to generation, for 2500 years. We try to collect all the Buddhist scriptures, and try to explain what the truth is. It doesn’t hit the mark.
 
-##### 43:41
-
-“Clear eyed patchrobed monks cannot save themselves completely.”
-
-*[unintelligible]* How? Much as they cannot save others. Because even patch robed monks full of [enlightenment](glossary#enlightenment), cannot themselves *[unintelligible]* how they can save all sentient beings.
+“Clear eyed patchrobed monks cannot save themselves completely.” *[unintelligible]* How? Much as they cannot save others. Because even patch robed monks, full of [enlightenment](glossary#enlightenment), cannot themselves *[unintelligible]* how they can save all sentient beings.
 
 ##### 44:30
 
-There is a very interesting story of one of the famous Japanese scholars – he was a scholar and also he was a communist. He practiced under the guidance of [Gempo Yamamoto](glossary#gempo-yamamoto), who was teacher of [Sōen Nakagawa](glossary#sōen-nakagawa). This gentleman worked in the kitchen as a clerk. 
+There is a very interesting story of one of the famous Japanese scholars – he was a scholar and also he was a communist. He practiced under the guidance of [Gempo Yamamoto](glossary#gempo-yamamoto), who was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa). This gentleman worked in the kitchen as a clerk. 
 
-One day, [Gempo Roshi](glossary#gempo-yamamoto) passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” He said, “I am practicing Zen to save all sentient beings.” Then Gempo Roshi said, “Oh, is that so.” Then he left. 
+One day, [Gempo Roshi](glossary#gempo-yamamoto) passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” [The man] said, “I am practicing Zen to save all sentient beings.” Then Gempo Roshi said, “Oh, is that so.” Then he left. 
 
 And in a few days, when he passed through the kitchen, and he saw him making the rice on the stove, he asked, “What for do you practice [zazen](glossary#zazen)?” He said, “I want to save all sentient beings.” He said, “Oh.” He left.
 
-Next time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” 
+The third time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” 
 
 So immediately, [Gempo Roshi](glossary#gempo-yamamoto) screamed, “*Stupid*!” *[he laughs]* “That practice is just for you!”
 
 *[tape change]*
 
-... because my practice is evaluated in [a] great way, so you should be patient, please take care of me. 
+... “because my practice is evaluated in [a] great way, so you should be patient, please take care of me.”
 
-Well, if you have a family, “I want to go to [zazen](glossary#zazen), so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s very true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) crashed that idea: “Stupid! Your practice is just for you.” 
+Well, if you have a family, “I want to go to [zazen](glossary#zazen), so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s really true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) crashed that idea: “Stupid! Your practice is just for you.” 
 
 I don’t think practice is just for you – but don’t touch it, okay? Don’t get one "setting" for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 
@@ -230,35 +224,41 @@ So, even the clear eyed patchrobed monks cannot save themselves completely. “W
 
 When you get there, when you get the real truth – how will you ask for more instruction? Do you want to get some more instruction from me? Do you understand? How can you get instruction? Because you are there already. 
 
-If you get some information or instruction from there, it is already something picked up objectively, you can see. At that time, it is not truth. Truth is where it should be, right on the vehicle. It is very true Zen. 
+If you get some information or instruction from there, it is already something particular; objectively you can see [it]. At that time, it is not truth. You should be right on the vehicle. It is very pure Zen. 
 
 At that time only, the [zazen](glossary#zazen) blooms. How can zazen touch [the] tip of the zazen by itself? No way. But if you see, even slightly, something *else* around zazen, it is something seen objectively, for you to touch. "You can touch" means, to get instruction or information from; zazen, chanting, gassho, whatever.
 
 So [Engo Zen Master](glossary#engo-kokugon) says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means, you simply cannot continue, where you are, what you are doing. 
 
-But – it’s really work. If you don’t know, you feel restless. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life, so don’t worry; don’t be obsessed  with restlessness. All you have to do is, just continue to do it. But finally, your life works pretty well.
+But – it’s really work. If you don’t know, you feel restless. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life, so don’t worry; don’t be obsessed with restlessness. All you have to do is, just continue to do it. But finally, your life works pretty well.
 
 ##### 52:05
 
-And, “When you get here, how will you ask for more instruction?” then [adds]: “To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
+And, “When you get here, how will you ask for more instruction?” – [Engo Zenji](glossary#engo-kokugon) says, “To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
 
-Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. So, covered with mud, that means gargle yourself with water. 
+Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. Sort of covered with mud, so that means gargle yourself with water. 
 
-But even though to say the word “[Buddha](glossary#buddha)” immediately you are covered with mud, just like a sewer rat. I mean, you enjoy very much, “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
+But even to say the word “[Buddha](glossary#buddha),” immediately you are covered with mud, just like a sewer rat. And then you enjoy [it] very much: “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
 
-And even so, to say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an“is a face full of shame.” But even though you say “Zen” it’s really full of shame. Zen is embarrassed in this world…really shame… Completely based on words? Forget it. People say anything is stupid, that’s okay… In Nichiren - do you know Nichiren, … Buddhist school? She criticized Zen. “Zen is a subtly(?) created devil.” Creating a devil? Somebody says, Zen is pretty ???, Zen is pretty idealistic(?), … lots of criticism, don’t you think? ???? … “Zen is ridiculous.” Past criticism(?), because Zen is freedom, free. Freedom is… do you know the freedom? Freedom is free state of being, which appears in many ways, in many situations. But it doesn’t bother, only appears. It is never contaminated by a certain conditions. It always appears under certain conditions, but it’s never contaminated by ideas. That is freedom. That’s why Zen is … if you use a particular term, “Zen,” it’s very shameful, because immediately you can see that idea of denomination. That’s why … says, “to say the Ch’an is a face full of shame.”
+So, to say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an – “is a face full of shame.” Even though you say “Zen,” it’s really full of shame. Zen is based in this world… *[unintelligible]*… Completely based on words? Forget it. 
+
+If people say anything stupid, that’s okay. In Nichiren [Buddhism] – do you know [Nichiren](glossary#nichiren), founder of [the Nichiren] Buddhist school? He criticized Zen: “Zen is [something created by a] devil.” I don’t think so. [Created by] a devil?
+
+Somebody [else] says, Zen is pretty intellectual, Zen is pretty idealistic … lots of criticism, don’t you think? *(unintelligible)* “Zen is ridiculous.” Lots of criticism, because Zen is freedom, free. Freedom is… do you know freedom? Freedom is [a] free state of being, which appears in many ways, in many situations, but it doesn’t bother us, only appears. It is never contaminated by a certain condition. It always appears under certain conditions, but it’s never contaminated by ideas. That is what is called freedom. That’s why … if you use a particular term, “Zen,” it’s very shameful, because immediately you can see that idea of denomination. That’s why [Engo Zenji](glossary#engo-kokugon) says, “to say the Ch’an is a face full of shame.”
 
 ##### 57:02
 
-“Superior people who have studied for a long time do not wait for it to be said;” well he doesn’t explain, because from moment to moment his life must be alive, so even though he doesn’t say what his life is… very zen. Well, if you want to perform gymnastics, anyway, you should jump into it, right now actually, throw away yourself into it. This is point. You cannot wait for the chance to be ??? about. 
+“Superior people who have studied for a long time do not wait for it to be said;” – well he doesn’t explain, because from moment to moment his life must be alive. So even though he doesn’t say [it], his life is really zen. 
+
+Well, if you want to perform gymnastics, you should jump into it, right now actually, throw away yourself into it. This is [the] point. You cannot wait for the chance to be *[unintelligible]*. 
 
 ##### 58:00
 
-“latecoming beginners simply must investigate and apprehend it.” Well, if you are ??? … this is very important point.
+“latecoming beginners simply must investigate and apprehend it.” Well, if you are a beginner, how should [you] do it? This is a very important point.
 
-That is the pointer. And then, the main case: 
+That is the pointer. And then, the main case: ...
 
-##### end of recording 
+##### 58:33 end of recording 
 
 ---
 [Next Talk: Blue Cliff Record: Case 2 – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)

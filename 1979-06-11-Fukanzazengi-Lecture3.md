@@ -306,7 +306,7 @@ When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see 
 
 **Same person**: It's *not* open?
 
-**Katagiri**: It is open to everybody. Everybody's goal. And also, it's open to not only the present, but also past, present, and future, for long range. The goal is extended through the three times. So it's huge. 
+**Katagiri**: It is open to everybody. Everybody's goal. And also, it's open to not only the present, but also past, present, and future, for long range. The goal is extended through [the three times](glossary#three-times). So it's huge. 
 
 That's why we cannot get such a huge goal: because it's too big. *[he chuckles]* But, we *are* such a huge goal. So, how can I say [it]? Let's [say?] that ... a huge goal blooms with your life. How? Making arrangement of environment. 
 

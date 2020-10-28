@@ -222,6 +222,7 @@ A traditional art practiced by Zen priests and monks.
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 - [Fukanzazengi – Lecture 2 (27:00)](1979-06-10-Fukanzazengi-Lecture2#2700)
+- [Blue Cliff Record Case 2: Lecture 1 (52:05)](1980-01-19-BlueCliffRecordCase2Lecture1#5205)
 
 ---
 ## Chan
@@ -587,6 +588,13 @@ Probably Soen Nakagawa. [Wikipedia](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 Nāgārjuna
 
 - [Wikipedia: Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna)
+
+---
+## Nichiren
+
+- [Blue Cliff Record: Case 2 – Lecture 1 (52:05)](1980-01-19-BlueCliffRecordCase2Lecture1#5205)
+
+- [Wikipedia: Nichiren](https://en.wikipedia.org/wiki/Nichiren)
 
 ---
 ## Nikāya
