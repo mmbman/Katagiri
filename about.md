@@ -20,7 +20,7 @@ For more information about Katagiri Roshi, visit [The Katagiri Project Home Page
 
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
-If you have comments or questions, you can [email Kikan / Mike](mailto:michaelhoward@mac.com).
+If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
 
 ---
 [First Talk: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
