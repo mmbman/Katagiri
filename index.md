@@ -58,13 +58,13 @@
 1. Blue Cliff Record: Case 5 – Lecture 1
 1. Blue Cliff Record: Case 5 – Lecture 2	
 1. Diamond Sutra: Final Lecture
-1. 07/30/1980	No Title or Description Available	
+1. No Title or Description Available	– 07/30/1980
 1. Blue Cliff Record: Case 7 – Lecture 1	
 1. Blue Cliff Record: Case 7 – Lecture 2
 
-## 1981 - 1989
+### 1981 - 1989
 	
-	<a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
+- <a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 	
 1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 	
