@@ -326,8 +326,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Prajna Paramita and Emptiness	
 1.	Karma in Buddhism – part 1
 1.	Karma in Buddhism – part 2
-1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-part1#0)
-1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Lecture 1, part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-part2#0)
+1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
+1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Lecture 1, part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
 1. <a name="genjokoan-lecture-2"></a>[Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 1. <a name="manas"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
