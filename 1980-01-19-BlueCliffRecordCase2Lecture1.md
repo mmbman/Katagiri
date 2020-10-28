@@ -24,15 +24,15 @@ At this time, I would like to study with you the second case of The [Blue Cliff 
 >
 > Chao Chou said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
 > 
-> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
+> (From ["The Blue Cliff Record"](books#BCR) translated by Thomas Cleary)
 
 ##### 02:00
 
-This is the main case. This morning I would like to read the pointer for the main case, pointing out the most important key in the main case, [which is] mentioned by Engo [Zen Master](glossary#zen-master). (Engo Kokugon is the Japanese name for Ch’an teacher Yuan Wu K’e Ch’in (1063–1135), who compiled the [Blue Cliff Record](glossary#blue-cliff-record) and added the pointers, notes and commentaries.)
+This is the main case. This morning I would like to read the pointer for the main case, pointing out the most important key in the main case, [which is] mentioned by [Engo Zen Master](glossary#engo-kokugon). (Engo Kokugon is the Japanese name for Ch’an teacher Yuan Wu K’e Ch’in (1063–1135), who compiled the [Blue Cliff Record](glossary#blue-cliff-record) and added the pointers, notes and commentaries.)
 
 > Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the [Buddhas](glossary#buddha) of the three times can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
 
-In this pointer, Engo [Zen Master](glossary#zen-master) emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
+In this pointer, [Engo Zen Master](glossary#engo-kokugon) emphasizes the significance of the task of the fundamental vehicle of transcendence. In other words, that is the path, great path, or the ultimate path. He uses a different term, which is called "the task of the fundamental vehicle of transcendence". This is the main point in this pointer: task of the fundamental vehicle of transcendence. 
 
 Plainly speaking, this is the truth, or original nature of existence, or dharma. [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](dogen#fukanzazengi), “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So [Dogen](glossary#dogen) uses the term “dharma vehicle”. You know, the truth is explained in many ways; if you use a word, whatever you say, all expressions of the truth comes into just one term, “truth”. Many kinds of religions use different a term, but all come into the truth.
 
@@ -86,7 +86,7 @@ But this is not the main point which [Buddhism](glossary#buddhism) emphasizes. O
 
 ##### 24:16
 
-That’s why Engo [Zen Master](glossary#zen-master) and [Dogen](glossary#dogen) used the term "vehicle", dharma vehicle. Vehicle is not something your intellectual sense should be on; vehicle is that which you yourself must be on, working in peace and harmony with [the] passengers. That is the vehicle. 
+That’s why [Engo Zen Master](glossary#engo-kokugon) and [Dogen](glossary#dogen) used the term "vehicle", dharma vehicle. Vehicle is not something your intellectual sense should be on; vehicle is that which you yourself must be on, working in peace and harmony with [the] passengers. That is the vehicle. 
 
 So, where is the vehicle? That vehicle means [Buddha](glossary#buddha), Buddha’s world, [in] which the subject and the object work perfectly in peace and harmony. You and the bar and gymnastics are all working dynamically; that is what is called vehicle. 
 
@@ -140,7 +140,7 @@ So, let’s read [the pointer], one by one.
 
 If you compare [them] with this vastness which is called truth, even the heaven and earth are very narrow. Even the earth and any other planets; whatever you see [or] you can picture [in] the human world, including other planets, that is still pretty narrow, because it is still something you can think, you can envision. In comparison with vastnesss and the truth, even the heavens and earth are too narrow. 
 
-And "sun and moon and stars all at once go dark". Even the planets, even the moon, even the stars - all are still dark, because that vastness is completely clear. You cannot stay there; but it’s very clear. Even the sun – it’s bright, very bright in this world, brightest being in this world – it’s still dark. That is what Engo [Zen Master](glossary#zen-master) wants to say. 
+And "sun and moon and stars all at once go dark". Even the planets, even the moon, even the stars - all are still dark, because that vastness is completely clear. You cannot stay there; but it’s very clear. Even the sun – it’s bright, very bright in this world, brightest being in this world – it’s still dark. That is what [Engo Zen Master](glossary#engo-kokugon) wants to say. 
 
 ##### 34:52
 
@@ -232,7 +232,7 @@ If you get some information or instruction from there, it is already something p
 
 At that time only, the [zazen](glossary#zazen) blooms. How can zazen touch [the] tip of the zazen by itself? No way. But if you see, even slightly, something *else* around zazen, it is something seen objectively, for you to touch. "You can touch" means, to get instruction or information from; zazen, chanting, gassho, whatever.
 
-So Engo [Zen Master](glossary#zen-master) says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means, you simply cannot continue, where you are, what you are doing. 
+So [Engo Zen Master](glossary#engo-kokugon) says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means, you simply cannot continue, where you are, what you are doing. 
 
 But – it’s really work. If you don’t know, you feel restless. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life, so don’t worry; don’t be obsessed  with restlessness. All you have to do is, just continue to do it. But finally, your life works pretty well.
 

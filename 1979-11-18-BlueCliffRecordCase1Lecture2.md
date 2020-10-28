@@ -24,11 +24,11 @@ It looks like the same question according to Christianity, for instance, “Why 
 
 ##### 3:33
 
-Anyway, [Bodhidharma](glossary#bodhidharma) went to China in about 520, and met first [with] Emperor Wu. That is this story, the discussion between Emperor Wu and Bodhidharma. The commentary by Engo [Zenji](glossary#zenji) says:
+Anyway, [Bodhidharma](glossary#bodhidharma) went to China in about 520, and met first [with] Emperor Wu. That is this story, the discussion between Emperor Wu and Bodhidharma. The commentary by [Engo Zenji](glossary#engo-kokugon) says:
 
 > When [Bodhidharma](glossary#bodhidharma) first met Emperor Wu, the Emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma said, “There is no merit.” He immediately doused the Emperor with dirty water. If you can penetrate this statement, “there is no merit,” you can meet Bodhidharma personally. Now tell me, why is there no merit at all in building temples and ordaining monks? Where does the meaning of this lie?
 
-Well, while this is a very natural question, his natural question has a lot of meaning. It’s natural, but it’s a deep question. If you practice [zazen](glossary#zazen), most of you expect something particular: merit, or reward, or progress in practice. This is very natural. But what if [Bodhidharma](glossary#bodhidharma) says, “no merit”? Why was Bodhidharma [a] "liar"? Because if you practice [zazen](glossary#zazen), some of you can find merit or progress in practice. If it is true, you cannot say there is “no merit.” There is merit; so why does Bodhidharma say “no merit”? That’s the question Engo [Zen Master](glossary#zen-master) in his commentary [asks]: why?
+Well, while this is a very natural question, his natural question has a lot of meaning. It’s natural, but it’s a deep question. If you practice [zazen](glossary#zazen), most of you expect something particular: merit, or reward, or progress in practice. This is very natural. But what if [Bodhidharma](glossary#bodhidharma) says, “no merit”? Why was Bodhidharma [a] "liar"? Because if you practice [zazen](glossary#zazen), some of you can find merit or progress in practice. If it is true, you cannot say there is “no merit.” There is merit; so why does Bodhidharma say “no merit”? That’s the question [Engo Zen Master](glossary#engo-kokugon) in his commentary [asks]: why?
 
 ##### 6:13
 
@@ -161,9 +161,9 @@ He didn’t understand “no merit,” because he took this “no merit” at fa
 
 For instance, "Life is characterized by [suffering](glossary#suffering)." Don’t fret. Because if you take this at it's face value, you don’t want to accept [it]. Finally, you have to see the reality of something when words completely drop off. At that time, you can have a chance to glance at the beauty of suffering, completely beyond suffering or pleasure, whatever it is. 
 
-But Emperor Wu didn’t understand, that’s why Engo [Zen Master](glossary#zen-master) says, “This dull fellow speaks up.” *[laughter]* 
+But Emperor Wu didn’t understand, that’s why [Engo Zen Master](glossary#engo-kokugon) says, “This dull fellow speaks up.” *[laughter]* 
 
-That note by Engo [Zen Master](glossary#zen-master) is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometimes he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in [Blue Cliff Record](glossary#blue-cliff-record) are *very* interesting, really [picking on people], piercing the human heart directly. 
+That note by [Engo Zen Master](glossary#engo-kokugon) is [really picking on him], not the usual note [in the] Western style. (Katagiri says "picking him out".) Sometimes he praises somebody very well, but [he praises them] in many ways – not always directly, [sometimes] by looking down on somebody. That’s why the notes in [Blue Cliff Record](glossary#blue-cliff-record) are *very* interesting, really [picking on people], piercing the human heart directly. 
 
 So [when] “Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma)," [the] commenter says, “This dull fellow speaks up.”
 
@@ -185,7 +185,7 @@ And then [Bodhidharma](glossary#bodhidharma) says, “Empty, without holiness.�
 
 D.T. Suzuki [translated it as], “Vastness and nothing holy.” This translation says, “Empty, without holiness.” Anyway, empty means vast. Nothing there, but it’s vast. Without holiness: nothing holy, nothing not holy. Completely nothing.
 
-So, Engo [Zen Master](glossary#zen-master) says [in the Notes], “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” 
+So, [Engo Zen Master](glossary#engo-kokugon) says [in the Notes], “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” 
 
 Emperor Wu took [the previous] answer, “No merit,” at face value, so he didn’t understand. If there is no merit, do you believe there is no divinity, or God, or [Buddha](glossary#buddha), or universal energy, which makes everything possible to exist? There is nothing? There is no truth, which is completely almighty, to help in your life? Et cetera. That’s why, next moment he asked, “What is the truth?”
 
@@ -197,7 +197,7 @@ But, he doesn’t say [that]. “Nothing holy. Empty.”
 
 And then, the note says, “The arrow has flown past Korea.” This is a very common expression in Zen. “The arrow has flown past Korea” means, we don’t know. *[he laughs]* We don’t know when, how, where the arrow will fall down, or reach. Because: vastness, [emptiness](glossary#śūnyatā). [His] answer, "vastness and nothing holy," is just like an arrow; shoot! The arrow is endlessly going in space. This is called vastness. Nothing holy. We don’t know where it goes. What is the target, where is the target? We don’t know. 
 
-So, Engo [Zenji](glossary#zenji)’s note says, “Hey, anyway the ancient [Bodhidharma](glossary#bodhidharma) shot the arrow. Where? We don’t know where it goes.” It’s a straight arrow.
+So, [Engo Zenji](glossary#engo-kokugon)’s note says, “Hey, anyway the ancient [Bodhidharma](glossary#bodhidharma) shot the arrow. Where? We don’t know where it goes.” It’s a straight arrow.
 
 ##### 43:28
 
@@ -217,7 +217,7 @@ The note says, “Bah! His second reply isn’t worth half a cent.” *[laughter
 
 Who is facing? [Bodhidharma](glossary#bodhidharma) says, “I don’t know.” And after this [it says], “The emperor didn’t understand.” 
 
-He didn’t understand. Engo [Zen Master](glossary#zen-master) says, “Too bad! Still, he’s gotten somewhere.” 
+He didn’t understand. [Engo Zen Master](glossary#engo-kokugon) says, “Too bad! Still, he’s gotten somewhere.” 
 
 Ah, too bad. Anyway, too bad. *[laughter]*
 
@@ -227,7 +227,7 @@ Ah, too bad. Anyway, too bad. *[laughter]*
 
 "Later the Emperor brought this up to Master Chih and asked him about it." Still he didn’t understand, so he brought up this question again to another [Zen Master](glossary#zen-master). 
 
-The Engo [Zen Master](glossary#zen-master) [note] says, “Oh, poor man. He thinks about an old debt.” *[he chuckles]* This commentary note is very pithy! *[laughter]*
+The [Engo Zen Master](glossary#engo-kokugon) [note] says, “Oh, poor man. He thinks about an old debt.” *[he chuckles]* This commentary note is very pithy! *[laughter]*
 
 Well, if you don’t understand, you want to bring up the same question, and ask somebody. But he says it is not useful; it looks like [remembering an] old debt. 
 
@@ -283,7 +283,7 @@ So, that’s why the [Zen Master](glossary#zen-master) says, “Your majesty, do
 
 ##### 56:13
 
-The Engo [Zen Master](glossary#zen-master) says, in his notes again, “Master Chih deserves thirty blows." Really thirty blows. "He doesn’t know that the great illumination shines forth from under his own feet.” 
+[Engo Zen Master](glossary#engo-kokugon) says, in his notes again, “Master Chih deserves thirty blows." Really thirty blows. "He doesn’t know that the great illumination shines forth from under his own feet.” 
 
 Well, truth is always shining under our own feet, always. But we don’t understand. That’s why even though Emperor Wu really want to get [Bodhidharma](glossary#bodhidharma) back again, well, the [Zen Master](glossary#zen-master) has to say, “No, don’t do that.” That is a very big blow.
 
@@ -345,7 +345,7 @@ Questions?
 
 So that is really thirty blows. But if you’re not ready to open your eyes, even though what he's suggesting is very gentle – "[Dainin](glossary#dainin)," he didn’t scold me, "Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again." That's it. Very simple. If you’re not ready to accept this as thirty blows, well, that's a pretty usual *[unintelligible]* suggestion. But anyway, that was really thirty blows for me. 
 
-Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but anyway, that is Engo [Zen Master](glossary#zen-master)’s comment.
+Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but anyway, that is [Engo Zen Master](glossary#engo-kokugon)’s comment.
 
 **Same person**: Excuse me, I thought that the commentator was saying that the [Zen Master](glossary#zen-master) who was speaking to Emperor Wu deserved the blows. That’s what I thought it meant; isn’t that right?
 
@@ -353,7 +353,7 @@ Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but an
 
 **Katagiri**: Master Chih. Oh oh - Master Chih deserved thirty blows. Oh, right! *[laughter]* Probably, huh? *[he laughs]*
 
-And he doesn’t know that the great illumination shines forth from under his own feet. This is the Engo [Zen Master](glossary#zen-master) really playing with Zen Master Chih. Saying the opposite, completely opposite. He’s really playing. Do you understand? 
+And he doesn’t know that the great illumination shines forth from under his own feet. This is the [Engo Zen Master](glossary#engo-kokugon) really playing with Zen Master Chih. Saying the opposite, completely opposite. He’s really playing. Do you understand? 
 
 **Same person**: When he says he deserves thirty blows for his phrase?
 
@@ -395,7 +395,7 @@ Is that okay?
 
 **Same person**: Is it like a joke?
 
-**Katagiri**: It’s not a joke. It’s not a joke; it’s very true. But, it means that the Engo [Zen Master](glossary#zen-master) indirectly praised Zen Master Chih. Because, you cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu [shouldn't] send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih what the truth, where truth is. So finally, nothing to say. How great his way is, completely beyond human explanation; that’s what he says, very easily. He says he plays [intellectually?], saying that his way is against common way. So, from this point he should deserve thirty blows. But, this is wonderful.
+**Katagiri**: It’s not a joke. It’s not a joke; it’s very true. But, it means that the [Engo Zen Master](glossary#engo-kokugon) indirectly praised Zen Master Chih. Because, you cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu [shouldn't] send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih what the truth, where truth is. So finally, nothing to say. How great his way is, completely beyond human explanation; that’s what he says, very easily. He says he plays [intellectually?], saying that his way is against common way. So, from this point he should deserve thirty blows. But, this is wonderful.
 
 That’s why he says he doesn’t know the great illumination shines from under his own feet. 
 

@@ -141,6 +141,12 @@ The First [Ancestor](glossary#ancestor) of [Chan (Zen) Buddhism](glossary#chan-b
 - [Fukanzazengi – Lecture 3 (1:36:06)](1979-06-11-Fukanzazengi-Lecture3#13606)
 
 ---
+## Book of Equanimity
+Japanese: Shōyōroku
+
+Another collection of koans, similar to [Blue Cliff Record](glossary#blue-cliff-record).
+
+---
 ## Bowing
 
 - [Fukanzazengi – Lecture 1 (8:39)](1979-06-09-Fukanzazengi-Lecture1#839)
@@ -312,6 +318,16 @@ Monastery founded by Eihei Dogen. Considered one of the primary Zen training tem
 See [śūnyatā](glossary#śūnyatā).
 
 ---
+## Engo Kokugon
+Chinese: Yuanwu Keqin (Yuan Wu K’e Ch’in), 圓悟克勤<br>
+Japanese: Engo Kokugon<br>
+1063-1135 CE
+
+Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glossary#blue-cliff-record).
+
+- [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)
+- [Blue Cliff Record Index](BCR#0)
+
 ## Enlightenment
 
 ---
@@ -711,6 +727,16 @@ also Seppō Shinkaku
 ## Sesshin
 
 ---
+## Setchō Jūken
+Chinese: Xuedou Chongxian (Hsueh Tou Ch’ung Hsien), 雪竇重顯<br>
+Japanese: Setchō Jūken<br>
+980-1052 (CE)
+
+Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record), and wrote the verses.
+
+- [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)
+- [Blue Cliff Record Index](BCR#0)
+
 ## Shakyamuni Buddha
 
 ---
