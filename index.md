@@ -3,7 +3,7 @@
 
 - [About This Website](about#0)
 
-## 1979
+### 1979
 
 1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 
@@ -33,17 +33,36 @@
 
 1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 		
-## 1980
+### 1980
 
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
 	
-	<a name="talks-1"></a>[*Talks Not Yet Transcribed - Part 1*](talks-1#0)
+1. Save All Sentient Beings
+1. Blue Cliff Record: Case 3 – Lecture 1
+1. Blue Cliff Record: Case 3 – Lecture 2
+1. Blue Cliff Record: Case 4 – Lecture 2
+1. Blue Cliff Record: Case 4 – Lecture 1
 	
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
 
 1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+	
+1.	Karma: Unmanifested	
+1. Karma: Taking Care of Karma
+1. Karma: Attribution in Present Life	
+1. Karma as Energy/ Emptiness	
+1. Karma: Conclusion	
+1. Diamond Sutra: Chapter 32: Emptiness and Mind	
+1. Blue Cliff Record: Case 5 – Lecture 1
+1. Blue Cliff Record: Case 5 – Lecture 2	
+1. Diamond Sutra: Final Lecture
+1. 07/30/1980	No Title or Description Available	
+1. Blue Cliff Record: Case 7 – Lecture 1	
+1. Blue Cliff Record: Case 7 – Lecture 2
+
+## 1981 - 1989
 	
 	<a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 	
