@@ -94,11 +94,11 @@ So, where is the vehicle? That vehicle means [Buddha](glossary#buddha), Buddha�
 
 So, vehicle is 100 points. You can get [it]. At that time, it’s really perfect. That is called vehicle. 
 
-##### 25:40
+##### 25:35
 
-Zen is sometimes misunderstood by people because we don’t have a particular object which is called divine entity, which is called God, which is called soul, or whatever you say. No object. 
+Zen is sometimes misunderstood by people because we don’t have a particular object which is called a divine entity, which is called God, which is called soul, or whatever you say. No object. 
 
-So, very naturally, in [the] [Buddhistic](glossary#buddhistic ) world, it might be easier for us to lose what is called faith ... [it's] pretty easy, because there is nothing to depend on. 
+So, very naturally, in \[the] [Buddhistic](glossary#buddhistic ) world, it might be easier for us to lose what is called faith ... [it's] pretty easy, because there is nothing to depend on. 
 
 We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. [Buddha](glossary#buddha) or [Avalokiteshvara](glossary#avalokiteshvara), whatever it is: you very naturally want to research what it is. That is [ontology](glossary#ontology), philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
 
@@ -108,19 +108,19 @@ What should you do? Jump into it. Throw yourself into [Buddha](glossary#buddha)�
 
 ##### 28:14
 
-Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental path, *[unintelligible]*. That’s why we have to throw into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
+Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental path for us. That’s why we have to throw [ourselves] into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
 
 I always tell you, [zazen](glossary#zazen) must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
 
-We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into [zazen](glossary#zazen), at that time, [what] is called zazen blooms. That is called [Buddha](glossary#buddha), Buddha’s home. 
+We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into [zazen](glossary#zazen), at that time, [what] is called zazen blooms. That is what is called [Buddha](glossary#buddha), Buddha’s home. 
 
 ##### 29:22
 
 But if you believe [zazen](glossary#zazen) [is] like this, well, you believe zazen is [a] particular practice. So Zen says, zazen is not a particular practice; your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this which is called *shikan*.
 
-At that time, your daily life becomes *vehicle*. What you call the task, is "the task of the fundamental vehicle of transcendence". 
+At that time, your daily life becomes [vehicle](glossary#dharma-vehicle). What you call the task, is "the task of the fundamental vehicle of transcendence". 
 
-Transcendence means completely there is no need of your effort; something comes from [Buddha](glossary#buddha)’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect [zazen](glossary#zazen), [then] perfect zazen takes care of you – even though you don’t want. 
+Transcendence means completely there is no need of your effort; something comes from [Buddha](glossary#buddha)’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect [zazen](glossary#zazen), [then] perfect zazen takes care of you – even though you don’t want [it]. 
 
 ##### 30:34
 

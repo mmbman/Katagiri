@@ -12,9 +12,9 @@ Each talk requires many hours to properly transcribe. That said, there may still
 
 This is an ongoing project. I am currently improving the talks I’ve already transcribed, and working on the glossary and various indices. I hope to get back to posting a new transcript every week, in the near future.
 
-I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful for me. I hope you find something useful or inspiring here as well.
+I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful. I hope you find something useful or inspiring here as well.
 
-\– Kikan Mike Howard
+  – Kikan Mike Howard
 
 For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
