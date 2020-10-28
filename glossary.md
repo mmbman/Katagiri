@@ -225,8 +225,9 @@ An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 ---
 ## Chan
+Also: **Ch'an**
 
-Ch'an or chan: A Chinese word meaning the same as "Zen" in Japanese. Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
+A Chinese word meaning the same as "Zen" in Japanese. Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
 
 ---
 ## Chan Buddhism
@@ -257,9 +258,18 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 ---
 ## Dharma
 
-Truth; the teachings; universal law; phenomena.
+Truth; the teachings; universal law; original nature of existence; phenomena.
 
 ‘Dharma’ is a multi-faceted word with no single equivalent in English, so it is often left untranslated.
+
+- e.g. [Blue Cliff Record: Case 2 – Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
+
+---
+## Dharma Vehicle
+
+Dharma as action, activity.
+
+- [Blue Cliff Record: Case 2 – Lecture 1 (2:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200), [24:16](1980-01-19-BlueCliffRecordCase2Lecture1#2416)
 
 ---
 ## Diamond Sutra
@@ -605,6 +615,13 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 # O
 
 ---
+## Ontology
+
+The branch of philosophy dealing with the nature of being.
+
+- [Wikipedia: ontology](https://en.wikipedia.org/wiki/Ontology)
+
+---
 # P
 
 ---
@@ -880,6 +897,11 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 ## Tathāgatagarbha
 
 - [Wikipedia: Tathāgatagarbha thought](https://en.wikipedia.org/wiki/Eight_Consciousnesses#Tathagata-garbha_thought)
+
+---
+## Three Times
+
+The three times: past, present, and future.
 
 ---
 ## Tibetan Buddhism

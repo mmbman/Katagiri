@@ -304,9 +304,9 @@ And then we say that is, body and mind exist. But I don't think so. But we canno
 
 **Same person**: But anyway, mind exists before these things are happening. 
 
-**Katagiri**: Yes. Original face of the mind is exactly [the] same as being. Just like [the] rock, and toes, and trees, and birds, many things. Same. That's why we call [them] dharmas. Everything is called dharmas. So mind – unwholesome mind or wholesome mind, whatever kind – all dharmas. Completely [the] same. 
+**Katagiri**: Yes. Original face of the mind is exactly [the] same as being. Just like [the] rock, and toes, and trees, and birds, many things. Same. That's why we call \[them] [dharmas](glossary#dharma). Everything is called dharmas. So mind – unwholesome mind or wholesome mind, whatever kind – all dharmas. Completely [the] same. 
 
-**Same person**: Can we speak about mind apart from dharmas? 
+**Same person**: Can we speak about mind apart from [dharmas](glossary#dharma)? 
 
 **Katagiri**: No, we cannot. 
 

@@ -16,7 +16,7 @@ Chapter 7:
 > 
 > (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
 
-In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the dharmas taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
+In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the [dharmas](glossary#dharma) taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
 
 [Buddha](glossary#buddha) asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
@@ -66,7 +66,7 @@ So let's understand, let's think, one by one.
 
 [Doctor Conze](glossary#edward-conze) said: 
 
-> [Subhuti](glossary#subhuti) asks, "All dharmas have therefore really not been fully known by the [Tathāgata](glossary#tathāgata)?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathāgata. For there are not two natures of [dharma](glossary#dharma), but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
+> [Subhuti](glossary#subhuti) asks, "All [dharmas](glossary#dharma) have therefore really not been fully known by the [Tathāgata](glossary#tathāgata)?" The Lord replies, "It is just through their own essential nature that those dharmas are not something definite. Their true nature is a no-nature, and their no-nature is their true nature; for all dharmas have one mark only, that is, no mark. It is for this reason that all dharmas have really not been fully known by the Tathāgata. For there are not two natures of dharma, but just one single is the nature of all dharmas. And the true nature of all dharmas is a no-nature, and their no-nature is their true nature. It is thus that all points of possible attachment are abandoned." 
 
 This is the explanation of first point, the marklessness of all things. That means all things are based on [emptiness](glossary#śūnyatā), exactly emptiness. 
 

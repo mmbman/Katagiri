@@ -420,7 +420,7 @@ I don't know other teachers, so, I just follow the, well, [Buddhistic](glossary#
 
 **Same person**: What does [samadhi](glossary#samadhi) mean?
 
-**Katagiri**:  [Samadhi](glossary#samadhi) is one-pointedness. To take care of. [Dogen Zenji](glossary#dogen) says ... When you get one dharma, you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
+**Katagiri**:  [Samadhi](glossary#samadhi) is one-pointedness. To take care of. [Dogen Zenji](glossary#dogen) says ... When you get one [dharma](glossary#dharma), you penetrate it. When you encounter one practice, you practice it. *[unintelligible]*. That is samadhi. One-pointedness.
 
 ##### 1:13:17
 
