@@ -3,6 +3,8 @@
 
 - [About This Website](about#0)
 
+## 1979
+
 1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 
 1. <a name="fukanzazengi-lecture-1"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
@@ -31,6 +33,8 @@
 
 1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 		
+## 1980
+
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)
