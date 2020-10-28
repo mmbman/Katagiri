@@ -3,6 +3,8 @@
 
 - [About This Website](about#0)
 
+Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [end](#end)
+
 ### 1979
 
 1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
@@ -345,7 +347,7 @@
 1.	Chanting Practive: Chanting Practice	
 1.	Disporting with the Buddhas: Transformation through Play	
 
-#1988-1989
+### 1988-89
 
 1.	Lay Ordination Lecture (2nd Series: 1 of 3): Depending on the Dharma	
 1.	Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance	
@@ -375,7 +377,7 @@
 1.	Devotion: Walking Alone with Open Heart	
 1. Dealing With Death, Dealing With Life
 
-### More
+### Back Matter
 
 - <a name="glossary"></a>[Glossary](glossary#0)
 
@@ -390,4 +392,4 @@
 - <a name="technical"></a>[Technical](technical#0)
 
 <a name="end">
-[Go to top]()
+[Go to top](https://katagiritranscripts.net)
