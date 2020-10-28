@@ -6,7 +6,7 @@
 ---
 I’ve transcribed these talks from audio recordings in the online [Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). The talks are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in the four books that have been compiled from Dainin Katagiri’s teachings. You can read the transcripts on their own, or follow along while listening to the recordings, which are referenced at the top of each talk. 
 
-Katagiri Roshi’s energy, enthusiasm and humor come through even better in the audio than in print; on other other hand, he is a non-native English speaker with a heavy Japanese accent, and the audio is of mediocre quality. Listen to the talks without a transcript, and you’ll probably see what I mean. The transcripts make it much easier to understand what he is saying.
+Katagiri Roshi’s energy, enthusiasm and humor come through even better in the audio than in print. On other other hand, he is a non-native English speaker with a heavy Japanese accent, and the audio is of mediocre quality. Listen to the talks without a transcript, and you’ll probably see what I mean. The transcripts make it much easier to understand what he is saying.
 
 Each talk requires many hours to properly transcribe. That said, there may still be inaccuracies.
 
