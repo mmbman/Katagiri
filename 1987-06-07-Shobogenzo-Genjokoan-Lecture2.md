@@ -305,7 +305,7 @@ And then, at that time, if you do it, that is called [buddha](glossary#buddha) b
 
 There is no need to be self conscious of being [buddhas](glossary#buddha). No. Because, just perpetual flow of energies. You just be there. Just like being present in a jet airplane, I always mention - just be there. 
 
-Nevertheless, it is realizing buddhahood. [Buddhas](glossary#buddha) go on realizing means, that way of practice makes your life mature, naturally. Before you know it, mature. This is called shu-gyō(?)  - practice. He translated it "cultivating practice". Practice is constantly cultivating; there is no "top," no end. Constantly cultivating.
+Nevertheless, it is realizing buddhahood. [Buddhas](glossary#buddha) go on realizing means, that way of practice makes your life mature, naturally. Before you know it, mature. This is called shu-gyō(?) - practice. He translated it "cultivating practice". Practice is constantly cultivating; there is no "top," no end. Constantly cultivating.
 
 ##### 57:50
 

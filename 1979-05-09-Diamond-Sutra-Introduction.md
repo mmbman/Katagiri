@@ -99,7 +99,7 @@ That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhis
 
 ##### 27:05
 
-This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, [the] matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri)  is one of the beings which is always floating in the stream of change. So, nothing to get. We are always chasing after something. But we cannot get it. 
+This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, [the] matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, nothing to get. We are always chasing after something. But we cannot get it. 
 
 So [the] important point is, the existential reality. What is existential reality? If you say [Katagiri](glossary#katagiri), what his existential fact, or reality is. That is a point. But usually you don't believe that; we don't say that, we don't understand in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's very shallow understanding. 
 
@@ -127,7 +127,11 @@ I told you always, in [Zen practice](glossary#zen-practice ): Zen practice is ve
 
 ... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands. You have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don't think that "Oh, I can play guitar." [Buddhism](glossary#buddhism ) says, "No. You cannot play the guitar." – "But I can play the guitar!" – "It's not good enough." *[he chuckles]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
 
-Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, you are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" Simple question: "How come? I am poet. I am writer." Of course you are writer, you are musician. But – *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do [it]. 
+Do you understand? So you say, "I am guitar player", "I am musician." You say it very simply: "I am guitar player." "I am painter." "I am poet." Of course, you are poet. You are guitar player, you are musician, you are painter. I understand. But it's not good *enough*. You are *not* poet. "How come?" Simple question: "How come? I am poet. I am writer." Of course you are writer, you are musician. But – *watch out*, okay? You are not musician; you are not writer. That means, you have to write something with all sentient beings. 
+
+How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called great writer, great painter. 
+
+That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, by poet, by painter, by musician – well, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do [it]. 
 
 And then, at that time, you can say, "I am guitar player, I am musician." Even though you don't think so, people call you; you are guitar player. And then, people don't tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that's pretty good. Sometimes you don't know when I became a writer, or when I am a great musician – you don't know. But it's not necessary. People ask you to play the guitar, to write something. 
 
@@ -139,23 +143,21 @@ This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. T
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
-##### 43:16
-
 And sometimes, vastness is personalized, and it's called [Buddha](glossary#buddha). Because we realize vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
 ##### 43:50
 
-So, who makes yourself confused? ... We ourselves make ourselves confused. That's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is intellectual understanding of human existence. Immediately we analyze existential fact; analyze it. If we analyze existential fact, we are [at?] two contradictory [aspects?]. A is A, but A is not A. [Katagiri](glossary#katagiri)  is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one?], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features?].
+So, who makes yourself confused? ... We ourselves make ourselves confused. That's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is intellectual understanding of human existence. Immediately we analyze existential fact; analyze it. If we analyze existential fact, we are [at?] two contradictory [aspects?]. A is A, but A is not A. [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one?], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features?].
 
 ##### 45:23
 
-This is very important. That's why we have to explain [ourselves?] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. [Katagiri](glossary#katagiri)  is just Katagiri; that's all. That's enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
+This is very important. That's why we have to explain [ourselves?] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. [Katagiri](glossary#katagiri) is just Katagiri; that's all. That's enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
 This is very natural. If you understand in that way, it's not necessary to [have a] complicated system of understanding: "A is A; A is not A; that's why A is A" – it's not necessary to say so. But we have to do so, because consciousness is already complicated. That's why we have to explain. That's it.
 
 ##### 46:38
 
-That is characteristic of human being. Bird, dog, don't think in that way. When they feel hungry, just bite. Just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop. Don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
+That is characteristic of human being. Bird, dog, don't think in that way. When they feel hungry, just bite. Just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop [it]. Don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
 
 *[tape change]*
 
@@ -173,9 +175,9 @@ Obviously we have to think like this. But this is [a] beautiful, beautiful aspec
 
 ##### 49:42
 
-But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything. Nothing to separate from her or him. At that time, this ballerina [is] called great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
+But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything. Nothing to separate from her or him. At that time, this ballerina [is] called [a] great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
 
-That's why [Zen Master](glossary#zen-master)  says, "When you feel hungry, eat. When you feel [sleepy], sleep." But this is [the] third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand [the] Zen [saying], "When you feel hungry, eat. When you feel sleepy, sleep." This is not [the] first stage, first level of understanding; [this] is the very profound, highest level of understanding. 
+That's why a [Zen Master](glossary#zen-master) says, "When you feel hungry, eat. When you feel [sleepy], sleep." But this is [the] third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand [the] Zen [saying], "When you feel hungry, eat. When you feel sleepy, sleep." This is not [the] first stage, first level of understanding; [this] is the very profound, highest level of understanding. 
 
 ##### 51:30
 
