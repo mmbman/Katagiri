@@ -18,7 +18,7 @@ all links 						|	`\[[^\]\n]*\]\([^\)\n]*\)`		|
 all non-link brackets	|	`\[[^\]\n]*\](?!\()`				|
 all brackets					|	`\[(.*?)\](?=\(?)`				|
 all brackets 2				|	`\[[^\]\n]*\]`					|
-(T|t)athagata(s?)			|	`\b(T|t)athagata(s?)\b`	| \1athāgata\2
+`(T|t)athagata(s?)`			|	`\b(T|t)athagata(s?)\b`	| `\1athāgata\2`
 
 [Home](index#technical)
 
