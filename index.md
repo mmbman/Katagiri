@@ -19,9 +19,9 @@
 1. <a name="diamond-sutra-dharma-not-dharma-dharma"></a>[Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 1. <a name="blue-cliff-record-case-1-lecture-1"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
-	
-	### 1980
-	
+
+### 1980
+
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)	
 1. Save All Sentient Beings
@@ -44,7 +44,46 @@
 1. Blue Cliff Record: Case 7 – Lecture 1	
 1. Blue Cliff Record: Case 7 – Lecture 2
 
-### 1981 - 1989
+### 1981
+
+1.	Blue Cliff Record: Case 8 – Lecture 1	
+1.	Blue Cliff Record: Case 8 – Lecture 2	
+1.	Blue Cliff Record: Case 9
+1.	Blue Cliff Record: Case 10
+1.	Blue Cliff Record: Case 11
+1.	Blue Cliff Record: Case 12 – Part 1	
+1.	Blue Cliff Record: Case 12 – Part 2
+1.	Blue Cliff Record: Case 13
+1.	Blue Cliff Record: Case 14
+1.	Blue Cliff Record: Case 15
+1.	Blue Cliff Record: Case 18
+1.	Blue Cliff Record: Case 20 – Lecture 1
+1.	Blue Cliff Record: Case 20 – Lecture 2
+1.	Blue Cliff Record: Case 22
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 3
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 5, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 3
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 2
+1.	Blue Cliff Record: Case 23 – Lecture 1
+1.	Blue Cliff Record: Case 23 – Lecture 3	
+1.	Blue Cliff Record: Case 24
+1.	Blue Cliff Record: Case 25 – Lecture 1
+1.	Blue Cliff Record: Case 25 – Lecture 2	
+1.	Blue Cliff Record: Case 27 – Lecture 1
+1.	Blue Cliff Record: Case 27 – Lecture 2
+
+### 1982 - 1989
 	
 - <a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 	
