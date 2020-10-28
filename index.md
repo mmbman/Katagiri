@@ -3,7 +3,7 @@
 
 - [About This Website](about#0)
 
-### 1979
+#### 1979
 
 1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
 1. <a name="fukanzazengi-lecture-1"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
@@ -20,7 +20,7 @@
 1. <a name="blue-cliff-record-case-1-lecture-1"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 
-### 1980
+#### 1980
 
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)	
@@ -44,7 +44,7 @@
 1. Blue Cliff Record: Case 7 – Lecture 1	
 1. Blue Cliff Record: Case 7 – Lecture 2
 
-### 1981
+#### 1981
 
 1.	Blue Cliff Record: Case 8 – Lecture 1	
 1.	Blue Cliff Record: Case 8 – Lecture 2	
@@ -83,7 +83,7 @@
 1.	Blue Cliff Record: Case 27 – Lecture 1
 1.	Blue Cliff Record: Case 27 – Lecture 2
 
-### 1982 - 1989
+#### 1982 - 1989
 	
 - <a name="talks-2"></a>[*Talks Not Yet Transcribed – Part 2*](talks-2#0)
 	
@@ -93,19 +93,20 @@
 1. <a name="manas"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 
-- <a name="talks-3"></a>[*Talks Not Yet Transcribed – Part 3*](talks-3#0)
+<a name="talks-3"></a>[*Talks Not Yet Transcribed – Part 3*](talks-3#0)
 
-- <a name="glossary"></a>[Glossary](glossary#0)
+<a name="glossary">
+#### </a>[Glossary](glossary#0)
 
-- <a name="dogen"></a>[Dogen Index](dogen#0)
+#### <a name="dogen"></a>[Dogen Index](dogen#0)
 
-- <a name="BCR"></a>[Blue Cliff Record Index](BCR#0)
+#### <a name="BCR"></a>[Blue Cliff Record Index](BCR#0)
 
-- <a name="books"></a>[Books](books#0)
+#### <a name="books"></a>[Books](books#0)
 
-- <a name="resources"></a>[Resources](resources#0)
+#### <a name="resources"></a>[Resources](resources#0)
 
-- <a name="technical"></a>[Technical](technical#0)
+#### <a name="technical"></a>[Technical](technical#0)
 
 <a name="end">
 [Go to top]()
