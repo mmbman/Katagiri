@@ -19,9 +19,16 @@ This is an index of books or other publications referenced in Katagiri Roshi's t
 <a name="BCR"></a>
 ### "The Blue Cliff Record" translated by Thomas Cleary
 
-References to "The Blue Cliff Record" usually refer to Cleary's translation. See [Blue Cliff Record Index](BCR#0).
+Quotes from the Blue Cliff Record in the talks usually refer to Cleary's translation. ([Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)).
 
-[Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)
+- [Blue Cliff Record Index](BCR#0).
+
+---
+<a name="central-conception"></a>
+### "The Central Conception of Buddhism and the Meaning of the Word Dharma" by Theodore Stcherbatsky
+
+- [archive.org link to the text](https://archive.org/stream/in.ernet.dli.2015.189881/2015.189881.The-Central-Conception-Of-Buddhism_djvu.txt)
+- [Google Books link](https://books.google.com/books?id=C4HSakZwijIC&pg=PA18&lpg=PA18&dq=%22This+is+samskara+in+the+Buddhist+system%22&source=bl&ots=5i_tVITDm8&sig=ACfU3U2sXeTWnfGnSqQzvOecj4Vb2F04rQ&hl=en&sa=X&ved=2ahUKEwihipGzq9DrAhUYK80KHQTICW8Q6AEwAXoECAIQAQ#v=onepage&q=%22This%20is%20samskara%20in%20the%20Buddhist%20system%22&f=false))
 
 ---
 [Next: Resources](resources#0)
