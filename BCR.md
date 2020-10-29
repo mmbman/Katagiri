@@ -30,7 +30,7 @@ Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary]
 <a name="case-46"></a>
 ## Case 46: Ching Ch’ing’s Sound of Raindrops
 
-- [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
+- [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
 
 ---
 [Next: Books](books#0)

@@ -2,7 +2,7 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Previous](1979-06-14-Fukanzazengi-Lecture6#0) – 
+[Previous](1979-06-14-Fukanzazengi-Talk-6#0) – 
 [Home](index#fukanzazengi-lecture-7) – 
 [Next](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 

@@ -2,9 +2,9 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5
 ## June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Previous](1979-06-12-Fukanzazengi-Lecture4#0) – 
+[Previous](1979-06-12-Fukanzazengi-Talk-4#0) – 
 [Home](index#fukanzazengi-lecture-5) – 
-[Next](1979-06-14-Fukanzazengi-Lecture6#0)
+[Next](1979-06-14-Fukanzazengi-Talk-6#0)
 
 ---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790613.mp3)
@@ -568,6 +568,6 @@ That is from the first.
 ##### 1:35:31 end of recording
 
 ---
-[Next Talk: Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Lecture6#0)
+[Next Talk: Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6#0)
 
 [Home](index#fukanzazengi-lecture-5)

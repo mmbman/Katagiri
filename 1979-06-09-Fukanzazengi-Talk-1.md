@@ -4,7 +4,7 @@
 
 [Previous](1979-05-09-Diamond-Sutra-Introduction#0) – 
 [Home](index#fukanzazengi-lecture-1) – 
-[Next](1979-06-10-Fukanzazengi-Lecture2#0)
+[Next](1979-06-10-Fukanzazengi-Talk-2#0)
 
 ---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790609.mp3)
@@ -247,6 +247,6 @@ By the [zazen](glossary#zazen), if you believe "I should be happy," or "I want t
 ##### 1:07:20 end of recording
 
 ---
-[Next Talk: Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Lecture2#0)
+[Next Talk: Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2#0)
 
 [Home](index#fukanzazengi-lecture-1)
