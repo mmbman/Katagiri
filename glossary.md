@@ -66,7 +66,7 @@ Also: *patriarch*
 
 An attendant to a teacher. Similar to the ceremonial [jisha](glossary#jisha) position, but closer to a full-time butler and cleaning person.
 
-- [Blue Cliff Record: Case1 – Talk 1](1979-11-17-BlueCliffRecordCase1Lecture1#1036)
+- [Blue Cliff Record: Case1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#1036)
 
 ---
 ## Aprāpti
@@ -224,7 +224,7 @@ A traditional art practiced by Zen priests and monks.
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 - [Fukanzazengi – Talk 2 (27:00)](1979-06-10-Fukanzazengi-Talk-2#2700)
-- [Blue Cliff Record Case 2: Lecture 1 (52:05)](1980-01-19-BlueCliffRecordCase2Lecture1#5205)
+- [Blue Cliff Record Case 2: Lecture 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
 
 ---
 ## Chan
@@ -265,14 +265,14 @@ Truth; the teachings; universal law; original nature of existence; phenomena.
 
 ‘Dharma’ is a multi-faceted word with no single equivalent in English, so it is often left untranslated.
 
-- e.g. [Blue Cliff Record: Case 2 – Talk 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
+- e.g. [Blue Cliff Record: Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
 ---
 ## Dharma Vehicle
 
 Dharma as action, activity.
 
-- [Blue Cliff Record: Case 2 – Talk 1 (2:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200), [24:16](1980-01-19-BlueCliffRecordCase2Lecture1#2416)
+- [Blue Cliff Record: Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
 
 ---
 ## Diamond Sutra
@@ -345,7 +345,7 @@ Japanese: Engo Kokugon<br>
 
 Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glossary#blue-cliff-record).
 
-- [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)
+- [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)
 - [Blue Cliff Record Index](BCR#0)
 
 ---
@@ -394,7 +394,7 @@ See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 
 Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa).
 
-- [Blue Cliff Record: Case 2, Lecture 1 (44:30)](1980-01-19-BlueCliffRecordCase2Lecture1#4430)
+- [Blue Cliff Record: Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
 
 ---
 ## Genjokoan
@@ -490,7 +490,7 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 
 Ceremonial attendant. See also [anja](glossary#anja).
 
-- [Blue Cliff Record: Case1 – Talk 1](1979-11-17-BlueCliffRecordCase1Lecture1#1036)
+- [Blue Cliff Record: Case1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#1036)
 
 ---
 # K
@@ -500,8 +500,8 @@ Ceremonial attendant. See also [anja](glossary#anja).
 ---
 ## Karma
 
-- [Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
-- [Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+- [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
+- [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
 
 - [Fukanzazengi – Talk 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Talk-3#3012)
 
@@ -594,7 +594,7 @@ Nāgārjuna
 ---
 ## Nichiren
 
-- [Blue Cliff Record: Case 2 – Talk 1 (52:05)](1980-01-19-BlueCliffRecordCase2Lecture1#5205)
+- [Blue Cliff Record: Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
 
 - [Wikipedia: Nichiren](https://en.wikipedia.org/wiki/Nichiren)
 
@@ -785,7 +785,7 @@ Japanese: Setchō Jūken<br>
 
 Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record), and wrote the verses.
 
-- [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)
+- [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)
 - [Blue Cliff Record Index](BCR#0)
 
 ---

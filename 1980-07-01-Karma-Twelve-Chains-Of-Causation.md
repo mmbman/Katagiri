@@ -4,7 +4,7 @@
 
 [Previous](unfinished-1980-1#0) – 
 [Home](index#karma-twelve-chains-of-causation) – 
-[Next](1980-07-02-Karma-WhereKarmaOriginates#0)
+[Next](1980-07-02-Karma-Where-Karma-Originates#0)
 
 ---
 [Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
@@ -24,6 +24,6 @@ So what is agreement? Oh yes, it is a form of a circle. This is nothing but the 
 So before time and space is completely normal sense of ignorance. This is birth of the [Buddhas](glossary#buddha). That is the truth, regardless of the [Buddha](glossary#buddha) … in this world, or he describes the forms, or not. Anyway, this is before time and space arises. Okay.
 
 ---
-[Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+[Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
 
 [Home](index#karma-twelve-chains-of-causation)

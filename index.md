@@ -19,13 +19,13 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. <a name="diamond-sutra-emptiness"></a>[Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 1. <a name="diamond-sutra-giving-and-non-covetousness"></a>[Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0)
 1. <a name="diamond-sutra-dharma-not-dharma-dharma"></a>[Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
-1. <a name="blue-cliff-record-case-1-lecture-1"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
-1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
+1. <a name="blue-cliff-record-case-1-lecture-1"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
+1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
 
 ### 1980
 
-1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
-1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-BlueCliffRecordCase2Lecture2#0)	
+1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
+1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)	
 
 1. Save All Sentient Beings
 1. Blue Cliff Record: Case 3 – Talk 1
@@ -33,8 +33,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record: Case 4 – Talk 1
 1. Blue Cliff Record: Case 4 – Talk 2
 
-1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
-1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
+1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
+1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
 
 1.	Karma: Unmanifested	
 1. Karma: Taking Care of Karma

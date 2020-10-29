@@ -2,7 +2,7 @@
 # Karma: Where Karma Originates
 ## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[Previous](1980-07-01-Karma-TwelveChainsOfCausation#0) – 
+[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation#0) – 
 [Home](index#karma-where-karma-originates) – 
 [Next](unfinished-1980-2#0)
 

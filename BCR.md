@@ -8,7 +8,7 @@
 ---
 This is an index to where koans from [The Blue Cliff Record](glossary#blue-cliff-record) appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 
-Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR), which he says is the best translation (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-BlueCliffRecordCase1Lecture1#000)).
+Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR), which he says is the best translation (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
 
 **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
 
@@ -16,15 +16,15 @@ Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary]
 <a name="case-1"></a>
 ## Case 1: The Highest Meaning of the Holy Truths
 
-- [Blue Cliff Record: Case 1 – Talk 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
-- [Blue Cliff Record: Case 1 – Talk 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
+- [Blue Cliff Record: Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
+- [Blue Cliff Record: Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
 
 ---
 <a name="case-2"></a>
 ## Case 2: The Ultimate Path Is Without Difficulty
 
-- [Blue Cliff Record: Case 2 – Talk 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
-- [Blue Cliff Record: Case 2 – Talk 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
+- [Blue Cliff Record: Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
+- [Blue Cliff Record: Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
 
 ---
 <a name="case-46"></a>

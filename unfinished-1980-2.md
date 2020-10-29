@@ -1,7 +1,7 @@
 <a name="0"></a>
 # Not Yet Transcribed: 1980 Part 2
 
-[Previous](1980-07-02-Karma-WhereKarmaOriginates#0) – 
+[Previous](1980-07-02-Karma-Where-Karma-Originates#0) – 
 [Home](index#1980) – 
 [Next](unfinished-1981#0)
 
