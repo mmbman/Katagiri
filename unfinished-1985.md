@@ -33,7 +33,8 @@
 1. 11/15/1985	The Awakening of Faith (11/15/85)	
 1. 11/16/1985	Two Points to Consider: The Great Matter of Birth and Death Saving all Being	
 1. 11/17/1985	Sharing Our Lives: The Practice of Attendance (Using the Selfish Self)
-1. 12/18/1985	Blue Cliff Record: Case 76	
+1. 12/18/1985	Blue Cliff Record: Case 76
+
 ---
 [Next: Not Yet Transcribed: 1986](unfinished-1986#0)
 
