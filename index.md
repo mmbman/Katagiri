@@ -1,9 +1,9 @@
 <a name="0"></a>
 # Table of Contents
 
-- [About This Website](about#0)
-
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988-89) [Back Matter](#end)
+
+- [About This Website](about#0)
 
 ### 1979
 
@@ -397,4 +397,6 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 - <a name="technical"></a>[Technical](technical#0)
 
 <a name="end">
+
+---
 [Go to top](https://katagiritranscripts.net)
