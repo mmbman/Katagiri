@@ -18,13 +18,13 @@ Briefly speaking, I told you yesterday and the day before yesterday: if you do [
 
 ##### 2:33
 
-Particularly according to [dullness](glossary#dullness) and [distraction](glossary#distraction): dullness and distraction here are meant to exemplify all kinds of delusion. But according to [Abhidharmakosha](glossary#abidharmakosha), dullness and distraction are just [two] of the delusions. So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in [Sanskrit](glossary#sanskrit), [styāna](glossary#styāna) *[he spells it out]*, this is dullness. Translation says: torpor; or stiffness, or [obduracy?] *[he tries to pronounce that]*, and [sterility?], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
+Particularly according to [dullness](glossary#dullness) and [distraction](glossary#distraction): dullness and distraction here are meant to exemplify all kinds of [delusion](glossary#delusion). But according to [Abhidharmakosha](glossary#abidharmakosha), dullness and distraction are just [two] of the delusions. So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in [Sanskrit](glossary#sanskrit), [styāna](glossary#styāna) *[he spells it out]*, this is dullness. Translation says: torpor; or stiffness, or [obduracy?] *[he tries to pronounce that]*, and [sterility?], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
 
 This is dullness, and the other one is distraction. They present it as, in [Sanskrit](glossary#sanskrit), [auddhatya](glossary#auddhatya) *[he spells it]* – that means, restlessness. Or, agitation, restlessness of mind, reckless[ness], or frivolity. Et cetera.
 
 ##### 5:18
 
-But in Fukanzazengi, [the] dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
+But in Fukanzazengi, [the] dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of [delusions](glossary#delusion). So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
 
 ##### 6:00
 
@@ -182,29 +182,29 @@ So, nothing he likes here. I point out, "How about this?" or "How about that?" H
 
 ... That's why ... making arrangement of the environment, and also sensory world, and also brain system, and movement system, and also internal organs, all things arranged perfectly: at that time, immediately, he can feel calm. The moment he feels calm, that means dullness and distraction drop off, from the first. Don't you think so? Yes, it is.
 
-Not only dullness and distraction; all delusions drop off. "Drop off" doesn't mean destroy. Just drop off; there's no chance to poke their head into someplace. Just, keep quiet. 
+Not only dullness and distraction; all [delusions](glossary#delusion) drop off. "Drop off" doesn't mean destroy. Just drop off; there's no chance to poke their head into someplace. Just, keep quiet. 
 
 So, for instance, as long as he is standing here, feeling quiet, no one can hit him. I don't want to hit him. Even though an FBI person came, I told him, "Just wait a minute. I can tell him." Even the FBI cannot hit him, because he feels calm. Even though he gets angry with me, I just sit down here and gassho; can you hit me? Or, I smile to you; while I am smiling to you, [can you] hit me? No. So finally, you smile too. That means anger drops off. Anger drops off while you are smiling.
 
 ##### 59:40
 
-So, little boys in [Green Gulch](glossary#green-gulch) – during the mealtime, we shouldn't say anything, so everybody [is] quiet. Kids' delusions drop off very naturally, so the moment when they came into the Green Gulch dining room, all delusions drop off, so they keep quiet. That's interesting.
+So, little boys in [Green Gulch](glossary#green-gulch) – during the mealtime, we shouldn't say anything, so everybody [is] quiet. Kids' [delusions](glossary#delusion) drop off very naturally, so the moment when they came into the Green Gulch dining room, all delusions drop off, so they keep quiet. That's interesting.
 
 And then, during the meal, the [Ino](glossary#ino) hit the one clapper *[clap]*; that means the sign of ... giving the permission to talk. So the Ino hit the clapper once, [and] immediately a little boy [said], "Hi!" *[he laughs]* Immediately he said to me, "Hi!" So I said, "Hi!" *[laughter]* This is very interesting.
 
 ##### 1:00:46
 
-Anyway, we don't know how much delusions drop off. No, we don't realize, we don't perceive, how much [they drop away?]. Because, the dropping off is possible only when you fit right now, right here, calmly. At that time, no delusions come up. So, immediately you are right in the middle of total personality. You can manifest yourself just like a waterspout, blooming. But you don't perceive. And also, we don't know how much, what it is; we don't realize. Because [it's] too quick, simultaneous. 
+Anyway, we don't know how much [delusions](glossary#delusion) drop off. No, we don't realize, we don't perceive, how much [they drop away?]. Because, the dropping off is possible only when you fit right now, right here, calmly. At that time, no delusions come up. So, immediately you are right in the middle of total personality. You can manifest yourself just like a waterspout, blooming. But you don't perceive. And also, we don't know how much, what it is; we don't realize. Because [it's] too quick, simultaneous. 
 
 That is ... [to] sew a good seed. Good time and occasion, and good conditions – we can create [them], right now, right here.
 
-That's why shikantaza is not a means to an end, leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine. Well this is very nice; this is a kind of [zazen](glossary#zazen), so, you can do this. But, what you are struggling for is nothing but a distraction. Don't you think so? This is really true. Distraction. Why don't you [deal with it?] This is still a delusion.
+That's why shikantaza is not a means to an end, leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine. Well this is very nice; this is a kind of [zazen](glossary#zazen), so, you can do this. But, what you are struggling for is nothing but a distraction. Don't you think so? This is really true. Distraction. Why don't you [deal with it?] This is still a [delusion](glossary#delusion).
 
 ##### 1:02:50
 
 Now on the other hand, I told you, you can completely clean your whole life, [so] weeds no longer grow. But, after reaching that stage, you don't know what to do, so all you have to do is just wait for death. That's why the Japanese actor committed suicide. It's not necessary to commit suicide, but he did it. Why? 
 
-Because, whatever it is, all things are completely delusions, created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say "good," you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, evil and good, immediately evil comes up, and then immediately you try to move to the other place. So always going this way, that way, going that way. That's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
+Because, whatever it is, all things are completely [delusions](glossary#delusion), created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say "good," you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, evil and good, immediately evil comes up, and then immediately you try to move to the other place. So always going this way, that way, going that way. That's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
 
 ##### 1:04:30
 
@@ -214,7 +214,7 @@ If you want to stop it, we have to sew a good seed, right now, right here. That 
 
 That's why [Dogen Zenji](glossary#dogen) says, Universal Recommendation for Zazen – *Universal* Recommendation. It's really universal, not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
-But, if you do it by yourself, it's pretty hard. Because, making arrangement is done by your sense. That's all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means sensory world, movement system, internal organs, and also brain and nervous system. We have to arrange [them] according to a certain way. And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality, [Buddha Nature](glossary#buddha-nature). At that time, very naturally, all delusions drop off, just like a lotus flower blooms through mud water.
+But, if you do it by yourself, it's pretty hard. Because, making arrangement is done by your sense. That's all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means sensory world, movement system, internal organs, and also brain and nervous system. We have to arrange [them] according to a certain way. And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality, [Buddha Nature](glossary#buddha-nature). At that time, very naturally, all [delusions](glossary#delusion) drop off, just like a lotus flower blooms through mud water.
 
 ##### 1:07:26
 
@@ -228,7 +228,7 @@ And then, this way is exactly [to] cut off [karma](glossary#karma), [the] stream
 
 So all you have to do is – you cannot ignore all circumstances, environment, outwardly, inwardly – so, take care, with your best, [of] everything. And then, stop it there. Just like a [statue]; he doesn't feel anything, peaceful from anything. Even a [Buddha](glossary#buddha) statue. But he seems [pure]. He feels calm.
 
-That is very important. At that time, completely all delusions drop off. 
+That is very important. At that time, completely all [delusions](glossary#delusion) drop off. 
 
 ##### 1:09:49
 
@@ -376,7 +376,7 @@ So in the modern civilization, we can have a better life. The better life we aim
 
 **Same person**: There is no struggle?
 
-**Katagiri**: No struggle. Perfectly no struggle. No [suffering](glossary#suffering), no delusions. Perfect. 
+**Katagiri**: No struggle. Perfectly no struggle. No [suffering](glossary#suffering), no [delusions](glossary#delusion). Perfect. 
 
 **Same person**: So if this goal becomes a particular step?
 
@@ -456,7 +456,7 @@ We cannot *[unintelligible]* freedom. So whatever you say – "Oh, help, Katagir
 
 Well you know, sometimes I take a *[unintelligible]* back seat of an airplane when I take a trip, and my son says, "Dad, you should have insurance." And I said, "No. I don't want the insurance. Because, how can I take money with me? Insurance for whom? For you? No." *[laughter]* I don't like it. If I'm going to die, I want to take the insurance with me. *[laughter]* *[unintelligible]* Well, I pay the money for the life insurance, I really appreciate it. But I don't appreciate it. I cannot take the $200,000 with me. So I have to believe that amount of money is for *whom*? *[unintelligible]*
 
-Such delusions come up, always. This is really flickering. But whatever you say, take the insurance or not take the insurance, death comes.
+Such [delusions](glossary#delusion) come up, always. This is really flickering. But whatever you say, take the insurance or not take the insurance, death comes.
 
 ##### 1:51:05 end of recording
 

@@ -246,6 +246,9 @@ Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word 
 Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagiri).
 
 ---
+## Delusion
+
+---
 ## Demon
 
 ---
@@ -491,6 +494,19 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
 Ceremonial attendant. See also [anja](glossary#anja).
 
 - [Blue Cliff Record: Case1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#1036)
+
+---
+## Jōshū Jūshin
+
+Chinese: Zhàozhōu Cōngshěn (Chao-chou Ts'ung-shen), 趙州從諗,<br>
+Japanese: Jōshū Jūshin,<br>
+778–897 CE.
+
+One of the greatest Zen teachers in China. It is said that he became a monk at 60 years old, and until his death, he practiced continuously. Jōshū figures in many Zen stories, and is often mentioned by [Dogen](glossary#dogen).
+
+- [Blue Cliff Record: Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
+
+- [Wikipedia: Zhaozhou Congshen](https://en.wikipedia.org/wiki/Zhaozhou_Congshen)
 
 ---
 # K

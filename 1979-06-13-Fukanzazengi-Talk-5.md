@@ -31,7 +31,7 @@ So, what is a scream? [The] scream is right after he struck [his toe] – a litt
 
 ##### 7:56
 
-He said, "From where [does the] pain come?" The striking his toes ... there is no pain [there], because striking the toes is exactly dynamic working. Becoming one with the rock, becoming one with his toes, and ears, and [the] road, and his consciousness, and the whole body; and he stumbled over, that's all. So, all delusions completely drop off. Nothing.
+He said, "From where [does the] pain come?" The striking his toes ... there is no pain [there], because striking the toes is exactly dynamic working. Becoming one with the rock, becoming one with his toes, and ears, and [the] road, and his consciousness, and the whole body; and he stumbled over, that's all. So, all [delusions](glossary#delusion) completely drop off. Nothing.
 
 After that, [a] little moment, immediately you can hear the sound of raindrops, and then that is "ouch." That is really "ouch." But that is nothing but, I told you yesterday, one drop of rain – a drop of dew, after squeezing sixty [instants]. Squeezing the rocks, and his body and nails, and his consciousness; squeezing [all that] simultaneously, and then you can get one drop of dew. That is [the] result. And then, you say, scream.
 
@@ -43,7 +43,7 @@ This looks like watching a slow-motion movie. But, when you experience [it], hum
 
 ##### 12:04
 
-That's why this is [shikantaza](glossary#shikantaza). [Shikantaza](shikantaza), which is called, all delusions – which is [distraction](glossary#distraction) and also [dullness](glossary#dullness), all delusions – drop off. If you do [zazen](glossary#zazen) like this, that is [shikantaza](shikantaza). But you don't do [this], you don't believe [this], because you always see your life just like watching a slow motion movie. So right before zazen, you look at your life, you sketch your picture of your life. Again and again you sketch, you draw a picture, and then you say, "I want to do that," find that other result. So you come here, you sit down. 
+That's why this is [shikantaza](glossary#shikantaza). [Shikantaza](shikantaza), which is called, all [delusions](glossary#delusion) – which is [distraction](glossary#distraction) and also [dullness](glossary#dullness), all delusions – drop off. If you do [zazen](glossary#zazen) like this, that is [shikantaza](shikantaza). But you don't do [this], you don't believe [this], because you always see your life just like watching a slow motion movie. So right before zazen, you look at your life, you sketch your picture of your life. Again and again you sketch, you draw a picture, and then you say, "I want to do that," find that other result. So you come here, you sit down. 
 
 So before you do [zazen](glossary#zazen), you saw a picture of your life. When you sit zazen – you miss something. You don't pay attention to zazen itself. You always focus on *after*; after doing zazen. *After zazen* is what's happened – do you know that? But at the moment of doing zazen, there are lots of pictures. 
 
@@ -71,7 +71,7 @@ Whatever you can see, that is exactly your life. And also, [the] problem is, som
 
 And then, you [are] analyzing and synthesizing. If you feel good: "That's good; that is my life." If you don't feel good: "That is not my life." So, you're confused. So analyzing [is] two sided, always. But if you do [zazen](glossary#zazen) like this, that zazen is nothing but psychology and philosophy, science. I don't think [that kind of] zazen is religious zazen, I don't think [that kind of] zazen is [the] zazen which allows you to be free from psychology, philosophy, any kind of science, and human [suffering](glossary#suffering). 
 
-Anyway, [shikantaza](shikantaza) is the [zazen](glossary#zazen) which allows you to be free from any kind of feeling you can see. You shouldn't attach to it. All you need to do is, *see* that. If you see that, there is no reason why you have to be tied up with your feelings. You can see [this] during zazen. From beginning to end, what you have to do is, in [shikantaza](shikantaza) – all delusions, [dullness](glossary#dullness), [distraction](glossary#distraction), any kind of feeling – drop off. That is zazen, which you have to do. We *have* to do. 
+Anyway, [shikantaza](shikantaza) is the [zazen](glossary#zazen) which allows you to be free from any kind of feeling you can see. You shouldn't attach to it. All you need to do is, *see* that. If you see that, there is no reason why you have to be tied up with your feelings. You can see [this] during zazen. From beginning to end, what you have to do is, in [shikantaza](shikantaza) – all [delusions](glossary#delusion), [dullness](glossary#dullness), [distraction](glossary#distraction), any kind of feeling – drop off. That is zazen, which you have to do. We *have* to do. 
 
 ##### 19:58
 
@@ -101,7 +101,7 @@ That's why ... if [Seppō](glossary#seppō-gison) asked him, "Who are you? What 
 
 And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: "There is no one who doesn't harbor those words; yet no one could utter them but Pei." He continued, "Mendicant Pei, why aren't you going on a pilgrimage?" Because he tried to leave for other temples, to see other Zen teachers and complete his practice. So Seppō [asks], "Why don't you go there? Why aren't you going on pilgrimage?" [Gensha](glossary#gensha-shibi) said, "[Bodhidharma](glossary#bodhidharma) didn't come to the East. The Second Patriarch didn't go to the West." Well that means, we shouldn't go to before [zazen](glossary#zazen), we shouldn't go to after zazen. So, Bodhidharma didn't go east, west. But according to common sense, in history, Bodhidharma went to China to teach [Buddhism](glossary#buddhism). This is common sense. But Buddhism doesn't deal with [the] subject in that way. Buddhism always makes a question: "Why did Bodhidharma come to China to teach?" [A] Zen teacher doesn't answer this question according to common sense. Some [Zen Master](glossary#zen-master) says, "He didn't come." He didn't come to China. He didn't teach anything in China. Just sitting. 
 
-So completely [the] answer is, all of the questions. Because [Buddhism](glossary#buddhism) is focused on [zazen](glossary#zazen) itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
+So completely [the] answer is, all of the questions. Because [Buddhism](glossary#buddhism) is focused on [zazen](glossary#zazen) itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly [the] intrinsic value of pure human activities, [where] all [delusions](glossary#delusion) drop off. Nothing. No pain. 
 
 ##### 29:06
 
@@ -115,7 +115,7 @@ Of course, we are in the [dualistic](glossary#dualistic) world. That's why we wa
 
 Look at the other meditations. People use meditation for the sake of such-and-such. Always there is something. That means, we look at the life before meditation, and look at the life after meditation. We expect [something], always. And then, you forget [a] very important point: that is, [zazen](glossary#zazen) itself. You forget it! Well, you experience [it]; but you don't know. 
 
-But we should know that. We should know that. We should realize [it], we should awaken to [it], and then we must be there. From moment to moment, all we have to do is just be there. Regardless of whether you can get the benefit or not: just be right in the midst of freedom. This is freedom, because all delusions drop off. No confusions, no delusions. That is real [zazen](glossary#zazen).
+But we should know that. We should know that. We should realize [it], we should awaken to [it], and then we must be there. From moment to moment, all we have to do is just be there. Regardless of whether you can get the benefit or not: just be right in the midst of freedom. This is freedom, because all [delusions](glossary#delusion) drop off. No confusions, no delusions. That is real [zazen](glossary#zazen).
 
 But we don't understand. That's why we say, "Let's accumulate merit and virtue." Merit and virtue is something completely beyond human evaluation, good or bad, right, wrong. What is merit? What is value? Real intrinsic value of human purity.
 
@@ -187,7 +187,7 @@ Is that okay? No? *[he laughs]*
 
 **Same person**: Mmm hmm.
 
-**Katagiri**: And then [when you] write down the ideas ... then you already attach to this; "I got it." This is another delusion. We do [this], always.
+**Katagiri**: And then [when you] write down the ideas ... then you already attach to this; "I got it." This is another [delusion](glossary#delusion). We do [this], always.
 
 **Same person**: So what if that comes up, and I become aware... *[unintelligible]*
 
@@ -287,7 +287,7 @@ The pain. During the [zazen](glossary#zazen), you can feel pain physically. And 
 
 **Same person**: In the real [zazen](glossary#zazen), there isn't any pain.
 
-**Katagiri**: No pain. *[he laughs]* I'm sorry. No pain, no delusions. This is real [zazen](glossary#zazen).
+**Katagiri**: No pain. *[he laughs]* I'm sorry. No pain, no [delusions](glossary#delusion). This is real [zazen](glossary#zazen).
 
 That's why [Dogen Zenji](glossary#dogen) says, "From the first, [dullness](glossary#dullness) [and] [distractions](glossary#distraction) are struck aside." That means, drop off, from the first. Sort of [like] striking [Gensha](glossary#gensha-shibi)'s toes on the rock. Can you imagine? Is that clear? You should understand *this*. 
 

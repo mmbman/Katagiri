@@ -26,7 +26,7 @@ So that was really [the] highest level of practice in those days, [a] practice [
 
 [Dogen](glossary#dogen) commented on *[thunder]* this story with deepest respect, in the collection of Dogen's short preachings. Dogen Zenji says:
 
-> The [Buddha](glossary#buddha) enters [samadhi](glossary#samadhi) with consciousness, and the thirty-four ways to sever delusions manifest themselves within it. The Buddha uses this from morning to night, and illuminates the quest of his body in the [zendo](glossary#zendo).
+> The [Buddha](glossary#buddha) enters [samadhi](glossary#samadhi) with consciousness, and the thirty-four ways to sever [delusions](glossary#delusion) manifest themselves within it. The Buddha uses this from morning to night, and illuminates the quest of his body in the [zendo](glossary#zendo).
 > 
 > (From [Eihei Koroku](dogen#eihei-koroku) – [Dharma Hall Discourse #372](dogen#ek-372))
 
@@ -34,7 +34,7 @@ So that was really [the] highest level of practice in those days, [a] practice [
 
 ##### 8:02
 
-"The thirty-four ways to sever delusions manifested themselves within it." In those days, there were 34 techniques [or ways] to sever the delusions and ... attain [enlightenment](glossary#enlightenment), enter [nirvana](glossary#nirvana). But if the [Buddha](glossary#buddha) did [zazen](glossary#zazen) with consciousness, at that time within it, the 34 ways to sever delusion and enter nirvana manifest themselves. That is [Dogen](glossary#dogen)'s understanding. That's why [the] layman also said, "How excellent it is." *[thunder]* 
+"The thirty-four ways to sever [delusions](glossary#delusion) manifested themselves within it." In those days, there were 34 techniques [or ways] to sever the delusions and ... attain [enlightenment](glossary#enlightenment), enter [nirvana](glossary#nirvana). But if the [Buddha](glossary#buddha) did [zazen](glossary#zazen) with consciousness, at that time within it, the 34 ways to sever delusion and enter nirvana manifest themselves. That is [Dogen](glossary#dogen)'s understanding. That's why [the] layman also said, "How excellent it is." *[thunder]* 
 
 ##### 9:14
 
@@ -52,7 +52,7 @@ Also, [Dogen Zenji](glossary#dogen) said, in [Bendowa](dogen#bendowa):
 
 So in this case, the same applied to this. "Within the stillness of  [samadhi](glossary#samadhi)" – within [zazen](glossary#zazen) itself – "the mind and its objects" – the mind and also zazen. Mind and zazen both, goes in, goes out – [enlightenment](glossary#enlightenment), and realization. 
 
-Well, I told you so far, if you do really real [zazen](glossary#zazen) – not before zazen, not after zazen – regardless of whether you are conscious of it or not, you are right there, you are right in the middle of zazen. No delusions, no confusions. But consciousness is very picky. So immediately, you can pick up before zazen, after zazen. But if you stop the functioning of your mind, you can be there constantly. But always, consciously, our mind is picky. Even though you are right in the middle of zazen, you say, "Ah – I attain [enlightenment](glossary#enlightenment)." And then immediately, you sleep. *[someone chuckles]* And then you wake up; the moment when you wake up, you say, "Oh – I attain enlightenment." *[he laughs]* I don't think so. You sleep pretty well, in zazen. *[laughter]* And then, something happens and you wake up. *[thunder]* At that time, you don't realize whether you were sleeping or you were entering [samadhi](glossary#samadhi). You don't. So that's why sometimes you misunderstand: "Oh, I attained enlightenment." But it's not actually. *[laughter]* 
+Well, I told you so far, if you do really real [zazen](glossary#zazen) – not before zazen, not after zazen – regardless of whether you are conscious of it or not, you are right there, you are right in the middle of zazen. No [delusions](glossary#delusion), no confusions. But consciousness is very picky. So immediately, you can pick up before zazen, after zazen. But if you stop the functioning of your mind, you can be there constantly. But always, consciously, our mind is picky. Even though you are right in the middle of zazen, you say, "Ah – I attain [enlightenment](glossary#enlightenment)." And then immediately, you sleep. *[someone chuckles]* And then you wake up; the moment when you wake up, you say, "Oh – I attain enlightenment." *[he laughs]* I don't think so. You sleep pretty well, in zazen. *[laughter]* And then, something happens and you wake up. *[thunder]* At that time, you don't realize whether you were sleeping or you were entering [samadhi](glossary#samadhi). You don't. So that's why sometimes you misunderstand: "Oh, I attained enlightenment." But it's not actually. *[laughter]* 
 
 ##### 14:31
 
@@ -114,7 +114,7 @@ So, very naturally, [zazen](glossary#zazen) blooms. And also you bloom, as total
 
 Yesterday I told you, between the two objects there is a kind of force, that is just a condition; condition or fact. That condition, conditioned element, [is] a kind of force to unify two objects perfectly. That conditioned element is a kind of force which melds each object, used perfectly, in order to fit another object. That is conditioned element. Even if you don't like and you try to escape a certain situation, or if you do something at random, immediately [there is] some problem there, but basically, there are two objects completely unified, basically. By what? Conditioned elements. But this conditioned element, we don't know what it is – because this is just dynamic working, that's all. We don't know how two objects are fit together. But anyway, conditioned elements can use one subject exactly perfectly in order to fit its own object. At that time, something happens. Striking the toe, and blood comes. 
 
-Then immediately mind picks, and says, "Oh, toes. And rocks. And also blood." And finally you say, "Ouch." But that is just seeing the pictures, before and after. Right in the middle, between before and after: nothing. No pains, no delusions, no confusion. Just the rock, just the toes, just the breath. All of them exist perfectly, in peace.
+Then immediately mind picks, and says, "Oh, toes. And rocks. And also blood." And finally you say, "Ouch." But that is just seeing the pictures, before and after. Right in the middle, between before and after: nothing. No pains, no [delusions](glossary#delusion), no confusion. Just the rock, just the toes, just the breath. All of them exist perfectly, in peace.
 
 ##### 37:52
 

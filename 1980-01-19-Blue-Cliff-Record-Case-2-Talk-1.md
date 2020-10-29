@@ -14,15 +14,15 @@
 
 At this time, I would like to study with you the second case of The [Blue Cliff Record](glossary#blue-cliff-record), “The Ultimate Path is Without Difficulty”. Let me read first the main case:
 
-> Chao Chou, teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
+> [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
 > At that time a certain monk asked, “Since you do not abide within clarity, what do you preserve?”
 >
-> Chao Chou replied, “I don’t know either.”
+> [Jōshū](glossary#jōshū-jūshin) replied, “I don’t know either.”
 >
 > The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
 >
-> Chao Chou said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
+> [Jōshū](glossary#jōshū-jūshin) said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
 > 
 > (From ["The Blue Cliff Record"](books#BCR) translated by Thomas Cleary)
 
@@ -108,7 +108,7 @@ What should you do? Jump into it. Throw yourself into [Buddha](glossary#buddha)�
 
 ##### 28:14
 
-Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental path for us. That’s why we have to throw [ourselves] into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. 
+Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental path for us. That’s why we have to throw [ourselves] into zazen itself. If you always create some [delusion](glossary#delusion) or fascination within your mind, it is not perfect zazen. 
 
 I always tell you, [zazen](glossary#zazen) must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
 

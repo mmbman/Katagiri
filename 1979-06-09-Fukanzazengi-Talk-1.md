@@ -162,11 +162,11 @@ If your mind really attaches to good or bad or neutral, immediately here is a th
 
 ##### 48:16
 
-And [in] your life you are really disappointed. That is what is called delusion, what is called [dullness](glossary#dullness). Dullness is sort of, completely sinking into the bottom of the ocean. That is dullness. 
+And [in] your life you are really disappointed. That is what is called [delusion](glossary#delusion), what is called [dullness](glossary#dullness). Dullness is sort of, completely sinking into the bottom of the ocean. That is dullness. 
 
 On the other hand, [distraction](glossary#distraction). [Dogen Zenji](glossary#dogen) says, distraction is [that] your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and all over. That is distraction. 
 
-On the other hand, [dullness](glossary#dullness) is completely [like] you are sinking into the bottom of the ocean. And finally, you don't know what to do. Whatever kind of delusion, [either] dullness or [distraction](glossary#distraction) – both distract. Your activities distract [*unintelligible*]. Settling yourself in the self is very difficult.
+On the other hand, [dullness](glossary#dullness) is completely [like] you are sinking into the bottom of the ocean. And finally, you don't know what to do. Whatever kind of [delusion](glossary#delusion), [either] dullness or [distraction](glossary#distraction) – both distract. Your activities distract [*unintelligible*]. Settling yourself in the self is very difficult.
 
 ##### 49:49
 
