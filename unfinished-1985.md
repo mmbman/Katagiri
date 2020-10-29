@@ -10,14 +10,14 @@
 1. 01/12/1985	True Heart is not Infactuation	
 1. 04/17/1985	The Simple Practice	
 1. 05/08/1985	Blue Cliff Record: Case 67
-1. 06/19/1985	Blue Cliff Record: Case 68 – Lecture 1
+1. 06/19/1985	Blue Cliff Record: Case 68 – Talk 1
 1. 06/22/1985	Introduction to Buddhism	
-1. 06/26/1985	Blue Cliff Record: Case 68 – Lecture 2
-1. 07/03/1985	Blue Cliff Record: Case 69 – Lecture 1
+1. 06/26/1985	Blue Cliff Record: Case 68 – Talk 2
+1. 07/03/1985	Blue Cliff Record: Case 69 – Talk 1
 1. 07/13/1985	Buddha Dharma: Big Sky Does not Bother with the Function of a Small Cloud	
 1. 07/17/1985	From Blue Cliff Record: Case 69, Note 2: Symmetry and Unsymmetry	
-1. 07/24/1985	Blue Cliff Record: Case 69 – Lecture 2
-1. 07/31/1985	Blue Cliff Record: Case 70 – Lecture 1
+1. 07/24/1985	Blue Cliff Record: Case 69 – Talk 2
+1. 07/31/1985	Blue Cliff Record: Case 70 – Talk 1
 1. 08/03/1985	Zazen and Creating Space	
 1. 08/07/1985	Truth, Phenomenology, Noumenology	
 1. 08/10/1985	Creating Space Between	

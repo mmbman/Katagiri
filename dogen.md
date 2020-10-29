@@ -15,15 +15,15 @@ This is an index to where references to [Dogen](glossary#dogen)’s works appear
 
 Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing [zazen](glossary#zazen) in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
-- [Fukanzazengi – Lecture 1](1979-06-09-Fukanzazengi-Lecture1#0)
-- [Fukanzazengi – Lecture 2](1979-06-10-Fukanzazengi-Lecture2#0)
-- [Fukanzazengi – Lecture 3](1979-06-11-Fukanzazengi-Lecture3#0)
-- [Fukanzazengi – Lecture 4](1979-06-12-Fukanzazengi-Lecture4#0)
-- [Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
-- [Fukanzazengi – Lecture 6](1979-06-14-Fukanzazengi-Lecture6#0)
-- [Fukanzazengi – Lecture 7](1979-06-15-Fukanzazengi-Lecture7#0)
+- [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Lecture1#0)
+- [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Lecture2#0)
+- [Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Lecture3#0)
+- [Fukanzazengi – Talk 4](1979-06-12-Fukanzazengi-Lecture4#0)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Lecture5#0)
+- [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Lecture6#0)
+- [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Lecture7#0)
 
-- [Blue Cliff Record: Case 2 – Lecture 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
+- [Blue Cliff Record: Case 2 – Talk 1 (02:00)](1980-01-19-BlueCliffRecordCase2Lecture1#0200)
 
 ---
 # Shobogenzo
@@ -37,43 +37,43 @@ Fascicles from Shobogenzo referenced in Katagiri’s talks are listed below.
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
-- [Shobogenzo: Genjokoan – Lecture 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
-- [Shobogenzo: Genjokoan – Lecture 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
-- [Shobogenzo: Genjokoan – Lecture 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
+- [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
+- [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
+- [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Lecture2#0)
 
-- [Fukanzazengi – Lecture 2 (1:20:50)](1979-06-10-Fukanzazengi-Lecture2#12050)
-- [Fukanzazengi – Lecture 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6#2701)
+- [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Lecture2#12050)
+- [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Lecture6#2701)
 
 ---
 ## Bendowa
 
-- [Fukanzazengi – Lecture 7 (9:14)](1979-06-15-Fukanzazengi-Lecture7#914)
+- [Fukanzazengi – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Lecture7#914)
 
 ---
 ## Prajnaparamita
 
-- [Fukanzazengi – Lecture 6 (1:16:36)](1979-06-14-Fukanzazengi-Lecture6#11636)
+- [Fukanzazengi – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Lecture6#11636)
 
 ---
 ## One Bright Pearl
 
 Japanese: Ikka myōju – 顆明珠
 
-- [Fukanzazengi – Lecture 5](1979-06-13-Fukanzazengi-Lecture5#0)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Lecture5#0)
 
 ---
 ## Life and Death
 
 Japanese: Shōji
 
-- [Blue Cliff Record: Case 2 – Lecture 1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
+- [Blue Cliff Record: Case 2 – Talk 1 (7:30)](1980-01-19-BlueCliffRecordCase2Lecture1#730)
 
 ---
 ## Zazengi
 
 This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 
-[Fukanzazengi – Lecture 1 (36:23)](1979-06-09-Fukanzazengi-Lecture1#3623)
+[Fukanzazengi – Talk 1 (36:23)](1979-06-09-Fukanzazengi-Lecture1#3623)
 
 - [antaiji.org: Zazengi text](https://antaiji.org/en/classics/zazengi/)
 - [terebess.hu: "The Heart of Dogen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf) 
@@ -91,7 +91,7 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 <a name="ek-372"></a>
 ## Dharma Discourse 372: “Undisturbed by Thunderclaps”
 
-- [Fukanzazengi – Lecture 7 (6:15-)](1979-06-15-Fukanzazengi-Lecture7#615)
+- [Fukanzazengi – Talk 7 (6:15-)](1979-06-15-Fukanzazengi-Lecture7#615)
 
 ---
 [Next: Blue Cliff Record Index](BCR#0)

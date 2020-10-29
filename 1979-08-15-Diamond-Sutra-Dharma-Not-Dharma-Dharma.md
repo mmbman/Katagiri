@@ -217,6 +217,6 @@ So you must be free from [the] [enlightenment](glossary#enlightenment) that you 
 ##### 58:56 end of recording
 
 ---
-[Next Talk: Blue Cliff Record: Case 1 – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
+[Next Talk: Blue Cliff Record: Case 1 – Talk 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma)

@@ -16,21 +16,21 @@ Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary]
 <a name="case-1"></a>
 ## Case 1: The Highest Meaning of the Holy Truths
 
-- [Blue Cliff Record: Case 1 – Lecture 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
-- [Blue Cliff Record: Case 1 – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
+- [Blue Cliff Record: Case 1 – Talk 1](1979-11-17-BlueCliffRecordCase1Lecture1#0)
+- [Blue Cliff Record: Case 1 – Talk 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 
 ---
 <a name="case-2"></a>
 ## Case 2: The Ultimate Path Is Without Difficulty
 
-- [Blue Cliff Record: Case 2 – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
-- [Blue Cliff Record: Case 2 – Lecture 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
+- [Blue Cliff Record: Case 2 – Talk 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
+- [Blue Cliff Record: Case 2 – Talk 2](1979-11-18-BlueCliffRecordCase1Lecture2#0)
 
 ---
 <a name="case-46"></a>
 ## Case 46: Ching Ch’ing’s Sound of Raindrops
 
-- [Fukanzazengi – Lecture 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
+- [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Lecture4#1514)
 
 ---
 [Next: Books](books#0)

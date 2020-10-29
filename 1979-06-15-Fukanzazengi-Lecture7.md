@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Fukanzazengi: Dogen's Universal Recommendation for Zazen – Lecture 7
+# Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Previous](1979-06-14-Fukanzazengi-Lecture6#0) – 

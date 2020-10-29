@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Shobogenzo: Genjokoan – Lecture 2
+# Shobogenzo: Genjokoan – Talk 2
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0) – 

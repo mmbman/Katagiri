@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Lecture 2
+# Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 2
 ## January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Previous](1980-01-19-BlueCliffRecordCase2Lecture1#0) – 

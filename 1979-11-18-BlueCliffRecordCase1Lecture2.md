@@ -1,5 +1,5 @@
 <a name="0"></a>
-# Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Lecture 2
+# Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 2
 ## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [Previous](1979-11-17-BlueCliffRecordCase1Lecture1#0) – 
@@ -406,6 +406,6 @@ That’s why he says he doesn’t know the great illumination shines from under 
 ##### 1:18:32 end of recording
 
 ---
-[Next Talk: Blue Cliff Record: Case 2 – Lecture 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
+[Next Talk: Blue Cliff Record: Case 2 – Talk 1](1980-01-19-BlueCliffRecordCase2Lecture1#0)
 
 [Home](index#blue-cliff-record-case-1-lecture-2)
