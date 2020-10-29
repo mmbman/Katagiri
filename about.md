@@ -1,8 +1,8 @@
 <a name="0"></a>
 # About This Website
 
-[Previous]() – 
-[Home]() – 
+[Previous](index) – 
+[Home](index) – 
 [Next](1979-05-09-Diamond-Sutra-Introduction#0)
 
 ---

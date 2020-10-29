@@ -109,7 +109,7 @@ We don't understand. But "we don't understand" doesn't mean we should stop. We h
 
 ##### 30:10
 
-Of course, we are in the [dualistic](glossary#dualistic) world. That's why we want to be free. But how can you be free? We have [karma](glossary#karma); of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape. How can you [be] free? If you think, if you deal with your life in [the] dualistic world, no matter how long you walk, whatever kind of final goal you get, it's not a real goal. So, constantly, there is [dullness](glossary#dullness) and [distraction](glossary#distraction). So that's why [shikantaza](), [the] [zazen](glossary#zazen) we do, is nothing to be involved in [the] dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
+Of course, we are in the [dualistic](glossary#dualistic) world. That's why we want to be free. But how can you be free? We have [karma](glossary#karma); of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape. How can you [be] free? If you think, if you deal with your life in [the] dualistic world, no matter how long you walk, whatever kind of final goal you get, it's not a real goal. So, constantly, there is [dullness](glossary#dullness) and [distraction](glossary#distraction). So that's why [shikantaza](glossary#shikantaza), \[the] [zazen](glossary#zazen) we do, is nothing to be involved in [the] dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
 
 ##### 31:34
 
@@ -151,7 +151,7 @@ Do you have some questions?
 
 **Same person**: Sometimes.
 
-**Katagiri**: Well, in most cases, a different idea comes up. And if you continue to think that, you will get exhausted. So very naturally, that idea drops off. And then next moment, [a] different idea comes up. And you can chase after the ideas... Maybe you can keep it [up] for a certain period of time, but you cannot continue for long, because [zazen]() is quiet. When you do zazen, your body and mind are quiet. Very quiet. That's why many ideas come up ... not one. That's why next after next, always comes up. 
+**Katagiri**: Well, in most cases, a different idea comes up. And if you continue to think that, you will get exhausted. So very naturally, that idea drops off. And then next moment, [a] different idea comes up. And you can chase after the ideas... Maybe you can keep it [up] for a certain period of time, but you cannot continue for long, because [zazen](glossary#zazen) is quiet. When you do zazen, your body and mind are quiet. Very quiet. That's why many ideas come up ... not one. That's why next after next, always comes up. 
 
 But even then, [there is] nothing to do there. Forget it. All we have to do is, we have to do real [zazen](glossary#zazen). *[unintelligible]*
 
