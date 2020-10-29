@@ -2,7 +2,9 @@
 # Diamond Sutra: Dharma / Not Dharma / Dharma
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#diamond-sutra-dharma-not-dharma-dharma) – [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) – [Next](1979-11-17-BlueCliffRecordCase1Lecture1#0)
+[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) – 
+[Home](index#diamond-sutra-dharma-not-dharma-dharma) – 
+[Next](1979-11-17-BlueCliffRecordCase1Lecture1#0)
 
 ---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3)

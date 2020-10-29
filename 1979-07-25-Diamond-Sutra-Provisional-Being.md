@@ -2,7 +2,9 @@
 # Diamond Sutra: Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Home](index#diamond-sutra-provisional-being) – [Previous](1979-06-15-Fukanzazengi-Lecture7#0) – [Next](1979-08-01-Diamond-Sutra-Emptiness#0)
+[Previous](1979-06-15-Fukanzazengi-Lecture7#0) – 
+[Home](index#diamond-sutra-provisional-being) – 
+[Next](1979-08-01-Diamond-Sutra-Emptiness#0)
 
 ---
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790725.mp3)
