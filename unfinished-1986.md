@@ -58,12 +58,12 @@
 1. 10/07/1986	Shobogenzo: Hossho: Dharma Nature – Lecture 13	
 1. 10/18/1986	Shobogenzo: Kokyo: Form and Mirror – Lecture 1	
 1. 10/19/1986	Shobogenzo: Kokyo: Form and Mirror – Lecture 2	
-1. 10/31/1986	T'ien T'ai Buddhism:: Historical Background	
+1. 10/31/1986	T'ien T'ai Buddhism: Historical Background	
 1. 11/06/1986	Zen and Writing: Word and its Spirit	
 1. 11/07/1986	T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 1	
-1. 11/14/1986	T'ein T'ai Buddhism:: Outline of 4-Fold Teaching – Lecture 2	
+1. 11/14/1986	T'ein T'ai Buddhism: Outline of 4-Fold Teaching – Lecture 2	
 1. 11/15/1986	Blue Cliff Record: Case 79 – Lecture 1
-1. 11/21/1986	T'ien T'ai Buddhism:: Conclusion
+1. 11/21/1986	T'ien T'ai Buddhism: Conclusion
 1. 11/22/1986	Bowing
 1. 12/01/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 1	
 1. 12/03/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Lecture 3	

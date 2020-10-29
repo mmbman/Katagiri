@@ -30,8 +30,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Save All Sentient Beings
 1. Blue Cliff Record: Case 3 – Lecture 1
 1. Blue Cliff Record: Case 3 – Lecture 2
-1. Blue Cliff Record: Case 4 – Lecture 2
 1. Blue Cliff Record: Case 4 – Lecture 1
+1. Blue Cliff Record: Case 4 – Lecture 2
 
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-TwelveChainsOfCausation#0)
 1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-WhereKarmaOriginates#0)
@@ -56,8 +56,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Blue Cliff Record: Case 9
 1.	Blue Cliff Record: Case 10
 1.	Blue Cliff Record: Case 11
-1.	Blue Cliff Record: Case 12 – part 1	
-1.	Blue Cliff Record: Case 12 – part 2
+1.	Blue Cliff Record: Case 12 – Part 1	
+1.	Blue Cliff Record: Case 12 – Part 2
 1.	Blue Cliff Record: Case 13
 1.	Blue Cliff Record: Case 14
 1.	Blue Cliff Record: Case 15
@@ -65,21 +65,21 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Blue Cliff Record: Case 20 – Lecture 1
 1.	Blue Cliff Record: Case 20 – Lecture 2
 1.	Blue Cliff Record: Case 22
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, part 2
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, part 2
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, part 2
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, part 3
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, part 2
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 5, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, part 2
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, part 3
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, part 1
-1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 1, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 2, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 3, Part 3
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 4, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 5, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 2
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 6, Part 3
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 1
+1.	Shobogenzo: Gyobutsu Igi (Majestic Activity) – Lecture 7, Part 2
 1.	Blue Cliff Record: Case 23 – Lecture 1
 1.	Blue Cliff Record: Case 23 – Lecture 3	
 1.	Blue Cliff Record: Case 24
@@ -123,10 +123,10 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Blue Cliff Record: Case 45 – Lecture 2
 1.	Blue Cliff Record: Case 46 – Lecture 1
 1.	Blue Cliff Record: Case 46 – Lecture 2
-1.	Arts and Buddhism – part 1
-1.	Arts and Buddhism – part 2
-1.	Westerners' Reluctance Toward Bowing – part 1
-1.	Westerners' Reluctance Toward Bowing – part 2
+1.	Arts and Buddhism – Part 1
+1.	Arts and Buddhism – Part 2
+1.	Westerners' Reluctance Toward Bowing – Part 1
+1.	Westerners' Reluctance Toward Bowing – Part 2
 1.	Blue Cliff Record: Case 49 – Lecture 1
 1.	Blue Cliff Record: Case 49 – Lecture 2
 
@@ -139,22 +139,22 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Blue Cliff Record: Case 53
 1.	Blue Cliff Record: Case 54
 1.	Blue Cliff Record: Case 55 – Lecture 1
-1.	Precepts for Lay Ordination – part 1
-1.	Precepts for Lay Ordination – part 2
+1.	Precepts for Lay Ordination – Part 1
+1.	Precepts for Lay Ordination – Part 2
 1.	The Awakening of Faith (3/16/84)	
-1.	Mindfulness – Lecture 1, part 1
-1.	Mindfulness – Lecture 1, part 2
-1.	Mindfulness – Lecture 1, part 3
-1.	Mindfulness – Lecture 2, part 1	
-1.	Mindfulness – Lecture 2, part 2	
-1.	Mindfulness – Lecture 2, part 3	
-1.	Mindfulness – Lecture 3, part 1	
-1.	Mindfulness – Lecture 3, part 2	
-1.	Mindfulness – Lecture 4, part 1	
-1.	Mindfulness – Lecture 4, part 2	
-1.	Mindfulness – Lecture 4, part 3	
-1.	Mindfulness – Lecture 5, part 1	
-1.	Mindfulness – Lecture 5, part 2
+1.	Mindfulness – Lecture 1, Part 1
+1.	Mindfulness – Lecture 1, Part 2
+1.	Mindfulness – Lecture 1, Part 3
+1.	Mindfulness – Lecture 2, Part 1	
+1.	Mindfulness – Lecture 2, Part 2	
+1.	Mindfulness – Lecture 2, Part 3	
+1.	Mindfulness – Lecture 3, Part 1	
+1.	Mindfulness – Lecture 3, Part 2	
+1.	Mindfulness – Lecture 4, Part 1	
+1.	Mindfulness – Lecture 4, Part 2	
+1.	Mindfulness – Lecture 4, Part 3	
+1.	Mindfulness – Lecture 5, Part 1	
+1.	Mindfulness – Lecture 5, Part 2
 1.	The Awakening of Faith (4/6/84)	
 1.	Blue Cliff Record: Case 55 – Lecture 3
 1.	The Awakening of Faith (4/20/84)	
@@ -327,8 +327,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Deepening the Experience of Our Lives – Lecture 2
 1.	Platform Sutra – Lecture 7	
 1.	Prajna Paramita and Emptiness	
-1.	Karma in Buddhism – part 1
-1.	Karma in Buddhism – part 2
+1.	Karma in Buddhism – Part 1
+1.	Karma in Buddhism – Part 2
 
 1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Lecture 1, part 1](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part1#0)
 1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Lecture 1, part 2](1987-06-06-Shobogenzo-Genjokoan-Lecture1-Part2#0)
@@ -336,16 +336,16 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. <a name="manas"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
 1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
 
-1.	Obon Memorial – part 1	
-1.	Obon Memorial – part 2	
+1.	Obon Memorial – Part 1	
+1.	Obon Memorial – Part 2	
 1.	Blue Cliff Record: Case 84 – Lecture 1
 1.	Blue Cliff Record: Case 84 – Lecture 2
 1.	Impermanence and the Meaning of Silence	
 1.	Three Aspects of Buddha's Silence	
 1.	Shobogenzo: Sansuikyo: Eastern Mountains Traveling on the Water	
 1.	On a Poem by the Boatman: Fishing with a Straight Hook	
-1.	What is Right Human Effort – part 1
-1.	What is Right Human Effort – part 2
+1.	What is Right Human Effort – Part 1
+1.	What is Right Human Effort – Part 2
 1.	Blue Cliff Record: Case 86 – Lecture 1
 1.	Blue Cliff Record: Case 86 – Lecture 2
 1.	Wisdom of Living	
