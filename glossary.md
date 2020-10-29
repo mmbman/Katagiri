@@ -248,6 +248,11 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 ---
 ## Delusion
 
+Mistaking a perception for an independent object or fact.
+
+- [Blue Cliff Record: Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
+- etc.
+
 ---
 ## Demon
 
@@ -353,6 +358,11 @@ Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glo
 
 ---
 ## Enlightenment
+
+Awakening from [delusion](glossary#delusion).
+
+- [Blue Cliff Record: Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
+- etc.
 
 ---
 # F

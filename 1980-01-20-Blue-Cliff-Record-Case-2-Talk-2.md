@@ -82,13 +82,9 @@ But actually, there is no way to escape picking and choosing. We are always pick
 
 As soon as there are words spoken, this is picking and choosing; but the moment when you use words, that is already picking and choosing. In other words, when you see [a] microphone, microphone is already microphone, [it is] picked and chosen by you, by your consciousness. So already, [the] microphone is something [arbitrated by] consciousness.
 
-##### 21:27
-
 And “this is picking and choosing, and this is clarity”. So picking and choosing the microphone, [being] picked and chosen by human consciousness, is being seen at the first stage, “mountains are mountains”. That is a really ‘perverted’ view; it’s not deep. “Perverted view” [does not mean] something wrong; it is okay, because we are there. But it is perverted, it’s not deep, it’s a very narrow understanding. That’s why we have to go through all the [time there?]. That is second: if you realize the first stage, “mountains are mountains,” through perception, at that time simultaneously you can enter into second stage, that is “mountains are not mountains.” But if you don’t awaken to the first stage, you misuse your consciousness. At that time, this is what is called [delusion](glossary#delusion).
 
-##### 22:52
-
-So, we have to understand, we have to awaken to our understanding: how we understand. That is, (that) the microphone picked and chosen by your consciousness is nothing but [delusion](glossary#delusion). When you realize this, that is simultaneously you can enter the gate of second stage, which is called mountains are not mountains; this is called [enlightenment](glossary#enlightenment). So that is next said, “this is clarity.” So you can see very clear vision of microphone, including... in the universe.
+So, we have to understand – we have to awaken to our understanding, *how* we understand. That is, [that] the microphone picked and chosen by your consciousness is nothing but [delusion](glossary#delusion). When you realize this, simultaneously you can enter the gate of the second stage, which is called “mountains are not mountains”; this is called [enlightenment](glossary#enlightenment). That is [where it] next says, “this is clarity.” So you can see [a] very clear vision of microphone in the universe.
 
 ##### 23:56
 
