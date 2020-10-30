@@ -347,9 +347,9 @@ See [śūnyatā](glossary#śūnyatā).
 
 ---
 ## Engo Kokugon
-Chinese: Yuanwu Keqin (Yuan Wu K’e Ch’in), 圓悟克勤<br>
-Japanese: Engo Kokugon<br>
-1063-1135 CE
+Chinese: Yuanwu Keqin (Yuan Wu K’e Ch’in), 圓悟克勤,<br>
+Japanese: Engo Kokugon,<br>
+1063-1135 CE.
 
 Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glossary#blue-cliff-record).
 
@@ -416,8 +416,8 @@ See [Dogen Index: Genjokoan](dogen#genjokoan)
 
 ---
 ## Gensha Shibi 
-Japanese: Gensha Shibi<br>
-Chinese: Xuansha Shibei (Hsuan-sha Shih-pei) 玄沙師備<br>
+Japanese: Gensha Shibi,<br>
+Chinese: Xuansha Shibei (Hsuan-sha Shih-pei) 玄沙師備,<br>
 also "Mendicant Pei"<br>
 
 Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
@@ -443,7 +443,7 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 ---
 ## Hashimoto Roshi
 
-Eko Hashimoto: abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
+Eko Hashimoto, abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
  
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
 - [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Talk-3#11402)
@@ -487,8 +487,8 @@ See [samskara](glossary#samskara).
 
 ---
 ## Isan Reiyū
-Japanese: Isan Reiyū<br>
-Chinese: Guishan Lingyou (Kuei-shan Lingyu), 溈山靈祐<br>
+Japanese: Isan Reiyū,<br>
+Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐,<br>
 771-853 CE.
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
