@@ -291,31 +291,35 @@ That gold is not something a person refined; it is just like a rough-hewn staff,
 
 This is the meaning of eternal time.
 
-When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, past, present, future – this is touching the key of the piano. But according to time process we don’t understand ... But even the time process, according to time process, one moment, according to dance, human life is analyzed according to exactly the moment after moment. So ini one moment, countless beings exist. That is the most im[portant attitude how we should take toward human life. Because that moment is really wonderful community ferryboat. ... But you don’t believe in that way, but it is most important attitude we should take forward. 
+When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, past, present, future – this is touching the key of the piano. According to [the] time process, we don’t understand [it that way?]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment; so in one moment, countless beings exist. That is the most important attitude we should take toward human life, because that moment is really [the] wonderful community ferryboat. Great *[unintelligible]*. You don’t believe in that way, but it is [the] most important attitude we should take forward. 
 
-That’s why day by day, in the practice, gassho, and doing zazen, ... are very important. The gassho and zazen and chanting all are seamless monuments, must be seamless monuments. At that time zazen is handed down from generation to generation and religious culture. ... don’t understand. Religious culture ... zazen ... is not only to sit zazen, but you have to light candle of zazen. You have to light. You understand to light – light means you have to be alive, you have to make it alive. You have to animate zazen in your life. That is a culture, human culture.
+That’s why, day by day, in the practice, the gassho, and doing zazen, the chanting, are very important. The gassho and zazen and chanting are all seamless monuments, [they] must be seamless monuments. At that time zazen is handed down from generation to generation and religious culture. *[unintelligible]* The religious culture [of] zazen is not only to sit zazen, but you have to light [the] candle of zazen. Do you understand to light? Light means you have to be alive, you have to make it alive. You have to animate zazen in your life. That is a culture, human culture.
 
 ##### 1:04:14
 
 > – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
 
-That is really spiritual security, so called spiritual security. If you do this on the basis of human existence, there eis always spiritual security, which is going on constantly, carried on and on. Consciously or unconsciously. 
+That is really spiritual security, so called spiritual security. If you do this on the basis of human existence, there is always spiritual security, which is going on constantly, carried on and on, consciously or unconsciously. 
 
-That is not always calm. It’s really alive. 
+But that is not always calm. It’s really alive. 
 
 ##### 1:04:58
 
 > Within the crystal palace, there’s no one who knows.
 
-If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that is something great, wonderful, which has lots of ... lights coming from the bodies and coming from your spirit. I don’t think so. 
+If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that is something great, wonderful, which has lots of halos, light coming from your bodies and coming from your whole spirit. 
 
-That is really crystal palace, great palace, because it is spiritual security. We always expect in many ways. But if you really get into it, there is no one who knows. “There is no one who knows” means spiritual security which lets go of you yourself as freedom. If you have somebody who knows, you are stuck in this guy or his ... “I know Katagiri.” At that time I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but I must be free from one who knows. Because this is the crystal palace, which I am, which you are. That is everybody . 
+I don’t think so. 
 
-So if you know, you have to be free from person who knows. That is original nature, so called spiritual security. Spiritual security lets you go free, constantly. Taht is spirutal security. If there is even slightly somebody or something which knows, that is really ... 
+That is really crystal palace, great palace, because it is spiritual security. We always expect [something] in many ways. But if you really get into it, there is no one who knows. “There is no one who knows” means spiritual security which lets go of you yourself as freedom. If you have somebody who knows, you are stuck in this guy or his [name].“I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but I must be free from one who knows. Because this is the crystal palace, which I am, which you are; that is everybody. 
 
-That’s why Hsueh Tou says, “Within the crystal palace, there’s no one who knows.” ... ??? Always there is something we know. Wonderful .... spirit, inspiration ... .... spiritual ... greed ... that’s fine. If that’s make you fun. But is that really the spiritual security your are looking for? No. Because finally you are really stuck in there.
+So if you know, you have to be free from [the] person who knows. That is original nature, so called spiritual security. Spiritual security lets you go free, constantly. That is spirutal security. If there is even slightly somebody or something which knows, that is really *[unintelligible]*.
 
-The other day someone came to see me and told about her life, because she was predicted by ... the indian religious person, who was greta. So at that time she was ready to accept that prediction. So recently she started to believe, because these predications came to be true. But not all the predictions he gave; some. That some must be something ... bad. Because people ... pay really attention to something unwholesome, bad. But if we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness. That’s why we don’t care...
+That’s why Hsueh Tou says, “Within the crystal palace, there’s no one who knows.” 
+
+In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you fun, but is that really the spiritual security your are looking for? No. Because finally you are really stuck in there.
+
+The other day someone came to see me and told [me] about her life, because she was predicted by one of the indian religious persons, who was great. So at that time she was not ready to accept that prediction. But recently she started to believe, because these predications came to be true. But not all the predictions he gave; some. That some must be something *[unintelligible]* bad. Because people really pay attention to something unwholesome, bad. But if we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t care.
 
 But if we have really ambivalent conditions, if you are ... you really pay attention to it. Then you create new... pay more careful attention, again and again. Finally, you cannot move an inch. 
 
