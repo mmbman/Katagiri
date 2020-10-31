@@ -207,21 +207,27 @@ That is the meaning of a whip. Or practice, human effort, constantly. Human effo
 
 ##### 43:30
 
-... There is a story where Dogen Zenji says ... Haven’t you heard how an outsider asked the Buddha, I don’t ask about the spoken, I don’t ask about the unspoken. In other words, completely beyond words or not-words. Karmic life or not karmic life. What is life? 
+There is a story where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, I don’t ask about the spoken, I don’t ask about the unspoken. In other words, completely beyond words or not-words, karmic life or not karmic life, what is life?”
 
 The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the...”
 
 *[tape change]*
 
-... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really seamless monument for you, right now. That is really teaching from your back. That is teaching kind of from life as a whole – not front, not back, not life or death. As a whole. And if you continually take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
+... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching kind of from life as a whole – not front, not back, not life or death – as a whole. And if you do continually take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
 
-So, that is ... this Brahman really wants to know what ... seamless monument is. So the World Honored One remained silent. “Sit down.” The outsider bowed in homage, and [sighed?] in praise. He was really surprised to see the Buddha’s silence, “just sit down.” He really attained, he really touched something.
+So, this Brahman really wanted to know what life’s seamless monument is. 
 
-And then he said, “The World Honored One, the greatest ... and great compassion, has dispersed the crowds of my delusion and caused ... ” So after the outsider had left, Ananda asked the Buddha, what did the outsider witness? He said he had gained entry. The World Honored One said, in worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip. 
+The World Honored One remained silent. Just, “Sit down.” 
 
-People often go to the silence for their understand. What is there to grasp. In buddhism, silence is important, but silence itself is not important. If I ... teaching comes from silence. ... Even western philosophers say, life and human existence is really based on silence. 
+The outsider bowed in homage, and [sighed?] in praise. He was really surprised to see the Buddha’s silence, “just sit down.” He really attained, he really touched something.
 
-And then we believe that silence is really truth of human existence. But I don’t think so. Because silence *is* human life, true human life. ... if you believe in some way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. So you have to know the world completely unfolded ... if you keep silent, keep silent. But you have to know that somebody unfolded completely behind this silence. Do you understand? If I sit dow and do zazen, and then you believe concentration is perfect. ... I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, zazen is just to sit down without doing? No, it does not mean that. Because we have already ... monkey mind. So you have to ... positive ... have to take care of. That’s why we say .... and then, when you ... so called concentration, with wholeheartedness, there is big world, absolutely unfolded. Name of concentration, name of zazen, practicer, that is zazen Zenji says, total manifestation of whole world. 
+And then he said, “The World Honored One, the greatest *[unintelligible]* and great compassion, has dispersed the crowds of my delusion and caused me to gain entry.” 
+
+So after the outsider had left, Ananda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” The World Honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
+
+People often go to the silence for their understanding. What is there to grasp. In Buddhism, silence is important, but silence itself is not important. If I write the words, teaching comes from silence. Not only Buddhists, but even Western philosophers, say life and human existence is really based on silence. 
+
+And then we believe that silence is really [the] truth of human existence. But I don’t think so. Because silence *is* human life, true human life. ... if you believe in some way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know that somebody unfolded completely behind this silence. Do you understand? If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, zazen is just to sit down without doing? No, it doesn’t mean that. Because we have already time and place[?] ... so-called [cosmic?] monkey mind. So you have to ... positively ... have to take care of. That’s why we say, or Zen *[unintelligible]* your breath. And then, when you take care of your breath, so-called concentration with wholeheartedness, there is [the] big world, absolutely unfolded. Beyond the name of concentration, name of zazen, name of practicer. That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
 
 That is teaching coming from your back. This is teaching coming from a powerless power, you can get from your practice. Behind the ... behind the effort, there is great power. Effort is not something you can create power, to teach or to understand behind anyway this effort. Behind this effort means the world unfolded totally, beyond name of concentration, name of practicer, name of ... whatever you say. It doesn’t hit the mark. Anyway take off any clothes. And then what’s left? Nothing to say. 
 
