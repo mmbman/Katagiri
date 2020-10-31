@@ -78,33 +78,31 @@ So strictly speaking, why don’t you take off the clothes of success and failur
 
 I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
 
-How do you light the candle of human culture? ... Your individual daily life is also human culture; beautiful culture. That beautiful culture of your life is – what? Something you have to *[unintelligible]*? People can understand, people see it? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
+How do you light the candle of human culture? ... Your individual daily life is also human culture; beautiful culture. That beautiful culture of your life is – what? Something you have to [let?] people ... understand, people see it? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
 
-That’s why I told you before, [the] quality of [your] life must be taught by your back. ‘Back’ means not back opposed to front – do you remember? My teacher says the Zen teacher teaches Buddhist teachings with his back. ‘Back’ means seamless, formless teaching, constantly.
+##### 15:45
 
-##### 16:25
+That’s why I told you before, [the] quality of [your] life must be taught by your back. 
 
-So whoever you are, if you really live a real life just like this, people can accept something [about] how important human life is from you. Not from ... the right side, left side, back side; [from the] seamless form of your existence, which you have taken care of.
+‘Back’ means not back opposed to front – do you remember? My teacher says the Zen teacher teaches Buddhist teachings with his back. ‘Back’ means seamless, formless teaching, constantly.
 
-For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something, one word, saying, “get up” - when the people get up, why don’t you get up? At that time I got the big experience, but still I didn’t appreciate it. Because human ... always looking at the front, trying to understand logically and theoretically. If you don’t understand ..., it’s really hard for us to accept. But if you don’t want to accept; that’s okay, it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like this, you become a very small scale human being and isolating from the people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
+So whoever you are, if you live a real life just like this, people can accept something [about] how important human life is from you. Not from ... the right side, left side, back side; [from the] seamless form of your existence, which you have taken care of.
 
-So finally you have ... I am stupid. Not stupid, but ... come up. 
+For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. Because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand, it’s very hard for us to accept.
+
+If you don’t want to accept, that’s okay, it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale human being, [isolated] from the people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
+
+So then finally you have self-doubt. Self-doubt means [you think], “I am stupid.” You’re not stupid, but a certain big doubt comes up. 
 
 ##### 19:22
 
-Now I really understand, I can really treasure the core of human existence which my teacher had demonstrated while he was alive. 
+Now I really understand, I can really treasure the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the *[unintelligible]* his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. 
 
-That means not the logical aspect, not the ... ... his life in failure or his life in success, ... total picture, and you can really feel something. 
+So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. Something which he always told me is not something *[unintelligible]* in the possession of form, so-called success or failure, or pros and cons; [it’s] completely beyond [that]. Of course you can see [those], but the more important [part] of human life is completely beyond there. From his life as a whole, you can really get something. 
 
-So now I really appreciate his life. Whatever he did, whatever he said, I really appreciate. 
+That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* peoples death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant; because we are always looking at the front, trying to understand logically, theoretically.
 
-Something which he always told me is not something ... possession of form. success or failure or pros and cons. Of course, you can see, but the more important of human life is, completely you are there. From his life as a whole, you can really get something. 
-
-That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* peoples death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant.
-
-Because we are always looking at the front, trying to understand logically, theoretically. That is a very common human style. 
-
-So that’s why the National Teacher said, “Build a seamless monument for me.”
+That is a very common human style. So that’s why the National Teacher said, “Build a seamless monument for me.”
 
 ##### 22:08
 
