@@ -81,7 +81,7 @@ That’s why I told you before, [the] quality of [your] life must be taught by y
 
 ##### 16:25
 
-... So whoever you are, if you really live in a real life, just like this, people will understand, people can accept how important human life is from you. Not from ... right side, left side, back side ... [the] seamless form of your existence, which you have taken care of.
+So whoever you are, if you really live a real life just like this, people can accept something [about] how important human life is from you. Not from ... the right side, left side, back side; [from the] seamless form of your existence, which you have taken care of.
 
 For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something, one word, saying, “get up” - when the people get up, why don’t you get up? At that time I got the big experience, but still I didn’t appreciate it. Because human ... always looking at the front, trying to understand logically and theoretically. If you don’t understand ..., it’s really hard for us to accept. But if you don’t want to accept; that’s okay, it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like this, you become a very small scale human being and isolating from the people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
 
