@@ -251,23 +251,23 @@ But right in the middle of silence you have to say something, because this is hu
 
 [The National Teacher] kept silence and sat down for a while and said, “Do you understand?” The emperor said, “I don’t understand.” And then the National Teacher said, “I have a disciple to whom I have transmitted the Teaching.” 
 
-So finally the emperor said, “I don’t know.” But whatever kind of meaning of his answer, it doesn’t matter. Because there is no way to approach to him. So he said, I haven’t said. So after my death, ... 
+So finally the emperor said, “I don’t know.” But whatever kind of meaning of his answer, it doesn’t matter, because there is no way to approach to him. So he said, well, I have a disciple. So after my death, please ask my disciple what it means.
 
 ##### 55:46
 
-National Teacher said “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.” After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
-
+> The National Teacher said, “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.”
+> 
+> After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
+>
 > South of Hsiang, north of T’an;
 
 That means – wherever. 
 
-Life and death is not something limited by name or concept or philosophy or psychology, life is something which exists wherever. Eternal space, enteral time. This is life. 
+Life and death is not something limited by name or concept or philosophy or psychology, life is something which exists wherever. Eternal space, eternal time. This is life. 
 
 > – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
-Well, eternal life, eternal space and time is what? Can you make a sound? No. No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. Completely one bottle; not bottle and water. That is one hand. 
-
-So one hand cannot make a sound at random. So that is really total picture of life and death, which is called seamless monument, he really wanted to build up.
+Well, eternal life, eternal space and time is what? Can you make a sound? No. No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. Completely one bottle; not bottle and water. That is one hand. One hand cannot make a sound at random. So that is really total picture of life and death, which is called seamless monument, [which] he really wanted to build up.
 
 To build up a seamless monument means not for him, for all sentient beings, for the disciples who are still alive ... to the future. You have to build a seamless monument – not for me, for you! 
 
