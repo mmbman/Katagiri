@@ -1,8 +1,9 @@
 <a name="0"></a>
-# Resources
-
 [Previous](books#0) – 
 [Home](index#resources)
+
+---
+# Resources
 
 These are miscellaneous links that I don’t have another place for yet.
 

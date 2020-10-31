@@ -1,15 +1,15 @@
 <a name="0"></a>
-# Shobogenzo: Genjokoan – Talk 2
-## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2#0) – 
 [Home](index#genjokoan-lecture-2) – 
 [Next](1987-06-20-Manas#0)
 
 ---
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
+# Shobogenzo: Genjokoan – Talk 2
+## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is still in rough draft form.**
+
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870607.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording

@@ -1,12 +1,12 @@
 <a name="0"></a>
-# Diamond Sutra: Emptiness
-## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being#0) – 
 [Home](index#diamond-sutra-emptiness) – 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0)
 
 ---
+# Diamond Sutra: Emptiness
+## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790801.mp3)
 
 <a name="000"></a>

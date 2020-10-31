@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1986
-
 [Previous](unfinished-1985#0) – 
 [Home](index#1986) – 
 [Next](unfinished-1987-1#0)
 
 ---
+# Not Yet Transcribed: 1986
+
 1. 02/22/1986	Lay Ordination Lecture 1 of 7: Significance of Ordination	
 1. 03/01/1986	Lay Ordination Lecture 2 of 7: Three Aspects of Repentance	
 1. 03/07/1986	The Awakening of Faith (3/7/86)	

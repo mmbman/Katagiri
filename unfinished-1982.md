@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1982
-
 [Previous](unfinished-1981-2#0) – 
 [Home](index#1982) – 
 [Next](unfinished-1983#0)
 
 ---
+# Not Yet Transcribed: 1982
+
 1. 05/30/1982	Blue Cliff Record: Case 28
 1. 10/16/1982	Blue Cliff Record: Case 29 – Talk 1
 1. 10/17/1982	Blue Cliff Record: Case 29 – Talk 2

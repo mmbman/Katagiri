@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1988
-
 [Previous](unfinished-1987-2#0) – 
 [Home](index#1988) – 
 [Next](glossary#0)
 
 ---
+# Not Yet Transcribed: 1988
+
 1. 08/03/1988	Lay Ordination Lecture (2nd Series: 1 of 3): Depending on the Dharma	
 1. 08/10/1988	Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance	
 1. 08/12/1988	Recording of Chants	

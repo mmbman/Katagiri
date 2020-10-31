@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1985
-
 [Previous](unfinished-1984#0) – 
 [Home](index#1985) – 
 [Next](unfinished-1986#0)
 
 ---
+# Not Yet Transcribed: 1985
+
 1. 01/05/1985	Buddha Nature: Something Universal	
 1. 01/12/1985	True Heart is not Infactuation	
 1. 04/17/1985	The Simple Practice	

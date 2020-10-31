@@ -1,15 +1,15 @@
 <a name="0"></a>
-# Shobogenzo: Genjokoan – Talk 1, Part 1
-## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](unfinished-1987-1#0) – 
 [Home](index#genjokoan-lecture-1-part-1) – 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2#0)
 
 ---
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606a.mp3)
+# Shobogenzo: Genjokoan – Talk 1, Part 1
+## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is still in rough draft form.**
+
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870606a.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording

@@ -1,15 +1,15 @@
 <a name="0"></a>
-# A, B, and C Worlds
-## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](1987-06-20-Manas#0) – 
 [Home](index#a-b-and-c-worlds) – 
 [Next](unfinished-1987-2#0)
 
 ---
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
+# A, B, and C Worlds
+## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is still in rough draft form.**
+
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19870627.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording

@@ -1,11 +1,11 @@
 <a name="0"></a>
-# About This Website
-
 [Previous](index) – 
 [Home](index) – 
 [Next](1979-05-09-Diamond-Sutra-Introduction#0)
 
 ---
+# About This Website
+
 I’ve transcribed these talks from audio recordings in the online [Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). The talks are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in [the four books](resources#katagiri-books) that have been compiled from Dainin Katagiri’s teachings. You can read the transcripts on their own, or follow along while listening to the recordings, which are referenced at the top of each talk. 
 
 Katagiri Roshi’s energy, enthusiasm and humor come through even better in the audio than in print. On other other hand, he is a non-native English speaker with a Japanese accent, and the audio is of mediocre quality... so he can be hard to understand. Listen to the talks without a transcript, and you’ll probably see what I mean. The transcripts make it easier to understand what he is saying.

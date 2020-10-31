@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1981 Part 2
-
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18#0) – 
 [Home](index#1981) – 
 [Next](unfinished-1982#0)
 
 ---
+# Not Yet Transcribed: 1981 Part 2
+
 1. 08/26/1981	Blue Cliff Record: Case 20 – Talk 1
 1. 09/02/1981	Blue Cliff Record: Case 20 – Talk 2
 1. 09/30/1981	Blue Cliff Record: Case 22

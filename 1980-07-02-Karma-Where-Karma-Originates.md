@@ -1,14 +1,15 @@
 <a name="0"></a>
-# Karma: Where Karma Originates
-## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation#0) – 
 [Home](index#karma-where-karma-originates) – 
 [Next](unfinished-1980-2#0)
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800702.mp3)
+---
+# Karma: Where Karma Originates
+## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is still in rough draft form.**
+
+[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800702.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording 

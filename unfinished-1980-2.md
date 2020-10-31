@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1980 Part 2
-
 [Previous](1980-07-02-Karma-Where-Karma-Originates#0) – 
 [Home](index#1980) – 
 [Next](unfinished-1981-1#0)
 
 ---
+# Not Yet Transcribed: 1980 Part 2
+
 1. 07/03/1980	Karma: Unmanifested	
 1. 07/04/1980	Karma: Taking Care of Karma:	
 1. 07/10/1980	Karma: Attribution in Present Life	

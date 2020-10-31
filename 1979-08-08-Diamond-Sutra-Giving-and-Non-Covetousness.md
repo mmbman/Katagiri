@@ -1,12 +1,12 @@
 <a name="0"></a>
-# Diamond Sutra: Giving and Non-Covetousness
-## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](1979-08-01-Diamond-Sutra-Emptiness#0) – 
 [Home](index#diamond-sutra-giving-and-non-covetousness) – 
 [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
 ---
+# Diamond Sutra: Giving and Non-Covetousness
+## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790808.mp3)
 
 <a name="000"></a>

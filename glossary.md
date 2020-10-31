@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Glossary
-
 [Previous](unfinished-1988#0) – 
 [Home](index#glossary) – 
 [Next](dogen#0)
 
 ---
+# Glossary
+
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
 [A](#a) - [B](#b) - [C](#c) - [D](#d) - [E](#e) - [F](#f) - [G](#g) - [H](#h) - [I](#i) - [J](#j) - [K](#k) - [L](#l) - [M](#m) - [N](#n) - [O](#o) - [P](#p) - [Q](#q) - [R](#r) - [S](#s) - [T](#t) - [U](#u) - [V](#v) - [W](#w) - [X](#x) - [Y](#y) - [Z](#z)

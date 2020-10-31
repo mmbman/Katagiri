@@ -1,11 +1,11 @@
 <a name="0"></a>
-# Not Yet Transcribed: 1987 Part 1
-
 [Previous](unfinished-1986#0) – 
 [Home](index#1987) – 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
 
 ---
+# Not Yet Transcribed: 1987 Part 1
+
 1. 01/10/1987	Dogen Four Points: Track 1 of 2	
 1. 01/10/1987	Dogen Four Points: Track 2 of 2
 1. 01/17/1987	Blue Cliff Record: Case 80 – Talk 1

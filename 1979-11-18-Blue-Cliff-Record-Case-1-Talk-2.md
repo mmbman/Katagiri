@@ -1,12 +1,12 @@
 <a name="0"></a>
-# Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 2
-## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0) – 
 [Home](index#blue-cliff-record-case-1-lecture-2) – 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
 
 ---
+# Blue Cliff Record: Case 1: The Highest Meaning of the Holy Truths – Talk 2
+## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
+
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19791118.mp3)
 
 <a name="000"></a>
