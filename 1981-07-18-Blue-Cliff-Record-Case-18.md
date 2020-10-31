@@ -58,9 +58,9 @@ Seamless lantern or seamless monument is not a particular monument or lantern, b
 
 ##### 8:25
 
-In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named: zazen, and Katagiri, and the trees, and the suffering, et cetera. Life and death, and old age and sickness, et cetera. Lots of stuff in human life. 
+In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named zazen, and Katagiri, and the trees, and the suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
-But this is [picking?] up those names. Life and death, you call [it] life and death. Kick out those [names?] completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely kick [them] out. What’s left? 
+But this is [picking?] up those names. You call [it] life and death. Kick out those [names?] completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely kick [them] out. What’s left? 
 
 What’s left is really important, because this is [the] quality of life. Life is already a name you put on [it], but you have to know the quality of life. You say death, but that death is a name of death you put on [it], you have to know the real quality of death, what is the quality of death. 
 
@@ -72,7 +72,7 @@ Emptiness is not a nihilistic quality of existence. [The] quality of existence, 
 
 ##### 12:19
 
-From this point, when you experience success, you feel good; but you cannot [stay in?] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
+From this point, when you experience success, you feel good. But you cannot [stay in?] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
 So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons; and then what’s left? Nothing to get in your hand; but is it just silence, is it just nothing to do? No, I don’t mean this. Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is seamless life. Seamless life, seamless death. And then at that time, we can really [leave?] so-called human culture.
 
@@ -110,7 +110,7 @@ And then,
 
 > The Emperor said, “Please tell me, Master, what the monument would look like.”
 
-This is a very nice person. Because the National Teacher wants to build up a seamless monument, [the Emperor asks,] “What is a seamless monument?” Would you tell me what kind of seamless you would want to have?
+This is a very nice person. Because the National Teacher wants to build a seamless monument, [the Emperor asks,] “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
 
 ##### 22:43
 
@@ -119,7 +119,7 @@ This is a very nice person. Because the National Teacher wants to build up a sea
 
 This “I don’t understand” has two meanings. Bodhidharma said [this] also, [when he] was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
-This is also “I don’t know.” But he knows pretty well. He knows very clearly who he is, becoming one. At that time there is nothing to dichotomize or contaminate. 
+This is also “I don’t know.” But he knows pretty well; he knows very clearly who he is, becoming one. At that time there is nothing to dichotomize, or contaminate. 
 
 ##### 23:55
 
@@ -147,7 +147,7 @@ Or, the other “I don’t know” means completely “I don’t know,” becaus
 
 If you say “I don’t know,” you cannot get any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
 
-The “I don’t know” of Emperor Wu, I don’t know which of two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway from this story, Emperor Wu was not the common people, he was a “great Zen Buddhist”.
+The “I don’t know” of Emperor Wu – I don’t know which of the two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
 
 ##### 30:32
 
