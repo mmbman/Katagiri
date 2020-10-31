@@ -69,6 +69,15 @@ Japanese: Shōji
 - [Blue Cliff Record: Case 2 – Talk 1 (7:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#730)
 
 ---
+## Four Horses
+
+Japanese: Shime
+
+- [Blue Cliff Record: Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
+
+- [Dogen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
+
+---
 ## Zazengi
 
 This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).

@@ -143,31 +143,45 @@ So that is the “I don’t know” that Bodhidharma said.
 
 ##### 28:34
 
-Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. 
-
-People ask me what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
+Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
 
 If you say “I don’t know,” you cannot get any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
 
-##### 29:41
+The “I don’t know” of Emperor Wu, I don’t know which of two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know. I don’t know. No one knows. Okay? *[some laughter]* But anyway from this story, Emperor Wu was not the common people, he was a “great Zen Buddhist”.
 
-So that is ... Emperor Wu ... I don’t know which of two. The .... He really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know. I don’t know. No one knows. *[laughter]* But anyway from this story, Emperor Wu was  not the common people, he was great Zen Buddhism. 
+##### 30:32
 
-Finally National Teacher was silent for a long time, then he said, “Do you understand?” 
+Finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
-In this book, Shobogenzo ... Four Horses. In this, Dogen Zenji says such a ... From agama sutra, the Buddha said to assemble monks, there are four kinds of horses. The first kind immediately follows the rider... when surprise and fear at seeing the shadow of the whip. The second does likewise when the whip ... in the air. The third however doesn’t obey his master until after the whip has struck his flesh. The fourth finally doesn’t do so until the whip has reached his very bones. 
+In Shobogenzo “[Four Horses (Japanese: Shime)](dogen#four-horses)”, Dogen Zenji says ... from \[a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra, 
 
-Four kinds of horses. I don’t know which of the horses you belong to, but anyway. If the people are ... just like this. 
+> The Buddha said to the assembled monks: 
+>
+> There are four kinds of horses. 
+> 
+> The first kind immediately follows the rider’s will, when in surprise and fear, it sees the shadow of the whip. 
+> 
+> The second does likewise when the whip flies in the air. 
+> 
+> The third, however, doesn’t obey his master until after the whip has struck his flesh.
+> 
+> The fourth, finally, doesn’t do so until the whip has reached his very bones. 
+> 
+> (Source unknown)
 
-From this, maybe you understand ... which really runs the moment when he says the shadow of the whip, that is the best horse. In comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
+Four kinds of horses. *[he chuckles]* I don’t know which of the horses you belong to, but anyway, most people are just like this.
 
-In Buddhism, if the ... touches the ... Strictly speaking, you cannot just touch hair, ignoring skin, muscle and bones. Touch yourself here means exactly touch your skin, muscle and bones. Without touching the bones, with the muscles and skin, how can you know? Touch there.
+From this, maybe you understand [that] the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
 
-So to touch a hair means completely to touch the whole body. In other words, broadly speaking, in Buddhism, when you do gassho, this gassho is ... to you and to others and to all sentient beings. This is exactly truth. But you dont know, you don’t believe this. 
+In Buddhism, if the whip touches the hair – strictly speaking, you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without touching the bones, without the muscles and skin, how can you know the whip touches there?
 
-That’s why ... and Dogen Zenji ... explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment you see the shadow of the whip is the best? No, I don’t think so. 
+So to touch a hair means completely to touch the whole body. In other words, broadly speaking, in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly [the] truth; but you don’t know, you don’t believe this. 
 
-So, four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body, and then at that time, you can run.
+That’s why [Buddha] and Dogen Zenji ... explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
+
+So, [the] four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body – and then, at that time, you can run.
+
+##### 36:08
 
 For instance, playing piano, I told you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composers life, the composers feelings, composers heart, all the organs, heart and feelings. And then you can really play. 
 

@@ -764,6 +764,14 @@ As "together-maker": see [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-
 - [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
 ---
+## Saṃyukta Āgama
+
+"Connected Discourses". See [Āgama](glossary#āgama).
+
+- [Blue Cliff Record: Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
+
+- [Wikipedia: Āgama Buddhism](https://en.wikipedia.org/wiki/Āgama_\(Buddhism\)#Saṃyukta_Āgama)
+
 ## Sandhinirmocana Sutra
 
 Sandhinirmocana Sutra.
