@@ -36,44 +36,48 @@ Case 18 of Blue Cliff Record:
 > – Hsueh Tou added the comment, “A rough-hewn staff.”  
 > Beneath the shadowless tree, the community ferryboat;  
 > – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
-> Within the crystal palace, there’s no one who knows.  
+> Within the crystal palace, there is no one who knows.  
 > – Hsueh Tou added the comment, “He has raised it up.”  
 
 ##### 3:05
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die. “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chi?] emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him ... after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die. “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chi?] emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect [him] after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
 
 ##### 5:00
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* ... whatever. That is freedom, for ... ... free from the dangerous situation ... So that by this pond you have big lanterns. You know the lanterns in the temple? Not like this, ... lanterns, you can see in picture. And then these lanterns are called seamless lanterns. That means that pond is called [Hosho?] ... ... means “lets be alive”, just let go of...  So for this, you cannot have any exception to ... just let go of it. So, seamless: seamless means formless. In Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
+A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* ... whatever. So that is freedom, at that time and place, for the *[unintelligible]* to be free from the dangerous situation. So by this pond you have big lanterns. You know the lanterns in the temple? Not like this ... lanterns, you can see in picture. ([Tōrō](glossary#tōrō)) And then these lanterns are called seamless lanterns. That means that pond is called [Hosho?] ... ... means “lets be alive”, just let go of *[unintelligible]*. So for this, you cannot have any exception to *[unintelligible]* – just let go of it. So, seamless means formless; in Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
 
 Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
-##### 
+##### 8:25
 
-In your life, what we can perceive is filled with pros and cons, successes and failures, praise and [criticism?] ... lots of stuff there. Named: zazen, and Katagiri, and the trees, and the suffering, et cetera. Life and death, and old age and sickness, et cetera. Lots of stuff in human life. 
+In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named: zazen, and Katagiri, and the trees, and the suffering, et cetera. Life and death, and old age and sickness, et cetera. Lots of stuff in human life. 
 
-But this is [picking?] up those names. Life and death, you call life and death. Kick out those ... completely, life and death, or anything: sickness, and trees, birds, suffering, et cetera – completely kick out. What’s left? 
+But this is [picking?] up those names. Life and death, you call [it] life and death. Kick out those [names?] completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely kick [them] out. What’s left? 
 
-What’s left is really important, because this is a quality of life. Life is already a name you put on [it]. But you have to know the quality of life. You say death, but that death is a name of death you put on [it], but you have to know the real quality of death, what is the quality of death. ... is exactly ... Sitting right now, right here means you can’t bring any name, any concept into what to do; so called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly something in zazen, it’s not really zazen. Zazen is exactly touching the real core, quality of life and death. If you kick out all things, what’s left?
+What’s left is really important, because this is [the] quality of life. Life is already a name you put on [it], but you have to know the quality of life. You say death, but that death is a name of death you put on [it], you have to know the real quality of death, what is the quality of death. 
 
-##### 11:20
+Zazen is exactly... Well, sitting right now, right here means you cannot bring any name, any concept into what to do; so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly something in zazen, it’s not really zazen. Zazen is exactly touching the real core, quality of life and death. If you kick out all things, what’s left?
 
-That is, Buddhism always says, emptiness. 
+That is, Buddhism always says, [emptiness](*[unintelligible]*) . 
 
 Emptiness is not a nihilistic quality of existence. [The] quality of existence, so-called emptiness, is really dynamic working. But no one can touch it, because it’s really dynamic.
 
 ##### 12:19
 
-From this point, when you experience success, you feel good, but you cannot [stay in?] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
+From this point, when you experience success, you feel good; but you cannot [stay in?] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
-So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons; and then what’s left? Nothing to get in your hand; but is it ..., is it just nothing to do? No, I don’t mean this. Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is seamless life. Seamless life, seamless death. And then at that time, we can really [leave?] so-called human culture.
+So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons; and then what’s left? Nothing to get in your hand; but is it just silence, is it just nothing to do? No, I don’t mean this. Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is seamless life. Seamless life, seamless death. And then at that time, we can really [leave?] so-called human culture.
 
-I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. How do you light the candle of human culture? Human culture means your individual daily life is also human culture, beautiful culture. That beautiful culture of your life is – what? Something you have to ...? People can understand, people see it? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. That’s why I told you before, [the] quality of [your] life must be taught by your back. Back means not back opposed to front – do you remember? My teacher said the Zen teacher teaches  Buddhist teachings with his back. Back means seamless, formless teaching, constantly.
+I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
+
+How do you light the candle of human culture? ... Your individual daily life is also human culture; beautiful culture. That beautiful culture of your life is – what? Something you have to *[unintelligible]*? People can understand, people see it? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
+
+That’s why I told you before, [the] quality of [your] life must be taught by your back. ‘Back’ means not back opposed to front – do you remember? My teacher says the Zen teacher teaches Buddhist teachings with his back. ‘Back’ means seamless, formless teaching, constantly.
 
 ##### 16:25
 

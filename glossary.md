@@ -943,6 +943,13 @@ The three times: past, present, and future.
 ## Tibetan Buddhism
 
 ---
+## Tōrō
+
+Lantern.
+
+From [Wikipedia: Tōrō](https://en.wikipedia.org/wiki/Tōrō): In Japan, a tōrō (灯籠 or 灯篭, 灯楼, light basket, light tower)[note 1] is a traditional lantern made of stone, wood, or metal. Like many other elements of Japanese traditional architecture, it originated in China; where they can still be found in Buddhist temples and Chinese gardens. 
+
+---
 # U
 
 ---
