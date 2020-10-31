@@ -183,29 +183,27 @@ So, [the] four kinds of horses are exactly living in the realm of no discriminat
 
 ##### 36:08
 
-For instance, playing piano, I told you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, composers heart, all the organs, heart and feelings. And then you can really play. 
+For instance, playing piano, I tell you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; all the organs, heart and feelings. And then you can really play. 
 
-So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the ... To touch the piano is to touch all sentient beings. And then at that time, this is called to touch the keys. That is the ... so your presence is not only your presence but simultaneously presence of the whole world. ... At that time, you can really take entire responsibility for you life, with ... That is great. 
+So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the *[unintelligible]*. To touch the piano is to touch all sentient beings! And then at that time, this is called to touch the keys. That is the *[unintelligible]*. So your presence is not only your presence but simultaneously [the] presence of the whole world; trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
 
-### 37:40 
+You do zazen, that’s why zazen is [not just] for deepening your [own] life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
 
-You do zazen, that’s why zazen is not ... for ... your life. That’s why Dogen’s ... is doing zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings. 
+### 38:10
 
-If so, it’s not necessary to ... who controls the whole. He understands ... .... so just let go of any kind of horses, without controlling without getting hit first. ... Of course, you need a whip. We need a whip because when the ... was born, sit .... because Buddha says, ... even cat and dog are buddha. If dogs and cats are buddha, ... his skin, his muscles and other cats. ... says that is common consciousness, but whatever you say doesn’t hit the mark. Anyway you have to understand you as human being, but that human being is really ... strict. Strict is to the path. You have to understand human life for long, long length. 
+If so, it’s not necessary [for] the rider who controls the horse to understand all [the] kinds of horses. So just let go of any kind of horses, without controlling, without getting *[unintelligible]*. Of course, you need a whip. Remember this. *[unintelligible]* We need a whip because, when the cat *[unintelligible]* was born, *[unintelligible]* because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, *[unintelligible]* one with his skin, his muscles and other cats. The Zen master says that is common consciousness, but whatever you say, it doesn’t hit the mark. Anyway you have to understand you as a human being, but that human being is really [straight?]. Straight is to the path. You have to understand human life for long, long range. 
 
-##### 39:47
+If you understand your life for [the] long range, through the past, through the future, you cannot criticize the degree of stupidness, *[he laughs]* how stupid you are. Because this is karmic life.
 
-If you understand your life for long range, through the past, through the future, you cannot criticize the degree of stupidenes. *[he laughs]* How stupid you are. Because this is karmic life.
+Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain [that] you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t now.
 
-Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain, you know why, but ... is just a speck of dust, because you don’t now. ...
+So you have to really understand human life for long range. At that time whatever makes you [think] how [stinky?] you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take care of that aspect of human life. 
 
-So you have to really understand human life for long range. At that time whatever makes you ... how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just ... accept and take care of that aspect of human life. 
+From this point, ... the whip. You need a whip. Shall I touch just a hair? Shall I touch the skin, shall I touch the bone and the muscles? That’s alright. This is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation, because your life is really long. 
 
-From this point, ... the whip. You need the whip. ... touch ... shall I touch the skin, shall I touch the bone and the muscles. That’s alright. This is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation, because your life is really long. 
+If you really understand this karmic life, karmic life turns into Buddha’s life. You can really accept [it]. [To] accept is not just to accept at random; you have to accept and next, you have to take care of your life in [a] positive way. 
 
-If you really understand this karmic life, ... turns into Buddha’s life. You can really accept. And then, accept is not just accept at random. You have to accept and ... take care of your life in positive way. Taht is meaning of a whip.
-
-Or practice ... effort, constantly. Human energy is a sort of energy, you can keep your life as a Buddha. 
+That is the meaning of a whip. Or practice, human effort, constantly. Human effort is a sort of energy [so that] you can keep your life as a Buddha.
 
 ##### 43:30
 
