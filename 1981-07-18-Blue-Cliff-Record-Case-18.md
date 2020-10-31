@@ -110,32 +110,44 @@ And then,
 
 > The Emperor said, “Please tell me, Master, what the monument would look like.”
 
-This person is a very nice person. Because the National Teacher wants to build up a seamless monument, so what is a seamless monument? So would you tell me what kind of seamless you would want to have?
+This is a very nice person. Because the National Teacher wants to build up a seamless monument, [the Emperor asks,] “What is a seamless monument?” Would you tell me what kind of seamless you would want to have?
 
-> The National Teacher was silent for a long time; then he asked, “Do you understand?”
+##### 22:43
+
+> The National Teacher was silent for a long time; then he asked, “Do you understand?”  
 > The Emperor said, “I don’t understand.”
 
-“dont understand” two meanings. Bodhidharma said also, was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
+This “I don’t understand” has two meanings. Bodhidharma said [this] also, [when he] was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
-This is also “I don’t know.” But he knows pretty well. He knows very clearly who he is, becoming one. At taht time there is nothing to dichotomize or contaminate. For instance, when you really do something with your wholeheartedness, cleaning the room, ...., ...., at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care the time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know.
+This is also “I don’t know.” But he knows pretty well. He knows very clearly who he is, becoming one. At that time there is nothing to dichotomize or contaminate. 
 
-[Playing] Japanese Go, Japanese people like very much playing Go. Go is very wonderful to play, but if you started to do this and you completely forget the time, you’re really devoted into it. Even midnight, you stay late, all night you can stay, just playing Go all night. You don’t feel tired, you don’t feel what time it is, you don’t want anything except [to play] Go. 
+##### 23:55
 
-So even though someone asks you what time it is, you don’t know. But time is already with you, so you know the time pretty well. But when you become really one with time, you don’t know time. When you’re riding an airplane, ... when you become one with the speed of ... you don’t know how fast the airplane goes. All you have to doi is just be there. And then if people are asking you, how far the plane is going, you don’t know. But it’s really fast. 
+For instance, when you really do something with your wholeheartedness, cleaning the room, and putting the *[unintelligible]* washing machine, at that time you don’t know who you are, or you don’t know how fast time is going; you don’t care. At that time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
+
+Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this and you completely forget time and space, you’re really devoted to it. Even at midnight, you can stay late, all night you can stay, just playing Go all night. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
+
+So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. Do you understand? When you’re riding an airplane,  when you become one with the speed of time, you don’t know how fast the airplane goes. All you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. 
 
 This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
 
 ##### 26:32 
 
-So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? You say I am enlightened person. Still you create lots of space between you and enlightenment. If you are really great enlightened person .. there is no space to look at objectively. ... you don’t know. 
+So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and enlightenment. If you’re a really great enlightened person, there’s only one, there is no space to look at [it] objectively. So you don’t know. 
 
-Just like shaking bottle filled with water. Completely one; at that time you cannot make noise. But if you shake a bottle with a little water, you shake it, your really make noise. That is, you know pretty well how “great” I am, but if you shake the bottle completely filled with water, you don’t know how much [there is]. So no sound. That is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of ... majesty, and improbability. But nothing to say. 
+[It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you [take] a bottle with a little water and shake it, you know you really make noise. That is [like], “you know pretty well how great I am,” but if you shake the bottle completely filled with water – you don’t know how much [there is]. 
 
-So that means “I don’t know.” Bodhidharma said. Or the other one is, “I don’t know” means completely I don’t know, because I have no idea. People ask me what Buddhism is, what zazen is, you say, “I don’t know.” That is really I don’t know. *[he laughs]* Don’t you think so? 
+So, no sound. That is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of *[unintelligible]* or majesty, and [improbability?], just this. But, nothing to say. 
 
-##### 29:00
+So that is the “I don’t know” that Bodhidharma said.
 
-If you say “I don’t know,” you cannot get any ... to tell you, or to teach. But if you really know zazen, even though you cannot say, if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
+##### 28:34
+
+Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. 
+
+People ask me what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
+
+If you say “I don’t know,” you cannot get any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
 
 ##### 29:41
 
