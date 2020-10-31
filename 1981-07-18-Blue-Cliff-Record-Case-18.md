@@ -32,10 +32,13 @@ Case 18 of Blue Cliff Record:
 > 
 > South of Hsiang, north of T’an;  
 >> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
+>
 > In between there’s gold sufficient to a nation.  
 >> Hsueh Tou added the comment, “A rough-hewn staff.”  
+>
 > Beneath the shadowless tree, the community ferryboat;  
 >> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+>
 > Within the crystal palace, there is no one who knows.  
 >> Hsueh Tou added the comment, “He has raised it up.”  
 
