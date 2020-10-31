@@ -147,7 +147,7 @@ Or, the other “I don’t know” means completely “I don’t know,” becaus
 
 If you say “I don’t know,” you cannot get any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
 
-The “I don’t know” of Emperor Wu, I don’t know which of two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know. I don’t know. No one knows. Okay? *[some laughter]* But anyway from this story, Emperor Wu was not the common people, he was a “great Zen Buddhist”.
+The “I don’t know” of Emperor Wu, I don’t know which of two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway from this story, Emperor Wu was not the common people, he was a “great Zen Buddhist”.
 
 ##### 30:32
 
@@ -173,17 +173,17 @@ Four kinds of horses. *[he chuckles]* I don’t know which of the horses you bel
 
 From this, maybe you understand [that] the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
 
-In Buddhism, if the whip touches the hair – strictly speaking, you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without touching the bones, without the muscles and skin, how can you know the whip touches there?
+In Buddhism, if the whip touches a hair – strictly speaking, you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without touching the bones, without the muscles and skin, how can you know the whip touches there?
 
 So to touch a hair means completely to touch the whole body. In other words, broadly speaking, in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly [the] truth; but you don’t know, you don’t believe this. 
 
 That’s why [Buddha] and Dogen Zenji ... explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
 
-So, [the] four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body – and then, at that time, you can run.
+So, [the] four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
 
 ##### 36:08
 
-For instance, playing piano, I told you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composers life, the composers feelings, composers heart, all the organs, heart and feelings. And then you can really play. 
+For instance, playing piano, I told you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, composers heart, all the organs, heart and feelings. And then you can really play. 
 
 So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the ... To touch the piano is to touch all sentient beings. And then at that time, this is called to touch the keys. That is the ... so your presence is not only your presence but simultaneously presence of the whole world. ... At that time, you can really take entire responsibility for you life, with ... That is great. 
 
