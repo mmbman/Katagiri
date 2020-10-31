@@ -41,7 +41,7 @@ This is a common question to a person who is about to die. “What do you want a
 
 ##### 5:00
 
-> The National Teacher said, “Build a seamless monument for me.”[<sup>3</sup>]
+> The National Teacher said, “Build a seamless monument for me.”
 
 A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* ... whatever. That is freedom, for ... ... free from the dangerous situation ... So that by this pond you have big lanterns. You know the lanterns in the temple? Not like this, ... lanterns, you can see in picture. And then these lanterns are called seamless lanterns. That means that pond is called [Hosho?] ... ... means “lets be alive”, just let go of...  So for this, you cannot have any exception to ... just let go of it. So, seamless: seamless means formless. In Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
 
@@ -97,12 +97,12 @@ So that’s why the National Teacher said, “Build a seamless monument for me.�
 
 And then,
 
-> The Emperor said, “Please tell me, Master, what the monument would look like.”[<sup>4</sup>]
+> The Emperor said, “Please tell me, Master, what the monument would look like.”
 
 This person is a very nice person. Because the National Teacher wants to build up a seamless monument, so what is a seamless monument? So would you tell me what kind of seamless you would want to have?
 
-> The National Teacher was silent for a long time; then he asked, “Do you understand?”[<sup>5</sup>]
-> The Emperor said, “I don’t understand.”[<sup>6</sup>]
+> The National Teacher was silent for a long time; then he asked, “Do you understand?”
+> The Emperor said, “I don’t understand.”
 
 “dont understand” two meanings. Bodhidharma said also, was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
@@ -206,15 +206,15 @@ So finally the emperor said, “I don’t know.” But whatever kind of meaning 
 
 ##### 55:46
 
-National Teacher said “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.” After the National Teacher passed on,[<sup>8</sup>] the Emperor summoned Tan Yuan and asked him what the meaning of this was.[<sup>9</sup>] Tan Yuan said,
+National Teacher said “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.” After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 
-> South of Hsiang, north of T’an;[<sup>10</sup>]
+> South of Hsiang, north of T’an;
 
 That means – wherever. 
 
 Life and death is not something limited by name or concept or philosophy or psychology, life is something which exists wherever. Eternal space, enteral time. This is life. 
 
-> – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”[<sup>11</sup>]
+> – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
 Well, eternal life, eternal space and time is what? Can you make a sound? No. No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. Completely one bottle; not bottle and water. That is one hand. 
 
@@ -226,19 +226,19 @@ That’s why Hsueh Tou added the comment, “A single hand does not make random 
 
 ##### 58:54
 
-> In between there’s gold sufficient to a nation.[<sup>12</sup>]
+> In between there’s gold sufficient to a nation.
 
 That means silent, nothing to say means something in vain? No, it’s just like gold. Still filled up, completely, filling the whole world. That is the quality, that is the material of the monument. You have to build up a seamless monument with this gold. quality. life. But we believe name of life, that is not quality of life. Quality of life is completely go.d, filling the whole world.
 
 ##### 1:00:02
 
-> – Hsueh Tou added the comment, “A rough-hewn staff.”[<sup>13</sup>]
+> – Hsueh Tou added the comment, “A rough-hewn staff.”
 
 That silence ... gold is not something a person refined it. It is just like rough-hewn staff, directly from the wilderness, which no one has touched. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
 ##### 1:01:10
 
-> Beneath the shadowless tree, the community ferryboat;[<sup>14</sup>]
+> Beneath the shadowless tree, the community ferryboat;
 
 This is the meaning of [eternal?] time. 
 
@@ -248,7 +248,7 @@ That’s why day by day, in the practice, gassho, and doing zazen, ... are very 
 
 ##### 1:04:14
 
-> – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”[<sup>15</sup>]
+> – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
 
 That is really spiritual security, so called spiritual security. If you do this on the basis of human existence, there eis always spiritual security, which is going on constantly, carried on and on. Consciously or unconsciously. 
 
@@ -256,7 +256,7 @@ That is not always calm. It’s really alive.
 
 ##### 1:04:58
 
-> Within the crystal palace, there’s no one who knows.[<sup>16</sup>]
+> Within the crystal palace, there’s no one who knows.
 
 If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that is something great, wonderful, which has lots of ... lights coming from the bodies and coming from your spirit. I don’t think so. 
 
@@ -278,7 +278,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there’s no one who 
 
 ##### 1:12:02
 
-> – Hsueh Tou added the comment, “He has raised it up.”[<sup>17</sup>]
+> – Hsueh Tou added the comment, “He has raised it up.”
 
 Exactly. Exactly, that is holding, understand of life. 
 
