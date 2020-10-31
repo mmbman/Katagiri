@@ -17,21 +17,27 @@
 Case 18 of Blue Cliff Record:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
+> 
 > The National Teacher said, “Build a seamless monument for me.”
+> 
 > The Emperor said, “Please tell me, Master, what the monument would look like.”
+> 
 > The National Teacher was silent for a long time; then he asked, “Do you understand?”
+> 
 > The Emperor said, “I don’t understand.”
+> 
 > The National Teacher said, “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.”
+> 
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 > 
-> South of Hsiang, north of T’an;
-> – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
-> In between there’s gold sufficient to a nation.
-> – Hsueh Tou added the comment, “A rough-hewn staff.”
-> Beneath the shadowless tree, the community ferryboat;
-> – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
-> Within the crystal palace, there’s no one who knows.
-> – Hsueh Tou added the comment, “He has raised it up.”
+> South of Hsiang, north of T’an;  
+> – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
+> In between there’s gold sufficient to a nation.  
+> – Hsueh Tou added the comment, “A rough-hewn staff.”  
+> Beneath the shadowless tree, the community ferryboat;  
+> – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+> Within the crystal palace, there’s no one who knows.  
+> – Hsueh Tou added the comment, “He has raised it up.”  
 
 ##### 3:05
 
