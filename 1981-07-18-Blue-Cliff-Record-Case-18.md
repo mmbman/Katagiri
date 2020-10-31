@@ -1,15 +1,14 @@
 <a name="0"></a>
-# Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument
-## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
-
 [Previous](unfinished-1981-1#0) – 
 [Home](index#blue-cliff-record-case-18) – 
 [Next](unfinished-1981-2#0)
 
----
-[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19810718.mp3)
+# Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument
+## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is still in rough draft form.**
+
+[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19810718.mp3)
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -23,7 +22,7 @@ Case 18 of Blue Cliff Record:
 > The Emperor said, “I don’t understand.”
 > The National Teacher said, “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.”
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
-
+> 
 > South of Hsiang, north of T’an;
 > – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 > In between there’s gold sufficient to a nation.
@@ -37,7 +36,7 @@ Case 18 of Blue Cliff Record:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die. “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chi?] emperors in the different ages, his disciples and many people expected something specific [of him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him ... after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die. “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chi?] emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him ... after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
 
 ##### 5:00
 
@@ -284,7 +283,6 @@ Exactly. Exactly, that is holding, understand of life.
 
 ##### 1:12:32 end of recording
 
----
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2#0)
 
 [Home](index#blue-cliff-record-case-18)
