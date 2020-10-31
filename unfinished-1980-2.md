@@ -3,7 +3,7 @@
 
 [Previous](1980-07-02-Karma-Where-Karma-Originates#0) – 
 [Home](index#1980) – 
-[Next](unfinished-1981#0)
+[Next](unfinished-1981-1#0)
 
 ---
 1. 07/03/1980	Karma: Unmanifested	

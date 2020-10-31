@@ -26,16 +26,16 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)	
-
+	
 1. Save All Sentient Beings
 1. Blue Cliff Record: Case 3 – Talk 1
 1. Blue Cliff Record: Case 3 – Talk 2
 1. Blue Cliff Record: Case 4 – Talk 1
 1. Blue Cliff Record: Case 4 – Talk 2
-
+	
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
 1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
-
+	
 1.	Karma: Unmanifested	
 1. Karma: Taking Care of Karma
 1. Karma: Attribution in Present Life	
@@ -61,7 +61,9 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1.	Blue Cliff Record: Case 13
 1.	Blue Cliff Record: Case 14
 1.	Blue Cliff Record: Case 15
-1.	Blue Cliff Record: Case 18
+	
+1.	<a name="blue-cliff-record-case-18"></a>[Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18#0)
+	
 1.	Blue Cliff Record: Case 20 – Talk 1
 1.	Blue Cliff Record: Case 20 – Talk 2
 1.	Blue Cliff Record: Case 22

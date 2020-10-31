@@ -1,7 +1,7 @@
 <a name="0"></a>
 # Not Yet Transcribed: 1982
 
-[Previous](unfinished-1981#0) – 
+[Previous](unfinished-1981-2#0) – 
 [Home](index#1982) – 
 [Next](unfinished-1983#0)
 

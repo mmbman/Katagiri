@@ -3,7 +3,7 @@
 ## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [Previous](unfinished-1981-1#0) – 
-[Home](index#1981) – 
+[Home](index#blue-cliff-record-case-18) – 
 [Next](unfinished-1981-2#0)
 
 ---
@@ -287,4 +287,4 @@ Exactly. Exactly, that is holding, understand of life.
 ---
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2#0)
 
-[Home](index#1981)
+[Home](index#blue-cliff-record-case-18)
