@@ -267,29 +267,29 @@ Life and death is not something limited by name or concept or philosophy or psyc
 
 > – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
-Well, eternal life, eternal space and time is what? Can you make a sound? No. No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. Completely one bottle; not bottle and water. That is one hand. One hand cannot make a sound at random. So that is really total picture of life and death, which is called seamless monument, [which] he really wanted to build up.
+Well, eternal life, eternal space and time is what? Can you make a sound? No. No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. Completely one bottle; not bottle and water. That is one hand. One hand cannot make a sound at random. So that is really total picture of life and death, which is called [a] seamless monument, [which] he really wanted to build up.
 
-To build up a seamless monument means not for him, for all sentient beings, for the disciples who are still alive ... to the future. You have to build a seamless monument – not for me, for you! 
+To build up a seamless monument means not for him, [but] for all sentient beings, for the disciples who are still alive, from the *[unintelligible]* to the future. *You* have to build a seamless monument – not for me, for *you*! 
 
-That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment ....
+That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment ...
 
 ##### 58:54
 
 > In between there’s gold sufficient to a nation.
 
-That means silent, nothing to say means something in vain? No, it’s just like gold. Still filled up, completely, filling the whole world. That is the quality, that is the material of the monument. You have to build up a seamless monument with this gold. quality. life. But we believe name of life, that is not quality of life. Quality of life is completely go.d, filling the whole world.
+[Does] silent, nothing to say mean [it is] something in vain? No, it’s just like gold – still filled up, completely filling the whole world. That is the quality, that is the material of the seamless monument. You have to build up a seamless monument with this gold, [the] quality [of] life. But we believe [the] *name* of life; that is not [the] quality of life. The quality of life is completely gold, filling the whole world.
 
 ##### 1:00:02
 
 > – Hsueh Tou added the comment, “A rough-hewn staff.”
 
-That silence ... gold is not something a person refined it. It is just like rough-hewn staff, directly from the wilderness, which no one has touched. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
+That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness, which no one has touched. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
 ##### 1:01:10
 
 > Beneath the shadowless tree, the community ferryboat;
 
-This is the meaning of [eternal?] time. 
+This is the meaning of eternal time.
 
 When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, past, present, future – this is touching the key of the piano. But according to time process we don’t understand ... But even the time process, according to time process, one moment, according to dance, human life is analyzed according to exactly the moment after moment. So ini one moment, countless beings exist. That is the most im[portant attitude how we should take toward human life. Because that moment is really wonderful community ferryboat. ... But you don’t believe in that way, but it is most important attitude we should take forward. 
 
