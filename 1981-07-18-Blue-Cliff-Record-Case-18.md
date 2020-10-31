@@ -3,6 +3,7 @@
 [Home](index#blue-cliff-record-case-18) – 
 [Next](unfinished-1981-2#0)
 
+---
 # Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument
 ## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
@@ -283,6 +284,7 @@ Exactly. Exactly, that is holding, understand of life.
 
 ##### 1:12:32 end of recording
 
+---
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2#0)
 
 [Home](index#blue-cliff-record-case-18)
