@@ -46,13 +46,13 @@ Case 18 of Blue Cliff Record:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die. “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chi?] emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect [him] after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die. “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chinese?] emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect [him] after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
 
 ##### 5:00
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* ... whatever. So that is freedom, at that time and place, for the *[unintelligible]* to be free from the dangerous situation. So by this pond you have big lanterns. You know the lanterns in the temple? Not like this ... lanterns, you can see in picture. ([Tōrō](glossary#tōrō)) And then these lanterns are called seamless lanterns. That means that pond is called [Hosho?] ... ... means “lets be alive”, just let go of *[unintelligible]*. So for this, you cannot have any exception to *[unintelligible]* – just let go of it. So, seamless means formless; in Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
+A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* [and turmoil?], whatever. So that is freedom, at that time and place, [from] the *[unintelligible]* – to be free from the dangerous situation. So by this pond you have big lanterns. You know the lanterns in the temple? Not like this ... lanterns, you can see in picture. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That means that pond is called [hoshō?], that means “let’s be alive,” just let go of [grief?]. So for this, you cannot have any exception to *[unintelligible]* – just let go of it. So, seamless means formless. In Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
 
 Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
@@ -62,9 +62,9 @@ In your life, what we can perceive is filled with pros and cons, successes and f
 
 But this is [picking?] up those names. You call [it] life and death. Kick out those [names?] completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely kick [them] out. What’s left? 
 
-What’s left is really important, because this is [the] quality of life. Life is already a name you put on [it], but you have to know the quality of life. You say death, but that death is a name of death you put on [it], you have to know the real quality of death, what is the quality of death. 
+What’s left is really important, because this is [the] quality of life. Life is already a name you put on [it], but you have to know the *quality* of life. You say death, but that death is a name of death [which] you put on [it]; you have to know the real quality of death. What is the quality of death?
 
-Zazen is exactly... Well, sitting right now, right here means you cannot bring any name, any concept into what to do; so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly something in zazen, it’s not really zazen. Zazen is exactly touching the real core, quality of life and death. If you kick out all things, what’s left?
+[In] zazen, sitting right now, right here means you cannot bring any name, any concept into what to do; so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly something in zazen, it’s not really zazen. Zazen is exactly touching the real core, [the] quality of life and death. If you kick out all things, what’s left?
 
 That is, Buddhism always says, [emptiness](*[unintelligible]*) . 
 
