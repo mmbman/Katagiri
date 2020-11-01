@@ -173,15 +173,17 @@ In Shobogenzo “[Four Horses (Japanese: Shime)](dogen#four-horses)”, Dogen Ze
 > 
 > (Source unknown)
 
-Four kinds of horses. *[he chuckles]* I don’t know which of the horses you belong to, but anyway, most people are just like this.
+Four kinds of horses. *[he chuckles]* I don’t know which of the horses *you* belong to, but anyway, most people are just like this.
+
+##### 33:05
 
 From this, maybe you understand [that] the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
 
-In Buddhism, if the whip touches a hair – strictly speaking, you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without touching the bones, without the muscles and skin, how can you know the whip touches there?
+In Buddhism, if the whip touches a hair – strictly speaking, you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without touching the bones, without the muscles and skin, how can you know the whip touches the hair?
 
 So to touch a hair means completely to touch the whole body. In other words, broadly speaking, in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly [the] truth; but you don’t know, you don’t believe this. 
 
-That’s why [Buddha] and Dogen Zenji ... explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
+That’s why [Buddha] and Dogen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
 
 So, [the] four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
 
@@ -193,7 +195,7 @@ So what do you mean, touch the piano? Touching the piano is not touching the key
 
 You do zazen, that’s why zazen is [not just] for deepening your [own] life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
 
-### 38:10
+##### 38:10
 
 If so, it’s not necessary [for] the rider who controls the horse to understand all [the] kinds of horses. So just let go of any kind of horses, without controlling, without getting *[unintelligible]*. Of course, you need a whip. Remember this. *[unintelligible]* We need a whip because, when the cat *[unintelligible]* was born, *[unintelligible]* because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, *[unintelligible]* one with his skin, his muscles and other cats. The Zen master says that is common consciousness, but whatever you say, it doesn’t hit the mark. Anyway you have to understand you as a human being, but that human being is really [straight?]. Straight is to the path. You have to understand human life for long, long range. 
 
