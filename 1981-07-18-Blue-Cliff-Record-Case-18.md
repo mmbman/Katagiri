@@ -191,15 +191,21 @@ So, [the] four kinds of horses are exactly living in the realm of no discriminat
 
 For instance, playing piano, I tell you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; all the organs, heart and feelings. And then you can really play. 
 
-So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the *[unintelligible]*. To touch the piano is to touch all sentient beings! And then at that time, this is called to touch the keys. That is the *[unintelligible]*. So your presence is not only your presence but simultaneously [the] presence of the whole world; trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
+So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the *[unintelligible]*. To touch the piano is to touch all sentient beings! And then at that time, this is called to touch the keys. That is the *[unintelligible]*. So your presence is not only your presence but simultaneously [the] presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
 
-You do zazen, that’s why zazen is [not just] for deepening your [own] life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
+[When] you do zazen, that’s why zazen is [not just] for deepening your [own] life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
 
 ##### 38:10
 
-If so, it’s not necessary [for] the rider who controls the horse to understand all [the] kinds of horses. So just let go of any kind of horses, without controlling, without getting *[unintelligible]*. Of course, you need a whip. Remember this. *[unintelligible]* We need a whip because, when the cat *[unintelligible]* was born, *[unintelligible]* because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, *[unintelligible]* one with his skin, his muscles and other cats. The Zen master says that is common consciousness, but whatever you say, it doesn’t hit the mark. Anyway you have to understand you as a human being, but that human being is really [straight?]. Straight is to the path. You have to understand human life for long, long range. 
+If so, it’s not necessary [for] the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the [whip?]. 
 
-If you understand your life for [the] long range, through the past, through the future, you cannot criticize the degree of stupidness, *[he laughs]* how stupid you are. Because this is karmic life.
+Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, *[unintelligible]* Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the cat] was one with his skin, his muscles and other cats. 
+
+The Zen master says that is common consciousness, but whatever you say, it doesn’t hit the mark. Anyway you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for [the] long, long range. 
+
+If you understand your life for [the] long range, through the past, through the future, you cannot criticize the degree of stupidness, how stupid you are. *[he laughs]* Because this is karmic life.
+
+##### 40:20
 
 Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain [that] you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t now.
 

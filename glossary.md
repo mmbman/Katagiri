@@ -225,6 +225,7 @@ An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 - [Fukanzazengi – Talk 2 (27:00)](1979-06-10-Fukanzazengi-Talk-2#2700)
 - [Blue Cliff Record Case 2: Lecture 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
+- [Blue Cliff Record: Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
 
 ---
 ## Chan
