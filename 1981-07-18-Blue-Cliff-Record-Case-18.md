@@ -52,7 +52,9 @@ This is a common question to a person who is about to die. “What do you want a
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* [and turmoil?], whatever. So that is freedom, at that time and place, [from] the *[unintelligible]* – to be free from the dangerous situation. So by this pond you have big lanterns. You know the lanterns in the temple? Not like this ... lanterns, you can see in picture. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That means that pond is called [hoshō?], that means “let’s be alive,” just let go of [grief?]. So for this, you cannot have any exception to *[unintelligible]* – just let go of it. So, seamless means formless. In Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
+A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* [and turmoil?], whatever. So that is freedom, at that time and place, [from] the *[unintelligible]* – to be free from the dangerous situation. 
+
+So by this pond you have big lanterns. You know the lanterns in the temple? Not like this ... lanterns, you can see in picture. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That means that pond is called [hoshō?], that means “let’s be alive,” just let go of [grief?]. So for this, you cannot have any exception to *[unintelligible]* – just let go of it. So, seamless means formless. In Prajnaparamita, we say formless; no form, no eyes, no ears. So, seamless lantern.
 
 Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
@@ -74,7 +76,9 @@ Emptiness is not a nihilistic quality of existence. [The] quality of existence, 
 
 From this point, when you experience success, you feel good... But you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
-So strictly speaking, why don’t you kick off the cloud of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But, is it just silence? Is it just nothing to do? No, I don’t mean this. Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
+So strictly speaking, why don’t you kick off the cloud of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But, is it just silence? Is it just nothing to do? No, I don’t mean this. 
+
+Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
 
 I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
 
@@ -88,9 +92,9 @@ That’s why I told you before, [the] quality of [your] life must be taught by y
 
 So whoever you are, if you live a real life just like this, people can accept something [about] how important human life is from you. Not from ... the right side, left side, back side; [from the] seamless form of your existence, which you have taken care of.
 
-For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. Because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand, it’s very hard for us to accept.
+For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. [This is] because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [logically], it’s very hard for us to accept.
 
-If you don’t want to accept, that’s okay, it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale human being, [isolated] from the people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
+If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale human being, [isolated] from people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
 
 So then finally you have self-doubt. Self-doubt means [you think], “I am stupid.” You’re not stupid, but a certain big doubt comes up. 
 
