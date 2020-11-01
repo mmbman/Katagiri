@@ -123,23 +123,23 @@ This is a very nice person. Because the National Teacher wants to build a seamle
 
 This “I don’t understand” has two meanings. Bodhidharma said [this] also, [when he] was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
-This is also “I don’t know.” But he knows pretty well; he knows very clearly who he is, becoming one. At that time there is nothing to dichotomize, or contaminate. 
+This is also “I don’t know.” But [Bodhidharma] knows pretty well; he knows very clearly who he is: becoming one. At that time there is nothing to dichotomize, or contaminate. 
 
 ##### 23:55
 
-For instance, when you really do something with your wholeheartedness, cleaning the room, and putting the *[unintelligible]* washing machine, at that time you don’t know who you are, or you don’t know how fast time is going; you don’t care. At that time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
+For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going; you don’t care. At that time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
 
-Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this and you completely forget time and space, you’re really devoted to it. Even at midnight, you can stay late, all night you can stay, just playing Go all night. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
+Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay all night, just playing Go. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
 
-So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. Do you understand? When you’re riding an airplane,  when you become one with the speed of time, you don’t know how fast the airplane goes. All you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. 
+So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well; but when you become really one with time, you don’t know time. Do you understand? When you’re riding an airplane,  when you become one with the speed of time, you don’t know how fast the airplane goes. All you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. 
 
 This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
 
 ##### 26:32 
 
-So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and enlightenment. If you’re a really great enlightened person, there’s only one, there is no space to look at [it] objectively. So you don’t know. 
+So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and enlightenment. If you’re a really great enlightened person, [then] there’s only one, there is no space to look at [it] objectively. So you don’t know. 
 
-[It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you [take] a bottle with a little water and shake it, you know you really make noise. That is [like], “you know pretty well how great I am,” but if you shake the bottle completely filled with water – you don’t know how much [there is]. 
+[It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you take a bottle with a little water and shake it, you know you really make noise. That is [like], “you know pretty well how great I am” – but if you shake the bottle completely filled with water, you don’t know how much [there is]. 
 
 So, no sound. That is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of *[unintelligible]* or majesty, and [improbability?], just this. But, nothing to say. 
 
