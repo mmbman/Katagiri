@@ -76,7 +76,7 @@ Emptiness is not a nihilistic quality of existence. [The] quality of existence, 
 
 ##### 12:19
 
-From this point, when you experience success, you feel good... But you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
+From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
 So strictly speaking, why don’t you kick off the cloud of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But, is it just silence? Is it just nothing to do? No, I don’t mean this. 
 
@@ -94,7 +94,7 @@ That’s why I told you before, [the] quality of [your] life must be taught by y
 
 So whoever you are, if you really live a life just like this, people can accept something [about] how important human life is from you. Not from the right side, left side, back side, [but from the] seamless form of your existence, which you have taken care of.
 
-For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. [This is] because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
+For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. [This is] because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
 
 If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale of human being, [isolated] from people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
 
@@ -106,7 +106,7 @@ Now I can really treasure the core of human existence which my teacher had demon
 
 So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. Something which he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; [it’s] completely beyond [that]. Of course you can see [those], but the more important [part] of human life is completely beyond there. From his life as a whole, you can really get something. 
 
-That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while [they are] alive, you’re really ignorant; because we are always looking at the front, trying to understand logically, theoretically.
+That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while [they are] alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically.
 
 That is a very common human style. So that’s why the National Teacher said, “Build a seamless monument for me.”
 
