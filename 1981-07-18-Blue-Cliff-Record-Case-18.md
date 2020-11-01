@@ -64,21 +64,21 @@ But this is [picking?] up those names. You call [it] life and death. Kick out th
 
 What’s left is really important, because this is [the] quality of life. Life is already a name you put on [it], but you have to know the *quality* of life. You say death, but that death is a name of death [which] you put on [it]; you have to know the real quality of death. What is the quality of death?
 
-[In] zazen, sitting right now, right here means you cannot bring any name, any concept into what to do; so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly something in zazen, it’s not really zazen. Zazen is exactly touching the real core, [the] quality of life and death. If you kick out all things, what’s left?
+[In] zazen ... sitting right now, right here means you cannot bring any name, any concept into what to do – so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, [the] quality of life and death. If you kick out all things, what’s left?
 
 That is, Buddhism always says, [emptiness](*[unintelligible]*) . 
 
-Emptiness is not a nihilistic quality of existence. [The] quality of existence, so-called emptiness, is really dynamic working. But no one can touch it, because it’s really dynamic.
+Emptiness is not a nihilistic quality of existence. [The] quality of existence, so-called emptiness, is really dynamic working. But no one can touch it, because it’s really *dynamic*.
 
 ##### 12:19
 
-From this point, when you experience success, you feel good. But you cannot [stay in?] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
+From this point, when you experience success, you feel good... But you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
-So strictly speaking, why don’t you kick off the clothes of success and failure, pros and cons; and then what’s left? Nothing to get in your hand; but is it just silence, is it just nothing to do? No, I don’t mean this. Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is seamless life. Seamless life, seamless death. And then at that time, we can really [leave?] so-called human culture.
+So strictly speaking, why don’t you kick off the cloud of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But, is it just silence? Is it just nothing to do? No, I don’t mean this. Nothing, emptiness, dynamic working means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
 
 I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
 
-How do you light the candle of human culture? ... Your individual daily life is also human culture; beautiful culture. That beautiful culture of your life is – what? Something you have to [let?] people ... understand, people see? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
+How do you light the candle of human culture? ... Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let?] people ... understand, [or] see? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
 
 ##### 15:45
 
