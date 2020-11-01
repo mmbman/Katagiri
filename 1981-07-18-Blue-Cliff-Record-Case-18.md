@@ -90,21 +90,21 @@ That’s why I told you before, [the] quality of [your] life must be taught by y
 
 ‘Back’ means not back opposed to front – do you remember? My teacher says the Zen teacher teaches Buddhist teachings with his back. ‘Back’ means seamless, formless teaching, constantly.
 
-So whoever you are, if you live a real life just like this, people can accept something [about] how important human life is from you. Not from ... the right side, left side, back side; [from the] seamless form of your existence, which you have taken care of.
+So whoever you are, if you really live a life just like this, people can accept something [about] how important human life is from you. Not from the right side, left side, back side, [but from the] seamless form of your existence, which you have taken care of.
 
 For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. [This is] because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [logically], it’s very hard for us to accept.
 
-If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale human being, [isolated] from people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
+If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale of human being, [isolated] from people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
 
 So then finally you have self-doubt. Self-doubt means [you think], “I am stupid.” You’re not stupid, but a certain big doubt comes up. 
 
 ##### 19:22
 
-Now I really understand, I can really treasure the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the *[unintelligible]* his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. 
+Now I can really treasure the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. 
 
-So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. Something which he always told me is not something *[unintelligible]* in the possession of form, so-called success or failure, or pros and cons; [it’s] completely beyond [that]. Of course you can see [those], but the more important [part] of human life is completely beyond there. From his life as a whole, you can really get something. 
+So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. Something which he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; [it’s] completely beyond [that]. Of course you can see [those], but the more important [part] of human life is completely beyond there. From his life as a whole, you can really get something. 
 
-That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* peoples death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant; because we are always looking at the front, trying to understand logically, theoretically.
+That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while [they are] alive, you’re really ignorant; because we are always looking at the front, trying to understand logically, theoretically.
 
 That is a very common human style. So that’s why the National Teacher said, “Build a seamless monument for me.”
 
@@ -151,7 +151,7 @@ Or, the other “I don’t know” means completely “I don’t know,” becaus
 
 If you say “I don’t know,” you cannot get any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
 
-The “I don’t know” of Emperor Wu – I don’t know which of the two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
+The “I don’t know” of Emperor Wu – I don’t know which of the two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway, from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
 
 ##### 30:32
 
