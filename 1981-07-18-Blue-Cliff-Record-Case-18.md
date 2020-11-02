@@ -78,7 +78,7 @@ Emptiness is not a nihilistic quality of existence. [The] quality of existence, 
 
 From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
-So strictly speaking, why don’t you kick off the cloud of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But, is it just silence? Is it just nothing to do? No, I don’t mean this. 
+So strictly speaking, why don’t you kick off the clouds of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But, is it just silence? Is it just nothing to do? No, I don’t mean this. 
 
 Nothing, emptiness, dynamic working, means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
 
@@ -201,7 +201,7 @@ So what do you mean, touch the piano? Touching the piano is not touching the key
 
 If so, it’s not necessary [for] the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the [whip?]. 
 
-Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, *[unintelligible]* Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the cat] was one with his skin, his muscles and other cats. 
+Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, *[unintelligible]* Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the cat] was one with his skin, his muscles and other cats. (Note: This paragraph is hard to make out. At the moment, I don’t know what it means.)
 
 The Zen master says that is common consciousness, but whatever you say, it doesn’t hit the mark. Anyway you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for [the] long, long range. 
 
@@ -209,57 +209,69 @@ If you understand your life for [the] long range, through the past, through the 
 
 ##### 40:20
 
-Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain [that] you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t now.
+Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain [that] you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t now, exactly.
 
 So you have to really understand human life for long range. At that time whatever makes you [think] how [stinky?] you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take care of that aspect of human life. 
 
-From this point, ... the whip. You need a whip. Shall I touch just a hair? Shall I touch the skin, shall I touch the bone and the muscles? That’s alright. This is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation, because your life is really long. 
+From this point, *[unintelligible]* the whip. You need a whip. Shall I touch just a hair? Shall I touch the skin, shall I touch the bone and the muscles? That’s alright; this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
 
-If you really understand this karmic life, karmic life turns into Buddha’s life. You can really accept [it]. [To] accept is not just to accept at random; you have to accept and next, you have to take care of your life in [a] positive way. 
+If you really understand this karmic life, karmic life turns into Buddha’s life. You can really accept [it]. [To] accept is not just to accept [it] at random; you have to accept, and next, you have to take care of your life in [a] *positive* way. 
 
-That is the meaning of a whip. Or practice, human effort, constantly. Human effort is a sort of energy [so that] you can keep your life as a Buddha.
+That is the meaning of a whip. Or [of] practice, [constant] effort. Human effort is a sort of energy [so] that you can keep your life as a Buddha.
 
 ##### 43:30
 
-There is a story where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, I don’t ask about the spoken, I don’t ask about the unspoken. In other words, completely beyond words or not-words, karmic life or not karmic life, what is life?”
+There is a story where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
 The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the...”
 
 *[tape change]*
 
-... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching kind of from life as a whole – not front, not back, not life or death – as a whole. And if you do continually take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
+... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death – as a whole. And if you do continue to take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
 
 So, this Brahman really wanted to know what life’s seamless monument is. 
 
-The World Honored One remained silent. Just, “Sit down.” 
+The World-honored One remained silent. Just, sat down.
 
-The outsider bowed in homage, and [sighed?] in praise. He was really surprised to see the Buddha’s silence, “just sit down.” He really attained, he really touched something.
+The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, “just sit down.” He really attained, he really touched something.
 
-And then he said, “The World Honored One, the greatest *[unintelligible]* and great compassion, has dispersed the crowds of my delusion and caused me to gain entry.” 
+And then he said, “The World-honored One, the greatest *[unintelligible]* and great compassion, has dispersed the clouds of my delusion and caused me to gain entry.” 
 
-So after the outsider had left, Ananda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
+So after the outsider had left, Ānanda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
 
-The World Honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
+The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
 ##### 47:05
 
-People often go to the silence for their understanding. What is there to grasp? In Buddhism, silence is important, but silence itself is not important. If I write the words, teaching comes from silence. Many people these days – not only Buddhists, but even Western philosophers – say life and human existence is really based on silence. 
+People often go to the silence for their understanding; what is there to grasp? In Buddhism, silence is important – but silence itself is not important, to keep silent. If I write the words: “Teaching comes from silence” – many people these days, not only Buddhists, but even Western philosophers, say life and human existence is really based on silence. And then we believe that silence is really [the] truth of human existence. But I don’t think so. 
 
-And then we believe that silence is really [the] truth of human existence. But I don’t think so. Because silence *is* human life, true human life. ... if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
+Because silence *is* human life, true human life – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. So you have to know the world completely unfolded beyond silence. 
 
-If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, zazen is just to sit down without doing [anything]? No; it doesn’t mean that. Because we have already [time and place?], so-called [karmic?] monkey mind. So you have to take care of *[unintelligible]* and then positively we have to take care of [it]. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration – with wholeheartedness, there is [the] big world, absolutely unfolded. Beyond the name of concentration, name of zazen, name of practicer. That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
+If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
+
+If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing [anything]? No, it doesn’t mean that. Because we have already [time and place?], so-called [karmic?] monkey mind. So you have to take care of *[unintelligible]* and then positively we have to take care of [it]. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] big world, absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
+
+That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
 
 ##### 50:31
 
-That is teaching coming from your back. This is teaching coming from a powerless power, [that] you can get from your practice. Behind the power, behind the effort, there is great power. Effort is not something you can create; [there is] power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond [the] name of concentration, name of practicer, name of emptiness – whatever you say, it doesn’t hit the mark. Anyway kick off any clothes. And then what’s left? Nothing to say. 
+That is teaching coming from your back. This is teaching coming from a powerless power, [that] you can get from your practice. Behind the power, behind the effort, there is great power. Effort is not something you can create; [there is] power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond [the] name of concentration, name of practicer, name of emptiness – whatever you say, it doesn’t hit the mark. Anyway, kick off any clouds. And then what’s left? Nothing to say. 
 
 So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called zazen. You have to really work. 
 
-So that is Buddhistic silence; really silent. Silence totally accepts your life including the whole world. Just like touching a hair; if you touch a hair, that means touching the whole world. It is really true, because from where your hair comes? Your hair comes from you? Or from the function of your body? Of course; but that’s still an answer, [an] explanation. But broadly speaking your hair comes from where? [Emptiness?]. That’s great.
+##### 51:55
 
-That’s why it is important to see the hair, it’s very important. The human hair is making sort of a *[unintelligible]* person who gets a Ph.D. *[unintelligible]* He’s a great ... If you compare with a first grade child. No, [the] same. Well, *[unintelligible]* maybe we have to give a whip until the whip touches the skin and the muscle, anyway. But this is your discrimination. Touching the skin is exactly touching the hair and the whole body. So even though first grade child is great, wonderful person, human being, we should totally accept and respect – that is what? Nothing to say. 
+So that is Buddhistic silence; really silent. Silence is totally accept[ing] your life, including the whole world. Just like touching a hair; if you touch a hair, that means touching the whole world. 
 
-But right in the middle of silence you have to say something, because this is human life. For instance, right in the middle of suffering, pain in zazen, can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means [that] you have to die with the pain? No; you have to be alive. So silence in pain is really aliveness. *[unintelligible]*
+It is really true, because from where [does] your hair come? Your hair comes from you? Or from the function of your body? Of course; but that’s still an answer, [an] explanation. But broadly speaking, your hair comes from where? *[unintelligible]* That’s great.
+
+That’s why it is important to see the hair; it’s very important. The human hair is maybe sort of [like] a [person] who gets a Ph.D. [Is] he great if you compare [him] with a first grade child? No, [he is the] same. Well, in turn, maybe we have to give a whip until the whip touches the skin [or] the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though first grade child is great – wonderful person, human being, [and] we should totally accept and respect [him] – that is *what*? Nothing to say. 
+
+But right in the middle of silence you have to say something, because this is a human life. 
+
+For instance, right in the middle of suffering or pain in zazen – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means [that] you have to die with the pain? No; you have to be alive! 
+
+So silence in pain is really aliveness, dynamically, in pain.
 
 ##### 54:47
 
@@ -339,7 +351,7 @@ But if we have really ambivalent conditions, if you are ... you really pay atten
 
 Right in the middle of prediction. Prediction is fine, because in a sense it is true, teaching you who you are, or ... astrology ... told you what is your future. Yes it is. But, don’t believe. You should believe this, but, you shouldn't’ be stuck in there. You should be free from there, from from the thing or prediction. Because this is ... real ... of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically anyway everyone is free. Nothing to limit, nothing to bound your life. Tied up with a certain idea. 
 
-So even though ... prediction ... teach you, telling you the truth of your life.... fine. The truth is still limit of the truth. You have to know behind the truth. Don’t be cheated by the name truth. You have to know the real quality of the truth. Kick out the name of truth of your life, in the future, in the past. That’s fine. But you have to know real quality. for this, you have to kick off the clothes of naming truth, That is really our ... okay?
+So even though ... prediction ... teach you, telling you the truth of your life.... fine. The truth is still limit of the truth. You have to know behind the truth. Don’t be cheated by the name truth. You have to know the real quality of the truth. Kick out the name of truth of your life, in the future, in the past. That’s fine. But you have to know real quality. for this, you have to kick off the clouds of naming truth, That is really our ... okay?
 
 That’s why Hsueh Tou said, “Within the crystal palace, there’s no one who knows.”
 
