@@ -2,7 +2,7 @@
 
 # Table of Contents
 
-Latest transcript: </a>[Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18#0), from [1981](#1981). Posted November 2, 2020.
+Latest transcript: [Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18#0), from [1981](#1981). Posted November 2, 2020.
 
 - [About This Website](about#0)
 
