@@ -145,7 +145,7 @@ This is also one meaning of “I don’t know.” You know pretty well, but if y
 
 So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and enlightenment. If you’re a really great enlightened person, [then] there’s only one, there is no space to look at [it] objectively. So you don’t know. 
 
-[It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you take a bottle with a little water and shake it, you know you really make noise. That is [like], “you know pretty well how great I am” – but if you shake the bottle completely filled with water, you don’t know how much [there is]. 
+[It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you take a bottle with a little water and shake it, you know you really make noise. That is [like], “You know pretty well how great I am.” But if you shake the bottle completely filled with water, you don’t know how much [there is]. 
 
 So, no sound. That is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of *[unintelligible]* or majesty, and [improbability?], just this. But, nothing to say. 
 
@@ -155,7 +155,7 @@ So that is the “I don’t know” that Bodhidharma said.
 
 Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
 
-If you say “I don’t know,” you cannot get any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
+If you say “I don’t know,” you cannot [have] any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
 
 The “I don’t know” of Emperor Wu – I don’t know which of the two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway, from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
 
