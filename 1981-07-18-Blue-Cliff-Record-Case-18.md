@@ -98,7 +98,7 @@ So whoever you are, if you really live a life just like this, people can accept 
 
 For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. [This is] because [of] human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
 
-If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale of human being, [isolated] from people. And [then] people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
+If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like [that], you become a very small scale of human being, isolating from people. Then the people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
 
 So then finally you have self-doubt. Self-doubt means [you think], “I am stupid.” You’re not stupid, but a certain big doubt comes up. 
 
@@ -131,9 +131,9 @@ This is also “I don’t know.” But [Bodhidharma] knows pretty well; he knows
 
 ##### 23:55
 
-For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going; you don’t care about the time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
+For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
 
-Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay all night, just playing Go. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
+Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
 
 So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well; but when you become really one with time, you don’t know time. Do you understand? 
 
@@ -147,7 +147,7 @@ So this is all one meaning. If you know pretty well who you are, you cannot say 
 
 [It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you take a bottle with a little water and shake it, you know you really make noise. That is [like], “You know pretty well how great I am.” But if you shake the bottle completely filled with water, you don’t know how much [there is]. 
 
-So, no sound. That is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of *[unintelligible]* or majesty, and [improbability?], just this. But, nothing to say. 
+So, no sound; that is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of *[unintelligible]* or majesty, and [improbability?]. Just this. But, nothing to say. 
 
 So that is the “I don’t know” that Bodhidharma said.
 
@@ -155,7 +155,7 @@ So that is the “I don’t know” that Bodhidharma said.
 
 Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
 
-If you say “I don’t know,” you cannot [have] any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach you, to teach somebody. So, still people feel that point. 
+If you say “I don’t know,” you cannot [have] any spirit to teach and to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” that “I don’t know” has a really great spirit to teach somebody. So, still people feel that point. 
 
 The “I don’t know” of Emperor Wu – I don’t know which of the two [it was]. *[he laughs]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[some laughter]* But anyway, from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
 
