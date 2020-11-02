@@ -293,6 +293,8 @@ That means: wherever.
 
 Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
 
+So, Tan Yuan said, “South of Hsiang, north of T’an”, and:
+
 > – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
 Well, eternal life, eternal space and time is what? Can you make a sound? No. 
@@ -301,7 +303,7 @@ No matter how long you shake a bottle filled completely with water, you cannot m
 
 So that is really [a] total picture of life and death, which is called [a] seamless monument. [Which] he really wanted to build up.
 
-To build up a seamless monument means not for him, [but] for all sentient beings, for the disciples who are still alive, from the *[unintelligible]*, to the future. *You* have to build a seamless monument – not for me, for *you*! 
+To build up a seamless monument means not for him, [but] for all sentient beings – for the disciples who are still alive, from now on, to the future. *You* have to build a seamless monument – not for me, for *you*! 
 
 That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment [on].
 
@@ -325,11 +327,11 @@ This is the meaning of eternal time.
 
 When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
 
-According to [the] time process, we don’t understand [it that way]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life, because that moment is really [the] wonderful community ferryboat, a great gift. You don’t believe in that way, but it is [the] most important attitude we should take forward.
+According to [the] time process, we don’t understand [it that way]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life – because that moment is really [the] wonderful community ferryboat, a great gift. You don’t believe in that way, but it is [the] most important attitude we should take forward.
 
-That’s why, day by day, in the practice, the gassho, and doing zazen, the chanting, [these things] are very important. The gassho and zazen and chanting are all seamless monuments, [they] must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. *[unintelligible]* 
+That’s why, day by day, in the practice, the gassho, and doing zazen, the chanting, [these things] are very important. The gassho and zazen and chanting are all seamless monuments, [they] must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. 
 
-The religious culture [of] zazen is not only to sit zazen, but you have to light [the] candle of zazen. Do you understand to light? Light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
+But don’t misunderstand. The religious culture [of] zazen is not only to sit zazen, but you have to light [the] candle of zazen. Do you understand to light? Light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
 
 ##### 1:04:14
 
@@ -347,35 +349,37 @@ If you believe the seamless monument of human life and death, and human culture,
 
 I don’t think so. 
 
-That (seamless monument) is really [a] crystal palace, a great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it – there is no one who knows. “There is no one who knows” means spiritual security which lets go of you yourself, as freedom. 
+That (seamless monument) is really [a] crystal palace, a great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it: there is no one who knows. “There is no one who knows” means spiritual security which lets go of *you* yourself, as freedom. 
 
-If you have somebody who knows, you are stuck in this guy or his [name]. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows.
+If you have somebody who knows, you are stuck in this guy or his name. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows.
 
-“Know one knows” means you know pretty well, but [you] must be free from one who knows. Because this is the crystal palace – which I am, which you are, that is everybody. 
+“Know one knows” means you know pretty well, but [you] must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
 
 So if you know, you have to be free from [the] person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is really *[unintelligible]*.
 
-That’s why Hsueh Tou says, “Within the crystal palace, there’s no one who knows.”
+That’s why Hsueh Tou says, “Within the crystal palace, there is no one who knows.”
 
 ##### 1:07:33
 
-In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you [have] fun – but is that really the spiritual security your are looking for? No. Because finally you are really stuck in there.
+In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you [have] fun – but is that really the spiritual security your are looking for? No. Because finally, you are really stuck in there.
 
 The other day someone came to see me and told [me] about her life, because she was predicted by one of the Indian religious persons who was great. At that time she was not ready to accept [that] prediction. But recently she started to believe, because his predictions came to be true! *[he laughs]* But, not all the predictions he gave; [only] some. 
 
-[Those predictions she believed] must be something unwholesome, bad, because people pay really careful attention to something unwholesome, bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in fearful conditions, you really pay attention to it. Then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction. 
+[Those predictions she believed] must be something unwholesome, bad, because people pay really careful attention to something unwholesome [or] bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in fearful conditions, you really pay attention to it. Then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction. 
 
 Prediction is fine, because in a sense it is true, teaching you who you are. [In] astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe [it]. You should believe this, but, you shouldn't be stuck in there. You should be free from the prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically everyone is free. [There is] nothing to limit, nothing to bound your life, tied up with a certain idea. 
 
-So even though a prediction can teach you, tell you the truth of your life toward the future – fine. The truth is still the name of the truth. You have to know *behind* the truth. Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Kick out the name of truth of your life in the future, in the past – that’s fine. But you have to know [the] real quality. For this, you have to kick off the clouds of naming truth. That is really our problem.
+So even though a prediction can teach you, tell you the truth of your life toward the future – fine. The truth is still the *name* of the truth. You have to know *behind* the truth. 
 
-That’s why Hsueh Tou said, “Within the crystal palace, there’s no one who knows.”
+Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take out the name of truth of your life, in the future, in the past – that’s fine. But you have to know [the] real quality. For this, you have to take off the clouds of naming truth. That is really our problem.
+
+That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
 
 ##### 1:12:02
 
 > – Hsueh Tou added the comment, “He has raised it up.”
 
-*Exactly*. Exactly, that is holding, understanding of life. 
+*Exactly*. Exactly, that is [the] holding, understanding of life. 
 
 ##### 1:12:32 end of recording
 
