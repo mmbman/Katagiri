@@ -33,7 +33,7 @@ Case 18 of Blue Cliff Record:
 > South of Hsiang, north of T’an;  
 >> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
 >
-> In between there’s gold sufficient to a nation.  
+> In between there is gold sufficient to a nation.  
 >> Hsueh Tou added the comment, “A rough-hewn staff.”  
 >
 > Beneath the shadowless tree, the community ferryboat;  
@@ -46,15 +46,15 @@ Case 18 of Blue Cliff Record:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chinese?] emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect [him] after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by Chinese emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect [him] after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
 
 ##### 5:00
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of *[unintelligible]* [and turmoil?]. So that is freedom, at that time and place, [from] the *[unintelligible]* – to be free from the dangerous situation. 
+A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of fish and turtles, whatever. So that is freedom, for that time and place – for the fish and turtles to be free from the dangerous situation. 
 
-So by this pond you have big lanterns. You know the lanterns in the temple? Not like this ... lanterns, you can see in [the] picture[s]. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That means that pond is called [hoshō?], that means “let’s be alive,” just let go of [grief?]. So for this, you cannot have any exception to *[unintelligible]* – just let go of it. 
+So by this pond you have a big lantern. You know the lanterns in the temple? Not like this ... you can see [them] in pictures. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That pond is called [hoshō?], that means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught. Just let go of it. 
 
 So, seamless means formless. In Prajnaparamita, we say formless: no form, no eyes, no ears. So, seamless lantern.
 
