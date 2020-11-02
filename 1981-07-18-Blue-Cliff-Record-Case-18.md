@@ -7,8 +7,6 @@
 # Blue Cliff Record: Case 18: National Teacher Chung’s Seamless Monument
 ## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
-**This transcript is still in rough draft form.**
-
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19810718.mp3)
 
 <a name="000"></a>
@@ -251,7 +249,7 @@ Because silence *is* human life, the truth of human life: if you believe in that
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
-If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing [anything]? No, it doesn’t mean that. Because we have already [time and place?], so-called karmic “monkey mind”. So you have to take care of *[unintelligible]* and then *positively* we have to take care of [it]. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] big world, absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
+If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing [anything]? No, it doesn’t mean that. Because we have already [time and place?], so-called karmic “monkey mind”. So you have to take care of accepting this, and then *positively* we have to take care of [it]. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] big world, absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
 
 That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
 
