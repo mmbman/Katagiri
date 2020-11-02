@@ -287,29 +287,33 @@ So finally the emperor said, “I don’t know.” But whatever kind of meaning 
 >
 > South of Hsiang, north of T’an;
 
-That means – wherever. 
+That means: wherever. 
 
-Life and death is not something limited by name or concept or philosophy or psychology, life is something which exists wherever. Eternal space, eternal time. This is life. 
+Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
 
 > – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
-Well, eternal life, eternal space and time is what? Can you make a sound? No. No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. Completely one bottle; not bottle and water. That is one hand. One hand cannot make a sound at random. So that is really total picture of life and death, which is called [a] seamless monument, [which] he really wanted to build up.
+Well, eternal life, eternal space and time is what? Can you make a sound? No. 
 
-To build up a seamless monument means not for him, [but] for all sentient beings, for the disciples who are still alive, from the *[unintelligible]* to the future. *You* have to build a seamless monument – not for me, for *you*! 
+No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. [It’s] completely one bottle; not [a] bottle and water. That is one hand. One hand cannot make a sound at random. 
 
-That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment ...
+So that is really [a] total picture of life and death, which is called [a] seamless monument. [Which] he really wanted to build up.
+
+To build up a seamless monument means not for him, [but] for all sentient beings, for the disciples who are still alive, from the *[unintelligible]*, to the future. *You* have to build a seamless monument – not for me, for *you*! 
+
+That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment [on].
 
 ##### 58:54
 
-> In between there’s gold sufficient to a nation.
+> In between there is gold sufficient to a nation.
 
-[Does] silent, nothing to say mean [it is] something in vain? No, it’s just like gold – still filled up, completely filling the whole world. That is the quality, that is the material of the seamless monument. You have to build up a seamless monument with this gold, [the] quality [of] life. But we believe [the] *name* of life; that is not [the] quality of life. The quality of life is completely gold, filling the whole world.
+[Does] silent, nothing to say mean [it is] something in vain? No, it’s just like gold – completely filling the whole world. That is the quality, that is the material of the seamless monument. You have to build up a seamless monument with this gold, [the] quality [of] life. But we believe [the] *name* of life; that is not [the] quality of life. The quality of life is completely gold, filling the whole world.
 
 ##### 1:00:02
 
 > – Hsueh Tou added the comment, “A rough-hewn staff.”
 
-That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness, which no one has touched. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
+That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness, which no one [can touch]. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
 ##### 1:01:10
 
@@ -317,9 +321,13 @@ That gold is not something a person refined; it is just like a rough-hewn staff,
 
 This is the meaning of eternal time.
 
-When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, past, present, future – this is touching the key of the piano. According to [the] time process, we don’t understand [it that way?]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment; so in one moment, countless beings exist. That is the most important attitude we should take toward human life, because that moment is really [the] wonderful community ferryboat. Great *[unintelligible]*. You don’t believe in that way, but it is [the] most important attitude we should take forward. 
+When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
 
-That’s why, day by day, in the practice, the gassho, and doing zazen, the chanting, are very important. The gassho and zazen and chanting are all seamless monuments, [they] must be seamless monuments. At that time zazen is handed down from generation to generation and religious culture. *[unintelligible]* The religious culture [of] zazen is not only to sit zazen, but you have to light [the] candle of zazen. Do you understand to light? Light means you have to be alive, you have to make it alive. You have to animate zazen in your life. That is a culture, human culture.
+According to [the] time process, we don’t understand [it that way]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life, because that moment is really [the] wonderful community ferryboat, a great gift. You don’t believe in that way, but it is [the] most important attitude we should take forward.
+
+That’s why, day by day, in the practice, the gassho, and doing zazen, the chanting, [these things] are very important. The gassho and zazen and chanting are all seamless monuments, [they] must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. *[unintelligible]* 
+
+The religious culture [of] zazen is not only to sit zazen, but you have to light [the] candle of zazen. Do you understand to light? Light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
 
 ##### 1:04:14
 
