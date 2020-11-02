@@ -78,7 +78,7 @@ Emptiness is not a nihilistic quality of existence. [The] quality of existence, 
 
 From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
-So strictly speaking, why don’t you take off the clouds of success and failure, pros and cons; and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean this. 
+So strictly speaking, why don’t you take off the clouds of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean this. 
 
 Nothing, emptiness, dynamic working, means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
 
