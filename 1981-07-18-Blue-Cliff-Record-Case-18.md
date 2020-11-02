@@ -84,7 +84,9 @@ Nothing, emptiness, dynamic working, means full aliveness of your life, so you h
 
 I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
 
-How do you light the candle of human culture? ... Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let?] people ... understand, [or] see? Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
+How do you light the candle of human culture? ... Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let?] people ... understand, [or] see? 
+
+Beyond whether people can see [it] or not, real human culture is constantly there. That is seamless human culture. 
 
 ##### 15:45
 
@@ -129,11 +131,13 @@ This is also “I don’t know.” But [Bodhidharma] knows pretty well; he knows
 
 ##### 23:55
 
-For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going; you don’t care. At that time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
+For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going; you don’t care about the time, you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really so late, you know?
 
 Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay all night, just playing Go. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
 
-So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well; but when you become really one with time, you don’t know time. Do you understand? When you’re riding an airplane,  when you become one with the speed of time, you don’t know how fast the airplane goes. All you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. 
+So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well; but when you become really one with time, you don’t know time. Do you understand? 
+
+When you’re riding an airplane, when you become one with the speed of [the plane], you don’t know how fast the airplane goes. All you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. 
 
 This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
 
