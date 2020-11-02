@@ -341,25 +341,29 @@ But that is not always calm. It’s really alive.
 
 > Within the crystal palace, there’s no one who knows.
 
-If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that is something great, wonderful, which has lots of halos, light coming from your bodies and coming from your whole spirit. 
+If you believe the seamless monument of human life and death, and human culture, whatever you say – we believe that is something great, wonderful, which has lots of halos, light coming from your bodies and coming from your whole spirit. 
 
 I don’t think so. 
 
-That is really crystal palace, great palace, because it is spiritual security. We always expect [something] in many ways. But if you really get into it, there is no one who knows. “There is no one who knows” means spiritual security which lets go of you yourself as freedom. If you have somebody who knows, you are stuck in this guy or his [name].“I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but I must be free from one who knows. Because this is the crystal palace, which I am, which you are; that is everybody. 
+That (the seamless monument) is really [a] crystal palace, [a] great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it – there is no one who knows. “There is no one who knows” means spiritual security which lets go of you yourself, as freedom. 
 
-So if you know, you have to be free from [the] person who knows. That is original nature, so called spiritual security. Spiritual security lets you go free, constantly. That is spirutal security. If there is even slightly somebody or something which knows, that is really *[unintelligible]*.
+If you have somebody who knows, you are stuck in this guy or his [name]. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows.
 
-That’s why Hsueh Tou says, “Within the crystal palace, there’s no one who knows.” 
+“Know one knows” means you know pretty well, but [you] must be free from one who knows. Because this is the crystal palace – which I am, which you are, that is everybody. 
 
-In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you fun, but is that really the spiritual security your are looking for? No. Because finally you are really stuck in there.
+So if you know, you have to be free from [the] person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is really *[unintelligible]*.
 
-The other day someone came to see me and told [me] about her life, because she was predicted by one of the indian religious persons, who was great. So at that time she was not ready to accept that prediction. But recently she started to believe, because these predications came to be true. But not all the predictions he gave; some. That some must be something *[unintelligible]* bad. Because people really pay attention to something unwholesome, bad. But if we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t care.
+That’s why Hsueh Tou says, “Within the crystal palace, there’s no one who knows.”
 
-But if we have really ambivalent conditions, if you are ... you really pay attention to it. Then you create new... pay more careful attention, again and again. Finally, you cannot move an inch. 
+In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you fun – but is that really the spiritual security your are looking for? No. Because finally you are really stuck in there.
 
-Right in the middle of prediction. Prediction is fine, because in a sense it is true, teaching you who you are, or ... astrology ... told you what is your future. Yes it is. But, don’t believe. You should believe this, but, you shouldn't’ be stuck in there. You should be free from there, from from the thing or prediction. Because this is ... real ... of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically anyway everyone is free. Nothing to limit, nothing to bound your life. Tied up with a certain idea. 
+The other day someone came to see me and told [me] about her life, because she was predicted by one of the Indian religious persons who was great. At that time she was not ready to accept that prediction. But recently she started to believe, because his predications came to be true. But, not all the predictions he gave; some. That some must be something unwholesome; bad. Because, people really pay attention to something unwholesome, bad. But if we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t care about anything.
 
-So even though ... prediction ... teach you, telling you the truth of your life.... fine. The truth is still limit of the truth. You have to know behind the truth. Don’t be cheated by the name truth. You have to know the real quality of the truth. Kick out the name of truth of your life, in the future, in the past. That’s fine. But you have to know real quality. for this, you have to kick off the clouds of naming truth, That is really our ... okay?
+But if you are in fearful conditions, you really pay attention to it. Then, you create new *[unintelligible]*, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction. 
+
+Prediction is fine, because in a sense it is true, teaching you who you are, or ... astrology ... told you what is your future. Yes it is. But, don’t believe. You should believe this, but, you shouldn't be stuck in there. You should be free from there, from from the thing or prediction. Because this is ... real topic of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically everyone is free. [There is] nothing to limit, nothing to bound your life. Tied up with a certain idea. 
+
+So even though ... prediction ... teach you, telling you the truth of your life.... fine. The truth is still limit of the truth. You have to know behind the truth. Don’t be cheated by the name truth. You have to know the real quality of the truth. Kick out the name of truth of your life, in the future, in the past. That’s fine. But you have to know real quality. For this, you have to kick off the clouds of naming truth. That is really our problem.
 
 That’s why Hsueh Tou said, “Within the crystal palace, there’s no one who knows.”
 
@@ -367,7 +371,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there’s no one who 
 
 > – Hsueh Tou added the comment, “He has raised it up.”
 
-Exactly. Exactly, that is holding, understand of life. 
+*Exactly*. Exactly, that is holding, understand of life. 
 
 ##### 1:12:32 end of recording
 
