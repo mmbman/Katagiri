@@ -52,17 +52,17 @@ This is a common question to a person who is about to die: “What do you want a
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A ‘seamless monument’ is a very common term in Buddhism. If you go to Eiheiji monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of fish and turtles, whatever. So that is freedom, for that time and place – for the fish and turtles to be free from the dangerous situation. 
+A ‘seamless monument’ is a very common term in Buddhism. If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of fish and turtles, whatever. So that is freedom, for that time and place – for the fish and turtles to be free from the dangerous situation. 
 
 So by this pond you have a big lantern. You know the lanterns in the temple? Not like this ... you can see [them] in pictures. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That pond is called [hoshō?], that means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught. Just let go of it. 
 
-So, seamless means formless. In Prajnaparamita, we say formless: no form, no eyes, no ears. So, seamless lantern.
+So, seamless means formless. In [Prajnaparamita](glossary#Prajnaparamita), we say formless: no form, no eyes, no ears. So, seamless lantern.
 
 Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
 ##### 8:25
 
-In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named zazen, and Katagiri, and the trees, and the suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
+In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and the suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
 But this is [taking up?] those names. You call [it] life and death. Take out those clouds completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take [them] out. What’s left? 
 
@@ -70,7 +70,7 @@ What’s left is really important, because this is [the] quality of life. Life i
 
 [In] zazen ... sitting right now, right here means you cannot bring any name, any concept into what to do – so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, [the] quality of life and death. If you take out all things, what’s left?
 
-That is, Buddhism always says, [emptiness](*[unintelligible]*) . 
+That is, Buddhism always says, [emptiness](glossary#emptiness). 
 
 Emptiness is not a nihilistic quality of existence. [The] quality of existence, so-called emptiness, is really dynamic working. But no one can touch it, because it’s really *dynamic*.
 
@@ -125,7 +125,7 @@ This is a very nice person. Because the National Teacher wants to build a seamle
 > The National Teacher was silent for a long time; then he asked, “Do you understand?”  
 > The Emperor said, “I don’t understand.”
 
-This “I don’t understand” has two meanings. Bodhidharma said [this] also, [when he] was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
+This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) said [this] also, [when he] was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
 This is also “I don’t know.” But [Bodhidharma] knows pretty well; he knows very clearly who he is: becoming one. At that time there is nothing to dichotomize, or contaminate. 
 
@@ -143,7 +143,7 @@ This is also one meaning of “I don’t know.” You know pretty well, but if y
 
 ##### 26:32 
 
-So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and enlightenment. If you’re a really great enlightened person, [then] there’s only one, there is no space to look at [it] objectively. So you don’t know. 
+So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and [enlightenment](glossary#enlightenment). If you’re a really great enlightened person, [then] there’s only one, there is no space to look at [it] objectively. So you don’t know. 
 
 [It’s] just like shaking [a] bottle filled with water. [It’s] completely one; at that time, you cannot make noise. But if you take a bottle with a little water and shake it, you know you really make noise. That is [like], “You know pretty well how great I am.” But if you shake the bottle completely filled with water, you don’t know how much [there is]. 
 
@@ -163,9 +163,9 @@ The “I don’t know” of Emperor Wu – I don’t know which of the two [it w
 
 Finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
-In Shobogenzo “[Four Horses (Japanese: Shime)](dogen#four-horses)”, Dogen Zenji says ... from \[a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra, 
+In [Shobogenzo “Four Horses” (Japanese: Shime)](dogen#four-horses), [Dogen Zenji](glossary#dogen) says ... from \[a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra, 
 
-> The Buddha said to the assembled monks: 
+> The [Buddha](glossary#buddha) said to the assembled monks: 
 >
 > There are four kinds of horses. 
 > 
@@ -205,7 +205,7 @@ So, [when] you do zazen, that’s why zazen is [not just] for deepening your [ow
 
 If so, it’s not necessary [for] the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the [whip?]. 
 
-Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the] cat was one with his skin, his muscles and other cats. The Zen master says that is [karmic?] consciousness, but whatever you say, it doesn’t hit the mark. (Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means. However, needing a whip for cats? That, I can relate to.) 
+Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the] cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic?] consciousness, but whatever you say, it doesn’t hit the mark. (Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means. However, needing a whip for cats? That I can relate to.) 
 
 Anyway, you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for [the] long, long range. 
 
@@ -231,7 +231,7 @@ The outsider – in other words, this means a Brahman – asked the Buddha, “I
 
 *[tape change]*
 
-... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, [but] as a whole. And if you do continue to take care of your life just like zazen – you really teach to somebody, even though you don’t say anything. 
+... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, [but] as a whole. And if you do continue to take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
 
 So, this Brahman really wanted to know what life’s seamless monument is. 
 
@@ -247,7 +247,7 @@ The World-honored One said, “In worldly terms, he’s like a good horse. He go
 
 People often go to the silence for their understanding. What is there to grasp? In Buddhism, silence is important – but silence itself is not important, to keep silent. If I write the words: “Teaching comes from silence” – many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence. And then we believe that silence is really [the] truth of human existence. But I don’t think so. 
 
-Because silence *is* human life, the truth human life: if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. 
+Because silence *is* human life, the truth of human life: if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
@@ -379,7 +379,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 
 > – Hsueh Tou added the comment, “He has raised it up.”
 
-*Exactly*. Exactly, that is [the] holding, understanding of life. 
+*Exactly*. Exactly, that is [the] holding, [the] understanding of life. 
 
 ##### 1:12:32 end of recording
 
