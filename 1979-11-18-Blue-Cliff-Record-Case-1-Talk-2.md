@@ -1,6 +1,6 @@
 <a name="0"></a>
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0) – 
-[Home](index#blue-cliff-record-case-1-lecture-2) – 
+[Home](index#1979) – 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
 
 ---
@@ -408,4 +408,4 @@ That’s why he says he doesn’t know the great illumination shines from under 
 ---
 [Next Talk: Blue Cliff Record: Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
 
-[Home](index#blue-cliff-record-case-1-lecture-2)
+[Home](index#1979)
