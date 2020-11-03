@@ -10,7 +10,7 @@ I’ve transcribed these talks from audio recordings in the online [Dainin Katag
 
 Katagiri Roshi’s energy, enthusiasm and humor come through even better in the audio than in print. On other other hand, he is a non-native English speaker with a Japanese accent, and the audio is of varying quality. So, he can be a little hard to understand. But really, more and more, I think the thing may be that these talks are rather dense: they are brimming over with vital information, which just flies by. These talks demand careful listening, and serious reflection. I think the transcripts might help with that.
 
-Each talk requires many hours to carefully transcribe. That said, there may still be inaccuracies. This is a work-in-progress. I am continuously adding new transcripts, and correcting existing ones.
+Each talk requires many hours to carefully transcribe. That said, there may still be inaccuracies. This is a work-in-progress. I am continually adding new transcripts and correcting existing ones.
 
 I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful. I hope you find something useful or inspiring here as well.
 
