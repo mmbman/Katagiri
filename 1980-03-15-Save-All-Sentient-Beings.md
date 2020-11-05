@@ -18,35 +18,39 @@ Probably you may notice that there are many English terms in Buddhism using ‘a
 
 ##### 1:54
 
-In Buddha's time, Buddha always analyzed the human world and human beings as five skandhas: form, feeling, perceptions, impulses and consciousness; those are the five skandhas. And also, sometimes, when the five skandhas are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects and six consciousnesses. 
+In [Buddha](glossary#Buddha)'s time, Buddha always analyzed the human world and human beings as five [skandhas](glossary#skandha): form, feeling, perceptions, impulses and consciousness; those are the five skandhas. And also, sometimes, when the five skandhas are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects and six consciousnesses. 
 
 Six sense organs, six objects, and six consciousness, are the world we are involved [in]. So from this point, the five skandhas are exactly the implication of the term ‘all’; or ‘all sentient beings’, or ‘all dharmas’. 
 
-Professor Abe translated it sometimes [as], "everything without exception". At any rate, if we translate it, we say ‘all’. But this ‘all’, according to Buddha’s teaching, is described as five skandhas, or six sense organs or six objects. 
+[Professor Abe](glossary#masao-abe) translated it sometimes [as] ‘everything without exception’. At any rate, if we translate it, we say ‘all’. But this ‘all’, according to Buddha’s teaching, is described as five skandhas, or six sense organs or six objects. 
 
 ##### 4:26
 
-You know [them] pretty well [so] I don't want to explain the five skandhas now, but let me say just the five things. 
+You know [them] pretty well, [so] I don't want to explain the five skandhas now, but let me say just the five things. 
 
 Form: generally speaking that is the implication of the human world in the materialistical point of view. The human world you can see, you can touch; this is form. Everything exists as that which is formed; without form, you cannot experience. 
 
-So everything which is formed is called state of existence, state of a thing which exists now. So when something appears in front of you, this is called existence, existence of a thing. But this existence of a thing must be something which you have to experience. So, when you have to experience, that is, you can experience something - form, shape, or color, and textures of a thing. Floor – if you touch it, you can experience something. 
+So everything which is formed is called state of existence, state of a thing which exists now. When something appears in front of you, this is called existence of a thing. But this existence of a thing must be something which you ... experience... That is, you can experience something – form, shape, or color, and textures of a thing. Floor: if you touch it, you can experience something. 
 
-So existence of a thing is not something fixed, apart from us. When you say, “floor is something existent,” at that time floor is not something apart from us, because it is always manifesting itself as a state of being. State of being is, well, you can experience through it. State of experience is always giving us some information, which is called colors, textures, shape, et cetera.
+So [the] existence of a thing is not something fixed, apart from us. When you say, “floor is something existent,” at that time the floor is not something apart from us, because it is always manifesting itself as a state of being. State of being is – well, you can experience through it. State of [being] is always giving us some information, which is called colors, textures, shape, et cetera.
 
 So when you experience the floor as it is, at that time the floor becomes a state of being which you can touch with your hands, with your body, with your eyes, et cetera. At that time you say, “floor is smooth,” “floor is beautiful,” “floor is rough,” et cetera; you can say so. 
 
-At that time you can really accept [the] existence of [the] floor. That floor is not something apart from us; it's really [a] state of existence as a floor *connected with* us. That's why you have to touch it. You can experience it with your hand, and then you can experience what the floor is. At that time, that floor is not something isolated from you. It is sort of a state of being interconnected with you, dynamically, from moment to moment. That is [what] we call state of being, which is called existence, according to Buddhism.
+At that time you can really accept [the] existence of [the] floor. That floor is not something apart from us: it's really [a] state of existence as a floor *connected with* us. That's why you have to touch it. You can experience it with your hand, and then you can experience what the floor is. At that time, that floor is not something isolated from you. It is sort of a state of being interconnected with you, dynamically, from moment to moment. That is [what] we call state of being, which is called existence, according to Buddhism.
 
 ##### 8:38
 
-Feeling: Feeling means acceptance, reception. We translate it as ‘feeling’, but according to Chinese and Sanskrit, I don't know if ‘feeling’ has exactly the right meaning.  According to Chinese and Sanskrit that is ‘reception’, ‘acceptance’. That is the second one. So form, and reception or feeling. 
+Feeling: Feeling means acceptance, reception. We translate it as ‘feeling’, but according to Chinese and Sanskrit, I don't know if ‘feeling’ has exactly the right meaning. According to Chinese and Sanskrit that is ‘reception’, ‘acceptance’. That is the second one. So form, and reception or feeling. 
 
-Next is perception. Perception, you can receive something through the consciousness. But feeling is more basic, before you can get something through the consciousness, you can receive. That means connection with floor. And then, next moment, you can receive, perceive floor through six consciousnesses. So that is the third. Is that clear? Second one, feeling, is before your consciousness works; that is feeling or reception. Without this we cannot experience function of the perception. 
+Next is perception. [With] perception, you can receive something through the consciousness. Feeling is more basic; before you can get something through consciousness, you can receive [it]. That means connection with [the] floor; and then, next moment, you can receive, perceive [the] floor through [the] six consciousnesses. 
 
-And fourth, impulses. Later I will explain this. Perception, or sometimes we call volition, or will. It's a very complicated term; it's very difficult to find appropriate term. But Conze says that is "together-maker". Anyway basically there something to make something together. I don't know what it is *[he laughs]*. That is called samskara. Anyway, later I will explain.
+So that is the third. Is that clear? Second one, feeling, is before your consciousness works; that is feeling or reception. Without this we cannot experience function of the perception. 
 
-That is impulses, and then consciousness. If you perceive something, and then, on the bottom of your consciousness, on the bottom of your life, there are some powers, energies, to collect and make something, form your experience through the perception and feeling. And then immediately the next is called consciousness, that is consciousness. 
+##### 10:58
+
+And fourth, impulses ... Later I will explain this ... Sometimes we call [it] ‘volition’, or ‘will’. It's a very complicated term; it's very difficult to find an appropriate term. But Conze says that is "together-maker". Basically, there something to make something together. I don't know what it is. *[he laughs]* That is called samskara. Anyway, later I will explain.
+
+That is impulses, and then consciousness. If you perceive something, then on the bottom of your consciousness, on the bottom of your life, there are some powers, energies, to collect and make something, form your experience through the perception and feeling. And then immediately the next is called consciousness, that is consciousness. 
 
 So impulses is sort of the basic nature of consciousness. 
 

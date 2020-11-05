@@ -866,6 +866,8 @@ See [Dogen Index: Shobogenzo](dogen#shobogenzo)
 ---
 ## Skandha
 
+- [Save All Sentient Beings (1:54)](1980-03-15-Save-All-Sentient-Beings#154)
+
 ---
 ## Sōen Nakagawa
 
