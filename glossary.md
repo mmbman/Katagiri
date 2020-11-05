@@ -762,6 +762,8 @@ One of the [five skandhas](glossary#skandha); often translated as 'formations', 
 
 As "together-maker": see [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
+As "original nature of action": see [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
+
 - [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
 ---

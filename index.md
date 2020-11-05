@@ -29,8 +29,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
 1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record: Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)
+1. [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings#0)
 
-1. Save All Sentient Beings
 1. Blue Cliff Record: Case 3 – Talk 1
 1. Blue Cliff Record: Case 3 – Talk 2
 1. Blue Cliff Record: Case 4 – Talk 1
