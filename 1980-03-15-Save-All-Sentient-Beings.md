@@ -132,21 +132,21 @@ So from this point, if you see this zendo, first [the] zendo becomes dharma thro
 
 [The] zendo is not [the] zendo *you* understand. [The] zendo is just a being. 
 
-What is ‘just a being’? Just a being is what is called samskara in Sanskrit. Samskara means “original nature of action”. The Buddha says, all are impermanent. In Japanese, in Sanskrit, what we say [is] not ‘all’; literally [the] translation is, ‘all samskaras’. Samskara means original nature of action, working. 
+What is ‘just a being’? Just a being is what is called samskara in Sanskrit. Samskara means “original nature of action”. The Buddha says, all are impermanent. In Japanese, in Sanskrit, what we say is not “all”; literally [the] translation is, “all samskaras”. Samskara means original nature of action, working. 
 
-The original nature of action is impermanence. Impermanence means “not perpetual”. At any time, in whatever situation you may be, everything is not perpetual. Everything is not constant. But, if you say everything is not perpetual, not permanent, you say [that] everything is not permanent is something real, which exists always. Don't you think so?
+The original nature of action *is* impermanence. Impermanence means “not perpetual”. At any time, in whatever situation you may be, everything is not perpetual. Everything is not constant. But, if you say everything is not perpetual, not permanent, you say [that] “everything is not permanent” is something real, which exists, always. Don't you think so?
 
-So if you want to get something existent *always*, without change, that is called impermanence – not something perpetual. But at that time, this idea is not impermanent. If you believe, [as] Buddhism says, truth is the reality which everything is impermanent – if you say [that], immediately we get some idea [that] everything is impermanent is true, which exists always, in all the times. But this always, in all the times, is not perpetual, is not something [permanent]. It is a certain state of being at any time, in whatever situation you may be: my situation, your situation. 
+If you want to get something existent *always*, without change, that is called impermanence – not something perpetual. But at that time, this idea is not impermanent. If you believe, [as] Buddhism says, truth is the reality which everything is impermanent – if you say [that], immediately we get some idea [of] what “everything is impermanent” is true, which exists always, in all the times. But this “always, in all the times,” is not perpetual, is not something [permanent]. It is a certain state of being at any time, in whatever situation you may be: my situation, your situation. 
 
-For instance, if I see this zendo, this is *my* situation. If you see zazen, this is *my* situation. At any time, anywhere, if you see zazen, this is ‘all beings’, which is always there. But this zazen is always not perpetual, always changing. 
+For instance, if I see this zendo, this is *my* situation. If [I] see zazen, this is *my* situation. At any time, anywhere, if you see zazen, this is ‘all beings’, which is always there. But this zazen is always not perpetual, always changing. 
 
-But zazen which is not perpetual is something real which exists, you believe. But this is – what? Something which exists always or in any time, in all the time, means, a state of being which you can experience in any time, wherever you may be. In your time, in your situation. So if I see zazen today, I feel good. This is my dharma, all dharmas, which is called zazen. Next day, [or] next moment, if I see zazen ... I don't feel good. For zazen, this is also dharmas. 
+But zazen which is not perpetual is something real which exists, you believe. But this is – what? Something which exists always or in any time, in all the time, means, a state of being which you can experience in any time, wherever you may be. In your time, in your situation. So if I see zazen today, I feel good. This is my dharma, all dharmas, which is called zazen. Next day, [or] next moment, if I see zazen ... I don't feel good. But for zazen, this is also dharmas.
 
-So, in your individual case, whatever you experience, whatever you see, these things become ‘all dharmas’, this ‘all dharmas’ are always changing, impermanent. 
+So, in your individual case, whatever you experience, whatever you see, these things become ‘all dharmas’, [and] these ‘all dharmas’ are always changing, impermanent. 
 
 ##### 37:17
 
-So, the second point, briefly speaking: We have to understand deeply the original nature of being. That's why Buddha says, “always impermanent”. This ‘all’ is all samskaras. Samskara is original nature of action, which everything is structured by. Constant action; working. 
+So, the second point, briefly speaking: We have to understand deeply the original nature of being. That's why Buddha says, “all is impermanent”. This ‘all’ is all samskaras. Samskara is original nature of action, which everything is structured by. Constant action; working. 
 
 At that time, if you understand [the] zendo individually, this is not good enough. This is *your* experience, *your* understanding, which is called dharma, but it's not good enough because there is still an egoistic sense, which is called individual understanding. We have to find the vast dimension, which is called immensity, or equality. This is called basic nature of action; samskara. 
 
