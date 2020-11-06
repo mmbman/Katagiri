@@ -284,6 +284,12 @@ Dharma as action, activity.
 - [Blue Cliff Record: Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
 
 ---
+## Dhātu
+
+- [Save All Sentient Beings (26:00)](1980-03-15-Save-All-Sentient-Beings#2600)
+- [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+
+---
 ## Diamond Sutra
 
 Vajracchedikā Prajñāpāramitā Sūtra
@@ -934,6 +940,10 @@ suki (Japanese): gap; space.
 # T
 
 ---
+## Tatami
+
+(Japanese) Floor mat.
+
 ## Tathāgata
 
 A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
