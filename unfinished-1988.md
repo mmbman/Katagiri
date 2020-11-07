@@ -23,8 +23,8 @@
 1. 10/01/1988	Shobogenzo: Kuge: Flowers in the Sky – Talk 11
 1. 10/05/1988	Review and Renew: Buddhism for the 21st Century	
 1. 10/07/1988	Shobogenzo: Kuge: Flowers in the Sky – Talk 12	
-1. 10/15/1988	Blue Cliff Record: Case 87, Lecture 1	
-1. 10/16/1988	Blue Cliff Record: Case 87, Lecture 2
+1. 10/15/1988	Blue Cliff Record, Case 87, Lecture 1	
+1. 10/16/1988	Blue Cliff Record, Case 87, Lecture 2
 1. 12/02/1988	Shobogenzo: Baika: Plum Blossoms – Talk 1	
 1. 12/03/1988	Shobogenzo: Baika: Plum Blossoms – Talk 2	
 1. 12/04/1988	Shobogenzo: Baika: Plum Blossoms – Talk 3	

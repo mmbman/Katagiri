@@ -32,8 +32,8 @@
 1. 07/02/1986	Meal Chants – Talk 1	
 1. 07/09/1986	Meal Chants – Talk 2	
 1. 07/16/1986	Meal Chants – Talk 3	
-1. 07/19/1986	Blue Cliff Record: Case 78 – Talk 1
-1. 07/20/1986	Blue Cliff Record: Case 78 – Talk 2
+1. 07/19/1986	Blue Cliff Record, Case 78 – Talk 1
+1. 07/20/1986	Blue Cliff Record, Case 78 – Talk 2
 1. 07/23/1986	Gatha of Opening the Sutra
 1. 07/26/1986	Gatha of Closing the Sutra	
 1. 08/02/1986	Settling in the Vast Openness of the Sky	
@@ -62,7 +62,7 @@
 1. 11/06/1986	Zen and Writing: Word and its Spirit	
 1. 11/07/1986	T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Talk 1	
 1. 11/14/1986	T'ein T'ai Buddhism: Outline of 4-Fold Teaching – Talk 2	
-1. 11/15/1986	Blue Cliff Record: Case 79 – Talk 1
+1. 11/15/1986	Blue Cliff Record, Case 79 – Talk 1
 1. 11/21/1986	T'ien T'ai Buddhism: Conclusion
 1. 11/22/1986	Bowing
 1. 12/01/1986	Shobogenzo: Gabyo: Painting of a Rice Cake – Talk 1	

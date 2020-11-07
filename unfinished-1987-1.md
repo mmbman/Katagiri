@@ -8,12 +8,12 @@
 
 1. 01/10/1987	Dogen Four Points: Track 1 of 2	
 1. 01/10/1987	Dogen Four Points: Track 2 of 2
-1. 01/17/1987	Blue Cliff Record: Case 80 – Talk 1
-1. 01/18/1987	Blue Cliff Record: Case 80 – Talk 2
+1. 01/17/1987	Blue Cliff Record, Case 80 – Talk 1
+1. 01/18/1987	Blue Cliff Record, Case 80 – Talk 2
 1. 01/24/1987	Zazen: Dropping off Body and Mind
 1. 01/31/1987	Inconceivable, Universal, Cosmic Life
-1. 02/21/1987	Blue Cliff Record: Case 81 – Talk 1
-1. 02/22/1987	Blue Cliff Record: Case 81 – Talk 2
+1. 02/21/1987	Blue Cliff Record, Case 81 – Talk 1
+1. 02/22/1987	Blue Cliff Record, Case 81 – Talk 2
 1. 03/06/1987	Platform Sutra – Talk 1
 1. 03/07/1987	Shobogenzo: Bendowa: Entry to the Buddha Dharma
 1. 03/11/1987	Shobogenzo: Bendowa: Dogen's Questions & Answers – Talk 1	

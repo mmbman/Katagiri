@@ -16,15 +16,15 @@ Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary]
 <a name="case-1"></a>
 ## Case 1: The Highest Meaning of the Holy Truths
 
-- [Blue Cliff Record: Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
-- [Blue Cliff Record: Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
+- [Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
+- [Blue Cliff Record, Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
 
 ---
 <a name="case-2"></a>
 ## Case 2: The Ultimate Path Is Without Difficulty
 
-- [Blue Cliff Record: Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
-- [Blue Cliff Record: Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
+- [Blue Cliff Record, Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
+- [Blue Cliff Record, Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
 
 ---
 <a name="case-46"></a>

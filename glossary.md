@@ -129,6 +129,13 @@ The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower
 # B
 
 ---
+## Baso Dōitsu
+Chinese: Mazu Daoyi (Ma-tsu Tao-yi), 馬祖道一  
+Japanese: Baso Dōitsu  
+709–788.
+
+[Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+
 ## Blue Cliff Record
 
 Japanese: Hekiganroku
@@ -225,7 +232,7 @@ An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 - [Fukanzazengi – Talk 2 (27:00)](1979-06-10-Fukanzazengi-Talk-2#2700)
 - [Blue Cliff Record Case 2: Lecture 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
-- [Blue Cliff Record: Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
+- [Blue Cliff Record, Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
 
 ---
 ## Chan
@@ -251,7 +258,7 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 
 Mistaking a perception for an independent object or fact.
 
-- [Blue Cliff Record: Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
+- [Blue Cliff Record, Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
 - etc.
 
 ---
@@ -274,14 +281,14 @@ Truth; the teachings; universal law; original nature of existence; phenomena.
 
 ‘Dharma’ is a multi-faceted word with no single equivalent in English, so it is often left untranslated.
 
-- e.g. [Blue Cliff Record: Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
+- e.g. [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
 ---
 ## Dharma Vehicle
 
 Dharma as action, activity.
 
-- [Blue Cliff Record: Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
+- [Blue Cliff Record, Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
 
 ---
 ## Dhātu
@@ -368,7 +375,7 @@ Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glo
 
 Awakening from [delusion](glossary#delusion).
 
-- [Blue Cliff Record: Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
+- [Blue Cliff Record, Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
 - etc.
 
 ---
@@ -414,7 +421,7 @@ See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 
 Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa).
 
-- [Blue Cliff Record: Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
+- [Blue Cliff Record, Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
 
 ---
 ## Genjokoan
@@ -521,7 +528,7 @@ Japanese: Jōshū Jūshin,<br>
 
 One of the greatest Zen teachers in China. It is said that he became a monk at 60 years old, and until his death, he practiced continuously. Jōshū figures in many Zen stories, and is often mentioned by [Dogen](glossary#dogen).
 
-- [Blue Cliff Record: Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
+- [Blue Cliff Record, Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
 
 - [Wikipedia: Zhaozhou Congshen](https://en.wikipedia.org/wiki/Zhaozhou_Congshen)
 
@@ -627,7 +634,7 @@ Nāgārjuna
 ---
 ## Nichiren
 
-- [Blue Cliff Record: Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
+- [Blue Cliff Record, Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
 
 - [Wikipedia: Nichiren](https://en.wikipedia.org/wiki/Nichiren)
 
@@ -777,7 +784,7 @@ As "original nature of action": see [Save All Sentient Beings](1980-03-15-Save-A
 
 "Connected Discourses". See [Āgama](glossary#āgama).
 
-- [Blue Cliff Record: Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
+- [Blue Cliff Record, Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
 
 - [Wikipedia: Āgama Buddhism](https://en.wikipedia.org/wiki/Āgama_\(Buddhism\)#Saṃyukta_Āgama)
 

@@ -23,7 +23,7 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 - [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6#0)
 - [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7#0)
 
-- [Blue Cliff Record: Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
+- [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
 ---
 # Shobogenzo
@@ -66,14 +66,14 @@ Japanese: Ikka myōju – 顆明珠
 
 Japanese: Shōji
 
-- [Blue Cliff Record: Case 2 – Talk 1 (7:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#730)
+- [Blue Cliff Record, Case 2 – Talk 1 (7:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#730)
 
 ---
 ## Four Horses
 
 Japanese: Shime
 
-- [Blue Cliff Record: Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
+- [Blue Cliff Record, Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
 
 - [Dogen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
 
