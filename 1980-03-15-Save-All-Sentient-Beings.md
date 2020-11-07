@@ -18,7 +18,7 @@ Probably you may notice that there are many English terms in Buddhism using ‘a
 
 ##### 1:54
 
-In [Buddha](glossary#Buddha)'s time, Buddha always analyzed the human world and human beings as five [skandhas](glossary#skandha): form, feeling, perceptions, impulses and consciousness; those are the five skandhas. And also, sometimes, when the five skandhas are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects and six consciousnesses. 
+In [Buddha](glossary#Buddha)'s time, Buddha always analyzed the human world and human beings as five [skandhas](glossary#skandha): form, feeling, perceptions, impulses and consciousness. And also, sometimes, when the five skandhas are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects and six consciousnesses. 
 
 Six sense organs, six objects, and six consciousness are the world we are involved [in]. So from this point, the five skandhas are exactly the implication of the term ‘all’, or ‘all sentient beings’, or ‘all dharmas’.
 
@@ -182,7 +182,7 @@ If you think always all dharmas objectively, individually, it sometimes scares y
 
 *[tape change]*
 
-... when you can get something from the ocean, at that time, that is a point, how to swim. This point doesn't come from your intentional understanding, or individual understanding – from where, I don't know. [It’s] just oneness with the ocean, and your body and mind. And then you say, "Ah, this is a way how to swim!" You cannot explain how. If you want to teach how to swim, you should explain [it]; [but] finally you say, “Jump in. Go to Lake Calhoun. Swim! That's all.”
+... when you can get something from the ocean, at that time, that is a point, how to swim. This point doesn't come from your intentional understanding, or individual understanding – from where, I don't know. [It’s] just oneness with the ocean, and your body and mind. And then you say, "Ah, this is a way how to swim!" You cannot explain how. If you want to teach how to swim, you should explain [it]; [but] finally you say, “Jump in. Go to Lake Calhoun. Swim!” That's all.
 
 That is the second point of ‘all dharmas’. You should experience all dharmas individually. At that time, everything becomes all dharmas connected with you. But it's not good enough, because there is always [an] egoistic sense, so, we should touch the core of all dharmas. That means, *forget it* – just jump into it, be one. 
 
@@ -208,15 +208,15 @@ Do you have some questions?
 
 **Katagiri**: Sure. Yes. 
 
-If you feel some pessimism from impermanence et cetera as a teaching, that is the impermanence you can observe objectively. While you observe it objectively, it makes you pensive, and sometimes egoistic. This is because this is individual experience. 
+If you feel some pessimism from impermanence, et cetera, as a teaching, that is the impermanence you can observe objectively. While you observe it objectively, it makes you pensive, and sometimes egoistic. This is because this is individual experience. 
 
 If you read the Japanese literature, always there are stories based on impermanence. The Japanese literature gives you a certain... not pessimistic exactly, sort of pensive, sad feeling. But this is individual experience. For Buddhism it's not good enough. Of course you should individually experience, but impermanence must be Buddha. That's why we have to understand [the] basic nature of existence. 
 
-Completely speaking, if you feel your life from the teaching of Buddha, which is called impermanence, you don't believe, and you try to keep away from, because you don't like it. But actually, reality is impermanence, always changing constantly. It is reality. If you see it objectively, it's immediately giving something *[unintelligible]*. But on the other hand, it is reality. So [the] important point is, where are you? You are in the middle of reality. In other words, right in the middle of impermanence. 
+Completely speaking, if you feel your life from the teaching of Buddha, which is called impermanence, you don't believe [it], and you try to keep away from [it], because you don't like it. But actually, reality is impermanence, always changing constantly. It is reality. If you see it objectively, it's immediately giving something *[unintelligible]*. But on the other hand, it is reality. So [the] important point is, where are you? You are in the middle of reality. In other words, right in the middle of impermanence. 
 
 Whatever you feel individually, that's understanding. Let's touch the core of existence, which is called real impermanence. Real impermanence is something you should be one with. That's why basically, I always tell you, just take care of your life. 
 
-Whatever you feel, good or bad, right or wrong, stand up straight, do your best to handle your obligation, your duties and your task – anyway, just do it. That is what puts you right in the middle of impermanence. So very naturally you can learn, just like diving into the ocean. Whatever you feel, like or dislike, just jump into the ocean. And very naturally, you can learn something. What it is to swim; how to swim. What is the ocean; what is the human body and mind. Very naturally, you can learn. 
+Whatever you feel, good or bad, right or wrong: stand up straight, do your best to handle your obligation, your duties and your task – anyway, just do it. That is what puts you right in the middle of impermanence. So very naturally you can learn, just like diving into the ocean. Whatever you feel, like or dislike, just jump into the ocean. And very naturally, you can learn something. What it is to swim; how to swim. What is the ocean; what is the human body and mind. Very naturally, you can learn. 
 
 Does that answer your question?
 
