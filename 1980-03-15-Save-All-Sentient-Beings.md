@@ -14,7 +14,7 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-Probably you may notice that there are many English terms in Buddhism using ‘all sentient beings’ or ‘all dharmas’. In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] ‘all dharmas’, ‘all sentient beings’. That’s why we are very often confused. To “save all sentient beings” – what do you mean, save all sentient beings? Or, “all is impermanent” – what is ‘all’? This morning I would like to learn [these] term[s] with you. 
+Probably you may notice that there are many English terms in Buddhism using ‘all sentient beings’ or ‘all dharmas’. In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] ‘all dharmas’, ‘all sentient beings’. That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “all is impermanent” – what is ‘all’? This morning I would like to learn [these] term[s] with you. 
 
 ##### 1:54
 
