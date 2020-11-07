@@ -7,8 +7,6 @@
 # Save All Sentient Beings
 ## March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-**This transcript is still in rough draft form.**
-
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800315.mp3)
 
 <a name="000"></a>
@@ -294,7 +292,7 @@ So, it must be something we should experience, that is the truth. But real truth
 
 ##### 1:04:30
 
-**Question**: Roshi? Would you please explain the statement by the \[sixth?] [patriarch](glossary#patriarch), who said that distinguishing mind is permanent *[unintelligible]*
+**Question**: Roshi? Would you please explain the statement by the \[Sixth?] [Patriarch](glossary#patriarch), who said that distinguishing mind is permanent *[unintelligible]*
 
 **Katagiri**: Distinguishing mind is impermanent?
 
