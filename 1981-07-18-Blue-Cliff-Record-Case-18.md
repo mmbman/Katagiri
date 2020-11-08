@@ -377,7 +377,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 
 > – Hsueh Tou added the comment, “He has raised it up.”
 
-*Exactly*. Exactly, that is [the] holding, [the] understanding of life. 
+*Exactly*. Exactly, that is holding, understanding life. 
 
 ##### 1:12:32 end of recording
 
