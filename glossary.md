@@ -134,8 +134,10 @@ Chinese: Mazu Daoyi (Ma-tsu Tao-yi), 馬祖道一
 Japanese: Baso Dōitsu  
 709–788.
 
-[Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+- [Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+- [Wikipedia: Mazu Daoyi](https://en.wikipedia.org/wiki/Mazu_Daoyi)
 
+---
 ## Blue Cliff Record
 
 Japanese: Hekiganroku
@@ -231,7 +233,8 @@ A traditional art practiced by Zen priests and monks.
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 - [Fukanzazengi – Talk 2 (27:00)](1979-06-10-Fukanzazengi-Talk-2#2700)
-- [Blue Cliff Record Case 2: Lecture 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
+- [Blue Cliff Record, Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
+- [Blue Cliff Record, Case 3 – Talk 1 (13:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#1344)
 - [Blue Cliff Record, Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
 
 ---
@@ -469,6 +472,14 @@ Eko Hashimoto, abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there
 ## Hinayana
 
 ---
+## Huineng
+Chinese: **Dajian Huineng**, 大鑒惠能  
+Japanese: **Daikan Enō**  
+638–713.
+
+The Sixth Ancestor of Chan Buddhism; a semi-legendary figure. The one who won the poetry contest.
+
+---
 # I
 
 ---
@@ -579,6 +590,12 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 ## Madhyamaka
 
 ---
+## Mahākāśyapa
+
+One of the main disciples of Shakyamuni Buddha. 'Maha' means 'Great'.
+
+- [Wikipedia: Mahākāśyapa](https://en.wikipedia.org/wiki/Mahākāśyapa)
+
 ## Mahaprajnaparamita
 
 ---
@@ -850,9 +867,16 @@ Shijo 止靜 (Japanese): Signal of the beginning of [zazen](glossary#zazen).
 
 - [Fukanzazengi – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
 
+## Shikan
+
+The “*just*” from “just sitting”; see [shikantaza](glossary#shikantaza).
+
+- [Blue Cliff Record, Case 3 – Talk 1 (21:33)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2133)
+
+---
 ## Shikantaza
 
-A Japanese word meaning "just sitting"; not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
+A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
 
 - [Fukanzazengi – Talk 2 (25:09)](1979-06-10-Fukanzazengi-Talk-2#2509)
 - [Fukanzazengi – Talk 3 (1:04:30)](1979-06-11-Fukanzazengi-Talk-3#10430), [(1:09:49)](1979-06-11-Fukanzazengi-Talk-3#10949)
