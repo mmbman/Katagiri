@@ -302,7 +302,7 @@ So, “Please test; I cite this for you to see.”
 
 This is the point: we have to test. [You] have to experience by yourself. I cannot give you anything. I can give you something sweet, or bitter, something like that. But beyond bitterness or sweetness, you should get a taste by yourself. 
 
-Beyond bitterness or sweetness – what is that? [That is] the realm of interdependent co-origination: you yourself, your life itself. Completely beyond “you can believe your den” or “you cannot believe your den,” or [beyond] “you should stay in the den” or “you shouldn’t stay in the den.” You cannot say; because your life is working.
+Beyond bitterness or sweetness – what is that? [That is] the real meaning of interdependent co-origination: you yourself, your life itself. Completely beyond “you can believe your den” or “you cannot believe your den,” or [beyond] “you should stay in the den” or “you shouldn’t stay in the den.” You cannot say; because your life is working.
 
 So, please test. Get a taste. 
 
@@ -324,17 +324,17 @@ But if you answer this question, “what will be right,” [with] “Yes – thi
 
 If you really understand interdependent co-origination, if you really understand human life deeply, finally the question is left: what is right? Constantly you have to think carefully, what is right? What would be right? To live in peace and harmony, constantly, day to day, moment to moment: what would be right? 
 
-Whatever happens, under all circumstances, good or evil – you cannot stay in a den which is called good, you cannot stay in a den which is called evil, you cannot stay. But constantly, there is a question: what would be right? Because, this is the Great Function. 
+Whatever happens, under all circumstances, good or evil – you cannot stay in a den which is called good, you cannot stay in a den which is called evil; you cannot stay. But constantly, there is a question: what would be right? Because, this is the Great Function. 
 
 ##### 1:17:34
 
-That’s why ... our practice is continuous. Dogen says, “Just continuous practice.” Continuous practice is a really stable human attitude toward day by day. Saying something about today now; not before today, not after today. 
+That’s why ... our practice is continuous. Dogen says, “Just continuous practice.” Continuous practice is a really stable human attitude toward day by day. Saying something about today *now*; not before today, not after today. 
 
-So if you say something, maybe you can say, Sun Face Buddha, Moon Face Buddha. What is Sun Face Buddha, Moon Face Budha? What would be right? Shall I depend [on] Sun Face Buddha, living for eternity, seeking for the Buddhist faith?  What is peaceful, what is bliss, real bliss? Always questions there.
+So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha.” What is Sun Face Buddha, Moon Face Budha? What would be right? Shall I depend [on] Sun Face Buddha, living for eternity, seeking for the Buddha’s face?  What is peace, what is bliss, real bliss? Always questions there.
 
-But if you see exactly sort of a faith that you can depend on, that faith is really *[unintelligible]* not real faith *[unintelligible]* very important. Through the faith you can see the real face. 
+But if you see exactly sort of a face that you can depend on, that face is really *[unintelligible]* not real face *[unintelligible]* but through the face you can see the real face. 
 
-But that face is always leaves you with a question, “what is your face,” constantly. *[unintelligible]*
+But that face always leaves you with a question: “What is your face?” Constantly. *[unintelligible]*
 
 ##### 1:19:37 end of recording
 
