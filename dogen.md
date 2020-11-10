@@ -88,6 +88,13 @@ This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 - [terebess.hu: "The Heart of Dogen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf) 
 
 ---
+## Ocean Seal Samadhi
+
+Japanese: Kaiin-zanmai
+
+- [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)
+
+---
 # Eihei Koroku
 
 Eihei Koroku is a collection of [Dogen Zenji](glossary#dogen)’s Dharma Hall Discourses (short dharma talks). 

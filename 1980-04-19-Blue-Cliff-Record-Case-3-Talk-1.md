@@ -238,27 +238,29 @@ But this is not interdependent co-origination. You understand interdependent co-
 
 Intellectual understanding is really pretty strange; but in a sense, wonderful. *[he chuckles]* If you understand: “I am making a den; I am feeling good from my den.” It’s very interesting. But simultaneously, we must be free from the den. 
 
-So, interdependent co-origination is something you have to experience directly from interdependent co-origination itself. How? Why don’t you dive into the ocean. That’s enough. Then, your body starts work. 
+So, interdependent co-origination is something you have to experience directly from interdependent co-origination itself. How? Why don’t you dive into the ocean. That’s enough. Then, your body start to work. 
 
 ##### 59:36
 
-It’s just like my brother, I told you before. Do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim. If you [are] in the Navy, you should learn [swimming], you should be master swimmer. But he couldn’t. So one day a sergeant threw him over the boat into the ocean. He was very surprised. *[laughter]* No way to ... But the other friends watching carefully off the boat, ... if something happens, somebody [will] help him. But for him, for my brother, [there is] no way to escape, no way to [know] somebody [is] watching [him], already there. 
+It’s just like my brother, I told you before; do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim. If you [are] in the Navy, you should learn [swimming], you should be [a] master swimmer. But he couldn’t. So one day a sergeant threw him over the boat into the ocean. He was very surprised. “Oh no!” *[laughter]* No way to *[unintelligible]*. But the other friends watching carefully knew ... if something happened, somebody [would] help him. But for him, for my brother, [there was] no way to escape, no way to [know] somebody [was] watching [him]. Already there!
 
-But still, stream of consciousness is going [on]. That’s interesting, don’t you think? If still [the] stream of consciousness is going, he can notice, “Uh-oh; what should I do?” So he struggles, and during the struggle still he is looking at himself. “How can I take a breath; how can I float?” 
+But still, [the] stream of consciousness is going [on]. That’s interesting, don’t you think? If still [the] stream of consciousness is going, he can notice, “Uh-oh; what should I do?” So he struggles, and during the struggle still he is looking at himself. “How can I take a breath; how can I float?” 
 
-But whatever he [did], no way to float. So finally, he decided, “Okay; I’m okay to die.” He gave up. Then his body was sinking to the bottom of the ocean. On the way, all of sudden, his body started to float. So he was, “wow” ... 
+But whatever he [did], no way to float. So finally, he decided, “Okay; I’m okay to die.” He gave up. Then his body was sinking to the bottom of the ocean. On the way, all of sudden, his body started to float. *[laughter]* So he was, “Wow!” *[unintelligible]* 
 
-Well this is human life; really human life. It’s really true. So dive into it. At that time, interdependent co-origination is there. 
+Well, this is human life; really human life. It’s really true. So, dive into it. At that time, interdependent co-origination is there. 
 
 But you don’t know what is interdependent co-origination. It comes from you? It comes from water? It comes from technique? No way.
 
-##### 
+##### 1:02:16
 
-This is just a good example, but these are all the same whatever you do. You should learn by yourself, because everything is connected with you. Making a hole, and believe the den, but next moment we should let it go. And then at that time, we can really learn. That is real meaning of interdependent co-origination. But actually, we are always going on the one-way trip, forgetting coming back. That’s why we try to understand everything intellectually, and then if you understand it, well you can believe, you can depend on something. But, we cannot do always in that way.
+This is just a good example, but these [situations] are all the same, whatever you do. You should learn by your self, because everything is connected with you. Make a hole, and [live in] the den, but next moment, we should let it go. And then, at that time, we can really learn. That is the real meaning of interdependent co-origination. 
 
-That’s why Setchō Zen Master says, “this way will not do, not this way will not do either”. This is to cut off. How can the Buddha and patriarchs understand real nature of interdependent co-origination? No way. No way to understand. All they have to do is, just dive into the ocean. Then, we can learn something. But temporarily, after experience this, then we can make a word, which is called interdependent co-origination. 
+But actually, we are always going on a one-way trip, forgetting to come back. That’s why we try to understand everything intellectually, and then if you understand it, well you can believe [it], you can depend on something. But, we cannot do [it] always in that way.
 
-Even the Buddha, because that interdependent co-origination is really something without discipline or rules. That’s why this is to cut off; no communication. But, we can *be*. 
+That’s why Setchō Zen Master says, “This way will not do, not this way will not do either”. This is to cut off. How can the Buddha and patriarchs understand the real meaning of interdependent co-origination? No way; no way to understand. All they have to do is just dive into the ocean; then, they can learn something. But temporarily, after we experience this we can make a word, which is called “interdependent co-origination”.
+
+[This is true] even [for] the Buddha: because that interdependent co-origination is really something without discipline or rules. That’s why this is too cut off: no communication. But, we can *be*. 
 
 ##### 1:04:29
 
@@ -266,47 +268,63 @@ That is the fourth section; the fifth section is:
 
 > Without treading these two paths, what would be right? Please test; I cite this for you to see.
 
-“Without treading these two paths” – without re-treading these two paths means, this is my den. You should depend on. Yesterday ... it is not. On the other hand, this is not my den. Of course, this is not my den; but you shouldn’t believe this is not my den, because you are already in there, in the den, making a hole by your consciousness, and trying to prepare for your talk – and then, it’s your den. 
+“Without treading these two paths” means: “this is my den; you should depend on [this]” – yes it is, but [no] it is not. On the other hand, this is not my den; of course this is not my den. But you shouldn’t believe this is not my den – because you are already in the den, making a hole [with] your consciousness, trying to prepare for your talk – and then, it’s your den. But on the other hand – not-den. “Let it go,” “free from den” means that is my not-den.
 
-But on the other hand – not den. Let it go, means, free from den, means, that is my not-den. You cannot attach to either one of them. That’s why “without these two paths” – what is right. Completely no way. All you have to do is, just swim in the ocean. 
+You cannot attach to either one of them. That’s why, “without these two paths.” What is right? Completely, no way. All you have to do is, just swim in the ocean. 
 
-Dogen says in the samadhi of ocean seal samadhi, he says something like that: “The original nature of existence pretty deep and pretty high. That means, completely beyond human speculation. In other words, according to this [case], something transcendent of human consciousness, human body, human mind – whatever it is, it’s pretty deep, and something transcendent.
+In the [Ocean Seal Samadhi](dogen#ocean-seal-samadhi) in Shobogenzo, [Dogen](glossary#dogen) says something like that: “The original nature of existence pretty deep and pretty high.” That means, completely beyond human speculation. In other words, according to this: something transcendent [of] human consciousness, human body, human mind – whatever it is, it’s pretty deep, and something transcendent.
 
-So finally, what should you do? According to Dogen, we should realize all beings are reflected in the ocean. This way or not this way, all are going on in the ocean, because all are reflected in the ocean. So you can choose: this way or this way. If you want to die, any time you can die. If you want to live, any time you can live. 
+So finally, what should you do? According to Dogen, we should realize all beings are reflected in the ocean. This way or not this way, all are going on in the ocean, because all are reflected in the ocean. So you can choose: this way or not this way. If you want to die, any time you can die. If you want to live, any time you can live. 
 
-Whenever you make a choice, it helps you. But it is just one way. On the other hand, still there is something you have to pay careful attention to the reality which you have made a choice of living. So, watch out means, it’s negative. You cannot adopt any kind of way, this way or not this way. Let it go. 
+Whenever you make a choice, it helps you; but it is just one way. On the other hand, still there is something, you have to pay careful attention to the reality which you have made a choice of living. So, “watch out” means, it’s negative. You cannot adopt any kind of way, this way or not this way. That means, let it go. 
 
-Finally – what is right? Swimming is something you can learn from a book or teachers? And then you understand how to swim? This is one way. And the other way is you should let it go, and learn something directly from interdependent co-origination itself. So finally, what you have to do is just dive into the ocean.
+Finally, what is right? Is swimming something you can learn from a book or teachers, and then you understand how to swim? This is one way. And the other way is you should let it go, and learn something directly from interdependent co-origination itself. So finally, what you have to do is just dive into the ocean.
 
-If you dive in to the ocean, immediately you can swim on the surface. But simultaneously, your body is walking on the bottom of the ocean. In other words you swim being one with the whole ocean. Logically, it doesn’t make sense, but according to Dogen, you can swim on the surface of the ocean, and put your foot on the bottom of the ocean. Do you understand? Put your feet on the bottom of the ocean, and you can sim on the surface. How can you do this? Impossible intellectually, but actually, you can do it. 
+If you dive in to the ocean, immediately you can swim on the surface. But simultaneously, your body is walking on the bottom of the ocean. In other words, you swim being one with the whole ocean. Logically, it doesn’t make sense; but according to Dogen, you can swim on the surface of the ocean, but your feet [are] on the bottom of the ocean ... How can you do this? [It’s] impossible intellectually, but actually, you can do [it]. 
 
-That is to learn the real meaning of interdependent co-origination. Let it go, think carefully, and let it go – dive into the ocean. At that time, what is independent co-origination? Nothing to say. But you can learn. You can learn means, your feet are really on the bottom of the ocean. Because you can learn. That really makes your swimming possible to exist as it is. That’s why next, you can see yourself, who is swimming.
+That is to learn the real meaning of interdependent co-origination. Understand, think carefully, and let it go: dive into the ocean. At that time, what is interdependent co-origination? Nothing to say. But, you can learn. “You can learn” means, your feet are really on the bottom of the ocean; because you can learn. That really makes your swimming possible to exist as it is. That’s why next, you can see yourself, who is swimming.
 
-That’s why this is “right”. Right View, right thinking, according the Buddha’s Noble Eightfold Path. Right means completely beyond right and wrong. 
+##### 1:10:44
 
-“Without treading these two paths, what would be right?” Completely you can reach dead end, nothing to say. At that time, you can keep silent; but this silence really makes you active. But this activity is very quiet. But this quiet activity is really something which makes you very active. ... 
+This is “right”: Right View, Right Thinking, according the Buddha’s [Noble Eightfold Path](glossary#eightfold-path). ‘Right’ means completely beyond right and wrong. 
 
-That’s why this is what would be right. In terms of this activity, completely you cannot say this way is good, or not this way is good. You cannot say so, completely. This is the great function.
+“Without treading these two paths, what would be right?” Completely you can reach a dead end, nothing to say. At that time, you can keep silent; but this silence really makes you active. This activity is very quiet, but this quiet activity is really something which makes you very active.
 
-So, “Please test; I cite this for you to see.” This is the point: we have to test. We have to experience by yourself. I cannot give you anything. I can give you something sweet, or bitter. But beyond bitterness or sweetness, you should get ??? by yourself. Beyond bitterness and sweetness are – what is that? The realm of interdependent co-origination. You yourself, your life itself – completely beyond you can believe your den, or you cannot believe your den. Or you should stay in the den, or you shouldn’t stay in the den. You cannot say; because your life is working.
+That’s why this is what would be right. In terms of this activity, completely you cannot say “this way is good”, or “not this way is good”. You cannot say so completely. This is the Great Function.
 
-So, please test. And then he says, “I site this for you to see.” This is the case, example. The case is an example. The Zen Master says, “Sun Face Buddha, Moon Face Buddha.” He was about to die. For his death: are you okay? Yes, or no. “Are you sure?” “I’m not sure; but I’m sure.” To be ready to die: are you sure? Yes or no. Nothing to say. That’s why he says, “Sun Face Buddha, Moon Face Buddha.” “Where are you going?” “I don’t know.” But he knows. He doesn’t know where he is going, but he knows. He knows means, dive into the ocean. That’s all. 
+##### 1:12:12
 
-This is the final goal we have to reach. Zen Master Baso is treating his death like this. But death itself is something which you have to taste, treat or taste by yourself. So in many ways, how to taste, how to expect. One Zen Master says to the disciple, the disciple asks, please leave a message for us for our education, for our practice. So he says to the priest, before you die, please say something for us. He says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like ... teachings, completely beyond human speculation. The priest says, “I don’t want to die.” 
+So, “Please test; I cite this for you to see.” This is the point: we have to test. [You] have to experience by yourself. I cannot give you anything. I can give you something sweet, or bitter, something like that. But beyond bitterness or sweetness, you should get a taste by yourself. Beyond bitterness and sweetness – what is that? [That is] the realm of interdependent co-origination: you yourself, your life itself; completely beyond you can believe your den or you cannot believe your den, or [beyond] you should stay in the den or you shouldn’t stay in the den. You cannot say; because your life is working.
 
-This “I don’t want to die” doesn’t mean “I don’t want to die.” Without using these two ways, “I want to die” or “I don’t want to die,” completely beyond, what would be right? This is his death. Finally, questions is left – what would be the right way?
+So, please test. Get a taste. 
 
-But if you answer this question what will be right, “Yes – this,” it’s already dead, you made. Or you say, “No, it’s not” – it’s already dead, which is called not-dead. So finally, what is right? 
+##### 1:13:21
 
-If you really understand interdependent co-origination, if you really understand human life deeply, finally the question is left: what is right? Constantly you have to think carefully, what is right? Whta would be right? 
+And then he says, “I site this for you to see.” This is [refering to] the case; the case is an example. The Zen Master says, “Sun Face Buddha, Moon Face Buddha.” He was about to die. For his death: “Are you okay?” Yes, or no. “Are you sure?” I’m not sure; but I’m sure. “To be ready to die; are you sure?” Yes or no. Nothing to say. That’s why he says, “Sun Face Buddha, Moon Face Buddha.” “Where are you going?” “I don’t know.” But he knows. He doesn’t know where he is going, but he knows. “He knows” means: dive into the ocean. That’s all. 
 
-To live in peace and harmony, constantly, day to day, moment to moment, what would be right? Whatever happens, under all circumstances, good or evil – you cannot stay in a den which is called good, you cannot stay in a den which is called evil, you cannot stay. But constantly, there is question, what would be right. Because, this is the great function of. That’s why constantly, our practice is continuous . Dogen says, just continuous practice. Continuous practice is really stable human attitude toward day by day, saying something about today, now. Not before, not after today. 
+This is the final goal we have to reach. Zen Master Baso is treating his death like this. But death itself is something which you have to treat or taste by yourself; so in many ways, how to taste, how to *[unintelligible]*. 
 
-So if you say something, maybe you can say, sun face buddha, moon face buddha. What is Sun Face Buddha, Moon Face Budha? What would be right? If your life depends, Sun Face Buddha, living for eternity, sitting for the buddhist faith, or ÷÷÷÷ what is peaceful, what is ???? Always ... 
+##### 1:15:00
 
-But if you see exactly the real meaning of sort of a face you can depend on, that face is really ???? Not real face .... very important. Through the face you can see the real face. 
+One Zen Master [speaks] to the disciple; the disciple asks, “Please leave a message for us, for our education, for our practice [as] monks.” So he says to the priest, “Before you die, please say something for us.” [The priest] says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a Buddha’s teachings, completely beyond human speculation. The priest says, “I don’t want to die.” 
 
-But ... face is always you ... question, constantly. ..........
+This “I don’t want to die” doesn’t mean “I don’t want to die.” Without using these two ways, “I want to die” or “I don’t want to die,” completely beyond, what would be right? This is his death. Finally, [the] question is left – what would be the right way?
+
+But if you answer this question, “what will be right,” [with] “Yes – this,” – it’s already dead. Or [if] you say, “No, it’s not” – it’s already dead, which is called not-dead. So finally, *what is right*? 
+
+If you really understand interdependent co-origination, if you really understand human life deeply, finally the question is left: what is right? Constantly you have to think carefully, what is right? What would be right? To live in peace and harmony, constantly, day to day, moment to moment: what would be right? 
+
+Whatever happens, under all circumstances, good or evil – you cannot stay in a den which is called good, you cannot stay in a den which is called evil, you cannot stay. But constantly, there is a question: what would be right? Because, this is the Great Function. 
+
+##### 1:17:34
+
+That’s why ... our practice is continuous. Dogen says, “just continuous practice.” Continuous practice is a really stable human attitude toward day by day. Saying something about today now; not before today, not after today. 
+
+So if you say something, maybe you can say, Sun Face Buddha, Moon Face Buddha. What is Sun Face Buddha, Moon Face Budha? What would be right? Shall I depend [on] Sun Face Buddha, living for eternity, seeking for the Buddhist faith?  What is peaceful, what is bliss, real bliss? Always questions there.
+
+But if you see exactly sort of a faith that you can depend on, that faith is really *[unintelligible]* not real faith *[unintelligible]* very important. Through the faith you can see the real face. 
+
+But that face is always leaves you with a question, what is your face, constantly. *[unintelligible]*
 
 ##### 1:19:37 end of recording
 

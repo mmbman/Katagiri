@@ -345,6 +345,11 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 - [Fukanzazengi – Talk 1 (49:49)](1979-06-09-Fukanzazengi-Talk-1#4949)
 
 ---
+## Eightfold Path
+
+- [Blue Cliff Record, Case 3 – Talk 1 (1:10:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#11044)
+
+---
 ## Eihei Dogen 
 
 See [Dogen](#dogen)
