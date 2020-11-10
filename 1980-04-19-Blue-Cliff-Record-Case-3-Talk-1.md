@@ -20,15 +20,15 @@ Blue Cliff Record, Case 3: “Master Ma is Unwell”
 > 
 > (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
 
-Great Zen Master Ma, [Baso Zen Master](glossary#baso-dōitsu), who was second patriarch from [Huineng Zen Master](glossary#huineng).
+Great Zen Master Ma, [Baso Zen Master](glossary#baso-dōitsu), was [the] second [patriarch](glossary#patriarch) from [Huineng Zen Master](glossary#huineng).
 
-“The temple superintendent asked him, ‘Teacher, how has your venerable health been in recent days?’” It means, “How have you been?” Probably Baso Zen Master was maybe about to pass. So I don’t know who was the superintendent, but anyway, visited Baso Zen Master’s room, and asked, “How have you been?” So [the] Zen Master says, “Sun Face Buddha, Moon Face Buddha.”
+“The temple superintendent asked him, ‘Teacher, how has your venerable health been in recent days?’” It means, “How have you been?” Probably Baso Zen Master was about to pass. I don’t know who was the superintendent, but anyway, he visited Baso Zen Master’s room and asked, “How have you been?” So [the] Zen Master says, “Sun Face Buddha, Moon Face Buddha.”
 
 The Translator’s Note says:
 
 > According to the Buddha Name Scripture, a Sun Face Buddha lives in the world for eighteen hundred years, whereas a Moon Face Buddha enters extinction after a day and a night. Tenkei Denson Zen Master says, “But is everyone’s own Sun Face Buddha Moon Face Buddha something long or short?”
 
-“Is everyone’s own Sun Face Buddha Moon Face Buddha something long or short” means – is your life long or short? Is your life called Sun Face Buddha, or Moon Face Buddha? 
+“Is everyone’s own Sun Face Buddha Moon Face Buddha something long or short” means: is your life long or short? Is your life called Sun Face Buddha, or Moon Face Buddha? 
 
 In universal perspective, wherever you may be, there is constantly [the] stream of universal life. From this point, it is eternity; life is eternal. 
 
@@ -60,15 +60,17 @@ Shakyamuni Buddha showed the flowers with his hand, and [Mahākāśyapa](glossar
 
 “One word, one phrase”: You know pretty well, this is the explanation of existence in a word. Without words and phrases, we cannot find the opportunity to communicate with each other. So if you want to teach something to people, we need four circumstances: one device, one object, one word, one phrase. Time, opportunity, action of your life, and your object. And also there is action; verbal action, or sometimes not verbal action; even though you don’t use words, still there is action. 
 
-“One device, one object; one word, one phrase – the intent is that you will have a place to enter” – this is why it is said we have to use one device, one object, one word, one phrase. In order to teach, in order to communicate human life, with human beings. Well, there is no reason why, because it is always there; without this, we cannot do anything at all. So, it’s completely beyond “why”. Before you make a question why, *it’s there*. It completely transcends the human question “why,” what we shouldn’t do, what we should do. 
+“One device, one object; one word, one phrase – the intent is that you will have a place to enter.” This is why it is said we have to use one device, one object, one word, one phrase: in order to teach; in order to communicate human life with human beings. Well, there is no reason why, because it is always there; without this, we cannot do anything at all. So, it’s completely beyond “why”. Before you make a question why, *it’s there*. It completely transcends the human question “why”; what we shouldn’t do, what we should do. 
 
-That’s why the intent is that you will have a place to enter. Through these four, the device, object, word, phrase, we can communicate the universal life, and we can communicate human life to each other. Understanding, living in peace and harmony. That’s why it is due to guide people to have, to realize a place to enter, nirvana, a peaceful life, a peaceful world. How to live, how to exist. 
+That’s why the intent is that you will have a place to enter. Through these four, the device, object, word, phrase, we can communicate the universal life, and we can communicate human life to each other. Understanding, living in peace and harmony. That’s why it is ... to guide people to realize a place to enter nirvana, a peaceful life, a peaceful world. How to live, how to exist. 
 
 ##### 13:44
 
 “Still this is gouging a wound in healthy flesh...”: “Healthy flesh” means human body, human mind. “Still this is gouging a wound” means always there is human consciousness, poking our head into a hole, just like a [cat](glossary#cat). We really make a hole, and stay in it – because we are interested in seeing what is in it. 
 
-So Setchō says, “Still this is gouging a wound in healthy flesh.” Actually, our body and mind are really healthy, very healthy, because body and mind are exactly going on in the same rhythm of the universe. But the trouble is that human consciousness always digs in the ground, making a hole, poking, poking, poking your head into it, trying to know, to see what’s in it. But we don’t know what’s in it. Maybe a skunk there.  Maybe a beautiful flower there. Maybe a poisonous snake there. We don’t know; but constantly, we do [this]. It’s really not ‘bad’, in a sense, but it is not ‘good’, because this is [the] reason why human civilization is developing. So, in a sense, it’s pretty good, such a human civilization. But development of human civilization is not good, not bad – nothing to say.
+So Setchō says, “Still this is gouging a wound in healthy flesh.” Actually, our body and mind are really healthy, very healthy, because body and mind are exactly going on in the same rhythm of the universe. But the trouble is that human consciousness always digs in the ground, making a hole, poking, poking, poking your head into it, trying to know, to see what’s in it. But we don’t know what’s in it. Maybe a skunk there.  Maybe a beautiful flower there. Maybe a poisonous snake there. We don’t know; but constantly, we do [this]. 
+
+It’s really not ‘bad’, in a sense, but it is not ‘good’, because this is [the] reason why human civilization is developing. So, in a sense, it’s pretty good, such a human civilization. But development of human civilization is not good, not bad – nothing to say.
 
 Even though you hate modern civilization – hating cars, airplanes, helicopters, whatever you say – still ... we are living with cars, with airplanes, with modern civilization. We should appreciate [this]. We should know what modern civilization is, we should know how it is going on; because you cannot pin down “modern civilization is good” or “modern civilization is not good” – we cannot say, completely. 
 
@@ -86,7 +88,7 @@ That’s why we always have to check human consciousness, modern civilization or
 
 So we should gouge a wound in our healthy flesh – but watch out. Don’t believe it is your den, it is your house. Of course it is a house, it is your den, but you should get out of it and see what it is. That is pretty good.
 
-I told you sometimes, if you’re always selling fish, your body and mind have a fish smell. But if you’re always soaking in the fishy smell, you don’t smell how fishy you are. Get out, sometimes. If you get out, and are being engaged in something with a beautiful smell, people will really tell you how fishy you smell. 
+I told you sometimes: if you’re always selling fish, your body and mind have a fish smell. But if you’re always soaking in the fishy smell, you don’t smell how fishy you are. Get out, sometimes. If you get out, and are being engaged in something with a beautiful smell, people will really tell you how fishy you smell. 
 
 So, the same applies to human life. 
 
@@ -104,11 +106,11 @@ Wherever you may be – zazen, gassho, walking and eating – you must be master
 
 This development of your life is completely beyond human speculation. Because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [shikan](glossary#shikan).
 
-Even though, regardless of whether you are conscious of the truth or not, Buddhas and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to say [it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
+Regardless of whether you are conscious of the truth or not, Buddhas and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to say [it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
 
 ##### 27:19
 
-In other words, I told you before, the modern civilization is pretty good for us. Consciousness is pretty good for us. But we have to transcend the function of consciousness. 
+In other words, I told you before: modern civilization is pretty good for us. Consciousness is pretty good for us. But we have to transcend the function of consciousness. 
 
 Transcend doesn’t mean to destroy consciousness. Transcend is not to attach to any expected [ideas?]. Consciousness is good or consciousness is bad, we cannot say. Transcend means through consciousness we should live in the best way, day after day. Think carefully, through and through, then live in the best way. But – you cannot stay with your consciousness, by which you have been lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
 
@@ -116,13 +118,13 @@ Development of human life is, according to Diamond Sutra, no development of huma
 
 We really believe individual life, we really believe [in] modern civilization, because modern civilization makes human beings happy. Of course it [does]. But if you don’t pay careful attention to [the] moden civilization you are always soaking in, it’s very dangerous, because no one knows. Everything is changing constantly, so you can misuse modern civilization pretty easily.
 
-We should appreciate modern civilization because we can live in a better way. On the other hand, we should transcend, we should go beyond. That means, watch modern civilization – [where] we are going there, what’s going on.
+We should appreciate modern civilization because we can live in a better way. On the other hand, we should transcend, we should go beyond. That means, watch modern civilization – [where] we are going, what’s going on.
 
 ##### 30:30
 
-Secondly, regardless of whether you like or dislike, we have to transcend. We must transcend. That means, completely speaking, we have to reflect upon ourselves and move toward future, for future generations, day after day, in order to transmit human life in proper way. In order to transmit human knowledge in proper way – not in wrong way. For this, we have to practice, to reflect upon ourselves – what we have done in the world of modern civilization – with gratitude for consciousness and modern civilization. And helping, and transmit how important human life is to future generations. 
+Secondly, regardless of whether you like or dislike, we have to transcend. We must transcend. That means, completely speaking, we have to reflect upon ourselves and move toward [the] future, for future generations, day after day, in order to transmit human life in [a] proper way. In order to transmit human knowledge in [a] proper way, not in [a] wrong way, we have to practice, to reflect upon ourselves [and] what we have done in the world of modern civilization, with gratitude for consciousness and modern civilization. And [help]; and transmit how important human life is to future generations. 
 
-That is the really great function which modern civilization possesses inherently. That is great function. Great function is basically, everything is free, completely free. It is never limited by any rules or principles. We say always, “modern civilization is best,” or “modern civilization is good” – it becomes sort of rules or principles we set up already. But it is not real nature of modern civilization. In order to make modern civilization help all sentient beings, we should appreciate it, and reflect, watch carefully, without misusing it. 
+That is the really great function which modern civilization possesses inherently. That is great function. Great function is basically, everything is free, completely free. It is never limited by any rules or principles. We say always, “modern civilization is best,” or “modern civilization is good” – it becomes sort of rules or principles we set up already. But it is not [the] real nature of modern civilization. In order to make modern civilization help all sentient beings, we should appreciate it, and reflect, watch carefully, without misusing it. 
 
 ... That’s why we have to say constantly [that] the Great Function appears without abiding by fixed principles.
 
@@ -136,11 +138,11 @@ What is spring? Basically, spring is free from your ideas, principles or rules y
 
 “This great function covers the sky, covers the earth”: This is great being, great function. You have [it], trees have [it], spring has [it], pebbles – whatever it is, it has [it]. Whatever you may be, everything has this great function, covering the sky and heaven and earth, whatever it is – just like wind. Wind is always present, wherever you may go. 
 
-But you cannot grasp the omnipresence of the wind. If the wind is omnipresence, well it’s not necessary to use a fan, because wherever you may go, wind is there. In summer, you should feel cool without using a fan. But it’s impossible to do that. 
+But you cannot grasp the omnipresence of the wind. If the wind is omnipresent, well it’s not necessary to use a fan, because wherever you may go, wind is there. In summer, you should feel cool without using a fan. But it’s impossible to do that. 
 
-That great function is covering the sky and heaven and earth, wherever you may be, but it is not something you can grasp. Completely beyond. Only when you be one with the wind, that means use the fan. At that time, wind really comes.
+That great function is covering the sky and heaven and earth, wherever you may be, but it is not something you can grasp. [It’s] completely beyond. Only when you be one with the wind, that means use the fan. At that time, wind really comes.
 
-That wind which is coming, I don’t know from where. From fan, or from wind? No way. That is called Great Function: great function of the wind, great function of the fan, great function of the person who uses [the fan]. There is no discrimination.
+That wind which is coming – I don’t know from where. From fan, or from wind? No way. That is called [the] Great Function: great function of the wind, great function of the fan, great function of the person who uses [the fan]. There is no discrimination.
 
 That’s why Setchō Zen Master says, “It covers the sky, covers the earth, yet it cannot be grasped.”
 
@@ -152,7 +154,7 @@ The third section says:
 
 “This way will do, or not this way will do” means – do you think modern civilization is good? Well, if you think so, *[unintelligible]*. If you think modern civilization is not good: okay, you think so. You can think ... whatever, because modern civilization is not something particular from your life, because it is something connected with individual life. So whatever you say – “Modern civilization is good” – okay, it’s good. “Modern civilization is not good” – okay!
 
-In Buddhism, ‘all’ means something that which it is closely, intimately connected with your individual life. That is called ‘all beings’. ‘All beings’ appear in a different way, in terms of individual perspectives. This is ‘all beings’. 
+In Buddhism, ‘all’ means something ... which is closely, intimately connected with your individual life. That is called ‘all beings’. ‘All beings’ appear in a different way, in terms of individual perspectives. This is ‘all beings’. 
 
 From this point, all beings are limited by individual perspective. But all beings [are] originally something transcendental, so you must be free from individual perspective in order to understand the great function of all beings. 
 
@@ -166,9 +168,9 @@ That means, for instance, talking. We have a student talk this morning. [For] a 
 
 From this point, there is development, in order to talk about Buddhism in terms of individual perspective. That’s great. But, talking or Buddhism or your life should be something transcendent. That means – forget it. Sit down and just talk. Sit down and just talk means – who talks? *I* talk? No, I don’t think so. Talk is completely something transcendent. Something of the talk is completely transcendent. Do you understand?
 
-To teach means “you teach”, that is one way. But you completely forget the other way: teach comes to you. That means that teaching teaches you; you don’t teach somebody. In other words, you can learn something from your teaching, your talk. Don’t you think so? 
+To teach means “you teach”, that is one way. But you completely forget the other way: teach[ing] comes to you. That means that teaching teaches you; you don’t teach somebody. In other words, you can learn something from your teaching, your talk. Don’t you think so? 
 
-Have you ever experienced during the talk or teaching, sometimes you can get a good idea? “Oh, right!” Like this? No? *[some laughter]* Well sometimes, something comes up, completely beyond your speculation. So after that, you think, “Wow – I said something *good*.” *[laughter]* You don’t know from where it comes, but anyway, it comes. So from where? It comes from you? No, I don’t think so. It comes from you, but it comes from you only when you completely let it go – your ideas, and *I* am talking, *I* am teaching to you – completely let it go, just sit down and talk. At that time, something good comes from you. 
+Have you ever experienced during the talk or teaching, sometimes you can get a good idea? “Oh, right!” Like this? No? *[some laughter]* Well sometimes, something comes up, completely beyond your speculation. So after that, you think, “Wow – I said something *good*.” *[laughter]* You don’t know from where it comes, but anyway, it comes. So, from where? It comes from you? No, I don’t think so. It comes from you, but it comes from you only when you completely let it go – your ideas, and *I* am talking, *I* am teaching to you – completely let it go, just sit down and talk. At that time, something good comes from you. 
 
 So, you are not you, but [a] good idea comes from no-you. 
 
@@ -178,7 +180,7 @@ That is very important. “This way will do, not this way will do too”: everyt
 
 But before ‘just do’, consciousness [is] always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” Next moment... “Are you sure?” *[rueful laughter]* But next moment, “Why don’t you stop talking?” “But I cannot escape. Something compels me to talk.” “Do you like it?” “No, I don’t like it.” “If you don’t like it, why don’t you stop it?” “But I cannot stop it.” All this, consciousness, dig [in] the ground, make a hole, and believe, “this is my den,” “this is my hole,” always. 
 
-But you cannot do this always. Of course, if you make a hole, and if you believe [it’s your] den; that’s okay, let it go next. Get out from the den. That means, *just do*: just *shikan* taza. 
+But you cannot do this always. Of course, if you make a hole, and if you believe [it’s your] den, that’s okay; next, let it go. Get out from the den. That means, *just do*: just *shikan* taza. 
 
 ##### 45:00
 
