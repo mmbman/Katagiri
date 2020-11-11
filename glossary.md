@@ -304,6 +304,14 @@ Dharma as action, activity.
 
 Vajracchedikā Prajñāpāramitā Sūtra
 
+- [Diamond Sutra Introduction](1979-05-09-Diamond-Sutra-Introduction), etc.
+- [Blue Cliff Record, Case 3 – Talk 1 (27:19)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2719)
+
+---
+## Distraction
+
+- [Fukanzazengi – Talk 1 (48:16)](1979-06-09-Fukanzazengi-Talk-1#4816)
+
 ---
 ## Dogen
 
@@ -321,11 +329,6 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 
 ---
 ## Dullness
-
-- [Fukanzazengi – Talk 1 (48:16)](1979-06-09-Fukanzazengi-Talk-1#4816)
-
----
-## Distraction
 
 - [Fukanzazengi – Talk 1 (48:16)](1979-06-09-Fukanzazengi-Talk-1#4816)
 

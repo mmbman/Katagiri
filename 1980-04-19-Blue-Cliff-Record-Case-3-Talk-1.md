@@ -102,13 +102,15 @@ So, the same applies to human life.
 
 > The Great Function appears without abiding by fixed principles – the intent is that you will realize there is something transcendental; it covers the sky and covers the earth, yet it cannot be grasped.
 
-The second section is completely opposite to the first section. In the second section, Setchō says, “the Great Function” of human existence – so, [the] Universe – “appears without abiding by fixed principles.” The basic nature of existence is constantly working, and it is never strained, it is never limited by fixed principles or rules. Constantly it is working freely. That is [the] character of the Great Function, [the] character of the function of human existence. [Or] trees, birds, floors – whatever. 
+The second section is completely opposite to the first section. In the second section, Setchō says, “the Great Function” of human existence – so, [the] universe – “appears without abiding by fixed principles.” The basic nature of existence is constantly working, and it is never strained, it is never limited by fixed principles or rules. Constantly it is working freely. That is [the] character of the Great Function, [the] character of the function of human existence. [Or] trees, birds, floors – whatever. 
 
-“The intent is that you will realize there is something transcendental.” “Something transcendental” literally, originally means ‘development’. Development is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say ‘something transcendent’ means to show yourself [for] what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. 
+“The intent is that you will realize there is something transcendental.” “Something transcendental” literally, originally means ‘development’. 
 
-Wherever you may be – zazen, gassho, walking, [or] eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, after you are what you are. This is something transcendental. That is development of your life. 
+Development is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say ‘something transcendent’ means to show yourself [for] what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. 
 
-This development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [shikan](glossary#shikan).
+Whatever you may be [doing] – zazen, gassho, walking, [or] eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, after you are what you are. This is something transcendental. That is development of your life. 
+
+This development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [*shikan*](glossary#shikan).
 
 Regardless of whether you are conscious of the truth or not, Buddhas and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to say [it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
 
@@ -116,9 +118,9 @@ Regardless of whether you are conscious of the truth or not, Buddhas and patriar
 
 In other words, I told you before: modern civilization is pretty good for us, consciousness is pretty good for us – but we have to transcend the function of consciousness. 
 
-Transcend doesn’t mean to destroy consciousness. Transcend is not to attach to any expected [ideas?]. Consciousness is good or consciousness is bad – we cannot say. Transcend means through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have been lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
+‘Transcend’ doesn’t mean to destroy consciousness. Transcend is not to attach to any [expectations?]. “Consciousness is good” or “consciousness is bad” – we cannot say so. ‘Transcend’ means [that] through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have been lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
 
-Development of human life is, according to Diamond Sutra, no development of human life. And then, this is real development. *[he chuckles]* Do you understand? It’s really true. 
+Development of human life is, according to [Diamond Sutra](glossary#diamond-sutra), no development of human life. And then, this is real development. *[he chuckles]* Do you understand? It’s really true. 
 
 We really believe individual life, we really believe [in] modern civilization, because modern civilization makes human beings happy. Of course it [does]. But if you don’t pay careful attention to [the] moden civilization you are always soaking in, it’s very dangerous, because no one knows. Everything is changing constantly, so you can misuse modern civilization pretty easily.
 
@@ -130,17 +132,17 @@ Secondly, regardless of whether you like or dislike, we have to transcend. We mu
 
 That is the really great function which modern civilization possesses inherently. That is great function. Great function is basically, everything is free, completely free. It is never limited by any rules or principles. We say always, “modern civilization is best,” or “modern civilization is good” – it becomes sort of rules or principles we set up already. But it is not [the] real nature of modern civilization. In order to make modern civilization help all sentient beings, we should appreciate it, and reflect, watch carefully, without misusing it. 
 
-... That’s why we have to say constantly [that] the Great Function appears without abiding by fixed principles.
+... That’s why we have to say [that] the Great Function appears [constantly] without abiding by fixed principles.
 
 ##### 33:00
 
-“The intent is that you will realize there is something transcendent.” Your life, floor, trees, birds – trancendental. We set out a certain idea: when you see spring – wow, spring is wonderful, because all trees, all beings start to work, and everyone is excited. And that means exactly, consciously or unconsciously, [that] you hate winter. But you cannot hate winter, because spring comes from winter. Without winter, you cannot see spring.
+“The intent is that you will realize there is something transcendent.” Your life, floor, trees, birds – trancendental. We set up a certain idea, when you see spring: wow, spring is wonderful, because all trees, all beings start to work, and everyone is excited. And that means exactly, consciously or unconsciously, [that] you hate winter. But you cannot hate winter, because spring comes from winter. Without winter, you cannot see spring.
 
-What is spring? Basically, spring is free from your ideas, principles or rules you have set up. Spring is something transcendent, completely transcendent. 
+What is spring? Basically, spring is free from your ideas, [the] principles or rules you have set up. Spring is something transcendent, completely transcendent. 
 
 ##### 34:15
 
-“This great function covers the sky, covers the earth”: This is great being, great function. You have [it], trees have [it], spring has [it], pebbles – whatever it is, it has [it]. Whatever you may be, everything has this great function, covering the sky and heaven and earth, whatever it is – just like wind. Wind is always present, wherever you may go. 
+“This great function covers the sky, covers the earth”: This is great being, great function. You have [it], trees have [it], spring has [it], pebbles – whatever it is, it has [it]. Whatever you may be, everything has this great function, covering the sky and heaven and earth, whatever it is – just like wind. Wind is omnipresent, wherever you may go. 
 
 But you cannot grasp the omnipresence of the wind. If the wind is omnipresent, well it’s not necessary to use a fan, because wherever you may go, wind is there. In summer, you should feel cool without using a fan. But it’s impossible to do that. 
 
@@ -166,9 +168,9 @@ From this point, all beings are limited by individual perspective. But all being
 
 That means, for instance, talking. We have a student talk this morning. [For] a student talk, really you should study. [A] student talk is something connected with your life; so without individual life, you cannot talk. That means your talk means really to talk about you – not something about Buddhism, just from your life. 
 
-[For example,] you use a topic which is called egolessness. I listen to a student talk every morning without saying anything, but really thinking. In this case, I can really understand individual life, because you always concentrate on the topic of Buddhism, but that topic is not Buddhism, it is really your life. You talk about you. 
+[For example,] you use a topic which is called egolessness. I listen to a student talk every morning without saying anything, but really thinking. In this case, I can really understand individual life, because you always concentrate on the topic of Buddhism, but that topic is not Buddhism, it is really your life. You talk about *you*. 
 
-From this point, there is development, in order to talk about Buddhism in terms of individual perspective. That’s great. But, talking or Buddhism or your life should be something transcendent. That means – forget it. Sit down and just talk. Sit down and just talk means – who talks? *I* talk? No, I don’t think so. Talk is completely something transcendent. Something of the talk is completely transcendent. Do you understand?
+From this point, there is development, in order to talk about Buddhism in terms of individual perspective. That’s great. But, talking or Buddhism or your life should be something transcendent. That means – forget it! Sit down and just talk! Sit down and just talk means – who talks? *I* talk? No, I don’t think so. Talk is completely something transcendent. Something of the talk is completely transcendent. Do you understand?
 
 To teach means “you teach”, that is one way. But you completely forget the other way: teach[ing] comes to you. That means that teaching teaches you; you don’t teach somebody. In other words, you can learn something from your teaching, your talk. Don’t you think so? 
 
@@ -182,7 +184,7 @@ That is very important. “This way will do, not this way will do too”: everyt
 
 Of course you should talk: *you* talk, *you* sit, *you* chant, *you* walk. But, next moment, you should be free from [yourself], you should let go of yourself. Zazen, gassho – let it go. That means you should learn something from the state of letting go. That means, *[shikan](glossary#shikan)* - just do it. 
 
-But before ‘just do’, consciousness [is] always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” – Next moment... “Are you sure?” *[rueful laughter]* But next moment, “Why don’t you stop talking?” “But I cannot escape. Something compels me to talk.” “Do you like it?” “No, I don’t like it.” “If you don’t like it, why don’t you stop it?” “But I cannot stop it.” All this, consciousness, dig [in] the ground, make a hole, and believe “this is my den,” “this is my hole,” always.
+But before ‘just do’, consciousness [is] always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” – Next moment... “Are you sure?” *[rueful laughter]* But next moment, “Why don’t you stop talking?” “But I cannot escape. Something compels me to talk.” “Do you like it?” “No, I don’t like it.” “If you don’t like it, why don’t you stop it?” “But I cannot stop it.” All this, consciousness digs [in] the ground, makes a hole, and believes “this is my den,” “this is my hole,” always.
 
 But you cannot do this always. Of course, if you make a hole, and if you believe [it’s your] den, that’s okay; next, let it go. Get out from the den. That means, *just do*. Just *shikan* taza. 
 
@@ -192,7 +194,7 @@ But you cannot do this always. Of course, if you make a hole, and if you believe
  
  “Too diffuse” means, originally ... just scattered, spread out.
 
-*[there is some hard-to-follow discussion of what ‘diffuse’ means in English]*
+*[there is some hard-to-follow discussion of what ‘diffuse’ means in English, whether it’s negative or positive or neither]*
 
 ... spread out may be something helpful, useful...
 
@@ -200,9 +202,9 @@ But you cannot do this always. Of course, if you make a hole, and if you believe
 
 ... Well, according to the translation into Japanese, diffuse is “spread out,” just like spreading water and seed *[unintelligible]* Maybe it is good, anyway. Anyway, next it says, “this is too diffuse.”
 
-Well, “This way will do, not this way will do” means, whatever you think ... [of] your life, do your best to take care of life, using this way or not this way. But “not this way” means negative judgement. “I’m not good.” “Katagiri, are you sure to talk perfectly this morning or not?” “No, [I’m not sure].” This is negative, not *[unintelligible]*. Or next moment: “Well yes, I am pretty good now.” This way is [an] affirmative way. You can use this way or not this way, but ... anyway, if you want to use this way, use it! If you want to use not this way, use it! It means, why don’t you stop talking? You can go to the *[unintelligible]*, Japan or someplace, heaven or hell, wherever you want to go. 
+Well, “This way will do, not this way will do” means, whatever you think ... [of] your life, do your best to take care of life, using this way or not this way. But “not this way” means negative judgement; “I’m not good.” “Katagiri, are you sure to talk perfectly this morning or not?” “No, [I’m not sure].” This is negative, not *[unintelligible]*. Or next moment: “Well yes, I am pretty good now.” This way is [an] affirmative way. You can use this way or not this way, but whatever ... if you want to use this way, use it! If you want to use not this way, use it! It means, why don’t you stop talking? You can go to the *[unintelligible]*, Japan or someplace, heaven and hell, wherever you want to go. 
 
-And then, whenever you make a choice of your life, “this is too diffuse” means that way is – more or less – helping your life. This way or not this way, you have made a choice of living. Penetrate your life; because ‘this way’ or ‘not this way’ are beings, ‘all beings’ in the realm of the universe. Wherever you may go, you cannot escape from the universe. [If] you pick this way, it’s also still [picking] in the universal world. You pick not this way, it is also you [doing] something in the universal way. Whatever you do, you are universal; [the] Great Function helps you. 
+And then, whatever choice you make of your life, “this is too diffuse” means that way is – more or less – helping your life. This way or not this way, you have made a choice of living. Penetrate your life; because ‘this way’ or ‘not this way’ are beings, ‘all beings’ in the realm of the universe. Wherever you may go, you cannot escape from the universe. [If] you pick this way, it’s also still [picking] in the universal world. You pick not this way, it is also you [doing] something in the universal way. Whatever you do, you are universal; [the] Great Function helps you. 
 
 So, do your best. Think. You have to think. Do your best, and it helps. 
 
