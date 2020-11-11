@@ -78,15 +78,15 @@ It’s really not ‘bad’, in a sense; but it is not ‘good’, because this 
 
 Even though you hate modern civilization – hating cars, airplanes, helicopters, whatever you say – still ... we are living with cars, with airplanes, with modern civilization. We should appreciate [this]. We should know what modern civilization is, we should know how it is going on; because you cannot pin down “modern civilization is good” or “modern civilization is not good” – we cannot say, completely. 
 
-So, we are always poking our heads into the hole on the ground to see what’s in it, because it’s very fun for us, and it is the reason why human life is developing pretty well. On the other hand, we don’t know what’s in it. Maybe a big bomb there ... maybe beautiful flowers there. No one knows.
+So, we are always poking our heads into the hole on the ground to see what’s in it, because it’s very fun for us, and it is the reason why human life is developing pretty well. On the other hand, we don’t know what’s in it. Maybe atomic bomb there, maybe a chemical bomb there. Maybe a skunk there, maybe beautiful flowers there. No one knows.
 
-The question is always within the human being: how to use modern civilization, how to use human consciousness. If you see the human world now, you know pretty well.
+The question is always within the human being: how to use modern civilization, how to use human consciousness. If you see the human world now, you know [this] pretty well.
 
-That’s why Setchō Zen Master says, “Still this is gouging a wound in healthy flesh.” We are, our body and mind are, originally *[unintelligible]*.
+That’s why Setchō Zen Master says, “Still this is gouging a wound in healthy flesh.” We are, our body and mind are, originally [very fleshy?].
 
 ##### 18:52
 
-“It can become a nest or den.” We say, if you poke your head into modern civilization, or [the] atomic bomb, or whatever it is, we really try to stay with it, believing that is my den. That is modern civilization; we should depend on [it]. But if you think modern civilization is best, rather than ‘primitive’ peoples, well that is a little bit dangerous. What is modern civilization? [It is] creating ideas about human beings. It’s not better, it’s not ‘good’. 
+“It can become a nest or den.” If you poke your head into modern civilization, or [the] atomic bomb, or whatever it is, we really try to stay with it, believing, “That is my den. That is modern civilization; we should depend on [it].” But if you think modern civilization is best, rather than ‘primitive’ peoples – well, that is a little bit dangerous. What is modern civilization? [It is] creating ideas about human beings; it’s not better, it’s not ‘good’. 
 
 That’s why we always have to check human consciousness, modern civilization or [the] human life we create, constantly. It’s not a matter of destroying [it], because consciousness is already being, beyond human speculation. Without consciousness, we cannot exist. 
 
