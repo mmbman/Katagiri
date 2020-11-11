@@ -30,11 +30,11 @@ The Translator’s Note says:
 
 “Is everyone’s own Sun Face Buddha Moon Face Buddha something long or short” means: is your life long or short? Is your life called Sun Face Buddha, or Moon Face Buddha? 
 
-In universal perspective, wherever you may be, there is constantly [the] stream of universal life. From this point, it is eternity; life is eternal. 
+In [the] universal perspective, wherever you may be, there is constantly [the] stream of universal life. From this point, it is eternity; life is eternal. 
 
-But on the other hand, in order to express eternal life we have to have a human body, a human mind, which are transitory, fleeting, ephemeral. We have to live [an] ephemeral existence [as] a short-lived being, just like a [mayfly]. 
+But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which are transitory, fleeting, ephemeral. We have to live [an] ephemeral existence [as] a short-lived being, just like a [mayfly]. 
 
-So that is Sun Face Buddha, Moon Face Buddha. This is a feeling of Zen Master Baso, who was about to [die]. He was not concerned about human life too much, but he was still a human being, he knows a short life. But on the other hand, he was not concerned about too much of life; when the time comes to die, he has to die. 
+So that is the meaning of Sun Face Buddha, Moon Face Buddha. This is a feeling of Zen Master Baso, who was about to [die]. He was not concerned about human life too much, but he was still a human being, he knows a short life. But on the other hand, he was not concerned about too much of life; when the time comes to die, he has to die. 
 
 [That] is [the] case, or story. 
 
@@ -42,7 +42,7 @@ So that is Sun Face Buddha, Moon Face Buddha. This is a feeling of Zen Master Ba
 
 [Setchō Zen Master](glossary#setchō-jūken) wrote a Pointer, so first let me read the Pointer:
 
-> One device, one object; one word, one phrase – the intent is that you’ll have a place to enter; still this is gouging a wound in healthy flesh – it can become a nest or a den. The Great Function appears without abiding by fixed principles – the intent is that you’ll realize there is something transcendental; it covers the sky and covers the earth, yet it cannot be grasped.
+> One device, one object; one word, one phrase – the intent is that you will have a place to enter; still this is gouging a wound in healthy flesh – it can become a nest or a den. The Great Function appears without abiding by fixed principles – the intent is that you will realize there is something transcendental; it covers the sky and covers the earth, yet it cannot be grasped.
 > 
 > This way will do, not this way will do too – this is too diffuse. This way won’t do, not this way won’t do either – this is too cut off. Without treading these two paths, what would be right? Please test; I cite this for you to see.
 

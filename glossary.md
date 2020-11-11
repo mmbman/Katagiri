@@ -369,6 +369,7 @@ See [śūnyatā](glossary#śūnyatā).
 
 ---
 ## Engo Kokugon
+
 Chinese: Yuanwu Keqin (Yuan Wu K’e Ch’in), 圓悟克勤,<br>
 Japanese: Engo Kokugon,<br>
 1063-1135 CE.
@@ -926,6 +927,11 @@ See [Dogen Index: Shobogenzo](dogen#shobogenzo)
 - [Wikipedia: Śrīmālādevī Siṃhanāda Sūtra](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
 
 ---
+## Styāna
+
+([Sanskrit](glossary#sanskrit)) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
+
+---
 ## Subhuti
 
 ---
@@ -944,14 +950,16 @@ Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently 
 - [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
 
 ---
+## D. T. Suzuki
+
+“Daisetsu Teitaro Suzuki was a Japanese author of books and essays on Buddhism, Zen and Shin that were instrumental in spreading interest in both Zen and Shin to the West. Suzuki was also a prolific translator of Chinese, Japanese, and Sanskrit literature.”
+
+- [Wikipedia: D. T. Suzuki](https://en.wikipedia.org/wiki/D._T._Suzuki)
+
+---
 ## Suzuki Roshi
 
 - [Fukanzazengi – Talk 3 (1:40:15)](1979-06-11-Fukanzazengi-Talk-3#14015),
-
----
-## Styāna
-
-([Sanskrit](glossary#sanskrit)) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
 
 ---
 ## Sukhāvatīvyūha Sutra
