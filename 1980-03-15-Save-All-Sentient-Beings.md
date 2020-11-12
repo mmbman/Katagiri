@@ -1,7 +1,7 @@
 <a name="0"></a>
 [Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0) – 
 [Home](index#1980) – 
-[Next](unfinished-1980-1#0)
+[Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
 
 ---
 # Save All Sentient Beings
@@ -339,6 +339,6 @@ The big shock is very important. It isn't important whether you understand it or
 ##### 1:09:29 end of recording
 
 ---
-[Next: Not Yet Transcribed: 1980 Part 1](unfinished-1980-1#0)
+[Next: Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
 
 [Home](index#1980)
