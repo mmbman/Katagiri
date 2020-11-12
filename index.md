@@ -1,6 +1,6 @@
 <a name="0"></a>
 
-**Latest transcript**: [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings#0), from March 15, [1980](#1980), posted 11/6/2020.
+**Latest transcript**: [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0), from April 19, [1980](#1980), posted 11/12/2020.
 
 # Table of Contents
 
