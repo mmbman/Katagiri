@@ -212,7 +212,7 @@ That is “too diffuse”: completely beyond human speculation, anyway helping y
 
 ##### 49:57
 
-That’s why in the [Abhidharmakosha](glossary#abhidharmakosha) ... the meaning of a moment is to have access to a good friend. That is one of the characteristics of the moment. That means human life is described as a moment, but this moment is completely something transcendent. So from this point, whatever you do, your life is helped by this moment; even though intellectually you poke your head into a hole you have made by consciousness, good or bad, this way or not this way. 
+That’s why in the [Abhidharmakosha](glossary#abhidharmakosha) ... the meaning of a moment is to have access to a good friend; that is one of the characteristics of a moment. That means human life is described as a moment, but this moment is completely something transcendent. So from this point, whatever you do, your life is helped by this moment; even though intellectually you poke your head into a hole you have made by consciousness, good or bad, this way or not this way. 
 
 And then you experience something bitter. So you say, “My life is bitter.” But that is just your understanding, that is one of the ‘all beings’ connected with you. Next, let it go. If you let it go, bitterness is not always bitter. From the bitterness, you can learn something more than bitterness, or more than good. That is very important for us. 
 
@@ -222,23 +222,21 @@ So, that is “diffuse”.
 
 Next, “This way will not do, not this way will not do either.” Completely opposite. So, you cannot doubt this way or not this way. That means ... emptiness, or truth, or Buddhas, delusions, [or] whatever you say, all are something connected with your individual life; otherwise, you cannot exist in this world. So, you should appreciate [them]. [However] you judge your life, whatever you say – without this, you cannot exist. So, appreciate [it]. That means, *do*, this way, or not this way. Thinking carefully, with your best – make a choice.
 
-That means your life is really accepted in [an] affirmative way. That means: “Oh, pretty good!” So you really like your life very much. But on the other hand, Setchō Zen Master says: “No, no... Don’t adopt this way or not this way.” Completely negative.
-
-Because, Setchō Zen Master [says], your life is nothing but all beings, connected with your individual life. He says, if you believe “wonderful, wonderful,” you really accept yourself pretty easily; that means you’re already making the hole, and poking your head [in], and believing this. That’s why some stay in [their] den. In order to let it go, [to] be free from [the] den you believe [in], Setchō Zen Master says don’t adopt this way or not this way. That means, be free from [them].
+That means your life is really accepted in [an] affirmative way. That means: “Oh, pretty good!” So you really like your life very much. But on the other hand, Setchō Zen Master says: “No, no... Don’t adopt this way or not this way.” Completely negative. Because, Setchō Zen Master [says], your life is nothing but all beings, connected with your individual life. He says, if you believe “wonderful, wonderful,” so you really accept yourself pretty easily – that means you’re already making the hole, and poking your head [in], and believing this. That’s why some stay in [their] den. In order to let it go, [to] be free from [the] den you believe [in], Setchō Zen Master says don’t adopt this way or not this way. That means, be free from [them].
 
 We have to experience something transcendent. Basically, all beings are free. 
 
 ##### 54:45
 
-That’s why Setchō says, “This way won’t do, not this way won’t do either—this is too cut off.” Because [the] great function and original nature of trees, and birds, modern civilization, are completely something transcendent: even though Buddhas and patriarchs try to approach [them], [there is] no way to attach [to them], no way to touch [them] – because there are no particular fixed rules and principles we can set up.
+That’s why Setchō says, “This way will not do, not this way will not do either—this is too cut off.” Because [the] great function and original nature of trees, and birds, modern civilization, are completely something transcendental: even though Buddhas and patriarchs try to approach [them], [there is] no way to attach [to them], no way to touch [them] – because there are no particular fixed rules and principles we can set up, we can believe.
 
-It is pretty easy for us to believe certain rules or laws. For instance, Buddhism says all beings are produced by interdependent co-origination; all beings come from this independent co-origination. And then at that time, interdependent co-origination becomes a principal: “The Law.” And then, we can believe it.
+It is pretty easy for us to believe certain rules or laws. For instance, Buddhism says all beings are produced by interdependent co-origination; all beings come from this interdependent co-origination. And then at that time, interdependent co-origination becomes a principal: “The Law.” And then, we can believe it.
 
 ... But what is interdependent co-origination? Well, [what] you have understood is something fixed as a solid being, which is called principles, discipline, and law; rules. But rules and principals are completely something transcendent; that means free. This is [the] original nature of human being. Finally, if you believe the reality that all beings come from interdependent co-origination – forget it! “Forget it” means, why don’t you learn interdependent co-origination from the reality itself? Anyway, jump into it! Dive into it and learn what is interdependent co-origination, don’t you think so?
 
 ##### 57:24
 
-For instance, what is swimming? You can learn [this]. [For] swimming, you need a body, and mind, and also water, and also your breathing, and also air. And then, swimming comes into existence – by what? By the air? Your nose? Your eyes? Your heart? Breathing? Physical, mental – many things. We understand [this] pretty well. 
+For instance, what is swimming? You can learn [this]. [For] swimming, you need a body, and a mind, and also water, and also your breathing, and also air. And then, swimming comes into existence – by what? By the air? Your nose? Your eyes? Your heart? Breathing? Physical, mental – many things. We understand [this] pretty well. 
 
 But this is not interdependent co-origination. You understand interdependent co-origination in terms of intellectual consciousness, making a hole and believing that is a den. But the den is [a] den; no one can get in. If another animal comes into the den, they fight each other. The same applies to human beings, because somebody invades your territory. The den is really your territory: “This is *my* den. Don’t interrupt my den.” This is [the] pretty usual intellectual understanding. 
 
@@ -248,7 +246,7 @@ So, interdependent co-origination is something you have to experience directly f
 
 ##### 59:36
 
-It’s just like my brother, I told you before – do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim. If you [are] in the Navy, you should learn [swimming], you should be [a] master swimmer. But he couldn’t. So one day a sergeant threw him over the boat into the ocean. He was very surprised. “Oh no!” *[laughter]* No way to *[unintelligible]*. But the other friends watching carefully knew ... if something happened, somebody [would] help him. But for him, for my brother, [there was] no way to escape, no way to [know] somebody [was] watching [him]. Already there!
+It’s just like my brother, I told you before – do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim. If you [are] in the Navy, you should learn [swimming], you should be [a] master swimmer, but he couldn’t. So one day a sergeant threw him over the boat into the ocean. He was very surprised. “Oh no!” *[laughter]* No way to escape. But the other friends watching carefully knew ... if something happened, somebody [would] help him. But for him, for my brother, [there was] no way to escape, no way to [know] somebody [was] watching [him]. Already [there?]!
 
 But still, [the] stream of consciousness is going [on]. That’s interesting, don’t you think? If still [the] stream of consciousness is going, he can notice, “Uh-oh; what should I do?” So he struggles, and during the struggle still he is looking at himself. “How can I take a breath; how can I float?” 
 
@@ -264,7 +262,7 @@ This is just a good example, but these [situations] are all the same, whatever y
 
 But actually, we are always going on a one-way trip, forgetting to come back. That’s why we try to understand everything intellectually, and then if you understand it, well you can believe [it], you can depend on something. But, we cannot do [it] always in that way.
 
-That’s why Setchō Zen Master says, “This way will not do, not this way will not do either”. This is to cut off. How can the Buddha and patriarchs understand the real meaning of interdependent co-origination? No way; no way to understand. All they have to do is just dive into the ocean; then, they can learn something. But temporarily, after we experience this we can make a word, which is called “interdependent co-origination”.
+That’s why Setchō Zen Master says, “This way will not do, not this way will not do either – this is too cut off.” How can the Buddha and patriarchs understand the real meaning of interdependent co-origination? No way; no way to understand. All they have to do is just dive into the ocean; then, they can learn something. But temporarily, after we experience this we can make a word, which is called “interdependent co-origination”.
 
 [This is true] even [for] the Buddha: because that interdependent co-origination is really something without discipline or rules. That’s why this is too cut off: no communication. But, we can *be*. 
 
@@ -276,7 +274,7 @@ That is the fourth section; the fifth section is:
 
 “Without treading these two paths” means: “this is my den; you should depend on [this]” – yes it is, but [no] it is not. On the other hand, this is not my den; of course this is not my den. But you shouldn’t believe this is not my den – because you are already in the den, making a hole [with] your consciousness, trying to prepare for your talk – and then, it’s your den. But on the other hand – not-den. “Let it go,” “free from den” means that is my not-den.
 
-You cannot attach to either one of them. That’s why, “without these two paths.” What is right? Completely, no way. All you have to do is, just swim in the ocean. 
+You cannot attach to either one of them. That’s why, “without these two paths.” What is *right*? Completely, no way. All you have to do is, just swim in the ocean. 
 
 In the [Ocean Seal Samadhi](dogen#ocean-seal-samadhi) in Shobogenzo, [Dogen](glossary#dogen) says something like that: “The original nature of existence is pretty deep and pretty high.” That means, completely beyond human speculation. In other words, according to this: something transcendent [of] human consciousness, human body, human mind – whatever it is, it’s pretty deep, and something transcendent.
 
