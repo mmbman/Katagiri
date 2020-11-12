@@ -7,8 +7,6 @@
 # Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
 ## April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-**This transcript is still in rough draft form.**
-
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800419.mp3)
 
 <a name="000"></a>
@@ -284,7 +282,7 @@ Whenever you make a choice, it helps you; but it is just one way. On the other h
 
 Finally, what is right? Is swimming something you can learn from a book or teachers, and then you understand how to swim? This is one way. And the other way is you should let it go, and learn something directly from interdependent co-origination itself. So finally, what you have to do is just dive into the ocean.
 
-If you dive in to the ocean, immediately you can swim on the surface. But simultaneously, your body is walking on the bottom of the ocean. In other words, you swim being one with the whole ocean. Logically, it doesn’t make sense; but according to Dogen, you can swim on the surface of the ocean, but your feet [are] on the bottom of the ocean ... How can you do this? [It’s] impossible intellectually, but actually, you can do [it]. 
+If you dive in to the ocean, immediately you can swim on the surface. But simultaneously, your body is walking on the bottom of the ocean. In other words, you swim being one with the whole ocean. Logically, it doesn’t make sense; but according to Dogen, you can swim on the surface of the ocean [and] put your feet on the bottom of the ocean ... How can you do this? [It’s] impossible intellectually, but actually, you can do [it]. 
 
 That is to learn the real meaning of interdependent co-origination. Understand, think carefully, and let it go: dive into the ocean. At that time, what is interdependent co-origination? Nothing to say. But, you can learn. “You can learn” means, your feet are really on the bottom of the ocean; because you can learn. That really makes your swimming possible to exist as it is. That’s why next, you can see yourself, who is swimming.
 
@@ -294,13 +292,13 @@ This is “right”: Right View, Right Thinking, according the Buddha’s [Noble
 
 “Without treading these two paths, what would be right?” Completely you can reach a dead end, nothing to say. At that time, you can keep silent; but this silence really makes you active. This activity is very quiet, but this quiet activity is really something which makes you very active.
 
-That’s why this is what would be right. In terms of this activity, completely you cannot say “this way is good”, or “not this way is good”. You cannot say so completely. This is the Great Function.
+That’s why this is what would be right. In terms of this activity, completely you cannot say “this way is good”, or “not this way is good”; you cannot say so completely. This is the Great Function.
 
 ##### 1:12:12
 
 So, “Please test; I cite this for you to see.” 
 
-This is the point: we have to test. [You] have to experience by yourself. I cannot give you anything. I can give you something sweet, or bitter, something like that. But beyond bitterness or sweetness, you should get a taste by yourself. 
+This is a point: we have to test. You have to experience [it] by yourself. I cannot give you anything. I can give you something sweet, or bitter, something like that. But beyond bitterness or sweetness, you should get a taste by yourself. 
 
 Beyond bitterness or sweetness – what is that? [That is] the real meaning of interdependent co-origination: you yourself, your life itself. Completely beyond “you can believe your den” or “you cannot believe your den,” or [beyond] “you should stay in the den” or “you shouldn’t stay in the den.” You cannot say; because your life is working.
 
@@ -312,17 +310,17 @@ And then he says, “I site this for you to see.” This is [refering to] the ca
 
 “Where are you going?” “I don’t know.” But he knows. He doesn’t know where he is going, but he knows. “He knows” means: dive into the ocean. That’s all. 
 
-This is the final goal we have to reach. Zen Master Baso is treating his death like this. But death itself is something which you have to treat or taste by yourself; so in many ways, how to taste, how to *[unintelligible]*. 
+This is the final goal we have to reach. Zen Master Baso is treating his death like this. But death itself is something which you have to treat or taste by yourself; so in many ways, how to taste, how to express. 
 
 ##### 1:15:00
 
-One Zen Master [speaks] to the disciple; the disciple asks, “Please leave a message for us, for our education, for our practice [as] monks.” So he says to the priest, “Before you die, please say something for us.” [The priest] says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a Buddha’s teachings, completely beyond human speculation. The priest says, “I don’t want to die.” 
+One Zen Master [speaks] to the disciple; the disciple asks, “Please leave a good message for us, for our education, for our practice [as] monks.” So he says to the priest, “Before you die, please say something for us.” [The priest] says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a Buddha’s teaching, completely beyond human speculation. But he says, “I don’t want to die.” 
 
 This “I don’t want to die” doesn’t mean “I don’t want to die.” Without using these two ways, “I want to die” or “I don’t want to die,” completely beyond, what would be right? This is his death. Finally, [the] question is left – what would be the right way?
 
-But if you answer this question, “what will be right,” [with] “Yes – this,” – it’s already dead. Or [if] you say, “No, it’s not” – it’s already dead, which is called not-dead. So finally, *what is right*? 
+But if you answer this question, “what will be right,” [with] “Yes, this” – it’s already dead, you made [it dead]. Or [if] you say, “No, it’s not” – it’s already dead, which is called not-dead. So finally, *what is right*? 
 
-If you really understand interdependent co-origination, if you really understand human life deeply, finally the question is left: what is right? Constantly you have to think carefully, what is right? What would be right? To live in peace and harmony, constantly, day to day, moment to moment: what would be right? 
+If you really understand interdependent co-origination, if you really understand human life deeply, finally the question is left: what is right? Constantly you have to think carefully, what is right? What would be right? To live in peace and harmony, constantly, day to day, from moment to moment: what would be right? 
 
 Whatever happens, under all circumstances, good or evil – you cannot stay in a den which is called good, you cannot stay in a den which is called evil; you cannot stay. But constantly, there is a question: what would be right? Because, this is the Great Function. 
 
@@ -332,7 +330,7 @@ That’s why ... our practice is continuous. Dogen says, “Just continuous prac
 
 So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha.” What is Sun Face Buddha, Moon Face Budha? What would be right? Shall I depend [on] Sun Face Buddha, living for eternity, seeking for the Buddha’s face?  What is peace, what is bliss, real bliss? Always questions there.
 
-But if you see exactly sort of a face that you can depend on, that face is really *[unintelligible]* not real face *[unintelligible]* but through the face you can see the real face. 
+But if you see exactly sort of a face that you can depend on, that face is really [a trick?], not real face *[unintelligible]* but through the face you can see the real face. 
 
 But that face always leaves you with a question: “What is your face?” Constantly. *[unintelligible]*
 
