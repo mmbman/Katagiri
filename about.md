@@ -12,7 +12,7 @@ Katagiri Roshi’s energy, enthusiasm and humor come through even better in the 
 
 Each talk requires many hours to carefully transcribe. That said, there may still be inaccuracies. This is a work-in-progress. I am continually adding new transcripts and correcting existing ones.
 
-I am transcribing these talks as a way of studying them myself. I've already found a lot here that seems personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
+I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
 
   – Kikan Mike Howard
 
