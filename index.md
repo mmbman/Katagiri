@@ -1,6 +1,6 @@
 <a name="0"></a>
 
-**Latest transcript**: [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0), from April 19, [1980](#1980), posted 11/12/2020.
+**Latest transcript**: [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0), from April 20, [1980](#1980), posted 11/14/2020.
 
 # Table of Contents
 
