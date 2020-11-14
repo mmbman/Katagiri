@@ -1,7 +1,7 @@
 <a name="0"></a>
 [Previous](1980-03-15-Save-All-Sentient-Beings#0) – 
 [Home](index#1980) – 
-[Next](unfinished-1980-1#0)
+[Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
 
 ---
 # Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
@@ -337,6 +337,6 @@ But that face always leaves you with a question: “What is your face?” Consta
 ##### 1:19:37 end of recording
 
 ---
-[Next: Not Yet Transcribed: 1980 Part 1](unfinished-1980-1#0)
+[Next: Blue Cliff Record, Case 3 – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
 
 [Home](index#1980)
