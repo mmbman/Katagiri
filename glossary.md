@@ -57,6 +57,13 @@ The Āgamas are collections of the teachings of [Shakyamuni Buddha](glossary#sha
 ## Alayavijñāna
 
 ---
+## Ānanda
+
+[Shakyamuni Buddha](glossary#shakyamuni-Buddha)’s attendent, known for his complete memory of what the Buddha said.
+
+- [Wikipedia: Ānanda](https://en.wikipedia.org/wiki/Ānanda)
+
+---
 ## Ancestor
 
 Also: *patriarch*
@@ -320,9 +327,7 @@ Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Pe
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
 - [Dogen Index](dogen)
-
 - [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
-
 
 ---
 ## Dualism
@@ -834,6 +839,14 @@ The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked
 - [Wikipedia: Sanskrit](https://en.wikipedia.org/wiki/Sanskrit)
 
 ---
+## Sāvakabuddha
+
+A buddha who attains enlightenment through listening the Buddha’s teaching. (Basically, an [arhat](glossary#arhat).)
+
+- [Blue Cliff Record, Case 3 – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+- [Wikipedia: Sāvakabuddha](https://en.wikipedia.org/wiki/Sāvakabuddha)
+
+---
 ## Seppō
 
 See [Seppō Gison](#seppō-gison)
@@ -853,10 +866,13 @@ also Seppō Shinkaku
 ---
 ## Sesshin
 
+(Japanese) An intensive meditation retreat in the style followed by Zen monasteries. Literally, “gathering the heart-mind”.
+
 ---
 ## Setchō Jūken
-Chinese: Xuedou Chongxian (Hsueh Tou Ch’ung Hsien), 雪竇重顯<br>
-Japanese: Setchō Jūken<br>
+
+Chinese: Xuedou Chongxian (Hsueh Tou Ch’ung Hsien), 雪竇重顯  
+Japanese: Setchō Jūken  
 980-1052 (CE)
 
 Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record), and wrote the verses.
@@ -866,6 +882,8 @@ Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record)
 
 ---
 ## Shakyamuni Buddha
+
+The historical [Buddha](glossary#buddha), Siddhartha Gautama. Shakyamuni means “sage of the Shākyas,” the Shākyas being his tribe or clan.
 
 ---
 ## Shijo
@@ -1029,6 +1047,9 @@ From [Wikipedia: Tōrō](https://en.wikipedia.org/wiki/Tōrō): In Japan, a tōr
 ## Vasubandhu
 
 - [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
+
+---
+## Vimalakirti
 
 ---
 ## Vimalakirti Sutra
