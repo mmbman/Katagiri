@@ -526,11 +526,13 @@ See [samskara](glossary#samskara).
 
 ---
 ## Isan Reiyū
-Japanese: Isan Reiyū,<br>
-Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐,<br>
+
+Japanese: Isan Reiyū,  
+Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐,  
 771-853 CE.
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
 
 - [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
@@ -782,6 +784,15 @@ Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 A distinguished elder teacher.
 
 ---
+## Ryōtan Sūshin
+
+Chinese: Longtan Chongxin (龍潭崇信)  
+Japanese: Ryōtan Sūshin  
+9th century.
+
+- [terebess.hu: Longtan Chongxin](https://terebess.hu/zen/longtan.html)
+
+---
 # S
 
 ---
@@ -1031,6 +1042,17 @@ The three times: past, present, and future.
 ## Tibetan Buddhism
 
 ---
+## Tokusan Senkan
+
+Chinese: Deshan Xuanjian (Te-shan Hsuan-chien), 德山宣鑒  
+Japanese: Tokusan Senkan  
+780-865.
+
+Originally a scholar of the Diamond Sutra, he was defeated in Zen combat by an old woman in a dumpling shop. After that, he studied under [Ryōtan Sūshin](glossary#ryōtan-sūshin), and became a Zen Master in the Rinzai line. He was noted for his strict and rough training of the monks.
+
+- [Blue-Cliff-Record-Case-4-Talk-1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
+
+---
 ## Tōrō
 
 Lantern.
@@ -1074,6 +1096,12 @@ Yogācāra; literally "yoga practice" is an influential tradition of Buddhist ph
 # Z
 
 ---
+## Zagu
+
+Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate way, and carried under the sleeve of the robes when not in use. The zagu and okesa are supposed to stay together. 
+
+- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
+
 ## Zazen
 
 "Seated meditation"
