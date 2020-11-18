@@ -532,9 +532,9 @@ See [samskara](glossary#samskara).
 ---
 ## Isan Reiyū
 
-Japanese: Isan Reiyū,  
-Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐,  
-771-853 CE.
+Japanese: Isan Reiyū  
+Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐  
+771-853 CE
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
 - [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)

@@ -7,15 +7,6 @@
 
 These are miscellaneous links that I don’t have another place for yet.
 
-## Books Mentioned by Katagiri Roshi
-
-### The Zen Doctrine of No-Mind
-
-By [D. T. Suzuki](glossary#d-t-suzuki)
-
-- [Blue Cliff Record, Case 3 – Talk 2 (10:59)](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#1059)
-
----
 <a name="katagiri-books"></a>
 ## Books of Katagiri Roshi’s Teachings
 

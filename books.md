@@ -6,7 +6,7 @@
 ---
 # Books
 
-This is an index of books or other publications referenced in Katagiri Roshi's talks, or which I've added to the transcripts as additional sources. This list will be built up as I transcribe more talks.
+This is a list of books or other publications that are referenced in Katagiri Roshi's talks, or which I've added to the transcripts as additional sources. This list will be built up as I transcribe more talks.
 
 ---
 <a name="BCR"></a>
@@ -42,6 +42,13 @@ This translation did not exist when Katagiri gave his talks, but now it is an es
 
 - [archive.org link to the text](https://archive.org/stream/in.ernet.dli.2015.189881/2015.189881.The-Central-Conception-Of-Buddhism_djvu.txt)
 - [Google Books link](https://books.google.com/books?id=C4HSakZwijIC&pg=PA18&lpg=PA18&dq=%22This+is+samskara+in+the+Buddhist+system%22&source=bl&ots=5i_tVITDm8&sig=ACfU3U2sXeTWnfGnSqQzvOecj4Vb2F04rQ&hl=en&sa=X&ved=2ahUKEwihipGzq9DrAhUYK80KHQTICW8Q6AEwAXoECAIQAQ#v=onepage&q=%22This%20is%20samskara%20in%20the%20Buddhist%20system%22&f=false))
+
+---
+### The Zen Doctrine of No-Mind
+
+By [D. T. Suzuki](glossary#d-t-suzuki)
+
+- [Blue Cliff Record, Case 3 – Talk 2 (10:59)](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#1059)
 
 ---
 [Next: Resources](resources#0)
