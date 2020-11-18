@@ -192,6 +192,11 @@ Another collection of koans, similar to [Blue Cliff Record](glossary#blue-cliff-
 ## Buddha Dharma
 
 ---
+## Buddha Hall
+
+The room used for teaching (giving talks) in a traditional Zen monastery.
+
+---
 ## Buddha Land
 
 ---

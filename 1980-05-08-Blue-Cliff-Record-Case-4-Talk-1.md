@@ -7,6 +7,8 @@
 # Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1
 ## May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
+**This transcript is still in rough draft form.**
+
 (Note: On the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. I am assuming Talk 1 actually came before Talk 2, and have switched the dates accordingly.)
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800517.mp3)
@@ -42,9 +44,9 @@ Let me [talk] simply first about this story, and then I would like to read the p
 
 “When Te Shan arrived at Kuei Shan”: Te Shan is one of the famous Zen Masters. 
 
-You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of [Diamond Sutra](glossary#diamond-sutra). [He was] commenting [on] the Diamond Sutra, so he had lots of time to give lectures on the Diamond Sutra everywhere in China in those days. And then, at that time, he heard [that] Zen emphasizes that the mind itself is Buddha. But according to Diamond Sutra, mind itself is not Buddha, mind itself unattainable, because Diamond Sutra always emphasizes emptiness. So, the mind in the present is unobtainable, mind in the past and future are unobtainable. So from this point, Te Shan really doubted Zen teachings, [that] mind itself is Buddha. 
+You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of [Diamond Sutra](glossary#diamond-sutra). [He was] commenting [on] the Diamond Sutra, so he had lots of time to give lectures on the Diamond Sutra everywhere in China in those days. And then, at that time, he heard [that] Zen emphasizes that the mind itself is Buddha. But according to Diamond Sutra, mind itself is not Buddha, mind itself unattainable, because Diamond Sutra always emphasizes emptiness: the mind in the present is unobtainable, mind in the past and future are unobtainable. So from this point, Te Shan really doubted Zen teachings, [that] mind itself is Buddha. 
 
-So one day, he tried to debate with a famous Zen Master. And on his way, he rested for a while to take lunch, buying a dumpling, a rice cake at a small store pretty close to the monastery where [the] famous Zen Master lived. 
+So one day, he [went] to debate with a famous Zen Master. On his way, he rested for a while to take lunch, buying a dumpling, a rice cake at a small store pretty close to the monastery where [the] famous Zen Master lived. 
 
 So he stopped there and asked an old woman, “Would you give me the dumplings for my lunch.” 
 
@@ -54,37 +56,35 @@ He said, “These are the commentaries I have written on Diamond Sutra.”
 
 The old woman said, “Oh, you are the master of the Diamond Sutra?” 
 
-He said, “Yes, I am the master of the Diamond Sutra.” 
-
-So Te Shan asked the old woman, “Why [do] you ask me about that?” 
+He said, “Yes, I am the master of the Diamond Sutra.” Te Shan asked the old woman, “Why [do] you ask me about that?” 
 
 She said, “Well, because you have a big bundle on your back, that’s why I wondered what it is. And also I have a question. May I ask about the Diamond Sutra? If you answer my question, I will give you the dumplings. But if you don’t, I don’t want to give you the dumplings for your lunch.” 
 
 “Yes, I can answer to any kind of question you make.”
 
-So she said, “In Diamond Sutra, the mind in the present is unobtainable, and the mind in the past is unobtainable, the mind in the future is unobtainable. What kind of mind are you going to have lunch with?” 
+So she said, “In Diamond Sutra, the mind in the present is unobtainable, and the mind in the past is unobtainable, the mind in the future is unobtainable. What kind of mind are you going to have lunch with?” *[laughter]*
 
-He was completely confused, because Diamond Sutra didn’t answer his questions. So unfortunately he couldn’t have chance to have lunch there. But this teacher was very straightforward to the old woman, even though she was not Zen priest or whatever she was. So he asked her, “How did you learn Buddhism? Under whom did you learn Buddhism?” 
+He was completely confused, because Diamond Sutra didn’t answer his questions. So unfortunately, he couldn’t have lunch there. But this teacher was very straightforward to the old woman, even though she was not Zen priest or whatever she was. So he asked her, “How did you learn Buddhism? Under whom did you learn?” 
 
-She said, “I learned Buddhism under the guidance of a famous Zen Master who is living in the monastery pretty close to this shop.” His name is [Ryōtan Zen Master](glossary#ryōtan-sūshin). You had better go there, and practice under him.”
+She said, “I learned Buddhism under the guidance of a famous Zen Master who is living in the monastery pretty close to this shop. His name is [Ryōtan Zen Master](glossary#ryōtan-sūshin). You had better go there, and practice under him.”
 
-So he immediately went to that monastery and practiced, instead of debating with [a] Zen Master about some aspect of Diamond Sutra. That is Tokusan / Te Shan Zen Master; in the future he was a great Zen Master in China. In the line of Rinzai, Tokusan was pretty noted for the strict and rough training of the monks. 
+So he immediately went to that monastery and practiced, instead of debating with [a] Zen Master about some aspect of Diamond Sutra. That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master in China, in the line of Rinzai. Tokusan was pretty noted for the strict and rough training of the monks. 
 
 ##### 11:42
 
-Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  [Isan or Kuei Shan](glossary#isan-reiyū) was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan – probably Te Shan tried to check [out] who Kuei Shan was. So, [it’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings: “Mind itself is Buddha.” 
+Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  [Isan or Kuei Shan](glossary#isan-reiyū) was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. So, [it’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings: “Mind itself is Buddha.” 
 
-“He carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east.” I think he went inside to the monastery, Kuei Shan’s monastery, without dropping down his bundles et cetera; immediately he went inside to the monastery and teaching hall. The teaching hall is usually located at the top of the hill. So he went there,  without dropping down his bundles. And also he walked to the left and to the right, from west to east, east to west, going back and forth. And he was looking around, and finally he said: “Nothing. There is nothing.” Then he went out. 
+“He carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east.” I think he went inside to the monastery, Kuei Shan’s monastery, without dropping down his bundles et cetera; immediately he went inside to the monastery and teaching hall. The teaching hall is usually located at the top of the hill. So he went there, without dropping down his bundles. And also he walked to the left and to the right, from west to east, east to west, going back and forth. And he was looking around, and finally he said: “Nothing. There is nothing.” Then he went out. 
 
 > Setchō added the comment, “Completely exposed.”
 > 
 > But when Te Shan got to the monastery gate, he said, “Still, I shouldn’t be so coarse.”
 
-So he went out of the Buddha hall, teaching hall, but on the way to get out, he a little bit reflected upon himself, what he did. So he though, “I was so course. Rude.”
+So he went out of the Buddha Hall, the teaching hall, but on the way to get out, he a little bit reflected upon himself, what he did. So he though, “I was so course. Rude.”
 
 > So he reentered (the hall) with full ceremony to meet (Kuei Shan). 
 
-So he re-entered, he went back again. He re-entered the teaching hall with full ceremony to meet Kuei Shan ... he thought that he should go back to teaching hall to see Kuei Shan with [pride?].
+So he re-entered, he went back again. He re-entered the teaching hall with full ceremony to meet Kuei Shan ... he thought that he should go back to the teaching hall to see Kuei Shan with [pride?].
 
 > As Kuei Shan sat there, Te Shan held up his sitting mat and said, “Teacher!” 
 
@@ -94,59 +94,73 @@ So he re-entered, he went back again. He re-entered the teaching hall with full 
 
 “Te Shan held up his sitting mat and said, “Teacher!”” 
 
-> Kuei Shan reached for his whisk, 
+So, “Kuei Shan reached for his whisk.” 
 
-Immediately, Kuei Shan started to move toward whisk; whisk is one of the Zen ... ceremonial. ... We have now in the modern age, we use a very beautiful, sometimes we use a ... tail of a horse hair. Sometimes, I don’t know, very beautiful anyway. In ancient times, it is said that was used for keeping away mosquitoes and flies. So now we use it for ceremony, keeping away devils *[he laughs]*. And purifying all over, wherever it is, and also people. ANd also, that whisk is manifestation of suchness, truth, originally. But originally, still in China, maybe it was used for keeping away mosquitoes and flies. 
+Immediately, Kuei Shan started to move toward [the] whisk. [The] whisk is one of the Zen [things], ceremonial [stuff]. Have you ever seen [this]? It’s a beautiful one. Now, in the modern age, we use a very beautiful [one]; sometimes we use hair from a horse’s tail. I don’t know; very beautiful anyway. In ancient times, it is said that it was used for keeping away mosquitoes and flies. So now we use it for ceremony, keeping away devils, *[he laughs]* and purifying all over, wherever it is, and also people. And also, [the] whisk is [a] manifestation of suchness, truth. But originally, still in China, maybe it was used for keeping away mosquitoes and flies. 
 
-> whereupon Te Shan shouted, shook out his sleeves, and left.
+##### 18:40
 
-This is very interesting, because, Kuei Shan didn’t answer anything, didn’t say anything, but immediately he started to move something toward the whisk, and immediately Te Shan shouted, shook out his sleeves, and left. 
+So immediately,
 
-In this story, first let’s imagine Te Shan, first Te Shan went to the Buddha Hall, and going back and forth, to the west and east, and said, “Nothing.” “Nothing” means there is nothing in the monastery. “I came here to check for something here, about Kuei Shan. I wanted to check Kuei Shan; I wanted to know who Kuei Shan is. But it’s not necessary to see Kuei Shan because I feel from the Buddha’s teaching hall already there is nothing; so it’s not necessary to see Kuei Shan.” So he left. That is really rude. *[he laughs]* Extraordinary. Very rude. 
+> Kuei Shan reached for his whisk, whereupon Te Shan shouted, shook out his sleeves, and left.
 
-But on the way back, on the way to leaving the Zen monastery, he reflects upon himself, “Oh, I was a little bit course. So I should come back to see Kuei Shan with ????” 
+This is very interesting, because Kuei Shan didn’t say anything, but immediately he started to move toward the whisk; and immediately Te Shan shouted, shook out his sleeves, and left. 
 
-And then, immediately after Te Shan saw Kuei Shan sitting there, that is really sort of snake sitting with head ... and Te Shan just like a frog. *[laughter]* Te Shan is sitting here and .... I can imagine the situation. Te Shan really ... boasted of himself, great Zen Master. So he went back, a little bit reflecting on himself, but still, very hard. A holy air. So immediately there is Kuei Shan sitting there, and then Te Shan said “Teacher!” 
+In this story, let’s imagine Te Shan. First, Te Shan went to the [Buddha Hall](glossary#buddha-hall), and [he walked] back and forth, to the west and east, and [he] said, “Nothing.” “Nothing” means there is nothing in the monastery. [He might think,] “I came here to check for something about Kuei Shan. I wanted to ... know who Kuei Shan is. But ... I already feel from the Buddha’s Teaching Hall [that] there is nothing, so it’s not necessary to see Kuei Shan.” Then he left. That is really rude. *[he laughs]* Extraordinary. Very rude. 
 
-But when Te Shan said “Teacher!”, that is already Kuei Shan knows his mind, because he realizes, Kuei Shan could read Te Shan’s mind through the teacher. Very holy air there. But Kuei Shan didn’t say anything, but it is completely beyond discussion. Even though no matter how long you discuss about that, you cannot collect or you cannot accept or you cannot handle. So immediately he tried to take a whisk. Whisk means daily routine, daily life, human daily life. Without daily living, you cannot exist. Well, even enlightenment, how can you attain enlightenment. Without your body and mind, can you attain enlightenment? No way. So enlightenment is just like scenery you can see on the way to travel, I told you very often. It’s not something extra, something unusual, which makes you exciting; it is pretty usual case. When you take a trip, very naturally you can attain enlightenment, you can see the scenery. That’s why Kuei Shan knows pretty well that for Te Shan enlightenment is something special. That’s why he really hangs on to enlightenment etc. It makes his attitude very course. 
+But on the way to leaving the Zen monastery, he reflected upon himself: “Oh, I was a little bit course. I should go back to see Kuei Shan with [clarity?]” 
 
-So Kuei Shan knows pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already answer to Te Shan. 
+And then, immediately after Te Shan saw Kuei Shan sitting there, that is really sort of like a snake sitting [there] *[he laughs]* and Te Shan just like a frog. *[laughter]* ... I can imagine the situation. Te Shan really was rude and boasted of himself, “[I am a] Great Zen Master”. So he went back, a little bit reflecting on himself, but still, very ‘high’, a very ‘holy’ air. So immediately there is Kuei Shan sitting there, and Te Shan said “Teacher!” 
 
-Te Shan was also not a stupid monk, because he was practicing for many many years, studying the Zen sutras etc. So he was also very sharp. So immediately he shouted, screamed. Because, what do you mean, whisk? What do you mean, daily living? Well you should keep your mouth shut; enlightenment is completely beyond daily living or not daily living. “Shut up”; sort of a “shut up.” So he shouted.
+But when Te Shan said “Teacher!”, already Kuei Shan knows his mind, because Kuei Shan could read Te Shan’s mind through the [word] “Teacher.” A very holy air, there. But Kuei Shan didn’t say anything, because it is completely beyond discussion: no matter how long you discuss about that, you cannot correct, or you cannot accept, or you cannot handle [it]. So immediately, he tried to take the whisk. 
 
-And Te Shan shouted and shook out his sleeves and left. Still there is a .. very boast there. 
+##### 23:28
+
+[The] ‘whisk’ means daily routine, human daily life. Without daily living, you cannot exist. Even enlightenment: how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way. So enlightenment is just like scenery you can see on the way [during] travel; I [tell] you [this] very often. It’s not something extra, something unusual, which makes you exciting; it is a pretty usual case. When you take a trip, very naturally you can attain enlightenment, you can see the scenery. 
+
+That’s why Kuei Shan knows pretty well that for Te Shan, enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very a holy air. Kuei Shan knows [that] pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already [an] answer to Te Shan. 
+
+Te Shan was also not a stupid monk, because he was practicing for many, many years, studying the Zen sutras, et cetera, so he was also very sharp. So immediately he shouted, screamed. Because [he thought], “What do you mean, ‘whisk’? What do you mean, ‘daily living’? You should keep your mouth shut! Enlightenment is completely beyond daily living or not daily living.” It’s sort of a “shut up!” So he shouted.
+
+Te Shan shouted and shook out his sleeves and left. Still there is a holy [air], very boastful.
 
 And Setchō added the comment, “Completely exposed.”
 
 ##### 26:20
 
-“Te Shan turned his back on the teaching hall, put on his straw sandals, and departed.”
+> Te Shan turned his back on the teaching hall, put on his straw sandals, and departed.
 
-So finally, he left the monastery, and that evening Kuei Shan asked the head monk, “Where is that newcomer who came this morning?” 
+So finally, he left the monastery, and that evening Kuei Shan asked the head monk, “Where is that newcomer who came this morning?”
 
-The head monk said, “He left already.” 
+The head monk said, “He left already.”
 
 And Kuei Shan said, “Maybe in the future he could build a grass hut on the summit of the mountain, and slander Buddhas and patriarchs.”
 
-Well that means, in a sense, Kuei Shan really respected his practice, but on the other hand, he didn’t accept his practice. So because stil there is “dregs” in the bottom of the bottle, still dregs. Which is called enlightenment when you hang on even slightly to something, well there is dregs. It makes your attitude very rude and ‘holy’, and sometimes very rough.
+That means, in a sense, Kuei Shan really respected his practice; but on the other hand, he didn’t accept his practice. Because still there are ‘dregs’ in the bottom of the bottle, which is called enlightenment. When you hang on to something even slightly, there are dregs. It makes your attitude very rude and ‘holy’, and sometimes very rough.
 
-So finally, Setchō added to the comment in the last part of this case, “He adds frost to snow.” Whatever you say, finally, nothing to say. Because Te Shan’s practice is pretty good. But still there is a haughty air. A haughty air for him is not something wrong, bad, but he has to check himself constantly. 
+Finally, Setchō added to the comment in the last part of this case: “He adds frost to snow.” Whatever you say, finally, [there is] nothing to say; because Te Shan’s practice is pretty good, but still there is a haughty air. A haughty air for him is not something ‘wrong’ [or] bad, but he has to check himself constantly. 
 
-What is Buddha’s way? Buddha’s way is not something you can see by, sort of added to marks Buddha has, which is called enlightenment, or by your wonderful face, by your attitude, by your ... remarks... Buddha couldn’t be seen by. So Buddha is, day after day, you have to be alive. Alive. Be alive. I don’t know how. Be alive aiming at the destination; that is Buddha. For human beings, destination is Buddha.
+##### 29:15
 
-We don’t know what is the Buddha. Well, we know, we can explain, and Buddha is very clear from Buddhism. But it’s not clear finally; nothing to touch. But it’s alive.
+What is Buddha’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ [which] Buddha has, which are called enlightenment, or your wonderful face, or your attitude; Buddha can’t be seen by [these] salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[he laughs]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, [the] destination is Buddha.
 
-Anyway, regardless of whether you are conscious of it or not, we have to move toward that, and daily living must be alive. 
+We don’t know what is a Buddha. Well, we know; we can explain, and Buddha is very clear from Buddhism. But, finally it’s not clear; [there is] nothing to touch. It’s alive. Anyway, regardless of whether you are conscious of it or not, we have to move toward that, and [our] daily living must be alive. This ‘be alive’ means that from moment to moment, wherever you are, beyond criticism, your life must be alive. 
 
-This ‘be alive’ means, from moment to moment, wherever you are, beyond criticism. Anyway, your life must be alive. But it’s not so easy. “Be alive” – it seems to be easy, but it’s not so easy. Because, if you judge your life or evaluate your life, immediately you are bogged down with evaluation, and [values?], good or bad, right or wrong. 
+But it’s not so easy. “Be alive”: it seems to be easy, but it’s not so easy. Because, if you judge your life or evaluate your life, immediately you are bogged down with evaluation, and [values?], good or bad, right and wrong. This is very common. 
 
-But this is very common. It’s not so easy. And then you judge yourself; to judge yourself by what? Experience; sort of a ... .mark Buddha has. You did something wrong, so you’re a “bad boy” – this is sort of you are judged by you’re result, you have done. 
+And then you judge yourself. Judge yourself by what? [The] experience you get; sort of a salutary mark Buddha has. You did something wrong, so you’re a “bad boy” – this is sort of [that] you are judged by your result, [what] you have done. 
 
-But that is something you cannot ignore, but you cannot judge yourself, you cannot evaluate yourself by that which you have done. That [isn’t?] something you have to carry on your back forever. And day by day, you have to be alive. 
+That is something you cannot ignore, but you cannot evaluate yourself by that which you have done. That [isn’t] something you have to carry on your back forever. Day by day, you have to be alive, beyond this. So, *it is* Buddha. 
 
-So, it is Buddha. If you can judge by your feeling or character or the result of which you have done, well a that time, it is not Buddhism, because whatever you can do, you can deepen your life, through the company, through working in the office, through painting, through music, whatever you do, you can deepen yourself and your life. 
+##### 32:34
 
-At that time, people judge or evaluate you by what? Your achievement. “Good Dainin. Good Dainin. You’re great. Your painting is great.” But Buddhism is not part of human life; Buddhism is pointing out life as a whole, the whole of life. “Not only part” means if you have a profession which is called painting, in the area of tha painting you can show wonderful personality in the area of the painting. That is the result. But it doesn’t connect with your daily living, daily routine is something separate, something particular, extra. So even though you become a great painter, still life is messy; pretty easily, life is messy. But Buddhism is not something like this. Buddhism always focuses on the whole of life. Even the ... changes. Even though right in the middle of evaluation and judgement, good or bad, right and wrong, still there is stillness. You can handle yourself being alive. 
+If you can judge by your feeling, or the character, or the result which you have done, well at that time, it is not Buddhism – because whatever you do, you can deepen your life. Through working in the company, through working in the office, through painting, through music – whatever you do, you can deepen yourself and your life. 
+
+At that time, people judge or evaluate you by what? Your achievement. “Good Dainin. You’re great. Your painting is great.” But, Buddhism is not [only] a part of human life; Buddhism is pointing out life as a whole, the *whole* of life. 
+
+“Not only part” means, if you have a profession which is called painting, you can show wonderful personality in the area of painting. That is a result. But it doesn’t connect with your daily living; [your] daily routine is something separate, something particular, *extra*. So even though you become a great painter, still, life is messy. Pretty easily, life is messy. 
+
+But Buddhism is not something like this. Buddhism always focuses on the *whole* of life, even in daily routine. Even right in the middle of evaluation and judgement, good or bad, right and wrong – still there is stillness. You can handle yourself, being alive. 
 
 ##### 35:00 
 
