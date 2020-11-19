@@ -178,77 +178,75 @@ That is the final goal we have to do, practically.
 
 I always tell you about [shikantaza](glossary#shikantaza): just turn on the switch. This is a very simple practice. It is too simple to understand, [really]. But this is [an] urgent need we have to do. 
 
-Within this urgent need of just turning on the switch, there are lots of questions. Always the question is left: is this correct? Yes or no; always. But all you have to do is turn on the switch, and lots of questions [come up]: “Is that right?” “Is that wrong?” Whatever those questions are, put them aside, and by practice and study, behind the switch, there is lots of philosophical [and] psychological background. By studying this background, *sometimes* the questions are solved. “Oh, Katagiri was wrong.” [Or,] “Katagiri was right.”
+Within this urgent need of just turning on the switch, there are lots of questions. Always the question is left: is this correct? Yes or no; always. All you have to do is turn on the switch, and lots of questions [come up]: “Is that right?” “Is that wrong?” Whatever those questions are, put them aside, and by practice and study, behind the switch, there is lots of philosophical [and] psychological background. By studying this background, *sometimes* the questions are solved. “Oh, Katagiri was wrong.” [Or,] “Katagiri was right.”
 
-Sometimes you can solve questions immediately, but sometimes not. So this is, to this, turning on the switch every day, that is nothing to add to the [daily routine?] If you say something about this, that is nothing but adding frost to the snow. But that is [an] urgent need that we have to do. Anyway to do zazen, that’s all. If you want to be a great musician, practice. What is practice? Practice should expect certain progress? No way; you cannot expect anything. 
+Sometimes you can solve questions immediately, but sometimes not. So this ... turning on the switch every day, [there] is nothing to add to daily routine. If you say something about this, that is nothing but adding the frost to the snow. But that is [an] urgent need, that we have to do. When you do zazen, do zazen, that’s all. If you want to be a great musician, practice. What is practice? [With] practice should [you] expect certain progress? No way; you cannot expect anything. 
 
 Our practice is is something which really you should do, from moment to moment. In the practice, your life must be alive; that’s enough. 
 
 ##### 40:42
 
-So that is Setchō’s comment. The Pointer, Setchō says, 
+So that is Setchō’s comment. [In] the Pointer, Setchō says:
 
 > Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore; but the causal conditions of time and season still require you to give the medicine in accordance with the disease. But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!
 
-This pointer is divided into three sections:
+This pointer is divided into three sections: “Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore;” – that is one point. “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” That is the second point. “But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!” [That’s the third.]
 
-> Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore
+##### 42:12
 
-That is one point
+> Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore;
 
-> but the causal conditions of time and season still require you to give the medicine in accordance with the disease
+“Under the blue sky in the bright sunlight” means the action or the truth of human existence. Exactly nothing to say: it is very clear, it is very bright. There is no discrimination between trees and birds and human beings. Everything is very clear; just sunlight.
 
-That is the second point.
+“You don’t have to point out this and that anymore”: this is daily routine. In the daily routine, you can manifest yourself just like sunlight in a bright, blue sky. That is really [the] actual practice you have to do. 
 
-> But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!
+When you get up, just get up, and do this.... “Just to get up” is really [the] manifestation of yourself as blue sky, sunlight. Immediately there is something with consciousness: “Why do I have to get up? Is it useful? Is zazen useful or not?” Lots of consciousness comes up. But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
 
-> Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore
+##### 44:08
 
-“Under the blue sky in the bright sunlight” means the action of the truth of human existence. Exactly nothing to say; it is very clear, it is very bright. There is no discrimination between trees and birds and human beings. Everything is very clear; just sunlight.
+“... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” But where do we live? The place where we live is not blue sky, not bright sunlight. We live in the human world. In the human world, [we] distinguish ... between trees and birds, humans and trees. 
 
-“You don’t have to point out this and that anymore” – this is daily routine. In the daily routine, you can manifest yourself just like sunlight in a bright, blue sky. That is really actual practice you have to do. When you get up, just get up, and do this. ... just to get up. Just to get up is really manifestation of yourself as blue sky, sunlight. But immediately there is something with a consciousness. “Why do I have to get up? Is it useful? Is zazen useful or not?” Lots of consciousness comes up.
-
-But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
-
-“but the causal conditions of time and season still require you to give the medicine in accordance with the disease” – but whether we live, the place where we live is not blue sky, not bright sunlight. We live in the human world. In the human world, distinguish wishing between trees and birds, humans and trees. 
-
-Example: look at the ocean. I always taking swimming for example. The ocean is lake Calhoun or ocean, whatever it is, ocean is same, exactly blue sky, bright sunlight. Whoever you go to, or whatever they are, the small fish, micro fishes, big boat, or storm – whatever they are in the ocean, the ocean doesn’t care. Ocean is constantly blue sky and bright sunlight. This is the actual, original nature of ocean. The same applies to the original nature of human existence. So simultaneously that means, what do you mean? That blue sky and bright sunlight are exactly accepting ...
+For example: look at the ocean. I always take swimming for [an] example. Lake Calhoun, or the ocean, whatever it is: the ocean is the same, exactly blue sky and bright sunlight. Whoever you go to, or whatever they are: the small fish, micro-creatures, big boat, or storm – whatever they are in the ocean, the ocean doesn’t care. The ocean is constantly blue sky and bright sunlight; this is the actual, original nature of the ocean. The same applies to the original nature of human existence. But simultaneously ... what do you mean? That blue sky and bright sunlight are exactly accepting ...
 
 *[tape change]*
 
-... little .. fish, and big boat, small boat, and also human being. Human beings, fish, boat, are different. Completely discrimination world. 
+... shark, little size of fish, and big boats, small boats, and also human beings. Human beings, fish, boats, are different. Completely discrimination [in this] world. 
 
-But ocean is constantly open to anything. So, Katagiri should go to the ocean, just be one. What do you mean by being one with the ocean? Because the ocean is open to me, to you, in equality. If it is true, should I go to the ocean and just be one; just be in the ocean without doing anything? No... If you jump into the ocean, Katagiri, just be Katagiri, because there is a degree how much you can swim. So this different degree is different between you and I, and fish and boat – it’s different. If you go to the ocean and dive into it, you have to manifest yourself as you really are, which is call according to the degree, how much you can swim. Or, who you are – boat, or fish? Small fish, or big fish? But, ocean completely accepts. 
+But the ocean is constantly open to anything. So, Katagiri should go to the ocean [and] just be one. What do you mean by “being one with the ocean”? The ocean is open to me, to you, in equality; if it is true, should I go to the ocean and just be one, just be in the ocean without doing anything? No. If you jump into the ocean, Katagiri must be Katagiri, because there is a degree [of] how much you can swim. This degree is different between you and I, and fish and boat – it’s different. So, if you go to the ocean and dive into it, you have to manifest yourself as you really are, which is called “according to the degree of how much you can swim”. Or, who you are: boat, or fish? Small fish, or big fish? But, the ocean completely accepts you.
 
-In order to be one with ocean, each og all beings individually manifest itself as it really is, as a fish, as a boat, as a Katagiri. As a beginner swimmer, as an advanced student of swimming, as a teacher of swimmers. 
+In order to be one with the ocean, each of all beings individually manifest itself as it really is, as a fish, as a boat, as a Katagiri. As a beginner swimmer, as an advanced student of swimming, as a teacher of swimmers. 
 
 ##### 48:47
 
-So, from this point, ocean is always blue sky, bright sunlight. But according to time and occasion – time and occasion means, time always makes something different. Katagiri becomes Katagiri; tree becomes tree; floor becomes floor. This is time; all beings which exist in time process. In time process, you cannot combine everything. Even though car is same, you cannot combine. Car is same, but still there is a different. So, book is book, floor is floor, table is table.
+From this point, ocean is always blue sky, bright sunlight. But according to time and occasion – time and occasion means, time always makes something different. Katagiri becomes Katagiri, tree becomes tree, floor becomes floor. This is time; all beings which exist in time process. In [the] time process, you cannot combine everything. Even though car is same, you cannot combine. Car is same, but still there is a difference. So, book is book, floor is floor, table is table.
 
-That is the place where we live. In the place, with this, consists of time and space. The time, very naturally, makes all beings different, independently. And also space makes all beings alive in equality, connecting with each other. 
+That is the place where we live. The place [where] we live consists of time and space. The time, very naturally, makes all beings different, independent. And also space makes all beings alive in equality, connecting with each other. 
 
-From this point, there is a time and occasion, time and season. But time and season require you to manifest yourself as you are. But how can you manifest yourself as you are? Well, still you have to train yourself. That’s why you need practice under the guidance of a teacher of swimming. Swimmer always gives to you a certain medicine according to your personality, your degree, how much you can swim.
+From this point, there is a time and occasion, time and season. Time and season require you to manifest yourself as you are. 
+
+But how can you manifest yourself as you are? Well, still you have to train yourself. That’s why you need practice under the guidance of a teacher of swimming. [The teacher] always gives to you a certain medicine according to your personality, your degree, how much you can swim.
 
 And then, finally, what should you do? Finally what you have to do is be one with the ocean. That is, dive.
 
-That why here it says, “the causal conditions of time and season still require you to give the medicine in accordance with the disease.” Disease means, there are different degrees, different characters, different personality, different heredity, different ...., different kinds of consciousness and object. So even though you’ve studied how to swim, still everyone manifests themself as it is, but there is a different manifestation. So, you cannot just dive into the ocean without doing. You need the teacher, and giving the medicine, you have to know how to swim. Then finally, you hae to dive into the ocean. At that time, you can really understand blue sky and bright sunlight. 
+That’s why here it says, “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” Disease means, there are different degrees, different characters: different personalities, different heredity, different [karma?], different types of consciousness, *[unintelligible]*. So even though you’ve studied how to swim, still everyone manifests themself as [they are], there is a different manifestation. So, you cannot just dive into the ocean without doing. You need the teacher, and giving the medicine; you have to learn how to swim. Then finally, you have to dive into the ocean. At that time, you can really understand blue sky and bright sunlight. 
 
 ##### 52:39
 
 “But tell me, is it better to let go, or is it better to hold still?”
 
-How to swim? To swim is, you should hold your hands always in a certain pattern? No. you can’t do this. From moment to moment, your hand must be moving. Of course there is a certain pattern if you want to swim, which is called “crawl”. ... But that pattern is something understood intellectually. But when you dive into the ocean, there is no particular pattern. That particular pattern should disappear, shouldn’t leave any trace, which is called pattern, because it must be alive, day after day. 
+How to swim? To swim, should you always hold your hands in a certain pattern? No; you can’t do [that]. From moment to moment, your hands must be moving. 
 
-Very naturally, a certain pattern moves. Exactly according to a certain pattern. But we’re always seeing a certain pattern as a form, objectively. But when you dive into the ocean and become one with the ocean, you cannot hold onto that form of pattern. ???? 
+Of course there is a certain pattern if you want to swim, which is called a “crawl”. Yes, there is an absolute pattern; but that pattern is something understood intellectually. When you dive into the ocean, there is no particular pattern. [The] particular pattern should disappear; [it] shouldn’t leave any trace which is called ‘pattern’, because it must be alive, day after day. Very naturally, a certain pattern moves, exactly according to the form of a certain pattern. But we’re always seeing a certain pattern as a form, objectively. When you dive into the ocean and become one with the ocean, you cannot hold onto that form of pattern. *[unintelligible]*
 
-You cannot hold. On the other hand, we should ignore a pattern, how to swim? We cannot. We have to learn how to swim; we have to learn each pattern how to swim. But we cannot always stay with it. Finally, when you dive into the ocean, all traces of all patterns should disappear. That means actual practice; it’s really alive, becoming one with the ocean. 
+You cannot hold [on]. On the other hand, should we ignore a pattern, how to swim? We cannot. We have to learn how to swim; we have to learn each pattern [of] how to swim. But we cannot always stay with it. Finally, when you dive into the ocean, all traces of all patterns should disappear. That means actual practice: it’s really alive, becoming one with the ocean. 
 
-That is actual practice. So within actual practice, there is always a question, which is, “Is it better to let go, or is it better to hold?” Nothing to say. 
+That is actual practice. Within actual practice, there is always a question, which is: “Is it better to let go, or is it better to hold [on]?” 
 
-If you say something, already something adding drost to snow. Don’t you think so? This is an urgent need of your daily living. It’s really urgent. 
+Nothing to say. 
 
-Tomorrow, I’d like to read the commentary by Engo Zen Master.
+If you say something, [it is] already something adding frost to snow, don’t you think so? This is an urgent need of your daily living. It’s really urgent. 
+
+Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very interesting commentary.
 
 ##### 56:08 end of recording
 
