@@ -9,7 +9,7 @@
 
 **This transcript is still in rough draft form.**
 
-(Note: On the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. I am assuming Talk 1 actually came before Talk 2, and have switched the dates accordingly.)
+(Note: On the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 came before Talk 2, I have switched the dates accordingly.)
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800517.mp3)
 
@@ -38,7 +38,7 @@ Let me first read the case:
 
 That is the whole story.
 
-Let me [talk] simply first about this story, and then I would like to read the pointer. 
+Let me [first talk] simply about this story, and then I would like to read the pointer. 
 
 ##### 4:26
 
@@ -68,11 +68,13 @@ He was completely confused, because Diamond Sutra didn’t answer his questions.
 
 She said, “I learned Buddhism under the guidance of a famous Zen Master who is living in the monastery pretty close to this shop. His name is [Ryōtan Zen Master](glossary#ryōtan-sūshin). You had better go there, and practice under him.”
 
-So he immediately went to that monastery and practiced, instead of debating with [a] Zen Master about some aspect of Diamond Sutra. That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master in China, in the line of Rinzai. Tokusan was pretty noted for the strict and rough training of the monks. 
+So he immediately went to that monastery and practiced, instead of debating with [a] Zen Master about some aspect of Diamond Sutra. 
+
+That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master in China, in the line of Rinzai. Tokusan was pretty noted for the strict and rough training of the monks. 
 
 ##### 11:42
 
-Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  [Isan or Kuei Shan](glossary#isan-reiyū) was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. So, [it’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings: “Mind itself is Buddha.” 
+Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  [Isan or Kuei Shan](glossary#isan-reiyū) was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. [It’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings, “Mind itself is Buddha.” 
 
 “He carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east.” I think he went inside to the monastery, Kuei Shan’s monastery, without dropping down his bundles et cetera; immediately he went inside to the monastery and teaching hall. The teaching hall is usually located at the top of the hill. So he went there, without dropping down his bundles. And also he walked to the left and to the right, from west to east, east to west, going back and forth. And he was looking around, and finally he said: “Nothing. There is nothing.” Then he went out. 
 
@@ -92,9 +94,7 @@ So he re-entered, he went back again. He re-entered the teaching hall with full 
 
 (Transcriber’s Note: The zagu is folded when not in use; hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows, and then did not do so.)
 
-“Te Shan held up his sitting mat and said, “Teacher!”” 
-
-So, “Kuei Shan reached for his whisk.” 
+> Te Shan held up his sitting mat and said, “Teacher!” Kuei Shan reached for his whisk...
 
 Immediately, Kuei Shan started to move toward [the] whisk. [The] whisk is one of the Zen [things], ceremonial [stuff]. Have you ever seen [this]? It’s a beautiful one. Now, in the modern age, we use a very beautiful [one]; sometimes we use hair from a horse’s tail. I don’t know; very beautiful anyway. In ancient times, it is said that it was used for keeping away mosquitoes and flies. So now we use it for ceremony, keeping away devils, *[he laughs]* and purifying all over, wherever it is, and also people. And also, [the] whisk is [a] manifestation of suchness, truth. But originally, still in China, maybe it was used for keeping away mosquitoes and flies. 
 
@@ -110,9 +110,9 @@ In this story, let’s imagine Te Shan. First, Te Shan went to the [Buddha Hall]
 
 But on the way to leaving the Zen monastery, he reflected upon himself: “Oh, I was a little bit course. I should go back to see Kuei Shan with [clarity?]” 
 
-And then, immediately after Te Shan saw Kuei Shan sitting there, that is really sort of like a snake sitting [there] *[he laughs]* and Te Shan just like a frog. *[laughter]* ... I can imagine the situation. Te Shan really was rude and boasted of himself, “[I am a] Great Zen Master”. So he went back, a little bit reflecting on himself, but still, very ‘high’, a very ‘holy’ air. So immediately there is Kuei Shan sitting there, and Te Shan said “Teacher!” 
+And then, immediately after Te Shan saw Kuei Shan sitting there, that is really sort of like a snake sitting [there], and Te Shan just like a frog. *[laughter]* ... I can imagine the situation. Te Shan really was rude and boasted of himself, “[I am a] Great Zen Master”. So he went back, a little bit reflecting on himself, but still, very ‘high’, a very ‘holy’ air. So immediately there is Kuei Shan sitting there, and Te Shan said “Teacher!” 
 
-But when Te Shan said “Teacher!”, already Kuei Shan knows his mind, because Kuei Shan could read Te Shan’s mind through the [word] “Teacher.” A very holy air, there. But Kuei Shan didn’t say anything, because it is completely beyond discussion: no matter how long you discuss about that, you cannot correct, or you cannot accept, or you cannot handle [it]. So immediately, he tried to take the whisk. 
+But when Te Shan said “Teacher!”, already Kuei Shan knows his mind, because Kuei Shan could read Te Shan’s mind through the [word] “Teacher.” A very holy air there. But Kuei Shan didn’t say anything, because it is completely beyond discussion: no matter how long you discuss about that, you cannot correct [it], or you cannot accept [it], or you cannot handle [it]. So immediately, he tried to take the whisk. 
 
 ##### 23:28
 
@@ -150,15 +150,15 @@ But it’s not so easy. “Be alive”: it seems to be easy, but it’s not so e
 
 And then you judge yourself. Judge yourself by what? [The] experience you get; sort of a salutary mark Buddha has. You did something wrong, so you’re a “bad boy” – this is sort of [that] you are judged by your result, [what] you have done. 
 
-That is something you cannot ignore, but you cannot evaluate yourself by that which you have done. That [isn’t] something you have to carry on your back forever. Day by day, you have to be alive, beyond this. So, *it is* Buddha. 
+That is something you cannot ignore, but you cannot evaluate yourself by that which you have done. That is[?] something you have to carry on your back forever. Day by day, you have to be alive, beyond this. So, *it is* Buddha. 
 
 ##### 32:34
 
-If you can judge by your feeling, or the character, or the result which you have done, well at that time, it is not Buddhism – because whatever you do, you can deepen your life. Through working in the company, through working in the office, through painting, through music – whatever you do, you can deepen yourself and your life. 
+If you can judge by your feeling, or the character, or the result which you have done, at that time it is not Buddhism – because whatever you do, you can deepen your life. Through working in the company, through working in the office, through painting, through music – whatever you do, you can deepen yourself and your life. 
 
 At that time, people judge or evaluate you by what? Your achievement. “Good Dainin. You’re great. Your painting is great.” But, Buddhism is not [only] a part of human life; Buddhism is pointing out life as a whole, the *whole* of life. 
 
-“Not only part” means, if you have a profession which is called painting, you can show wonderful personality in the area of painting. That is a result. But it doesn’t connect with your daily living; [your] daily routine is something separate, something particular, *extra*. So even though you become a great painter, still, life is messy. Pretty easily, life is messy. 
+“Not only part” means [that] if you have a profession which is called painting, you can show wonderful personality in the area of painting. That is a result. But it doesn’t connect with your daily living; [your] daily routine is something separate, something particular, *extra*. So even though you become a great painter, still, life is messy. Pretty easily, life is messy. 
 
 But Buddhism is not something like this. Buddhism always focuses on the *whole* of life, even in daily routine. Even right in the middle of evaluation and judgement, good or bad, right and wrong – still there is stillness. You can handle yourself, being alive. 
 
@@ -166,11 +166,11 @@ But Buddhism is not something like this. Buddhism always focuses on the *whole* 
 
 So finally, the comment, “He adds frost to the snow.” Finally all you have to do is, be alive, [reception?] for yourself. 
 
-Within “just be alive,” there are lots of questions. “What should I do?” From moment to moment: “What should I do?” [What is] correct? Well, sometimes [there is] no way to judge, just do it. But immediately there is a question that is left: is that correct? After that, you should reflect upon yourself. And then right after reflecting upon yourself, let’s do [it] a different way. Just like a *[unintelligible]*. But it is not right always; still there is reflection there upon yourself: “Is that correct?” 
+Within “just be alive,” there are lots of questions. “What should I do?” From moment to moment: “What should I do?” [What is] correct? Well, sometimes [there is] no way to judge; just do it. But immediately there is a question that is left: is that correct? After that, you should reflect upon yourself. And then right after reflecting upon yourself, let’s do [it] a different way. Just like a *[unintelligible]*. But it is not right always; still there is reflection there upon yourself: “Is that correct?” 
 
-Within being alive, always there is certain reflection, and you don’t know; always a question is left behind. That means consciousness [is] always picking up every moment. If you pick up your daily life with consciousness, that daily life becomes conceptualized, seeing objects, very naturally. Then immediately it becomes a red light, sometimes it becomes a yellow light. So [a] flashing light comes up. Is this good or bad? Or is this your experience you did? 
+Within being alive, always there is certain reflection, and you don’t know, always a question is left behind. That means consciousness [is] always picking up every moment. If you pick up your daily life with consciousness, that daily life becomes conceptualized, seeing objects, very naturally. Then immediately it becomes a red light; sometimes it becomes a yellow light. So [a] flashing light comes up. Is this good or bad? Or is this your experience you did? 
 
-So if you do something, immediately there is experience. That experience is nothing but a flashing light. By these flashing lights, most people are very confused. It’s not necessary to ignore, because it is something you have to take responsibility for. But on the other hand, you cannot stop your life. All we have to do is, aiming at [the] ideal beautiful image of human life, which is called Buddha. And we have to move toward it, day by day. 
+If you do something, immediately there is experience. That experience is nothing but a flashing light. By these flashing lights, most people are very confused. It’s not necessary to ignore [it], because it is something you have to take responsibility for. But on the other hand, you cannot stop your life. All we have to do is, aim at [the] ideal beautiful image of human life, which is called Buddha, and we have to move toward it, day by day. 
 
 That is the final goal we have to do, practically. 
 
@@ -180,7 +180,7 @@ I always tell you about [shikantaza](glossary#shikantaza): just turn on the swit
 
 Within this urgent need of just turning on the switch, there are lots of questions. Always the question is left: is this correct? Yes or no; always. All you have to do is turn on the switch, and lots of questions [come up]: “Is that right?” “Is that wrong?” Whatever those questions are, put them aside, and by practice and study, behind the switch, there is lots of philosophical [and] psychological background. By studying this background, *sometimes* the questions are solved. “Oh, Katagiri was wrong.” [Or,] “Katagiri was right.”
 
-Sometimes you can solve questions immediately, but sometimes not. So this ... turning on the switch every day, [there] is nothing to add to daily routine. If you say something about this, that is nothing but adding the frost to the snow. But that is [an] urgent need, that we have to do. When you do zazen, do zazen, that’s all. If you want to be a great musician, practice. What is practice? [With] practice should [you] expect certain progress? No way; you cannot expect anything. 
+Sometimes you can solve questions immediately, but sometimes not. So this ... turning on the switch every day, [there] is nothing to add to daily routine. If you say something about this, that is nothing but adding the frost to the snow. But that is [an] urgent need that we have to do. When you do zazen, do zazen, that’s all. If you want to be a great musician, practice. What is practice? [With] practice should [you] expect certain progress? No way; you cannot expect anything. 
 
 Our practice is is something which really you should do, from moment to moment. In the practice, your life must be alive; that’s enough. 
 
@@ -190,7 +190,7 @@ So that is Setchō’s comment. [In] the Pointer, Setchō says:
 
 > Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore; but the causal conditions of time and season still require you to give the medicine in accordance with the disease. But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!
 
-This pointer is divided into three sections: “Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore;” – that is one point. “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” That is the second point. “But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!” [That’s the third.]
+This pointer is divided into three sections: “Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore;” – that is one point. “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” That is the second point. “But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!” [That is the third.]
 
 ##### 42:12
 
@@ -200,25 +200,25 @@ This pointer is divided into three sections: “Under the blue sky, in the brigh
 
 “You don’t have to point out this and that anymore”: this is daily routine. In the daily routine, you can manifest yourself just like sunlight in a bright, blue sky. That is really [the] actual practice you have to do. 
 
-When you get up, just get up, and do this.... “Just to get up” is really [the] manifestation of yourself as blue sky, sunlight. Immediately there is something with consciousness: “Why do I have to get up? Is it useful? Is zazen useful or not?” Lots of consciousness comes up. But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
+When you get up, just get up, and do this. “Just to get up” is really [the] manifestation of yourself as blue sky, sunlight. Immediately there is something with consciousness: “Why do I have to get up? Is it useful? Is zazen useful or not?” Lots of consciousness comes up. But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
 
 ##### 44:08
 
 “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” But where do we live? The place where we live is not blue sky, not bright sunlight. We live in the human world. In the human world, [we] distinguish ... between trees and birds, humans and trees. 
 
-For example: look at the ocean. I always take swimming for [an] example. Lake Calhoun, or the ocean, whatever it is: the ocean is the same, exactly blue sky and bright sunlight. Whoever you go to, or whatever they are: the small fish, micro-creatures, big boat, or storm – whatever they are in the ocean, the ocean doesn’t care. The ocean is constantly blue sky and bright sunlight; this is the actual, original nature of the ocean. The same applies to the original nature of human existence. But simultaneously ... what do you mean? That blue sky and bright sunlight are exactly accepting ...
+For example: look at the ocean. I always take swimming for [an] example. Lake Calhoun, or the ocean, whatever it is: the ocean is the same, exactly blue sky and bright sunlight. Whoever you go to, or whatever they are – the small fish, micro-creatures, big boat, or storm – whatever they are in the ocean, the ocean doesn’t care. The ocean is constantly blue sky and bright sunlight; this is the actual, original nature of the ocean. The same applies to the original nature of human existence. But simultaneously, what do you mean? That blue sky and bright sunlight are exactly accepting ...
 
 *[tape change]*
 
 ... shark, little size of fish, and big boats, small boats, and also human beings. Human beings, fish, boats, are different. Completely discrimination [in this] world. 
 
-But the ocean is constantly open to anything. So, Katagiri should go to the ocean [and] just be one. What do you mean by “being one with the ocean”? The ocean is open to me, to you, in equality; if it is true, should I go to the ocean and just be one, just be in the ocean without doing anything? No. If you jump into the ocean, Katagiri must be Katagiri, because there is a degree [of] how much you can swim. This degree is different between you and I, and fish and boat – it’s different. So, if you go to the ocean and dive into it, you have to manifest yourself as you really are, which is called “according to the degree of how much you can swim”. Or, who you are: boat, or fish? Small fish, or big fish? But, the ocean completely accepts you.
+But the ocean is constantly open to anything. So, Katagiri should go to the ocean [and] just be one. What do you mean by “being one with the ocean”? The ocean is open to me, to you, in equality: if it is true, should I go to the ocean and just be one, just be in the ocean without doing anything? No. If you jump into the ocean, Katagiri must be Katagiri, because there is a degree [of] how much you can swim. This degree is different between you and I, and fish and boat – it’s different. So, if you go to the ocean and dive into it, you have to manifest yourself as you really are, which is called “according to the degree of how much you can swim”. Or, who you are: boat, or fish? Small fish, or big fish? But, the ocean completely accepts you.
 
 In order to be one with the ocean, each of all beings individually manifest itself as it really is, as a fish, as a boat, as a Katagiri. As a beginner swimmer, as an advanced student of swimming, as a teacher of swimmers. 
 
 ##### 48:47
 
-From this point, ocean is always blue sky, bright sunlight. But according to time and occasion – time and occasion means, time always makes something different. Katagiri becomes Katagiri, tree becomes tree, floor becomes floor. This is time; all beings which exist in time process. In [the] time process, you cannot combine everything. Even though car is same, you cannot combine. Car is same, but still there is a difference. So, book is book, floor is floor, table is table.
+From this point, ocean is always blue sky, bright sunlight. But according to time and occasion – time and occasion means, time always makes something different. Katagiri becomes Katagiri, tree becomes tree, floor becomes floor. This is time: all beings which exist in [the] time process. In [the] time process, you cannot combine everything. Even though car is same [as you], you cannot combine. Car is same, but still there is a difference. So, book is book, floor is floor, table is table.
 
 That is the place where we live. The place [where] we live consists of time and space. The time, very naturally, makes all beings different, independent. And also space makes all beings alive in equality, connecting with each other. 
 
@@ -228,7 +228,7 @@ But how can you manifest yourself as you are? Well, still you have to train your
 
 And then, finally, what should you do? Finally what you have to do is be one with the ocean. That is, dive.
 
-That’s why here it says, “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” Disease means, there are different degrees, different characters: different personalities, different heredity, different [karma?], different types of consciousness, *[unintelligible]*. So even though you’ve studied how to swim, still everyone manifests themself as [they are], there is a different manifestation. So, you cannot just dive into the ocean without doing. You need the teacher, and giving the medicine; you have to learn how to swim. Then finally, you have to dive into the ocean. At that time, you can really understand blue sky and bright sunlight. 
+That’s why here it says, “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” Disease means, there are different degrees, different characters: different personalities, different heredity, different [karma?], different types of consciousness, *[unintelligible]*. So even though you’ve studied how to swim, still everyone manifests themself as [they are]; there is a different manifestation. So, you cannot just dive into the ocean without doing. You need the teacher, giving the medicine; you have to learn how to swim. Then finally, you have to dive into the ocean. At that time, you can really understand blue sky and bright sunlight. 
 
 ##### 52:39
 
@@ -242,9 +242,9 @@ You cannot hold [on]. On the other hand, should we ignore a pattern, how to swim
 
 That is actual practice. Within actual practice, there is always a question, which is: “Is it better to let go, or is it better to hold [on]?” 
 
-Nothing to say. 
+Nothing to say. If you say something, [it is] already something adding frost to snow, don’t you think so? 
 
-If you say something, [it is] already something adding frost to snow, don’t you think so? This is an urgent need of your daily living. It’s really urgent. 
+This is an urgent need of your daily living. It’s really urgent. 
 
 Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very interesting commentary.
 
