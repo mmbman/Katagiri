@@ -20,7 +20,7 @@ Case Four of Blue Cliff Record. The title is, “Te Shan Carrying His Bundle”.
 
 Let me first read the case:
 
-> When [Te Shan](glossary#tokusan-senkan) arrived at Kuei Shan, he carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east. He looked around and said, “There is nothing, no one.” Then he went out.
+> When [Te Shan](glossary#tokusan-senkan) arrived at [Kuei Shan](glossary#isan-reiyū), he carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east. He looked around and said, “There is nothing, no one.” Then he went out.
 >
 >> [Setchō](glossary#setchō-jūken) (in Chinese, Hsueh Tou) added the comment, “Completely exposed.”
 >
@@ -42,7 +42,7 @@ Let me [first talk] simply about this story, and then I would like to read the p
 
 ##### 4:26
 
-“When Te Shan arrived at Kuei Shan”: Te Shan is one of the famous Zen Masters. 
+“When [Te Shan](glossary#tokusan-senkan) arrived at [Kuei Shan](glossary#isan-reiyū)”: Te Shan is one of the famous Zen Masters. 
 
 You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of [Diamond Sutra](glossary#diamond-sutra). [He was] commenting [on] the Diamond Sutra, so he had lots of time to give lectures on the Diamond Sutra everywhere in China in those days. And then, at that time, he heard [that] Zen emphasizes that the mind itself is Buddha. But according to Diamond Sutra, mind itself is not Buddha, mind itself unattainable, because Diamond Sutra always emphasizes emptiness: the mind in the present is unobtainable, mind in the past and future are unobtainable. So from this point, Te Shan really doubted Zen teachings, [that] mind itself is Buddha. 
 
@@ -74,11 +74,11 @@ That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master 
 
 ##### 11:42
 
-Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  [Isan or Kuei Shan](glossary#isan-reiyū) was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. [It’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings, “Mind itself is Buddha.” 
+Anyway, “When [Te Shan](glossary#tokusan-senkan) arrived at arrived at [Kuei Shan](glossary#isan-reiyū)”:  Isan or Kuei Shan was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. [It’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings, “Mind itself is Buddha.” 
 
 “He carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east.” I think he went inside to the monastery, Kuei Shan’s monastery, without dropping down his bundles et cetera; immediately he went inside to the monastery and teaching hall. The teaching hall is usually located at the top of the hill. So he went there, without dropping down his bundles. And also he walked to the left and to the right, from west to east, east to west, going back and forth. And he was looking around, and finally he said: “Nothing. There is nothing.” Then he went out. 
 
-> Setchō added the comment, “Completely exposed.”
+> [Setchō](glossary#setchō-jūken) added the comment, “Completely exposed.”
 > 
 > But when Te Shan got to the monastery gate, he said, “Still, I shouldn’t be so coarse.”
 
@@ -90,7 +90,7 @@ So he re-entered, he went back again. He re-entered the teaching hall with full 
 
 > As Kuei Shan sat there, Te Shan held up his sitting mat and said, “Teacher!” 
 
-“As Kuei Shan sat there”: at that time Kuei Shan sat there, sitting zazen. And then, “Te Shan held up his sitting mat”: sitting mat is [zagu](glossary#zagu), we call it; this one. This is very traditional; wherever you may go and see the teachers, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this [zagu], and bow. And then after that, you can talk, and discuss. 
+“As Kuei Shan sat there”: at that time Kuei Shan sat there, sitting [zazen](glossary#zazen). And then, “Te Shan held up his sitting mat”: sitting mat is [zagu](glossary#zagu), we call it; this one. This is very traditional; wherever you may go and see the teachers, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this [zagu], and bow. And then after that, you can talk, and discuss. 
 
 (Transcriber’s Note: The zagu is folded when not in use; hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows, and then did not do so.)
 
@@ -102,7 +102,7 @@ Immediately, Kuei Shan started to move toward [the] whisk. [The] whisk is one of
 
 So immediately,
 
-> Kuei Shan reached for his whisk, whereupon Te Shan shouted, shook out his sleeves, and left.
+> [Kuei Shan](glossary#isan-reiyū) reached for his whisk, whereupon [Te Shan](glossary#tokusan-senkan) shouted, shook out his sleeves, and left.
 
 This is very interesting, because Kuei Shan didn’t say anything, but immediately he started to move toward the whisk; and immediately Te Shan shouted, shook out his sleeves, and left. 
 
@@ -118,19 +118,19 @@ But when Te Shan said “Teacher!”, already Kuei Shan knows his mind, because 
 
 [The] ‘whisk’ means daily routine, human daily life. Without daily living, you cannot exist. Even enlightenment: how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way. So enlightenment is just like scenery you can see on the way [during] travel; I [tell] you [this] very often. It’s not something extra, something unusual, which makes you exciting; it is a pretty usual case. When you take a trip, very naturally you can attain enlightenment, you can see the scenery. 
 
-That’s why Kuei Shan knows pretty well that for Te Shan, enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very a holy air. Kuei Shan knows [that] pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already [an] answer to Te Shan. 
+That’s why [Kuei Shan](glossary#isan-reiyū) knows pretty well that for [Te Shan](glossary#tokusan-senkan), enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very a holy air. Kuei Shan knows [that] pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already [an] answer to Te Shan. 
 
 Te Shan was also not a stupid monk, because he was practicing for many, many years, studying the Zen sutras, et cetera, so he was also very sharp. So immediately he shouted, screamed. Because [he thought], “What do you mean, ‘whisk’? What do you mean, ‘daily living’? You should keep your mouth shut! Enlightenment is completely beyond daily living or not daily living.” It’s sort of a “shut up!” So he shouted.
 
 Te Shan shouted and shook out his sleeves and left. Still there is a holy [air], very boastful.
 
-And Setchō added the comment, “Completely exposed.”
+And [Setchō](glossary#setchō-jūken) added the comment, “Completely exposed.”
 
 ##### 26:20
 
-> Te Shan turned his back on the teaching hall, put on his straw sandals, and departed.
+> [Te Shan](glossary#tokusan-senkan) turned his back on the teaching hall, put on his straw sandals, and departed.
 
-So finally, he left the monastery, and that evening Kuei Shan asked the head monk, “Where is that newcomer who came this morning?”
+So finally, he left the monastery, and that evening [Kuei Shan](glossary#isan-reiyū) asked the head monk, “Where is that newcomer who came this morning?”
 
 The head monk said, “He left already.”
 
@@ -138,7 +138,7 @@ And Kuei Shan said, “Maybe in the future he could build a grass hut on the sum
 
 That means, in a sense, Kuei Shan really respected his practice; but on the other hand, he didn’t accept his practice. Because still there are ‘dregs’ in the bottom of the bottle, which is called enlightenment. When you hang on to something even slightly, there are dregs. It makes your attitude very rude and ‘holy’, and sometimes very rough.
 
-Finally, Setchō added to the comment in the last part of this case: “He adds frost to snow.” Whatever you say, finally, [there is] nothing to say; because Te Shan’s practice is pretty good, but still there is a haughty air. A haughty air for him is not something ‘wrong’ [or] bad, but he has to check himself constantly. 
+Finally, [Setchō](glossary#setchō-jūken) added to the comment in the last part of this case: “He adds frost to snow.” Whatever you say, finally, [there is] nothing to say; because Te Shan’s practice is pretty good, but still there is a haughty air. A haughty air for him is not something ‘wrong’ [or] bad, but he has to check himself constantly. 
 
 ##### 29:15
 
@@ -180,13 +180,13 @@ I always tell you about [shikantaza](glossary#shikantaza): just turn on the swit
 
 Within this urgent need of just turning on the switch, there are lots of questions. Always the question is left: is this correct? Yes or no; always. All you have to do is turn on the switch, and lots of questions [come up]: “Is that right?” “Is that wrong?” Whatever those questions are, put them aside, and by practice and study, behind the switch, there is lots of philosophical [and] psychological background. By studying this background, *sometimes* the questions are solved. “Oh, Katagiri was wrong.” [Or,] “Katagiri was right.”
 
-Sometimes you can solve questions immediately, but sometimes not. So this ... turning on the switch every day, [there] is nothing to add to daily routine. If you say something about this, that is nothing but adding the frost to the snow. But that is [an] urgent need that we have to do. When you do zazen, do zazen, that’s all. If you want to be a great musician, practice. What is practice? [With] practice should [you] expect certain progress? No way; you cannot expect anything. 
+Sometimes you can solve questions immediately, but sometimes not. So this ... turning on the switch every day, [there] is nothing to add to daily routine. If you say something about this, that is nothing but adding the frost to the snow. But that is [an] urgent need that we have to do. When you do [zazen](glossary#zazen), do zazen, that’s all. If you want to be a great musician, practice. What is practice? [With] practice should [you] expect certain progress? No way; you cannot expect anything. 
 
 Our practice is is something which really you should do, from moment to moment. In the practice, your life must be alive; that’s enough. 
 
 ##### 40:42
 
-So that is Setchō’s comment. [In] the Pointer, Setchō says:
+So that is [Setchō](glossary#setchō-jūken)’s comment. [In] the Pointer, Setchō says:
 
 > Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore; but the causal conditions of time and season still require you to give the medicine in accordance with the disease. But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!
 
@@ -200,7 +200,7 @@ This pointer is divided into three sections: “Under the blue sky, in the brigh
 
 “You don’t have to point out this and that anymore”: this is daily routine. In the daily routine, you can manifest yourself just like sunlight in a bright, blue sky. That is really [the] actual practice you have to do. 
 
-When you get up, just get up, and do this. “Just to get up” is really [the] manifestation of yourself as blue sky, sunlight. Immediately there is something with consciousness: “Why do I have to get up? Is it useful? Is zazen useful or not?” Lots of consciousness comes up. But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
+When you get up, just get up, and do this. “Just to get up” is really [the] manifestation of yourself as blue sky, sunlight. Immediately there is something with consciousness: “Why do I have to get up? Is it useful? Is [zazen](glossary#zazen) useful or not?” Lots of consciousness comes up. But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
 
 ##### 44:08
 
