@@ -24,7 +24,7 @@ I think [enlightenment](glossary#enlightenment) is seeing deeply into the human 
 
 ##### 4:10
 
-So today, I would like to say a little more about the human consciousness. Human consciousness classified into eight kinds of consciousnesses. The first six are called six senses. The six consciousnesses are pretty usual senses: eye sense, ear sense; a sense of ear, a sense of nose, a sense of tongue, a sense of body, a sense of mind. I think sense of mind means ... mind has its own object in the broad scale. Anything. A sense of mind has object; you know the sense of mind has everything, visibly, invisibly, as its own object, called dharma. So, dharma is object for sense of mind. That is the sixth consciousness.
+So today, I would like to say a little more about the human consciousness. Human consciousness classified into eight kinds of consciousnesses. The first six are called six senses. The six consciousnesses are pretty usual senses: eye sense, ear sense; a sense of ear, a sense of nose, a sense of tongue, a sense of body, a sense of mind. I think sense of mind means ... mind has its own object in the broad scale. Anything. A sense of mind has object; you know the sense of mind has everything, visibly, invisibly, as its own object, called [dharma](glossary#dharma). So, dharma is object for sense of mind. That is the sixth consciousness.
 
 The first consciousness is a sense of eye. Second, a sense of ears. Third, a sense of nose; tasting something... no excuse me, smelling something. And fourth, sense of tongue. Fifth, sense of body; touching. Sense of tangibility, kind of like that. And then sixth is sense of mind, sense of consciousness.
 
@@ -58,7 +58,7 @@ So, [ego consciousness](glossary#ego-consciousness) is very interesting consciou
 
 **Question**: What’s the object of [alayavijñāna](glossary#alayavijñāna)? Manas?
 
-**Katagiri**: ... [laughs] Yes, manas. [Alayavijñāna](glossary#alayavijñāna) has not only the manas. Manas, and six consciousness. And also the object of the sixth consciousness, called a sense of mind, usually. All dharmas... the sixth consciousness, sense of mind, has all dharma as its own object. That’s why alayavijñāna has everything as the object, not only the manas. So, manas is alayavijñāna as its own object. Is that clear? So, manas has two things. Six consciousnesses, and alayavijñāna, as its own object. In other words, alayavijñāna has object in the narrow sense. Connected with human life, usual human life. On the other hand, it’s connected with, a little bit, unconsciousness world. 
+**Katagiri**: ... [laughs] Yes, manas. [Alayavijñāna](glossary#alayavijñāna) has not only the manas. Manas, and six consciousness. And also the object of the sixth consciousness, called a sense of mind, usually. All [dharmas](glossary#dharma)... the sixth consciousness, sense of mind, has all dharma as its own object. That’s why alayavijñāna has everything as the object, not only the manas. So, manas is alayavijñāna as its own object. Is that clear? So, manas has two things. Six consciousnesses, and alayavijñāna, as its own object. In other words, alayavijñāna has object in the narrow sense. Connected with human life, usual human life. On the other hand, it’s connected with, a little bit, unconsciousness world. 
 
 ##### 21:03
 

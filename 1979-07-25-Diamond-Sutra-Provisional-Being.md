@@ -106,7 +106,7 @@ Both are perceptions created by your consciousness. You try not to think, but, y
 
 So, you cannot have a perception of [dharma](glossary#dharma) or no-dharma. If [Buddha](glossary#buddha) teaches no perception of object, you say, "Oh, no perception of object." So, you lose hope. 
 
-But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says, "no perception of [dharma](glossary#dharma), no perception of *no-dharma*". You cannot attach to either one of them, because both are still thinking dharmas, thinking object. So you are still involved in [an] object, perception of object, whatever you say, perception of object or no perception of object, whatever you say, negatively or affirmatively. Whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
+But this is nihilism; you fall into nihilism. I don't mean that. That's why here it says, "no perception of dharma, no perception of *no-dharma*". You cannot attach to either one of them, because both are still thinking dharmas, thinking object. So you are still involved in [an] object, perception of object, whatever you say, perception of object or no perception of object, whatever you say, negatively or affirmatively. Whatever you say, you are still involved in perception of object. That's why you cannot attach to either one of them, negatively or affirmatively. 
 
 If you attach to one of them, there is attachment to self. I told you before: perception of a self, perception of a being, perception of a soul, perception of a person. I told you before; do you understand? So, you shouldn't attach to this. 
 

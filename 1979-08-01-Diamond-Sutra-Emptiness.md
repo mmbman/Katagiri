@@ -18,9 +18,9 @@ Chapter 7:
 > 
 > (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 30, immediately following the passage quoted in the previous talk.)
 
-In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the [dharmas](glossary#dharma) taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
+In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the dharmas taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
 
-Buddha asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
+Buddha asked [Subhuti](glossary#subhuti): "Is there any dharma which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
 In Japanese, [enlightenment](glossary#enlightenment) is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
@@ -178,7 +178,7 @@ So [emptiness](glossary#śūnyatā) is very important for us. A more positive, a
 
 ##### 59:00
 
-"It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma." [Dharma](glossary#dharma) is truth, or teaching... or whatever it is. Dharma is understood as a truth; truth is, anyway, *truth*. But that truth that you understand, is not the real truth. Because truth has no mark of its own, no mark. That is [emptiness](glossary#śūnyatā). So truth cannot be described by a word. So you cannot describe truth as a truth or no-truth. If a truth is emptiness, you say, "Oh, no truth." But no truth is already something; it's not empty. Because you are stuck there; that means it's no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something extra. Emptiness is completely absent. 
+"It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma." Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth; truth is, anyway, *truth*. But that truth that you understand, is not the real truth. Because truth has no mark of its own, no mark. That is [emptiness](glossary#śūnyatā). So truth cannot be described by a word. So you cannot describe truth as a truth or no-truth. If a truth is emptiness, you say, "Oh, no truth." But no truth is already something; it's not empty. Because you are stuck there; that means it's no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something extra. Emptiness is completely absent. 
 
 ##### 1:00:44
 

@@ -12,13 +12,13 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-Probably you may notice that there are many English terms in Buddhism using ‘all sentient beings’ or ‘all dharmas’. In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] ‘all dharmas’, ‘all sentient beings’. That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “all is impermanent” – what is ‘all’? This morning I would like to learn [these] term[s] with you. 
+Probably you may notice that there are many English terms in Buddhism using ‘all sentient beings’ or ‘all [dharmas](glossary#dharma)’. In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] ‘all dharmas’, ‘all sentient beings’. That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “all is impermanent” – what is ‘all’? This morning I would like to learn [these] term[s] with you. 
 
 ##### 1:54
 
 In [Buddha](glossary#Buddha)'s time, Buddha always analyzed the human world and human beings as five [skandhas](glossary#skandha): form, feeling, perceptions, impulses and consciousness. And also, sometimes, when the five skandhas are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects and six consciousnesses. 
 
-Six sense organs, six objects, and six consciousness are the world we are involved [in]. So from this point, the five skandhas are exactly the implication of the term ‘all’, or ‘all sentient beings’, or ‘all dharmas’.
+Six sense organs, six objects, and six consciousness are the world we are involved [in]. So from this point, the five skandhas are exactly the implication of the term ‘all’, or ‘all sentient beings’, or ‘all [dharmas](glossary#dharma)’.
 
 [Professor Abe](glossary#masao-abe) translated it sometimes [as] ‘everything without exception’. At any rate, if we translate it, we say ‘all’. But this ‘all’, according to Buddha’s teaching, is described as five skandhas, or six sense organs [and] six objects. 
 
@@ -54,7 +54,7 @@ So ‘impulses’ is sort of the basic nature of consciousness.
 
 ##### 12:39
 
-So this is the implication of 'all dharmas' or 'all'. But in Buddhism – you should remember this point – the 'all' is not something which exists separately from you. In other words, 'all' is not something which you can set out[side yourself], something existent in advance.
+So this is the implication of 'all [dharmas](glossary#dharma)' or 'all'. But in Buddhism – you should remember this point – the 'all' is not something which exists separately from you. In other words, 'all' is not something which you can set out[side yourself], something existent in advance.
 
 For instance, if you look at the floor, immediately we believe [that] before I see the floor, the floor exists. Immediately we believe the floor is something which exists in advance. So already there is some function of consciousness, setting up something which is existent in advance. Is that clear? 
 
@@ -68,7 +68,7 @@ Is that clear?
 
 ##### 17:14
 
-For instance, if you cannot observe and you cannot call it in question – for instance, a tiny insect in the Amazon. Well, I don't know. I [can’t] observe [it] now, and [the] tiny insect is completely not called into question; it is completely out of my question. So at that time, it doesn't become ‘all dharmas’. 
+For instance, if you cannot observe and you cannot call it in question – for instance, a tiny insect in the Amazon. Well, I don't know. I [can’t] observe [it] now, and [the] tiny insect is completely not called into question; it is completely out of my question. So at that time, it doesn't become ‘all [dharmas](glossary#dharma)’. 
 
 When you use ‘all dharmas’, ‘all sentient beings’, at that time, first point is that it must be observed and is called in question. At that time, it is called ‘all dharmas’, or ‘all sentient beings’. 
 
@@ -76,7 +76,7 @@ This is the first meaning of 'all dharmas'.
 
 ##### 19:05
 
-From this point, we can think, through the six consciousnesses. Even though you don't know a certain tiny insect in the Amazon, sometimes you can think of the possibility of such a tiny insect to exist, and also you can see it through the TV programs, et cetera. At that time, it is still 'all dharmas', which is observed and is called in question. 
+From this point, we can think, through the six consciousnesses. Even though you don't know a certain tiny insect in the Amazon, sometimes you can think of the possibility of such a tiny insect to exist, and also you can see it through the TV programs, et cetera. At that time, it is still 'all [dharmas](glossary#dharma)', which is observed and is called in question. 
 
 At that time, not only the insect, and the birds and pebbles, trees, but still past, present and future, also are ‘all dharmas’, ‘all sentient beings’; because you can observe [them] as your object, and also you can make [them in] question, what [they are]. 
 
@@ -92,7 +92,7 @@ So if you say "I save all sentient beings," that “all sentient beings” is wh
 
 So from this point, "I save all sentient beings" is – what? Well, look around your life. How many beings exist? 
 
-Around you there are cushions, floor; you can see [them] ... For those beings, we can help, one by one. We can handle your boots, and sandals, and your hair, and clothes. You can take care of them pretty well. This is exactly to save all sentient beings: because sandals, your boots, your clothes, are *beings*, ‘all dharmas’, which are observed, which are called into question. 
+Around you there are cushions, floor; you can see [them] ... For those beings, we can help, one by one. We can handle your boots, and sandals, and your hair, and clothes. You can take care of them pretty well. This is exactly to save all sentient beings: because sandals, your boots, your clothes, are *beings*, ‘all [dharmas](glossary#dharma)’, which are observed, which are called into question. 
 
 So, we should do it. At that time, it's not necessary to think [of] something else, which is not observed and which is not called in question. From moment to moment, always there [are] some beings [which] appear. 
 
@@ -100,7 +100,7 @@ That is the first point.
 
 ##### 23:32
 
-[The] second point is: if ‘all beings’ are something which we should connect with, we should involve [with] – at that time, that is called 'all beings' or 'all dharmas' – if it is true, we say, 'truth'.
+[The] second point is: if ‘all beings’ are something which we should connect with, we should involve [with] – at that time, that is called 'all beings' or 'all [dharmas](glossary#dharma)' – if it is true, we say, 'truth'.
 
 What is the truth? If ‘truth’ is one of the dharmas, one of the human world – at that time, what is a dharma? Dharma is ‘all dharmas’, which are observed and called in question. 
 
@@ -114,7 +114,7 @@ And finally, we fight each other. "Your understanding of truth is wrong." Or, "M
 
 ##### 26:00
 
-So, second point is, what is the limitation of the [dhātu](glossary#dhātu) – dhātu means 'world' – which we can reach? What is the limitation of the world? In other words: how far can 'all dharmas' extend? From where, to where?
+So, second point is, what is the limitation of the [dhātu](glossary#dhātu) – dhātu means 'world' – which we can reach? What is the limitation of the world? In other words: how far can 'all [dharmas](glossary#dharma)' extend? From where, to where?
 
 This second point is very important, because [Buddha](glossary#buddha) analyzed human world as six objects, and six sense organs. Briefly speaking, that means the implication of subject and object. Subject and object are always interconnected, and only through human recognition [does] your object become ‘all dharmas’. 
 
@@ -126,7 +126,7 @@ So [the] point is, how far do the ‘all dharmas’ extend? That means, dharmas 
 
 ##### 30:31
 
-So from this point, if you see this zendo, first [the] zendo becomes dharma through your connection. At that time it becomes dharma. But this zendo is not [the] usual zendo which you have understood; this zendo must be dharma which is universal, extending to the depth of beings. From this point, this dharma, what is the original nature of beings called zendo? That means: what is the zendo?
+So from this point, if you see this zendo, first [the] zendo becomes [dharma](glossary#dharma) through your connection. At that time it becomes dharma. But this zendo is not [the] usual zendo which you have understood; this zendo must be dharma which is universal, extending to the depth of beings. From this point, this dharma, what is the original nature of beings called zendo? That means: what is the zendo?
 
 [The] zendo is not [the] zendo *you* understand. [The] zendo is just a being. 
 
@@ -146,7 +146,7 @@ So, in your individual case, whatever you experience, whatever you see, these th
 
 So, the second point, briefly speaking: We have to understand deeply the original nature of being. That's why [Buddha](glossary#buddha) says, “all is impermanent”. This ‘all’ is all samskaras. Samskara is original nature of action, which everything is structured by. Constant action; working. 
 
-At that time, if you understand [the] zendo individually, this is not good enough. This is *your* experience, *your* understanding, which is called dharma, but it's not good enough because there is still an egoistic sense, which is called individual understanding. We have to find the vast dimension, which is called immensity, or equality. This is called basic nature of action; samskara. 
+At that time, if you understand [the] zendo individually, this is not good enough. This is *your* experience, *your* understanding, which is called [dharma](glossary#dharma), but it's not good enough because there is still an egoistic sense, which is called individual understanding. We have to find the vast dimension, which is called immensity, or equality. This is called basic nature of action; samskara. 
 
 According to samskara, everything is impermanent. It is really true. [The] original nature of action is nothing but action. Nothing to hold on [to]. If you put a certain label on action, called ‘action’ – it is already [an] idea. Action is always *action*. Nothing to stop. 
 
@@ -154,7 +154,7 @@ According to samskara, everything is impermanent. It is really true. [The] origi
 
 From this point, we should understand all beings through individual experience. That is [the] five skandhas, and six consciousnesses, six sense organs, six objects. At that time, unfortunately, cognition always appears in a different way, because [the] basic nature of human being is always working constantly, nothing to stop. 
 
-From where [does] that cognition come? That cognition comes from [the] basic nature of action, which is called samskara. That's why finally, you have to throw it away. You have to polish your individual understanding until it becomes universal, until you can touch the core of existence. At that time, it really becomes all dharmas; we call [it] all sentient beings.
+From where [does] that cognition come? That cognition comes from [the] basic nature of action, which is called samskara. That's why finally, you have to throw it away. You have to polish your individual understanding until it becomes universal, until you can touch the core of existence. At that time, it really becomes all [dharmas](glossary#dharma); we call [it] all sentient beings.
 
 So if you want to save all sentient beings, first you have to experience many things from your individual experience. So you, carrying your karmas, your heredity, your knowledge – you have to experience [many things]. But it is not good enough. You have to sink into the depths of the ocean, until you can touch the core of existence. At that time, it becomes really dharma, all dharmas. 
 
@@ -170,11 +170,11 @@ From this point, well – you just accept. “Just accept” means not trying to
 
 For instance, if I ask you to talk: first you try to study something. This is very important. Through your effort of studying a certain subject, you can learn something. But this is not good enough. So secondly, when you finish the preparation – *just talk*. “Just talk” means not [an] object you can experience individually. Completely you are supported by ‘talk’, already. In other words, you are *talked* by talk. Not “you teach,” okay? This is very true, don't you think so? 
 
-If you talk, there's two ways. Always we have to research, because all dharmas must be individual connections. At that time, everything becomes all dharmas. But simultaneously, “you have to touch the core of being” means, just be one with. Because “just be one” means touch the core of existence, which is called *actions*. Basically everything is moving, constantly. If it is true, impermanence is not something you can see objectively, because your body and mind are already impermanent. So be one with [it]. Whether you understand it or not, your body is already impermanence, always. So what is that? You should learn first, individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
+If you talk, there's two ways. Always we have to research, because all [dharmas](glossary#dharma) must be individual connections. At that time, everything becomes all dharmas. But simultaneously, “you have to touch the core of being” means, just be one with. Because “just be one” means touch the core of existence, which is called *actions*. Basically everything is moving, constantly. If it is true, impermanence is not something you can see objectively, because your body and mind are already impermanent. So be one with [it]. Whether you understand it or not, your body is already impermanence, always. So what is that? You should learn first, individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
 
 ##### 45:45
 
-When you want to swim in Lake Calhoun, well, learn how to swim. It's very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your dharmas, all dharmas. And next, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life. And Lake Calhoun's waters helps you life. And immediately your body moves, simultaneously. And then you learn: "Oh, this is the point. I can swim.” Yes it is. 
+When you want to swim in Lake Calhoun, well, learn how to swim. It's very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your [dharmas](glossary#dharma), all dharmas. And next, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life. And Lake Calhoun's waters helps you life. And immediately your body moves, simultaneously. And then you learn: "Oh, this is the point. I can swim.” Yes it is. 
 
 If you think always all dharmas objectively, individually, it sometimes scares you. With your effort, you should learn it. But when the time comes, you just *dive*.
 
@@ -188,11 +188,11 @@ That is the second point of ‘all dharmas’. You should experience all dharmas
 
 The same applies to [zazen](glossary#zazen). Learn zazen: what is zazen? Well, philosophically, psychologically, you can learn [this]. But it's not good enough! So just jump in, jump [into] zazen. So finally, zazen teaches you, zazen takes care of you. 
 
-Then you get, "Oh, zazen is pretty good!" Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don't know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. Samskara is impermanence, constantly working. That's why this is the conflict (confluence?) of all dharmas in Buddhism. 
+Then you get, "Oh, zazen is pretty good!" Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don't know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. Samskara is impermanence, constantly working. That's why this is the conflict (confluence?) of all [dharmas](glossary#dharma) in Buddhism. 
 
 ##### 49:32
 
-‘All dharmas’ is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don't think so; because it is completely beyond individual experience. It's pretty hard to understand... That's why [Buddha](glossary#buddha) kept silent about this problem. 
+‘All [dharmas](glossary#dharma)’ is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don't think so; because it is completely beyond individual experience. It's pretty hard to understand... That's why [Buddha](glossary#buddha) kept silent about this problem. 
 
 So, all dharmas must be something, which becomes an individual experience. And then next, we should touch the depths of existence, which is called samskara. That means practically, jump into it. And then very naturally, you can learn something more than your effort. This is samskara, ‘together maker’, or original nature of action. 
 
@@ -228,7 +228,7 @@ Does that answer your question?
 
 **Katagiri**: Well, of course, six consciousnesses, and also it comes from ignorance according to twelvefold chain of causation. Plainly speaking, it comes from the function of consciousness. Consciousness already immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
 
-So that's why everything becomes observed and called in question, whatever it is. The science fiction [is] anyway being, all dharmas – even though you don't believe [it]; because you can think it, you can observe [it]. That's why many years ago, someone wrote science fiction, [and] maybe recently, one by one, it comes to be true. You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it's possible. 
+So that's why everything becomes observed and called in question, whatever it is. The science fiction [is] anyway being, all [dharmas](glossary#dharma) – even though you don't believe [it]; because you can think it, you can observe [it]. That's why many years ago, someone wrote science fiction, [and] maybe recently, one by one, it comes to be true. You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it's possible. 
 
 ##### 58:43
 
@@ -284,7 +284,7 @@ Any others?
 
 ##### 1:03:15
 
-*Question*: Hojo, when you say that truth is the same as one of the dharmas, is it the same as saying that truth has to be experienced individually?
+*Question*: Hojo, when you say that truth is the same as one of the [dharmas](glossary#dharma), is it the same as saying that truth has to be experienced individually?
 
 **Katagiri**: Mmm-hmm. While you are thinking of the truth, it is nothing but all beings, which is impermanence. But truth is one – when you say truth is one, truth is something which exists, completely beyond human speculation. That means truth is original state of being. 
 
@@ -326,7 +326,7 @@ On the other hand, if you touch it... If you are completely involved too much, i
 
 **Person**: The distinguishing mind is permanent, and enlightenment isn’t.
  
-**Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that's why you want to practice. But that is individual understanding, when you see dharma [from an] individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That's why he said ‘opposite’. 
+**Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that's why you want to practice. But that is individual understanding, when you see [dharma](glossary#dharma) [from an] individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That's why he said ‘opposite’. 
 
 For instance, Zen always says, the first koan Rinzai Zen master gives you is ‘nothing’. Well, nothing is completely something you are amazed [by], because we don't believe in that way. Everything exists, everything is real. But zen says: nothing; think this. That is a really big shock. 
 

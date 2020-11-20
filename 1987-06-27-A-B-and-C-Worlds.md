@@ -110,7 +110,7 @@ I think the... in terms of "C" world, [Dogen Zenji](glossary#dogen) mentions "th
 
 ##### 40:42
 
-From this point, that is, I think, practically... maybe someday I mentioned, all life should be built up on the foundation of nothingness. In other words, pivot of nothingness is a place where there is no space, no chance to poke your head into it. And then how can you build your life there? That question ... or, how can you transmit the dharma, if there is no space, no time for you to poke your head? But that is big question, and also that is a very interesting point, practice-wise. That is why [Buddhism](glossary#buddhism) mentions always. 
+From this point, that is, I think, practically... maybe someday I mentioned, all life should be built up on the foundation of nothingness. In other words, pivot of nothingness is a place where there is no space, no chance to poke your head into it. And then how can you build your life there? That question ... or, how can you transmit the [dharma](glossary#dharma), if there is no space, no time for you to poke your head? But that is big question, and also that is a very interesting point, practice-wise. That is why [Buddhism](glossary#buddhism) mentions always. 
 
 But practically speaking, for instance, if you want to master downhill skiing, and whatever... you can see the future visions of skiing (skiers), or rock mountaineers; you can see the future vision. But if you see the future vision, very naturally we try to have lots of expectations from that future vision. 
 
