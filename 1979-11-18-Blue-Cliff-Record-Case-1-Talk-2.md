@@ -253,7 +253,7 @@ So finally, language completely drops off; what [or] who he is. That's why he sa
 
 Why he comes to China to teach [Buddhism](glossary#buddhism) – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. 
 
-[For example,] even though you teach for [a long time], how many people understand [Buddha](glossary#buddha)’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
+[For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 50 years. I don’t know how many people I [have] given instruction. But you remind me, how many people come back after that? Clearly, one or two. 
 
 ##### 50:17
 

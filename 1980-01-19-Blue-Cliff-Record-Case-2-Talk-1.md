@@ -42,9 +42,9 @@ You know, the truth is explained in many ways; if you use a word, whatever you s
 
 The truth is not a subject which we have to understand objectively, or philosophically, or psychologically, which is called [ontology](glossary#ontology). We know pretty well, truth is not something which we try to invent philosophically, psychologically, which is called ontology –  but we get used to thinking of something objectively, philosophically, psychologically, very naturally, that’s why even though we understand it, it’s very difficult to get rid of that. So very naturally, whatever you say – truth, [Buddha](glossary#buddha), or [impermanence](glossary#impermanence), or [dependent origination](glossary#dependent-origination) – all are immediately something objectified by you. This is very natural. 
 
-It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So [patriarchs](glossary#ancestor) and [Buddhas](glossary#buddha) constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
+It’s very natural, but the problem is, we *believe* it; we believe in such a way of life, immediately. So [patriarchs](glossary#ancestor) and Buddhas constantly say, "It is your understanding; it’s not real universal truth beyond human speculation." But we don’t believe it, because [the] intellectual sense cannot reach there.
 
-So, whatever kind of religion you study, even Christianity [or] [Buddhism](glossary#buddhism), this attitude is very fundamental, universal. [In] Christianity you really have to devote yourself toward God; [whether you] believe or not, you have to throw away yourself into God. This is the first request. If you don’t, there is no sense of Christianity. It is very true. And the same applies to Buddhism: if you don’t have this fundamental attitude toward the truth, throwing away yourself, forgetting yourself, and throw yourself into [Buddha](glossary#buddha)’s house, it's very difficult to understand what the truth is, directly connected with your body and mind. It’s very difficult. 
+So, whatever kind of religion you study, even Christianity [or] [Buddhism](glossary#buddhism), this attitude is very fundamental, universal. [In] Christianity you really have to devote yourself toward God; [whether you] believe or not, you have to throw away yourself into God. This is the first request. If you don’t, there is no sense of Christianity. It is very true. And the same applies to Buddhism: if you don’t have this fundamental attitude toward the truth, throwing away yourself, forgetting yourself, and throw yourself into Buddha’s house, it's very difficult to understand what the truth is, directly connected with your body and mind. It’s very difficult. 
 
 That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](dogen#life-and-death), “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any [one’s] mind.” This is a very famous statement mentioned by [Dogen](glossary#dogen). *[he repeats the quote]* This [is the] correct attitude to research the truth, what it is; because this is human life.
 
@@ -84,7 +84,7 @@ But this picture is not the picture on the TV set; that picture is [the] univers
 
 [Buddhism](glossary#buddhism), particularly Zen, is always emphasizing that point. Finally, where is the [Buddha](glossary#buddha)? How to throw yourself into the Buddha’s house? Buddha is not something *else* apart from us. But if you think [of] Buddha as something particular, at that time Buddha is something you handle as [ontology](glossary#ontology). So [at that time] you always have to ask, "What is the Buddha?" – you don’t *do*. [It’s the same] even though we don’t use a particular term [like “Buddha”] – well, "original nature or existence". What is [the] original nature of existence? We don’t know. What is the truth? Always the question comes up.
 
-But this is not the main point which [Buddhism](glossary#buddhism) emphasizes. Our main purpose is, [Buddha](glossary#buddha) is, "How can you throw away Buddha?" That is the point [at?] which you have to communicate with Buddha. How? That is: release, and forget yourself; throw yourself into the bar. At that time, there is completely Buddha’s world at the bar. That is called gymnastics: performance of gymnastics, becoming one. All things become one in gymnastics.
+But this is not the main point which [Buddhism](glossary#buddhism) emphasizes. Our main purpose is, Buddha is, "How can you throw away Buddha?" That is the point [at?] which you have to communicate with Buddha. How? That is: release, and forget yourself; throw yourself into the bar. At that time, there is completely Buddha’s world at the bar. That is called gymnastics: performance of gymnastics, becoming one. All things become one in gymnastics.
 
 ##### 24:16
 
@@ -102,9 +102,9 @@ So, very naturally, in \[the] [Buddhistic](glossary#buddhistic ) world, it might
 
 We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. [Buddha](glossary#buddha) or [Avalokiteshvara](glossary#avalokiteshvara), whatever it is: you very naturally want to research what it is. That is [ontology](glossary#ontology), philosophy, psychology: "What is it?" Always this question comes up. And that question really prevents you from releasing and forgetting [yourself], and throwing into Buddha’s home, very naturally. 
 
-[The question] is important, but you cannot be obsessed with [it]. That’s why [Buddhas](glossary#buddha) and \[[ancestors](glossary#ancestor)] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
+[The question] is important, but you cannot be obsessed with [it]. That’s why Buddhas and \[[ancestors](glossary#ancestor)] constantly say, get 100 points. If you want to perform gymnastics, get 100 points. How? Right now, right here, what should you do? Jump in. This is very practical, ... because it is not [an] ontological project, it is something you have to communicate [with] very closely [in] your daily life. 
 
-What should you do? Jump into it. Throw yourself into [Buddha](glossary#buddha)’s home. Without this, it’s very difficult. 
+What should you do? Jump into it. Throw yourself into Buddha’s home. Without this, it’s very difficult. 
 
 ##### 28:14
 
@@ -156,11 +156,11 @@ So that’s why he says he says, “Even if blows of the staff fall like rain an
 
 > Even the [Buddhas](glossary#buddha) of the [three times](glossary#three-times) can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) have not been able to bring it up in its entirety. 
 
-"Even the [Buddhas](glossary#buddha) of the [three times](glossary#three-times)..." – Past, present, future; all Buddhas.
+"Even the Buddhas of the [three times](glossary#three-times)..." – Past, present, future; all Buddhas.
 
 "... can only know it for themselves." What, just for themselves? Not for the good of all beings? 
 
-Even the [Buddhas](glossary#buddha), through the past, to the present, to the future, all Buddhas can only know this truth just for themselves. *Because it’s vast*. Because Universal, the truth, open to everybody, is not individual understanding. Even the [Buddha](glossary#buddha) says, “I” know it; at that time that that is *Buddha’s* understanding; particular personal understanding. So, it’s not universal. 
+Even the Buddhas, through the past, to the present, to the future, all Buddhas can only know this truth just for themselves. *Because it’s vast*. Because Universal, the truth, open to everybody, is not individual understanding. Even the Buddha says, “I” know it; at that time that that is *Buddha’s* understanding; particular personal understanding. So, it’s not universal. 
 
 ##### 38:00
 
@@ -238,9 +238,9 @@ And, “When you get here, how will you ask for more instruction?” – [Engo Z
 
 Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. Sort of covered with mud, so that means gargle yourself with water. 
 
-But even to say the word “[Buddha](glossary#buddha),” immediately you are covered with mud, just like a sewer rat. And then you enjoy [it] very much: “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
+But even to say the word “Buddha,” immediately you are covered with mud, just like a sewer rat. And then you enjoy [it] very much: “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
 
-So, to say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an – “is a face full of shame.” Even though you say “Zen,” it’s really full of shame. Zen is based in this world… *[unintelligible]*… Completely based on words? Forget it. 
+So, to say the word “Buddha” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an – “is a face full of shame.” Even though you say “Zen,” it’s really full of shame. Zen is based in this world… *[unintelligible]*… Completely based on words? Forget it. 
 
 If people say anything stupid, that’s okay. In Nichiren [Buddhism] – do you know [Nichiren](glossary#nichiren), founder of [the Nichiren] Buddhist school? He criticized Zen: “Zen is [something created by a] devil.” I don’t think so. [Created by] a devil?
 

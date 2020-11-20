@@ -36,7 +36,7 @@ So, you should remain there, from the beginning. You should appreciate this ener
 
 That is temporarily, (what) we call [Buddha Nature](glossary#buddha-nature). Or, 2500 years ago, [Buddha Shakyamuni](glossary#shakyamuni-buddha ) mentioned, "all are buddha." That is, temporarily, we call buddha. Buddha is a person who realize that perpetual flow of energy, flow of existence, constantly beginning from the beginning-less past, to the endless future. You should participate directly in it.
 
-So, what is that? Just be here. And then, manifest it. So, strictly speaking, I think everyone is, anyway, in [Buddha](glossary#buddha)'s world. Great world. 
+So, what is that? Just be here. And then, manifest it. So, strictly speaking, I think everyone is, anyway, in Buddha's world. Great world. 
 
 ##### 8:05
 
@@ -59,11 +59,11 @@ Last sentence, it says: "Because the nature of wind is eternal, the wind of [Bud
 > 
 > Okumura:
 > 
-> (77) Since the wind’s nature is ever present, the wind of the [Buddha](glossary#buddha)’s family enables us to realize the gold of the great Earth and to transform the [water of] the long river into cream.
+> (77) Since the wind’s nature is ever present, the wind of the Buddha’s family enables us to realize the gold of the great Earth and to transform the [water of] the long river into cream.
 > 
 > Tanahashi:
 > 
-> (77) The nature of wind is permanent; because of that, the wind of the [buddha](glossary#buddha) house brings forth the gold of the earth and ripens the cream of the long river.
+> (77) The nature of wind is permanent; because of that, the wind of the buddha house brings forth the gold of the earth and ripens the cream of the long river.
 > 
 > Nishijima & Cross:
 > 
@@ -128,7 +128,7 @@ First paragraph. Would you read first paragraph?
 > Tanahashi:
 > 
 > (1) As all things are [buddha dharma](glossary#buddha-dharma), there is delusion, realization, practice, birth [life] and death, buddhas and sentient beings.  
-> (2) As myriad things are without an abiding self, there is no delusion, no realization, no [buddha](glossary#buddha), no sentient being, no birth and death.  
+> (2) As myriad things are without an abiding self, there is no delusion, no realization, no buddha, no sentient being, no birth and death.  
 > (3) The [buddha way](glossary#buddha-way), in essence, is leaping clear of abundance and lack; thus there is birth and death, delusion and realization, sentient beings and buddhas.  
 > (4) Yet in attachment blossoms fall, and in aversion weeds spread.  
 > 
@@ -136,14 +136,14 @@ First paragraph. Would you read first paragraph?
 >     
 > (1) When all dharmas are [seen as] the Buddha-Dharma, then there is delusion and realization, there is practice, there is life and there is death, there are buddhas and there are ordinary beings.  
 > (2) When the myriad dharmas are each not of the self, there is no delusion and no realization, no buddhas and no ordinary beings, no life and no death.  
-> (3) The [Buddha](glossary#buddha)’s truth is originally transcendent over abundance and scarcity, and so there is life and death, there is delusion and realization, there are beings and buddhas.  
+> (3) The Buddha’s truth is originally transcendent over abundance and scarcity, and so there is life and death, there is delusion and realization, there are beings and buddhas.  
 > (4) And though it is like this, it is only that flowers, while loved, fall; and weeds while hated, flourish.  
 
 ##### 22:15
 
 **Katagiri**: Okay. First paragraph, first section, is divided into ... four sentences. First one is, when all things are [buddha](glossary#buddha) teaching, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings. This is one sentence. 
 
-Second: When myriad things are all not self, there is no delusion, no [enlightenment](glossary#enlightenment), no [buddhas](glossary#buddha), no sentient beings, no birth and no death. 
+Second: When myriad things are all not self, there is no delusion, no [enlightenment](glossary#enlightenment), no buddhas, no sentient beings, no birth and no death. 
 
 Third: Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and [enlightenment](glossary#enlightenment), sentient beings and buddhas. 
 
@@ -153,15 +153,15 @@ He says "buddha teachings". I think originally he said "buddha-dharma". Buddha-d
 
 ##### 24:48
 
-So that is buddha teaching, he says, but I think originally buddha-dharma. So... first of all, you have to see the human world, human beings, in terms of buddha's eye. So first section talking about the outlook on the world; how you should see the world, how you understand the human world. So first of all, you have to see the world in terms of buddha's eye. 
+So that is [buddha](glossary#buddha) teaching, he says, but I think originally buddha-dharma. So... first of all, you have to see the human world, human beings, in terms of buddha's eye. So first section talking about the outlook on the world; how you should see the world, how you understand the human world. So first of all, you have to see the world in terms of buddha's eye. 
 
-Yesterday I mentioned, if you see the human world in terms in terms of ordinary people's eyes, so call [alayavijñāna](glossary#alayavijñāna), world becomes always alayavijñāna. Alayavijñāna (is) never [buddha](glossary#buddha)'s world. So if you see the world in terms of buddha's eye, the whole world become buddha's world. Alayavijñāna means karmic life. Karmic life, if you see karmic life through meditation, you taste it, karmic life. But still, that karmic life you have tasted through the meditation, is still conceptualized. If you go beyond conceptualization of karmic life, it is nothing but perpetual flow of energies. That's it. Because, karmic life has been going from the past, present, futures, from every direction. So, we don't know what it is. But it's actually working, anyway. So that's why it's very difficult to be free from understanding of karmic life. Because, every day, you can see, you can taste karmic life. So it's very easy for us to be stuck in karmic life. But originally, karmic life is what? It's going. Dynamically, from the past, to the present, to the future.
+Yesterday I mentioned, if you see the human world in terms in terms of ordinary people's eyes, so call [alayavijñāna](glossary#alayavijñāna), world becomes always alayavijñāna. Alayavijñāna (is) never buddha's world. So if you see the world in terms of buddha's eye, the whole world become buddha's world. Alayavijñāna means karmic life. Karmic life, if you see karmic life through meditation, you taste it, karmic life. But still, that karmic life you have tasted through the meditation, is still conceptualized. If you go beyond conceptualization of karmic life, it is nothing but perpetual flow of energies. That's it. Because, karmic life has been going from the past, present, futures, from every direction. So, we don't know what it is. But it's actually working, anyway. So that's why it's very difficult to be free from understanding of karmic life. Because, every day, you can see, you can taste karmic life. So it's very easy for us to be stuck in karmic life. But originally, karmic life is what? It's going. Dynamically, from the past, to the present, to the future.
 
 ##### 27:10
 
 At that time ... if you go beyond, free from conceptualization of karmic life, at that time you really participate directly in [alayavijñāna](glossary#alayavijñāna), which means [tathāgatagarbha](glossary#tathāgatagarbha). Tathāgatagarbha is only when you participate in it, in deep understanding, deep taste, profound taste of alayavijñāna; then alayavijñāna turns into [Buddha](glossary#buddha)'s world, tathāgatagarbha.
 
-Yesterday I mentioned, whole space, koku, fall down to the earth and be *crushed*. Then, that is the time when oak tree become [buddha](glossary#buddha). We are always separated. When whole skies, whole world are crushed. We must be buddha. When you become buddha? Whole world, crushed. Nothing to compare. What do you mean? Just energy, working. And then, you become buddha. When you become buddha, that is the time when whole earths are crushed. That is direct participation in [alayavijñāna](glossary#alayavijñāna), instead of understanding the human world, human life in the world of conceptualization. That is very tricky, very tricky. It's very difficult to participate in that, the alayavijñāna directly, and turn it into [tathāgatagarbha](glossary#tathāgatagarbha). It's very difficult. Because, our head, it's very strong; stubborn. [chuckles] Oh, it's stubborn.
+Yesterday I mentioned, whole space, koku, fall down to the earth and be *crushed*. Then, that is the time when oak tree become buddha. We are always separated. When whole skies, whole world are crushed. We must be buddha. When you become buddha? Whole world, crushed. Nothing to compare. What do you mean? Just energy, working. And then, you become buddha. When you become buddha, that is the time when whole earths are crushed. That is direct participation in [alayavijñāna](glossary#alayavijñāna), instead of understanding the human world, human life in the world of conceptualization. That is very tricky, very tricky. It's very difficult to participate in that, the alayavijñāna directly, and turn it into [tathāgatagarbha](glossary#tathāgatagarbha). It's very difficult. Because, our head, it's very strong; stubborn. [chuckles] Oh, it's stubborn.
 
 ##### 29:27
 
@@ -191,9 +191,9 @@ So, it's really hatred; hatred coming up. Beyond grasses and flowers, blooms, fl
 
 But on the other hand, you cannot ignore that feeling. So [Dogen Zenji](glossary#dogen) says, let's come back to everyday life as a human being. What do feel, this one? What do you feel, flowers, weeds? Do you feel love? Do you feel the love (of) weeds? Are you sure you love the weeds? Are you sure? We cut the grasses always, and then some people say, "don't cut the grasses," you know? Are you sure you love the weeds? Are you sure you love the insects and the mosquitos? Are you sure? But - you hate? Are you sure? You don't hate, you don't love; I don't know. 
 
-But, it is a fact: you feel hate; you feel hatred, you feel love. So this is a fact. Very straightforwardly, look at your human life. That your feeling, hatred, love, is not usual sense of love. Hatred; you have fought for a long time. Let's see the different way, okay? That's why [Dogen Zenji](glossary#dogen) says last sentence. Dogen [Zenji](glossary#zenji) says, bring up first the [buddhas](glossary#buddha) world, your way of seeing how to see the human world. You should see the world in terms of [buddha](glossary#buddha)'s eye. If so, you should hate samsaric world? No, no. Come back, please come back, to the human life, which exists day by day, with feelings, emotions, hatred, anger, et cetera. 
+But, it is a fact: you feel hate; you feel hatred, you feel love. So this is a fact. Very straightforwardly, look at your human life. That your feeling, hatred, love, is not usual sense of love. Hatred; you have fought for a long time. Let's see the different way, okay? That's why [Dogen Zenji](glossary#dogen) says last sentence. Dogen [Zenji](glossary#zenji) says, bring up first the [buddhas](glossary#buddha) world, your way of seeing how to see the human world. You should see the world in terms of buddha's eye. If so, you should hate samsaric world? No, no. Come back, please come back, to the human life, which exists day by day, with feelings, emotions, hatred, anger, et cetera. 
 
-That's why yesterday I mentioned, I think we should, instead of handling a feeling of sadness, all this, we should go back to the important point: how to live, how to see the world. In other words, your basic attitude toward human life. So let the... different way you should see the world, from the [buddha](glossary#buddha)'s eye. That is our practice. Because, sadness, feelings, always appear just like bubbles, bubbles coming up, always. You love so much feelings, but next moment it disappears, and love turns into hatred. So always, it's very uneasy. But you cannot ignore that one; that's why [Dogen Zenji](glossary#dogen) brings up this one. Don't ignore this one. But that feeling, sadness, hatred, are not something you should hate or you should love. You should take care of hatred, love as the buddha's world, as a decoration of the buddhas' land. 
+That's why yesterday I mentioned, I think we should, instead of handling a feeling of sadness, all this, we should go back to the important point: how to live, how to see the world. In other words, your basic attitude toward human life. So let the... different way you should see the world, from the buddha's eye. That is our practice. Because, sadness, feelings, always appear just like bubbles, bubbles coming up, always. You love so much feelings, but next moment it disappears, and love turns into hatred. So always, it's very uneasy. But you cannot ignore that one; that's why [Dogen Zenji](glossary#dogen) brings up this one. Don't ignore this one. But that feeling, sadness, hatred, are not something you should hate or you should love. You should take care of hatred, love as the buddha's world, as a decoration of the buddhas' land. 
 
 ##### 42:10
 
@@ -212,7 +212,7 @@ And then, next... I think the contents of the next paragraph is the contents of 
 > Okumura: 
 > 
 > (5) Conveying oneself toward all things to carry out practice-enlightenment is delusion. All things coming and carrying out practice-enlightenment through the self is realization.  
-> (6) Those who greatly realize delusion are [buddhas](glossary#buddha).  
+> (6) Those who greatly realize delusion are buddhas.  
 > (7) Those who are greatly deluded in realization are living beings.  
 > (8) Furthermore, there are those who attain realization beyond realization  
 > (9) and those who are deluded within delusion.  
@@ -220,7 +220,7 @@ And then, next... I think the contents of the next paragraph is the contents of 
 > Tanahashi:
 > 
 > (5) To carry the self forward and illuminate myriad things is delusion. That myriad things come forth and illuminate the self is awakening.  
-> (6) Those who have great realization of delusion are [buddhas](glossary#buddha);  
+> (6) Those who have great realization of delusion are buddhas;  
 > (7) those who are greatly deluded about realization are sentient beings.  
 > (8) Further, there are those who continue realizing beyond realization   
 > (9) and those who are in delusion throughout delusion.  
@@ -228,7 +228,7 @@ And then, next... I think the contents of the next paragraph is the contents of 
 > Nishijima & Cross:
 > 
 > (5) Driving ourselves to practice and experience the myriad dharmas is delusion. When the myriad dharmas actively practice and experience ourselves, that is the state of realization.  
-> (6) Those who greatly realize delusion are [buddhas](glossary#buddha).   
+> (6) Those who greatly realize delusion are buddhas.   
 > (7) Those who are greatly deluded about realization are ordinary beings.   
 > (8) There are people who further attain realization on the basis of realization.  
 > (9) There are people who increase their delusion in the midst of delusion.  
@@ -237,7 +237,7 @@ And then, next... I think the contents of the next paragraph is the contents of 
 
 So, acting on and witness myriad things with the burden of one's self is delusion. Acting on and witnessing oneself in the advent of myriad things is [enlightenment](glossary#enlightenment).
 
-So here it says, acting on... witnessing myriad things means cultivating practice and verifying myriad things, by conveying oneself to them, is delusion. In other words, first ... we try to project, we try to move toward nature, and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. But, it is delusion. He says, it is delusion. Yes, it is delusion. Because, you see the world in terms of your eyes, your feelings; delusion. But it is real delusion? No, no; no way. That is a little bit narrow understanding. That delusion is going in the buddha's land, supported by all sentient beings. Because, there is no other way. No other way.
+So here it says, acting on... witnessing myriad things means cultivating practice and verifying myriad things, by conveying oneself to them, is delusion. In other words, first ... we try to project, we try to move toward nature, and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. But, it is delusion. He says, it is delusion. Yes, it is delusion. Because, you see the world in terms of your eyes, your feelings; delusion. But it is real delusion? No, no; no way. That is a little bit narrow understanding. That delusion is going in the [buddha](glossary#buddha)'s land, supported by all sentient beings. Because, there is no other way. No other way.
 
 ##### 44:30
 
@@ -263,7 +263,7 @@ It's very interesting: if you sit down quietly and read scriptures, very natural
 
 ##### 50:17
 
-Next, "great [enlightenment](glossary#enlightenment) about delusion is [buddhas](glossary#buddha)". That's why you should know what delusion is. That is called [buddha](glossary#buddha). Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become [bodhisattva](glossary#bodhisattva). Bodhisattva: then you can help, you can share. For instance, you always try to help, but people don't accept you. This is [suffering](glossary#suffering). But suffering is okay... Not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all people, all kinds of people. Whatever happens, accepting or not accepting, anyway you should continually consider carefully how to help. That is really delusion. Don't you think so? It's delusion, by which you suffer. But this is a bodhisattva. 
+Next, "great [enlightenment](glossary#enlightenment) about delusion is [buddhas](glossary#buddha)". That's why you should know what delusion is. That is called buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become [bodhisattva](glossary#bodhisattva). Bodhisattva: then you can help, you can share. For instance, you always try to help, but people don't accept you. This is [suffering](glossary#suffering). But suffering is okay... Not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all people, all kinds of people. Whatever happens, accepting or not accepting, anyway you should continually consider carefully how to help. That is really delusion. Don't you think so? It's delusion, by which you suffer. But this is a bodhisattva. 
 
 That delusion is really supported by [enlightenment](glossary#enlightenment). That's why next sentence says, "great delusion about enlightenment is sentient beings." That is called *you*. Ordinary people. Ordinary people are persons who have attained ... really deeply ... what delusion is. Then, this is called all sentient beings.
 
@@ -277,25 +277,25 @@ In the saying, "When the [buddhas](glossary#buddha) are indeed the buddhas, ther
 
 > Brazier:
 > 
-> (10) When All [Buddhas](glossary#buddha) really are All Buddhas the self does not need to know All Buddhas.  
+> (10) When All Buddhas really are All Buddhas the self does not need to know All Buddhas.  
 > (11) So, thus, we can say, enlightened Buddhas go on enlightening Buddhas.  
 > 
 > Okumura: 
 >     
-> (10) When [buddhas](glossary#buddha) are truly buddhas they don’t need to perceive they are buddhas;  
-> (11) however, they are enlightened buddhas and they continue actualizing [buddha](glossary#buddha).  
+> (10) When buddhas are truly buddhas they don’t need to perceive they are buddhas;  
+> (11) however, they are enlightened buddhas and they continue actualizing buddha.  
 > 
 > Tanahashi:
 > 
-> (10) When [buddhas](glossary#buddha) are truly buddhas, they do not necessarily notice that they are buddhas.  
-> (11) However, they are actualized buddhas, who go on actualizing [buddha](glossary#buddha).  
+> (10) When buddhas are truly buddhas, they do not necessarily notice that they are buddhas.  
+> (11) However, they are actualized buddhas, who go on actualizing buddha.  
 > 
 > Nishijima & Cross:
 > 
-> (10) When [buddhas](glossary#buddha) are really buddhas, they do not need to recognize themselves as buddhas.  
-> (11) Nevertheless, they are buddhas in the state of experience, and they go on experiencing the state of [buddha](glossary#buddha).  
+> (10) When buddhas are really buddhas, they do not need to recognize themselves as buddhas.  
+> (11) Nevertheless, they are buddhas in the state of experience, and they go on experiencing the state of buddha.  
 
-That's why, "What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength, by practicing this. Katagiri mentions, [Buddha](glossary#buddha) mentions, [ancestor](glossary#ancestor) mentions. Please give me something!" But, no way; I don't know. I don't have anything to give you. So all you have to do is, just do it. If you just do it, participate directly in the perpetual flow of energy, at that time, there is no way to know. But, it is, you can realize it.
+That's why, "What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength, by practicing this. Katagiri mentions, Buddha mentions, [ancestor](glossary#ancestor) mentions. Please give me something!" But, no way; I don't know. I don't have anything to give you. So all you have to do is, just do it. If you just do it, participate directly in the perpetual flow of energy, at that time, there is no way to know. But, it is, you can realize it.
 
 So, it's... just like your body soaks in the stream. And then, your whole body (is) wet. But, we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; and next moment, some thirst comes again. So if you really quench your thirst, you jump into the water; you soak your body and mind into the river. And then, the river water soaks through your huge pores, just like a bamboo basket. Your body is just like a bamboo basket; do you understand? Like the pores. But you don't believe it. If you soak it, and then water falls through there, lots of immediate holes there. That is the pores.
 
@@ -303,11 +303,11 @@ So, it's... just like your body soaks in the stream. And then, your whole body (
 
 That's why you sense when the [buddhas](glossary#buddha) are indeed the buddhas, at that time, you become buddhas. With great [enlightenment](glossary#enlightenment) about delusion, is all sentient beings. That is you. Great enlightenment about delusion is buddhas; great delusion about enlightenment is sentient beings, because, how to save all sentient beings? How to guide deluded, stubborn people to buddha's way? It's very hard. It's really tired. [group laughter] But this is... anyway, there is no other way. So you have to continue to live. That is great delusion about enlightenment. This is called sentient being. This is called *you*. 
 
-And then, at that time, if you do it, that is called [buddha](glossary#buddha) becomes buddha. But, how do we know? Who proves this? 
+And then, at that time, if you do it, that is called buddha becomes buddha. But, how do we know? Who proves this? 
 
-There is no need to be self conscious of being [buddhas](glossary#buddha). No. Because, just perpetual flow of energies. You just be there. Just like being present in a jet airplane, I always mention - just be there. 
+There is no need to be self conscious of being buddhas. No. Because, just perpetual flow of energies. You just be there. Just like being present in a jet airplane, I always mention - just be there. 
 
-Nevertheless, it is realizing buddhahood. [Buddhas](glossary#buddha) go on realizing means, that way of practice makes your life mature, naturally. Before you know it, mature. This is called shu-gyō(?) - practice. He translated it "cultivating practice". Practice is constantly cultivating; there is no "top," no end. Constantly cultivating.
+Nevertheless, it is realizing buddhahood. Buddhas go on realizing means, that way of practice makes your life mature, naturally. Before you know it, mature. This is called shu-gyō(?) - practice. He translated it "cultivating practice". Practice is constantly cultivating; there is no "top," no end. Constantly cultivating.
 
 ##### 57:50
 
@@ -339,7 +339,7 @@ So, that's why it says, it is not like a reflecting image in the mirror. If you 
 
 So, you cannot see the moon, because moon's penetrated and disappeared, melted into your body and mind. So it is, you can experience; the way you climb, walk mountains, and then you have a consciousness, and always using a consciousness. But the more you really devote yourself into the rock mountains. Because no choice to escape, so it requires enormous attention to it. At that time, mind penetrates, your body and mind finally melts away. So where is it? What is this? What are they? They are just body; there is no work. Rock penetrated your body; just your body is there. But your body, through the rock procedures, using boots, using a rope, et cetera; that your body doesn't confuse, because mind is there, rock is there; but all are penetrated and melted away, so whole body is rock, whole body is rock mountain. And then, how do we know? Just climb. Activity of climb; perpetual flow of activity, called climbing. From moment to moment. That's it.
 
-[Buddhas](glossary#buddha) teaching is often mentioning about this one; worried about human beings from that point of view. That's why, a little difficult. That's why [Dogen Zenji](glossary#dogen) brings (it) up first. You should see the world in terms of [buddha](glossary#buddha)'s eye. 
+[Buddhas](glossary#buddha) teaching is often mentioning about this one; worried about human beings from that point of view. That's why, a little difficult. That's why [Dogen Zenji](glossary#dogen) brings (it) up first. You should see the world in terms of buddha's eye. 
 
 [checks the time]
 
@@ -377,7 +377,7 @@ Okay, do you have a question? I'm sorry, I didn't finish.
 
 **Katagiri**: Yes.
 
-**Question**: When no side is obscure - that's when all things are [buddhas](glossary#buddha). 
+**Question**: When no side is obscure - that's when all things are buddhas. 
 
 **Katagiri**: Yeah; behind, anyway. In other words, all sentient beings are behind you, always supporting. We are always going in front. But we have a back. But we don't see the back, you know; we always see the front, what's going on. But we always ignore the back. The back is huge. So, "the other sentient beings are obscure" means "with a back," in other words, behind you, and then supporting. Even though you don't like crying, "Oh, go ahead, go ahead," in many ways. [group laughter]
 

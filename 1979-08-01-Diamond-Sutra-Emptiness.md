@@ -20,7 +20,7 @@ Chapter 7:
 
 In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the [dharmas](glossary#dharma) taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
 
-[Buddha](glossary#buddha) asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
+Buddha asked [Subhuti](glossary#subhuti): "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
 In Japanese, [enlightenment](glossary#enlightenment) is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
@@ -52,7 +52,7 @@ By this "sho", [enlightenment](glossary#enlightenment), your life is supported, 
 
 That's why [Buddha](glossary#buddha) says, "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
 
-That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called [Buddha](glossary#buddha), that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
+That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
 
 ##### 16:04
 

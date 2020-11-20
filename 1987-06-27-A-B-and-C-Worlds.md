@@ -14,17 +14,17 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-... in [Shobogenzo](dogen#shobogenzo) [Genjokoan](dogen#genjokoan). "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 
+... in [Shobogenzo](dogen#shobogenzo) [Genjokoan](dogen#genjokoan). "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are [buddhas](glossary#buddha), there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 
 
 Three sentences here. First one ... according to my term, first sentence mentions "A" world. A world, B world, C world; the first sentence is A world. That is, as [Dogen Zenji](glossary#dogen) mentioned, "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." So, put simply, in our common sense, the seen(?) world, that is "A" world; mundane world.
 
-Then, second, is "B" world. [Dogen](glossary#dogen) mentions, "When myriad dharmas are all not self, there is no delusion, no [enlightenment](glossary#enlightenment), no [buddhas](glossary#buddha), no sentient beings, no birth, no death." B world is spiritual world, simply speaking. 
+Then, second, is "B" world. [Dogen](glossary#dogen) mentions, "When myriad dharmas are all not self, there is no delusion, no [enlightenment](glossary#enlightenment), no buddhas, no sentient beings, no birth, no death." B world is spiritual world, simply speaking. 
 
 So, there are two worlds we are always confronted with: "A" world, mundane world, and "B" world, spiritual world. In terms of spiritual world, B world, mundane world (A world) is something impure. So very naturally, in the spiritual world, (there is) no mundane world; so no birth, no death. According to Nagarjuna, this is called "entrance"(?), he said. 
 
 Is that clear? "A" world, "B" world. So very naturally, everyone  see two worlds in their lives: mundane world as "A", and spiritual world as "B", which is pure.
 
-So in the spiritual world, there are lots of terms: [buddhas](glossary#buddha), and [enlightenment](glossary#enlightenment), and god, and godhead, and... well, we try to use a lot of terms to explain pure spiritual world, which is quite different from mundane world as "A". So very naturally, we are always see(ing) the two things separately. That makes you confused. Very confused. So always, we have to seek a play(?), see some game. This way, that way, this way, that way; always.
+So in the spiritual world, there are lots of terms: buddhas, and [enlightenment](glossary#enlightenment), and god, and godhead, and... well, we try to use a lot of terms to explain pure spiritual world, which is quite different from mundane world as "A". So very naturally, we are always see(ing) the two things separately. That makes you confused. Very confused. So always, we have to seek a play(?), see some game. This way, that way, this way, that way; always.
 
 ##### 5:00
 
@@ -58,7 +58,7 @@ So what is the true reality of the table? Beyond being or not being, abundance o
 
 So that is first, [Dogen Zenji](glossary#dogen) mentions, "the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity". And then next he says, "there is birth and death, delusion and [enlightenment](glossary#enlightenment), sentient beings and buddhas." This is very important: we exist. I am thinking, therefor I exist, you can say. But equally, thinking, or my five [skandhas](glossary#skandha), and ... with you, all sentient beings, exist. That existence - my life and your life - is completely beyond your speculation or evaluation. So your life should be viewed in terms of [emptiness](glossary#śūnyatā), so called "no birth"? Yes or no? And your life is seen from mundane view? Yes or no? 
 
-In the Madhyamaka, Nāgārjuna mentions constantly, try(ing) to correct peoples' misunderstanding of [Buddha](glossary#buddha)'s teaching, emphasizing constantly (the) true meaning of [emptiness](glossary#śūnyatā). So finally, everything is based on emptiness. Emptiness means the truth. But I don't think this is really true. So, still people don't understand it, because we return ignoring mundane world. So very naturally in the history, (???) consciousness develops. Conscious psychological world is developed. At that time, in the Buddhist psychology, I think, of course, the reality is beyond abundance and paucity, because it is based on emptiness. And the question comes up: the world that out there you see, is what? It should be negated? It should be affirmed? No. Whichever you say, no.
+In the Madhyamaka, Nāgārjuna mentions constantly, try(ing) to correct peoples' misunderstanding of Buddha's teaching, emphasizing constantly (the) true meaning of [emptiness](glossary#śūnyatā). So finally, everything is based on emptiness. Emptiness means the truth. But I don't think this is really true. So, still people don't understand it, because we return ignoring mundane world. So very naturally in the history, (???) consciousness develops. Conscious psychological world is developed. At that time, in the Buddhist psychology, I think, of course, the reality is beyond abundance and paucity, because it is based on emptiness. And the question comes up: the world that out there you see, is what? It should be negated? It should be affirmed? No. Whichever you say, no.
 
 ##### 19:36
 
@@ -66,9 +66,9 @@ So beyond your "yes" or "no": *yes*. That is called, what would you say, "C" wor
 
 So, the dharma, or the truth, it means. Nishanda(?), throwing into or necessary result, means that the truth is mined from there, the real reality beyond "A" and "B" world. And, throws into the worldly affair. And, this is necessary result of dharmadhātu. So dharmadhātu - in other words truth, or whatever you say - absolute truth, absolute reality, whatever. It's not something separate from you.
 
-If what the absolute god, [buddha](glossary#buddha), or whatever, true reality is, (if) it's something separate from you, it is nothing but conceptions. Which is pretty cold. It doesn't make sense.
+If what the absolute god, buddha, or whatever, true reality is, (if) it's something separate from you, it is nothing but conceptions. Which is pretty cold. It doesn't make sense.
 
-So, if it is separate from us, what are you seeking for? So even though you see the truth separate from your life, it doesn't make sense for us. So I think truth is always throwing into the worldly affairs, and that is necessary result of the truth or dharma. That is called nishanda(?). So [buddha](glossary#buddha)'s teaching, or the teaching of the human life or human world, is dharmadhātu nishanda. In other words: you are C world, beyond A or B. This is your reality.
+So, if it is separate from us, what are you seeking for? So even though you see the truth separate from your life, it doesn't make sense for us. So I think truth is always throwing into the worldly affairs, and that is necessary result of the truth or dharma. That is called nishanda(?). So buddha's teaching, or the teaching of the human life or human world, is dharmadhātu nishanda. In other words: you are C world, beyond A or B. This is your reality.
 
 ##### 24:49
 

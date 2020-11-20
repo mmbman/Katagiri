@@ -72,7 +72,7 @@ If you attend the [sesshin](glossary#sesshin), even for today, the [sitting](glo
 
 So, you can help; each of us individually can help. This is [a] point. If you see [the] really ignorant human world, [with] ignorant people fighting each other – at that time you can really practice. That’s why you have to practice at that time: because that practice originates from your compassion.
 
-Compassion is not something given by Buddhas or Buddhist teachings; compassion comes from *you*. Each of us individually: understanding [yourself], understanding people, how ignorant [people] are, how wonderful the enlightened world is. We have to understand ... even though there is only you who practices, who tries to understand the human world deeply. 
+Compassion is not something given by [Buddhas](glossary#buddha) or Buddhist teachings; compassion comes from *you*. Each of us individually: understanding [yourself], understanding people, how ignorant [people] are, how wonderful the enlightened world is. We have to understand ... even though there is only you who practices, who tries to understand the human world deeply. 
 
 Lots of human beings are really ignorant; even [with] this, we have to have compassion, and to practice. Even though they don’t understand now, we should sow a seed for future generations. 
 
@@ -82,7 +82,7 @@ Even though modern civilization cuts [down trees] and destroys nature with build
 
 But nevertheless, even though moden civilization cuts down trees and destroys nature, still there is hope, even if there is one seed. Do you know the [picture] book for the children – Doctor Suess? Doctor Suess – that’s an interesting book. *[laughter]* Modern civilization completely destroys the human world, building factories, and companies, and manions. And then on the last page, the little boy finds just one seed. All the environment around him, [there is] nothing there, [it is] completely destroyed, but [there is just] one seed left. So he was very happy, and put it on the ground. That is the last page. *[laughter]* 
 
-The same applies to your practice. That is compassion, this is really Buddha’s compassion. Without this compassion, you cannot help anybody, you cannot help any beings. 
+The same applies to your practice. That is compassion, this is really [Buddha](glossary#buddha)’s compassion. Without this compassion, you cannot help anybody, you cannot help any beings. 
 
 ##### 19:15
 
@@ -185,7 +185,7 @@ The second verse says,
 
 > What kind of people were the Ancient Emperors?
 
-That means, what kind of people were the Ancient Emperors before Baso (Setchō?) Zen Master. And Buddhas and patriarchs, and all beings, and enlightenment and delusion, and life and death – what are [they]?
+That means, what kind of people were the Ancient Emperors before Baso (Setchō?) Zen Master. And [Buddhas](glossary#buddha) and patriarchs, and all beings, and enlightenment and delusion, and life and death – what are [they]?
 
 What are *you* for? Whatever you say – “paradise,” and “health,” and “enlightenment, nirvana,” whatever you say – for Baso who was about to die, what is useful?
 
@@ -293,7 +293,7 @@ So finally what you have to do is, you should have clear eyes. Who dies?
 
 ##### 51:26
 
-Enlightenment, in the United States mostly – sometimes I feel in the United States, Buddhism is still staying in the realm of [Sāvakabuddha](glossary#sāvakabuddha). Do you know Sāvakabuddha? Sāvakabuddha means a buddha who attains enlightenment through listening to the Buddha’s teaching. 
+Enlightenment, in the United States mostly – sometimes I feel in the United States, Buddhism is still staying in the realm of [Sāvakabuddha](glossary#sāvakabuddha). Do you know Sāvakabuddha? Sāvakabuddha means a [buddha](glossary#buddha) who attains enlightenment through listening to the Buddha’s teaching. 
 
 Lots of people are interested in listening to Buddha’s teaching, and [in] enlightenment. It’s not good enough, because it doesn’t work in your daily living. Of course you can attain enlightenment intellectually by listening to Buddha. But, why is it that a Bodhisattva has to practice a thousand years continually – *why*? Because it’s not simple to practice your enlightenment in daily living. It’s not so simple. 
 

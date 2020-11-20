@@ -30,7 +30,7 @@ Let me first read the case:
 >
 > Te Shan turned his back on the teaching hall, put on his straw sandals, and departed. That evening Kuei Shan asked the head monk, “Where is that newcomer who just came?” The head monk answered, “At that time he turned his back on the teaching hall, put on his straw sandals, and departed.”
 >
-> Kuei Shan said, “Hereafter that lad will go to the summit of a solitary peak, build himself a grass hut, and go on scolding the Buddhas and reviling the Patriarchs.”
+> Kuei Shan said, “Hereafter that lad will go to the summit of a solitary peak, build himself a grass hut, and go on scolding the [Buddhas](glossary#buddha) and reviling the Patriarchs.”
 >
 >> Setchō added the comment, “He adds frost to snow.”
 >
@@ -44,7 +44,7 @@ Let me [first talk] simply about this story, and then I would like to read the p
 
 “When [Te Shan](glossary#tokusan-senkan) arrived at [Kuei Shan](glossary#isan-reiyū)”: Te Shan is one of the famous Zen Masters. 
 
-You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of [Diamond Sutra](glossary#diamond-sutra). [He was] commenting [on] the Diamond Sutra, so he had lots of time to give lectures on the Diamond Sutra everywhere in China in those days. And then, at that time, he heard [that] Zen emphasizes that the mind itself is Buddha. But according to Diamond Sutra, mind itself is not Buddha, mind itself unattainable, because Diamond Sutra always emphasizes emptiness: the mind in the present is unobtainable, mind in the past and future are unobtainable. So from this point, Te Shan really doubted Zen teachings, [that] mind itself is Buddha. 
+You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of [Diamond Sutra](glossary#diamond-sutra). [He was] commenting [on] the Diamond Sutra, so he had lots of time to give lectures on the Diamond Sutra everywhere in China in those days. And then, at that time, he heard [that] Zen emphasizes that the mind itself is [Buddha](glossary#buddha). But according to Diamond Sutra, mind itself is not Buddha, mind itself unattainable, because Diamond Sutra always emphasizes emptiness: the mind in the present is unobtainable, mind in the past and future are unobtainable. So from this point, Te Shan really doubted Zen teachings, [that] mind itself is Buddha. 
 
 So one day, he [went] to debate with a famous Zen Master. On his way, he rested for a while to take lunch, buying a dumpling, a rice cake at a small store pretty close to the monastery where [the] famous Zen Master lived. 
 
@@ -74,7 +74,7 @@ That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master 
 
 ##### 11:42
 
-Anyway, “When [Te Shan](glossary#tokusan-senkan) arrived at arrived at [Kuei Shan](glossary#isan-reiyū)”:  Isan or Kuei Shan was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. [It’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings, “Mind itself is Buddha.” 
+Anyway, “When [Te Shan](glossary#tokusan-senkan) arrived at arrived at [Kuei Shan](glossary#isan-reiyū)”:  Isan or Kuei Shan was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check [out] who Kuei Shan was. [It’s] just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings, “Mind itself is [Buddha](glossary#buddha).” 
 
 “He carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east.” I think he went inside to the monastery, Kuei Shan’s monastery, without dropping down his bundles et cetera; immediately he went inside to the monastery and teaching hall. The teaching hall is usually located at the top of the hill. So he went there, without dropping down his bundles. And also he walked to the left and to the right, from west to east, east to west, going back and forth. And he was looking around, and finally he said: “Nothing. There is nothing.” Then he went out. 
 
@@ -134,7 +134,7 @@ So finally, he left the monastery, and that evening [Kuei Shan](glossary#isan-re
 
 The head monk said, “He left already.”
 
-And Kuei Shan said, “Maybe in the future he could build a grass hut on the summit of the mountain, and slander Buddhas and patriarchs.”
+And Kuei Shan said, “Maybe in the future he could build a grass hut on the summit of the mountain, and slander [Buddhas](glossary#buddha) and patriarchs.”
 
 That means, in a sense, Kuei Shan really respected his practice; but on the other hand, he didn’t accept his practice. Because still there are ‘dregs’ in the bottom of the bottle, which is called enlightenment. When you hang on to something even slightly, there are dregs. It makes your attitude very rude and ‘holy’, and sometimes very rough.
 
@@ -142,7 +142,7 @@ Finally, [Setchō](glossary#setchō-jūken) added to the comment in the last par
 
 ##### 29:15
 
-What is Buddha’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ [which] Buddha has, which are called enlightenment, or your wonderful face, or your attitude; Buddha can’t be seen by [these] salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[he laughs]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, [the] destination is Buddha.
+What is [Buddha](glossary#buddha)’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ [which] Buddha has, which are called enlightenment, or your wonderful face, or your attitude; Buddha can’t be seen by [these] salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[he laughs]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, [the] destination is Buddha.
 
 We don’t know what is a Buddha. Well, we know; we can explain, and Buddha is very clear from Buddhism. But, finally it’s not clear; [there is] nothing to touch. It’s alive. Anyway, regardless of whether you are conscious of it or not, we have to move toward that, and [our] daily living must be alive. This ‘be alive’ means that from moment to moment, wherever you are, beyond criticism, your life must be alive. 
 
@@ -170,7 +170,7 @@ Within “just be alive,” there are lots of questions. “What should I do?”
 
 Within being alive, always there is certain reflection, and you don’t know, always a question is left behind. That means consciousness [is] always picking up every moment. If you pick up your daily life with consciousness, that daily life becomes conceptualized, seeing objects, very naturally. Then immediately it becomes a red light; sometimes it becomes a yellow light. So [a] flashing light comes up. Is this good or bad? Or is this your experience you did? 
 
-If you do something, immediately there is experience. That experience is nothing but a flashing light. By these flashing lights, most people are very confused. It’s not necessary to ignore [it], because it is something you have to take responsibility for. But on the other hand, you cannot stop your life. All we have to do is, aim at [the] ideal beautiful image of human life, which is called Buddha, and we have to move toward it, day by day. 
+If you do something, immediately there is experience. That experience is nothing but a flashing light. By these flashing lights, most people are very confused. It’s not necessary to ignore [it], because it is something you have to take responsibility for. But on the other hand, you cannot stop your life. All we have to do is, aim at [the] ideal beautiful image of human life, which is called [Buddha](glossary#buddha), and we have to move toward it, day by day. 
 
 That is the final goal we have to do, practically. 
 

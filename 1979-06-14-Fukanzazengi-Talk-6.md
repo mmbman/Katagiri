@@ -402,7 +402,7 @@ Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from som
 
 **Katagiri**: Who?
 
-**Question**: [Aprāpti](glossary#aprāpti) and [prāpti](glossary#prāpti). With the two in the example you gave, both of those people were monks, they were practicing the [Buddha](glossary#buddha)'s way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
+**Question**: [Aprāpti](glossary#aprāpti) and [prāpti](glossary#prāpti). With the two in the example you gave, both of those people were monks, they were practicing the Buddha's way. And we're talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone's life? In Roman Catholics' life?
 
 **Katagiri**: Sure. *[laugher]* Universal. Yes.
 

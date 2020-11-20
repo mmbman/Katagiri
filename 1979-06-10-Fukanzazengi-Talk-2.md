@@ -332,7 +332,7 @@ Maybe it takes time. Maybe tomorrow you could be master, but maybe it takes time
 
 ##### 1:01:36
 
-That means, if you attain [enlightenment](glossary#enlightenment) in the [dualistic](glossary#dualism) world, that is nothing but dualistic enlightenment; that's all. So no design on becoming [Buddha](glossary#Buddha) – such [zazen](glossary#zazen) is pretty hard. We don't understand [it]. But this is very good example, because it is nothing but the problem of life and death. That's all. So we have to look at this, and follow it.
+That means, if you attain [enlightenment](glossary#enlightenment) in the [dualistic](glossary#dualism) world, that is nothing but dualistic enlightenment; that's all. So no design on becoming [Buddha](glossary#buddha) – such [zazen](glossary#zazen) is pretty hard. We don't understand [it]. But this is very good example, because it is nothing but the problem of life and death. That's all. So we have to look at this, and follow it.
 
 But on the other hand, lots of the zazen, real zazen in the [dualistic](glossary#dualistic) world – psychological, philosophical – that's very fine. [Rinzai](glossary#rinzai), and *[unintelligible]* and many things. I don't criticize them. It is okay, because it is still [enlightenment](glossary#enlightenment). But that enlightenment is nothing but dualistic world. 
 
@@ -350,11 +350,11 @@ Is that clear? Is that okay?
 
 *Katagiri*: Yes. That is, well, you can attain [enlightenment](glossary#enlightenment), that is but poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, [there are] many kinds of enlightenment. 
 
-So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by [Buddha](glossary#buddha), and [Dogen](glossary#dogen), et cetera.
+So, teacher is important, but teacher is a teacher – that this teacher also followed – of real zazen. I have to teach real zazen. I have to show real zazen mentioned by Buddha, and [Dogen](glossary#dogen), et cetera.
 
-**Same person**: Our connection to [Dogen](glossary#dogen) and [Buddha](glossary#buddha) is for you...
+**Same person**: Our connection to [Dogen](glossary#dogen) and Buddha is for you...
 
-**Katagiri**: Teacher is [Buddha](glossary#buddha), and [Dogen](glossary#dogen), and [patriarch](glossary#ancestor), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
+**Katagiri**: Teacher is Buddha, and [Dogen](glossary#dogen), and [patriarch](glossary#ancestor), simultaneously. That's why teacher is also student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
 
 ##### 1:05:15
 

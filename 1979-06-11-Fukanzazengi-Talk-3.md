@@ -158,7 +158,7 @@ So, [the] point is, that we sew a good seed. We sew a good time and occasion, an
 
 *[tape change]*
 
-... through regulation of body, and regulation of breath. That is what is called  [samadhi](glossary#samadhi), perfect samadhi. Often at that time, there is no chance to insert design of becoming [Buddha](glossary#buddha) or having rewards. So, [it is] very pure. There is something left, which is called intrinsic value of pure human activity. Just do. That is total personality. Psychologically speaking, that is total personality.
+... through regulation of body, and regulation of breath. That is what is called  [samadhi](glossary#samadhi), perfect samadhi. Often at that time, there is no chance to insert design of becoming Buddha or having rewards. So, [it is] very pure. There is something left, which is called intrinsic value of pure human activity. Just do. That is total personality. Psychologically speaking, that is total personality.
 
 ##### 47:10
 
@@ -174,7 +174,7 @@ But he suffered a lot. And he likes [it] very much here. So he came a single tim
 
 And also, if he killed somebody, his task is successful, and government gives asylum to him. He doesn't want government, FBI, to look for him, always look for him. But he came here. And then I asked, "I [would like to] give a [Buddha](glossary#buddha) statue [to you]." [A statue] carved in ivory, from India – so that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: "Please keep this." And I [asked] him, "How about this Buddhist statue? Can you feel something?" Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I told him – because I want to know his soft, gentle mind – so, [I asked,] "How do you feel there?" He said, "No, I don't like him." "How come?" He said, "He's a strict teacher." Maybe so, maybe so. 
 
-And also, that [other] [Buddha](glossary#buddha) statue. "How about this? Do you feel something quiet, or calmness?" He said, "No." "How come?" "He's too [soft?]" I think so; he's very sharp. Because Kannon [Bodhisattva](glossary#bodhisattva), [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, which is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion, or Buddha Nature? So, let's touch that Buddha's compassion through [a] human shape. That is [a] [Bodhisattva](glossary#bodhisattva). That's why Avalokiteshvara has [a] double face: human body, and also on the other hand, compassion. That's why he sees [suffering](glossary#suffering). To see suffering is Avalokiteshvara, of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. That is the art of [the] Buddhist statue. So we have to see the double face. 
+And also, that [other] Buddha statue. "How about this? Do you feel something quiet, or calmness?" He said, "No." "How come?" "He's too [soft?]" I think so; he's very sharp. Because Kannon [Bodhisattva](glossary#bodhisattva), [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, which is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion, or Buddha Nature? So, let's touch that Buddha's compassion through [a] human shape. That is [a] [Bodhisattva](glossary#bodhisattva). That's why Avalokiteshvara has [a] double face: human body, and also on the other hand, compassion. That's why he sees [suffering](glossary#suffering). To see suffering is Avalokiteshvara, of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. That is the art of [the] Buddhist statue. So we have to see the double face. 
 
 ##### 56:42
 
@@ -292,9 +292,9 @@ Then what he has to do is ... he practices. Continually, he practices. But [he] 
 
 ##### 1:19:55
 
-That means, without entering nirvana, [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his [Buddha Nature](glossary#buddha-nature). That is [Tathāgata](glossary#tathāgata). The bodhisattva has double face – Bodhisattva and [Buddha](glossary#buddha).
+That means, without entering nirvana, [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his [Buddha Nature](glossary#buddha-nature). That is [Tathāgata](glossary#tathāgata). The bodhisattva has double face – Bodhisattva and Buddha.
 
-When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see it. But a Buddha is hidden behind the [Bodhisattva](glossary#bodhisattva); bodhisattva walks, as a human being. Bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water.
+When the Buddha appears, it's quiet. Nothing. You cannot see it. But a Buddha is hidden behind the [Bodhisattva](glossary#bodhisattva); bodhisattva walks, as a human being. Bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water.
 
 **Same person**: But is the [Bodhisattva](glossary#bodhisattva) practice of the third kind? 
 

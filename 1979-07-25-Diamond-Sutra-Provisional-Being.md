@@ -16,9 +16,9 @@ There must be a person who tries to establish [a] peaceful world, always. But wh
 
 But, according to [the] [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of [Buddha](glossary#buddha)'s ten major disciplines, asks him, "How do we teach the Buddha's teaching, which seems to be complicated – particularly in the confused world?" Buddha says, "There must be even one person who tries to teach Buddha's teaching under all circumstances." 
 
-That is [Buddha](glossary#buddha)'s answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
+That is Buddha's answer. So, you shouldn't be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha's teaching. So Buddha says, "Don't think that; don't be disappointed." There is always some person who teaches Buddha's teaching. 
 
-According to [Buddha](glossary#buddha)'s explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on [no-self](glossary#no-self) and also no perception of [dharma](glossary#dharma): no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
+According to Buddha's explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on [no-self](glossary#no-self) and also no perception of [dharma](glossary#dharma): no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
 
 ##### 3:25
 
@@ -226,7 +226,7 @@ Do you understand provisional being?
 
 *[there is some back and forth]*
 
-**Same person**: [Buddha](glossary#buddha) was sitting in a grove, meditating, this is in one of his past lives ... he was sitting in the grove, and this king came along into the grove and saw the Buddha there, and he remembered something he thought the Buddha had done for him in a past life, and got extremely angry, took out his sword. And the Buddha put out his hand, telling him to stop, and first he chopped off his hand, and then he just started chopping the Buddha to pieces, and the Buddha didn't say a word and watched. Was the Buddha looking at that man ... as a provisional being?
+**Same person**: Buddha was sitting in a grove, meditating, this is in one of his past lives ... he was sitting in the grove, and this king came along into the grove and saw the Buddha there, and he remembered something he thought the Buddha had done for him in a past life, and got extremely angry, took out his sword. And the Buddha put out his hand, telling him to stop, and first he chopped off his hand, and then he just started chopping the Buddha to pieces, and the Buddha didn't say a word and watched. Was the Buddha looking at that man ... as a provisional being?
 
 **Katagiri**: Oh. 
 

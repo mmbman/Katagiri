@@ -116,7 +116,7 @@ And finally, we fight each other. "Your understanding of truth is wrong." Or, "M
 
 So, second point is, what is the limitation of the [dhātu](glossary#dhātu) – dhātu means 'world' – which we can reach? What is the limitation of the world? In other words: how far can 'all dharmas' extend? From where, to where?
 
-This second point is very important, because Buddha analyzed human world as six objects, and six sense organs. Briefly speaking, that means the implication of subject and object. Subject and object are always interconnected, and only through human recognition [does] your object become ‘all dharmas’. 
+This second point is very important, because [Buddha](glossary#buddha) analyzed human world as six objects, and six sense organs. Briefly speaking, that means the implication of subject and object. Subject and object are always interconnected, and only through human recognition [does] your object become ‘all dharmas’. 
 
 But recognition doesn't appear always in the same pattern; from moment to moment, recognition appears in a different way. So, you cannot say the six objects and six sense organs are something existent as a fixed being. I don't think so. Because, they become ‘all dharmas’ only when you can recognize [them] through consciousness. So we need the function of cognition; but unfortunately, cognition doesn't apear in the same patterns; always different. 
 
@@ -130,7 +130,7 @@ So from this point, if you see this zendo, first [the] zendo becomes dharma thro
 
 [The] zendo is not [the] zendo *you* understand. [The] zendo is just a being. 
 
-What is ‘just a being’? Just a being is what is called samskara in Sanskrit. Samskara means “original nature of action”. The Buddha says, all are impermanent. In Japanese, in Sanskrit, what we say is not “all”; literally [the] translation is, “all samskaras”. Samskara means original nature of action, working. 
+What is ‘just a being’? Just a being is what is called samskara in Sanskrit. Samskara means “original nature of action”. The [Buddha](glossary#buddha) says, all are impermanent. In Japanese, in Sanskrit, what we say is not “all”; literally [the] translation is, “all samskaras”. Samskara means original nature of action, working. 
 
 The original nature of action *is* impermanence. Impermanence means “not perpetual”. At any time, in whatever situation you may be, everything is not perpetual. Everything is not constant. But, if you say everything is not perpetual, not permanent, you say [that] “everything is not permanent” is something real, which exists, always. Don't you think so?
 
@@ -144,7 +144,7 @@ So, in your individual case, whatever you experience, whatever you see, these th
 
 ##### 37:17
 
-So, the second point, briefly speaking: We have to understand deeply the original nature of being. That's why Buddha says, “all is impermanent”. This ‘all’ is all samskaras. Samskara is original nature of action, which everything is structured by. Constant action; working. 
+So, the second point, briefly speaking: We have to understand deeply the original nature of being. That's why [Buddha](glossary#buddha) says, “all is impermanent”. This ‘all’ is all samskaras. Samskara is original nature of action, which everything is structured by. Constant action; working. 
 
 At that time, if you understand [the] zendo individually, this is not good enough. This is *your* experience, *your* understanding, which is called dharma, but it's not good enough because there is still an egoistic sense, which is called individual understanding. We have to find the vast dimension, which is called immensity, or equality. This is called basic nature of action; samskara. 
 
@@ -192,7 +192,7 @@ Then you get, "Oh, zazen is pretty good!" Sometimes zazen is not good, but ... i
 
 ##### 49:32
 
-‘All dharmas’ is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don't think so; because it is completely beyond individual experience. It's pretty hard to understand... That's why Buddha kept silent about this problem. 
+‘All dharmas’ is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don't think so; because it is completely beyond individual experience. It's pretty hard to understand... That's why [Buddha](glossary#buddha) kept silent about this problem. 
 
 So, all dharmas must be something, which becomes an individual experience. And then next, we should touch the depths of existence, which is called samskara. That means practically, jump into it. And then very naturally, you can learn something more than your effort. This is samskara, ‘together maker’, or original nature of action. 
 
@@ -208,7 +208,7 @@ Do you have some questions?
 
 If you feel some pessimism from impermanence, et cetera, as a teaching, that is the impermanence you can observe objectively. While you observe it objectively, it makes you pensive, and sometimes egoistic. This is because this is individual experience. 
 
-If you read the Japanese literature, always there are stories based on impermanence. The Japanese literature gives you a certain... not pessimistic exactly, sort of pensive, sad feeling. But this is individual experience. For Buddhism it's not good enough. Of course you should individually experience, but impermanence must be Buddha. That's why we have to understand [the] basic nature of existence. 
+If you read the Japanese literature, always there are stories based on impermanence. The Japanese literature gives you a certain... not pessimistic exactly, sort of pensive, sad feeling. But this is individual experience. For Buddhism it's not good enough. Of course you should individually experience, but impermanence must be [Buddha](glossary#buddha). That's why we have to understand [the] basic nature of existence. 
 
 Completely speaking, if you feel your life from the teaching of Buddha, which is called impermanence, you don't believe [it], and you try to keep away from [it], because you don't like it. But actually, reality is impermanence, always changing constantly. It is reality. If you see it objectively, it's immediately giving something *[unintelligible]*. But on the other hand, it is reality. So [the] important point is, where are you? You are in the middle of reality. In other words, right in the middle of impermanence. 
 

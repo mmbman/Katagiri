@@ -187,7 +187,7 @@ In Buddhism, if the whip touches a hair, strictly speaking you cannot just touch
 
 So to touch a hair means completely to touch the whole body. In other words, broadly speaking, in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly [the] truth; but you don’t know, you don’t believe this. 
 
-That’s why Buddha and Dogen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
+That’s why [Buddha](glossary#buddha) and Dogen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
 
 So, [the] four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
 
@@ -203,7 +203,7 @@ So, [when] you do [zazen](glossary#zazen), that’s why zazen is [not just] for 
 
 If so, it’s not necessary [for] the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the [whip?]. 
 
-Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the] cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic?] consciousness, but whatever you say, it doesn’t hit the mark. (Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means. However, needing a whip for cats? That I can relate to.) 
+Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because [Buddha](glossary#buddha) says, even a cat and dog are Buddha. If dogs and cats are Buddha, [the] cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic?] consciousness, but whatever you say, it doesn’t hit the mark. (Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means. However, needing a whip for cats? That I can relate to.) 
 
 Anyway, you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for [the] long, long range. 
 
@@ -217,13 +217,13 @@ So you have to really understand human life for long range. At that time whateve
 
 From this point, *[unintelligible]* the whip. You need a whip. Shall I touch just a hair? Shall I touch the skin, shall I touch the bone and the muscles? That’s alright; this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
 
-If you really understand this karmic life, karmic life turns into Buddha’s life. You can really accept [it]. [To] accept is not just to accept [it] at random; you have to accept, and next, you have to take care of your life in [a] *positive* way. 
+If you really understand this karmic life, karmic life turns into [Buddha](glossary#buddha)’s life. You can really accept [it]. [To] accept is not just to accept [it] at random; you have to accept, and next, you have to take care of your life in [a] *positive* way. 
 
 That is the meaning of a whip. Or [of] practice, [constant] effort. Human effort is a sort of energy [so] that you can keep your life as a Buddha.
 
 ##### 43:30
 
-There is a story (in [“Four Horses”](dogen#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
+There is a story (in [“Four Horses”](dogen#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the [Buddha](glossary#buddha), ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
 The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
 

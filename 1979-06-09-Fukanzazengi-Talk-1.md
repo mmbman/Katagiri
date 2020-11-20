@@ -24,7 +24,7 @@ Or, particularly when you get angry, when you're confused, very naturally you re
 
 But, we don't do this. Completely opposite. If you get angry, *just sit*. But if you express anger, you know pretty well, [the] expression of anger influences others. So you can create your circumstances, which [are] called "angry world." So very naturally, people don't feel good; well, people get angry, [*unintelligible*].‌ Then very naturally, anger is sort of a snowballing, again and again.
 
-But when you do [zazen](glossary#zazen), or when you pray to the gods, "Protect me" – even though you don't know how to deal with anger, "please help me" – [you put aside?]. Or why do you pray to the gods? God helps you? God takes away your anger? I don't think so. Or, you believe God really takes away your anger. Well, in a sense you believe, but actually, intellectually, you don't believe [it]; because anger is still anger, even though you pray to the gods, even though you pray to the [bodhisattvas](glossary#bodhisattva). [Avalokiteshvara](glossary#avalokiteshvara) is very nice; bodhisattvas expressing compassion, [Buddha](glossary#buddha) 's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. So, you don't believe, but in a sense you believe. So finally you don't know why you are doing [it] in that way. So finally you say, "I just pray, because I don't know what to do." So you pray to the bodhisattvas: "Avalokiteshvara, please." Sit down in front of Avalokiteshvara, make your mind calm, and pray. That's pretty nice. At that time, there is no room to let the anger express, even for a moment. The anger, from the first, is struck aside. It's going away.
+But when you do [zazen](glossary#zazen), or when you pray to the gods, "Protect me" – even though you don't know how to deal with anger, "please help me" – [you put aside?]. Or why do you pray to the gods? God helps you? God takes away your anger? I don't think so. Or, you believe God really takes away your anger. Well, in a sense you believe, but actually, intellectually, you don't believe [it]; because anger is still anger, even though you pray to the gods, even though you pray to the [bodhisattvas](glossary#bodhisattva). [Avalokiteshvara](glossary#avalokiteshvara) is very nice; bodhisattvas expressing compassion, Buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. So, you don't believe, but in a sense you believe. So finally you don't know why you are doing [it] in that way. So finally you say, "I just pray, because I don't know what to do." So you pray to the bodhisattvas: "Avalokiteshvara, please." Sit down in front of Avalokiteshvara, make your mind calm, and pray. That's pretty nice. At that time, there is no room to let the anger express, even for a moment. The anger, from the first, is struck aside. It's going away.
 
 ##### 8:39
 
@@ -32,13 +32,13 @@ That is our life, okay? So, we have [the] practice of [bowing](glossary#bowing) 
 
 But anyway, how sublime life is is reality, real reality. Completely beyond human speculation; this is reality. This is your life. This is tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. 
 
-So, if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? With \[a] [bow](glossary#bowing). Just bow, to the [Buddha](glossary#buddha) . Touching your whole body to the floor, anyway: bow. That is the way to express appreciation to your existence. 
+So, if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? With \[a] [bow](glossary#bowing). Just bow, to the Buddha. Touching your whole body to the floor, anyway: bow. That is the way to express appreciation to your existence. 
 
 ##### 10:30
 
 Before you [bow](glossary#bowing), you must be you, who has accepted your life: how sublime it is, already. And then, that's why you can bow. There is no ego understanding, [ego consciousness](glossary#ego-consciousness). Selfish understanding: "I don't understand," or "I understand" – whatever you say, there is nothing. When you are completely [Buddha](glossary#buddha), when you really accept [the] sublimity of your life, of your existence – very naturally, you come back, you come back. But to bow is to accept, simultaneously to accept, [the] sublimity of life. So very naturally, ego consciousness from the first is struck aside.
 
-That is \[what] [Dogen Zenji](glossary#dogen) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] [patriarchs](glossary#ancestor) mention, or [Buddha's](glossary#buddha) suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma), original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness) and [distraction](glossary#distraction) from the first [are] struck aside. It's going away. 
+That is \[what] [Dogen Zenji](glossary#dogen) says. So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or [what the] [patriarchs](glossary#ancestor) mention, or Buddha's suggestions: if you do zazen like this, as a conclusion of your practice of zazen, very naturally, the [dharma](glossary#dharma), original nature of the self, is manifest. Manifesting itself, and also, [dullness](glossary#dullness) and [distraction](glossary#distraction) from the first [are] struck aside. It's going away. 
 
 ##### 12:45
 
@@ -142,7 +142,7 @@ So, your heart, your lungs, and your stomach, your intestines, hormone system, a
 
 ##### 44:56
 
-Next, the brain-nerve system. According to brain-nerve system, [Dogen Zenji](glossary#dogen) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha) ." 
+Next, the brain-nerve system. According to brain-nerve system, [Dogen Zenji](glossary#dogen) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha)." 
 
 (It looks like the translation Katagiri is using may be Norman Waddell's, as it says "administer pros and cons". See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf))
 
@@ -150,7 +150,7 @@ That is [the] brain-nerve system. According to brain-nerve system, we have to re
 
 [tape change]
 
-"... of all thoughts and views. Have no design on becoming a [Buddha](glossary#buddha) ." 
+"... of all thoughts and views. Have no design on becoming a Buddha." 
 
 ##### 46:20
 
@@ -174,7 +174,7 @@ So finally, we have to practice regulating the mind. That regulating of the mind
 
 But how can you practice [egolessness](glossary#egolessness)? [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, if you really simply forget your body and mind, you should throw away yourself into the heart of [Buddha](glossary#buddha). That means, you should throw yourself away to something. That "to something" is, to your object. But this object is not any object, this is the house of the Buddha. 
 
-So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book. This book is [Buddha](glossary#buddha) . So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book, as well as dealing with your life. So, you can deal with this book with compassion. It's really compassion; you can deal with it. At that time, the book really teaches you something.
+So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book. This book is Buddha. So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book, as well as dealing with your life. So, you can deal with this book with compassion. It's really compassion; you can deal with it. At that time, the book really teaches you something.
 
 ##### 51:42
 
