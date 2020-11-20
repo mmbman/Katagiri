@@ -50,7 +50,7 @@ This pointer was said to be divided into five sections. The first section:
 
 > One device, one object; one word, one phrase – the intent is that you’ll have a place to enter; still this is gouging a wound in healthy flesh – it can become a nest or a den.
 
-“One device” originally means opportunity or action of human consciousness, human body and mind. When you do zazen and experience [samadhi](glossary#samadhi), this is one device, which is called opportunity, or action, or [[prāpti](glossary#prāpti)?], or [watching?]. 
+“One device” originally means opportunity or action of human consciousness, human body and mind. When you do [zazen](glossary#zazen) and experience [samadhi](glossary#samadhi), this is one device, which is called opportunity, or action, or [[prāpti](glossary#prāpti)?], or [watching?]. 
 
 Zazen is the “one object”. Whatever you do, there are always two objects, and also opportunity or action. Full action of your body and mind, this is one device, one object. Whenever you do zazen, or walking on the street, or working in the office, working in the kitchen – whatever you do, there is one device, one object.
 
@@ -106,7 +106,7 @@ The second section is completely opposite to the first section. In the second se
 
 Development is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say ‘something transcendent’ means to show yourself [for] what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. 
 
-Whatever you may be [doing] – zazen, gassho, walking, [or] eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, after you are what you are. This is something transcendental. That is development of your life. 
+Whatever you may be [doing] – [zazen](glossary#zazen), gassho, walking, [or] eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, after you are what you are. This is something transcendental. That is development of your life. 
 
 This development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [*shikan*](glossary#shikan).
 
@@ -180,7 +180,7 @@ So, you are not you, but [a] good idea comes from no-you.
 
 That is very important. “This way will do, not this way will do too”: everything is communicated with individual life. On the other hand, completely you should let it go, and then learn something. Otherwise, you cannot learn something important, which is called [the] development of human life, if you just follow your life one way. “I am learning,” or “I am teaching,” or “I am talking” – always it’s one way. At that time, it’s very difficult to know something transcendent. 
 
-Of course you should talk: *you* talk, *you* sit, *you* chant, *you* walk. But, next moment, you should be free from [yourself], you should let go of yourself. Zazen, gassho – let it go. That means you should learn something from the state of letting go. That means, *[shikan](glossary#shikan)* - just do it. 
+Of course you should talk: *you* talk, *you* sit, *you* chant, *you* walk. But, next moment, you should be free from [yourself], you should let go of yourself. [Zazen](glossary#zazen), gassho – let it go. That means you should learn something from the state of letting go. That means, *[shikan](glossary#shikan)* - just do it. 
 
 But before ‘just do’, consciousness [is] always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” – Next moment... “Are you sure?” *[rueful laughter]* But next moment, “Why don’t you stop talking?” “But I cannot escape. Something compels me to talk.” “Do you like it?” “No, I don’t like it.” “If you don’t like it, why don’t you stop it?” “But I cannot stop it.” All this, consciousness digs [in] the ground, makes a hole, and believes “this is my den,” “this is my hole,” always.
 

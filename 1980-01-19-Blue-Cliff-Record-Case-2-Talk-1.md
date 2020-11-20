@@ -110,9 +110,9 @@ What should you do? Jump into it. Throw yourself into [Buddha](glossary#buddha)�
 
 Particularly when you do [zazen](glossary#zazen), this is [the] very fundamental path for us. That’s why we have to throw [ourselves] into zazen itself. If you always create some [delusion](glossary#delusion) or fascination within your mind, it is not perfect zazen. 
 
-I always tell you, [zazen](glossary#zazen) must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
+I always tell you, zazen must be pure zazen. You have to get 100 points. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No 99 points. 
 
-We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into [zazen](glossary#zazen), at that time, [what] is called zazen blooms. That is what is called [Buddha](glossary#buddha), Buddha’s home. 
+We don’t believe it, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, [what] is called zazen blooms. That is what is called [Buddha](glossary#buddha), Buddha’s home. 
 
 ##### 29:22
 
@@ -120,7 +120,7 @@ But if you believe [zazen](glossary#zazen) [is] like this, well, you believe zaz
 
 At that time, your daily life becomes [vehicle](glossary#dharma-vehicle). What you call the task, is "the task of the fundamental vehicle of transcendence". 
 
-Transcendence means completely there is no need of your effort; something comes from [Buddha](glossary#buddha)’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect [zazen](glossary#zazen), [then] perfect zazen takes care of you – even though you don’t want [it]. 
+Transcendence means completely there is no need of your effort; something comes from [Buddha](glossary#buddha)’s world. Something takes care of you – if you do it. And if you create your circumstances which [are] called perfect zazen, [then] perfect zazen takes care of you – even though you don’t want [it]. 
 
 ##### 30:34
 
@@ -128,7 +128,7 @@ If you always see the [zazen](glossary#zazen) from your viewpoint, always there 
 
 But even though you don’t know, or you don’t know how much your life or your personality develops or not, well, get someone with open eyes, that knows pretty much how well you have been developing. 
 
-At that time, there is no need for your particular, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into [zazen](glossary#zazen). At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
+At that time, there is no need for your particular, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into zazen. At that time, something helps you. That something is complete transcendence. Nothing to say. Nothing to do.
 
 That’s why that is the task of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right there, right on this vehicle, 100 points. That is really vast; nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
 
@@ -204,7 +204,7 @@ So immediately, [Gempo Roshi](glossary#gempo-yamamoto) screamed, “*Stupid*!”
 
 ... “because my practice is evaluated in [a] great way, so you should be patient, please take care of me.”
 
-Well, if you have a family, “I want to go to [zazen](glossary#zazen), so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s really true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) crashed that idea: “Stupid! Your practice is just for you.” 
+Well, if you have a family, “I want to go to zazen, so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really [a] cause of fighting. It’s really true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) crashed that idea: “Stupid! Your practice is just for you.” 
 
 I don’t think practice is just for you – but don’t touch it, okay? Don’t get one "setting" for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 

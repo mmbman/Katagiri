@@ -14,7 +14,7 @@
 
 [The] last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says, "For you must know that just there, in [Zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." [*he repeats the quote*] 
 
-This is a sort of conclusion of [the] main subject in [Fukanzazengi](glossary#fukanzazengi) . It means that, if you do [zazen](glossary#zazen), in zazen, "right [dharma](glossary#dharma) is manifesting itself" means original nature of the self is manifested, very naturally. And also that "from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside": from the first, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It's pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
+This is a sort of conclusion of [the] main subject in [Fukanzazengi](glossary#fukanzazengi) . It means that, if you do zazen, in zazen, "right [dharma](glossary#dharma) is manifesting itself" means original nature of the self is manifested, very naturally. And also that "from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside": from the first, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It's pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
 
 When you yourself manifest, if you manifest yourself as you really are, at that time, very naturally from the first, [dullness](glossary#dullness) and confusion and [distraction](glossary#distraction) are struck aside. Because you are manifesting yourself as you really are from moment to moment; in other words, you can stand up straight, right now, right here, but that means you can manifest yourself. So if you can stand up straight, right now, right here, that means you can't be stumbling over distractions; from the first, [they] are struck aside.
 
@@ -44,11 +44,11 @@ That is \[what] [Dogen Zenji](glossary#dogen) says. So first, if you do [zazen](
 
 But actually we don't do [zazen](glossary#zazen) like this. Zazen is used as a means. At that time, you accept yourself as [an] immature person. And then, through zazen, you will want to reach a certain higher level, which is called mature level of human life. Seeing you in the future – at that time, the present life is not mature; immature, or unhappiness. That's why you want to practice zazen. So at that time, zazen is completely means to an end.
 
-So that means you already accept your life which is not sublime. Your life is unhappy. Your life is not sublime. So, lack of sublimity there. If you do [zazen](glossary#zazen) like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. But no matter how long you do zazen like this, it's very difficult to realize your peaceful, harmonious life.
+So that means you already accept your life which is not sublime. Your life is unhappy. Your life is not sublime. So, lack of sublimity there. If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. But no matter how long you do zazen like this, it's very difficult to realize your peaceful, harmonious life.
 
-Because at that time [zazen](glossary#zazen) is a means. "Means" means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. So just *do zazen*. "Do zazen" means you are present from moment to moment with the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized. That's why zazen is a little bit something far from you. So that is [dualistic](glossary#dualistic) world. The important point is, you must accept zazen as really total activity, which is vivid, alive from moment to moment. 
+Because at that time zazen is a means. "Means" means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. So just *do zazen*. "Do zazen" means you are present from moment to moment with the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized. That's why zazen is a little bit something far from you. So that is [dualistic](glossary#dualistic) world. The important point is, you must accept zazen as really total activity, which is vivid, alive from moment to moment. 
 
-And that is, at that time – well, even though you don't understand what [zazen](glossary#zazen) is, accept zazen. Which means, do zazen. Even though you don't understand how sublime your life is, anyway, [bow](glossary#bowing) to the [Buddha](glossary#buddha) . If you bow to the Buddha, selfish understanding from the first is struck aside. That is [shikantaza](glossary#shikantaza) – very naturally.
+And that is, at that time – well, even though you don't understand what zazen is, accept zazen. Which means, do zazen. Even though you don't understand how sublime your life is, anyway, [bow](glossary#bowing) to the [Buddha](glossary#buddha) . If you bow to the Buddha, selfish understanding from the first is struck aside. That is [shikantaza](glossary#shikantaza) – very naturally.
 
 ##### 17:16
 
@@ -98,7 +98,7 @@ When I became a monk and went to a monastery, at that time, monastic life was co
 
 On the other hand, there is completely opposite aspect of life I learned from all these monks. I didn't want to ask them, "Why do you do it that way? What is the meaning; why are you monks? In the monastery you want to be lazy? You want to learn laziness? Well of course, it's okay, but what is the purpose, why? Why are you here?" I didn't understand. I didn't care. 
 
-On the other hand, same applied to me. "Why are you practicing hard, in [zazen](glossary#zazen) ?" I don't know.
+On the other hand, same applied to me. "Why are you practicing hard, in zazen ?" I don't know.
 
 ##### 32:35
 
@@ -188,7 +188,7 @@ So, there is [zazen](glossary#zazen). Zazen and you: if you see [them] separatel
 
 At that time, the practice of [egolessness](glossary#egolessness) is to throw away yourself into [zazen](glossary#zazen), perfectly in the flow of zazen. Offer your body and mind to zazen, completely. At that time, there is [no-self](glossary#no-self). No self.
 
-But if you completely offer yourself to [zazen](glossary#zazen), that zazen helps you, simultaneously. 
+But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
 
 ##### 54:42
 
@@ -242,7 +242,7 @@ And release. If you release, [there] is nothing but being, which is helping all 
 
 So, that is the conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi) . That's why [Dogen Zenji](glossary#dogen) said, if you do [zazen](glossary#zazen) according to [what] Dogen mentions, very naturally, the [dharma](glossary#dharma) is manifesting itself, and from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. Very naturally. That is [the] meaning of zazen. We do always.
 
-By the [zazen](glossary#zazen), if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself [are] also a person far from real person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not [the] practice for us.
+By the zazen, if you believe "I should be happy," or "I want to do something," this is not real practice. You never find peace and harmony. Because, if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not happy person; so you yourself [are] also a person far from real person, opposed to happiness or unhappiness. That's why it's pretty difficult to deal with you, and also it's very difficult to deal with zazen, and whatever you do. So, that is not [the] practice for us.
 
 ##### 1:07:20 end of recording
 

@@ -14,7 +14,7 @@
 
 [I want to] say something more, a little bit, about [the] same subject as I told yesterday. The subject was, "You must know that first, there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject, from [a] different angle today, because this is very important characteristic of [the] zazen we do, which is called [shikantaza](glossary#shikantaza).
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do [zazen](glossary#zazen) even for a moment, you become [Buddha](glossary#buddha). This [was the] first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
+Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This [was the] first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but, I was moved very much [by] this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[mild laughter]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
 
 ##### 2:33
 
@@ -76,7 +76,7 @@ So, by the practice of [zazen](glossary#zazen), it's possible to weed out even t
 
 So, [arhats](glossary#arhat) and many saints in the history of [Buddhism](glossary#buddhism), they showed us, they experienced [it]. That's why one of the four results of Buddhist practice, [what the] arhat does, is [the] highest spirit of spiritual life, which enables you never to come back to human being, samsaric world. This is arhat practice. 
 
-This is also [zazen](glossary#zazen). You can do.
+This is also zazen. You can do.
 
 ##### 22:52
 
@@ -266,7 +266,7 @@ Our aim is not [to] focus on goal. Goal is goal; we know goal. Goal is just imag
 
 **Same person**: Well isn't that a goal? 
 
-**Katagiri**: It's [a] goal, and also [a] practice. Goal and practice, simultaneously. Be present, just be present. But just be present – [there are] many kinds of ways of being just present. Because everybody has a different idea. Sleeping all day, this is also be just present, don't you think so? Doing [zazen](glossary#zazen) every day, all day, this is also just be present. Old men fighting with each other all day, this is also just be present. Don't you think so?
+**Katagiri**: It's [a] goal, and also [a] practice. Goal and practice, simultaneously. Be present, just be present. But just be present – [there are] many kinds of ways of being just present. Because everybody has a different idea. Sleeping all day, this is also be just present, don't you think so? Doing zazen every day, all day, this is also just be present. Old men fighting with each other all day, this is also just be present. Don't you think so?
 
 **Same person**: No.
 
@@ -312,7 +312,7 @@ When the [Buddha](glossary#buddha) appears, it's quiet. Nothing. You cannot see 
 
 That's why we cannot get such a huge goal: because it's too big. *[he chuckles]* But, we *are* such a huge goal. So, how can I say [it]? Let's [say?] that ... a huge goal blooms with your life. How? Making arrangement of environment. 
 
-So finally, [the] third type of [zazen](glossary#zazen) doesn't have a goal. We can say so. But it doesn't mean no goal. There is a goal, but that goal is broad, huge. But [in the] second type of [zazen](glossary#zazen), goal is limited by individual views and thoughts. So, according to his life, of course, his task, his business, is [to] succeed. But I don't know whether it is good for others. So finally, he doesn't know what to do next. 
+So finally, [the] third type of zazen doesn't have a goal. We can say so. But it doesn't mean no goal. There is a goal, but that goal is broad, huge. But [in the] second type of zazen, goal is limited by individual views and thoughts. So, according to his life, of course, his task, his business, is [to] succeed. But I don't know whether it is good for others. So finally, he doesn't know what to do next. 
  
 *[quietly]* Are there any [more] questions?
 

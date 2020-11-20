@@ -13,7 +13,7 @@ This is an index to where references to [Dogen](glossary#dogen)’s works appear
 ---
 ## Fukanzazengi
 
-Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing [zazen](glossary#zazen) in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
+Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
 - [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1#0)
 - [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2#0)

@@ -151,7 +151,7 @@ So that is the “I don’t know” that Bodhidharma said.
 
 ##### 28:34
 
-Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what zazen is, and I say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
+Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what [zazen](glossary#zazen) is, and I say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[he laughs]*
 
 If you say “I don’t know,” you cannot [have] any spirit to teach or to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” *that* “I don’t know” has a really great spirit to teach somebody. So, still people feel that point. 
 
@@ -197,7 +197,7 @@ For instance, playing piano, I tell you always, you cannot play the piano with j
 
 So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the [tuner?]. To touch the piano is to touch all sentient beings! And then at that time, this is called to touch the keys. That is the [five skandhas?]. So your presence is not only your presence but simultaneously [the] presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
 
-So, [when] you do zazen, that’s why zazen is [not just] for deepening your [own] life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
+So, [when] you do [zazen](glossary#zazen), that’s why zazen is [not just] for deepening your [own] life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
 
 ##### 38:10
 
@@ -229,7 +229,7 @@ The outsider – in other words, this means a Brahman – asked the Buddha, “I
 
 *[tape change]*
 
-... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, [but] as a whole. And if you do continue to take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
+... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really [a] seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, [but] as a whole. And if you do continue to take care of your life just like [zazen](glossary#zazen), you really teach to somebody, even though you don’t say anything. 
 
 So, this Brahman really wanted to know what life’s seamless monument is. 
 
@@ -249,7 +249,7 @@ Because silence *is* human life, the truth of human life: if you believe in that
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
-If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing [anything]? No, it doesn’t mean that. Because we have already [time and place?], so-called karmic “monkey mind”. So you have to take care of accepting this, and then *positively* we have to take care of [it]. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] big world, absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
+If I sit down and really do [zazen](glossary#zazen), then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing [anything]? No, it doesn’t mean that. Because we have already [time and place?], so-called karmic “monkey mind”. So you have to take care of accepting this, and then *positively* we have to take care of [it]. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] big world, absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
 
 That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
 
@@ -257,7 +257,7 @@ That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
 
 That is teaching coming from your back. This is teaching coming from a powerless power, [that] you can get from your practice. Behind the power, behind the effort, there is great power. Effort is not something you can create; [there is] power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond [the] name of concentration, name of practicer, name of emptiness – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
 
-So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called zazen. You have to really work. 
+So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called [zazen](glossary#zazen). You have to really work. 
 
 ##### 51:55
 
@@ -269,7 +269,7 @@ That’s why it is important to see the hair; it’s very important. The human h
 
 But right in the middle of silence you have to say something, because this is a human life. 
 
-For instance, right in the middle of suffering or pain in zazen – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means [that] you have to die with the pain? No; you have to be alive! 
+For instance, right in the middle of suffering or pain in [zazen](glossary#zazen) – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means [that] you have to die with the pain? No; you have to be alive! 
 
 So silence in pain is really aliveness, dynamically, in pain.
 
@@ -323,7 +323,7 @@ That gold is not something a person refined; it is just like a rough-hewn staff,
 
 This is the meaning of eternal time.
 
-When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
+When you do [zazen](glossary#zazen), there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
 
 According to [the] time process, we don’t understand [it that way]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life – because that moment is really [the] wonderful community ferryboat, a great gift. You don’t believe in that way, but it is [the] most important attitude we should take forward.
 

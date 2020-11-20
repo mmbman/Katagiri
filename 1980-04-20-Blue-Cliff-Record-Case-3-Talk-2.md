@@ -42,7 +42,7 @@ But if you practice Zen, which is a little bit different from others’ practice
 
 ##### 9:04
 
-Anyway, you have lots of questions. “How long should I practice like this?” Or, “Will it be possible for us to attain enlightenment and nirvana? How long [do] we practice zazen itself?” Through [the] practice you are doing day after day, you don’t know when [that will happen].
+Anyway, you have lots of questions. “How long should I practice like this?” Or, “Will it be possible for us to attain enlightenment and nirvana? How long [do] we practice [zazen](glossary#zazen) itself?” Through [the] practice you are doing day after day, you don’t know when [that will happen].
 
 And also, if you look at the human world, the human world is constantly going. There are lots of people who are starving, and there are lots of people who are fighting, and there is a question, you really have a big doubt: what are you *doing* in this practice? 
 
@@ -88,7 +88,7 @@ The same applies to your practice. That is compassion, this is really Buddha’s
 
 That’s why Engo’s note says, “This fellow has broken down quite a bit. He’s dragging in other people.”
 
-Lots of questions. If you practice zazen and enlightenment, then immediately you can save all sentient beings – wonderful, no problem. It’s not necessary to become sick. This is really true. Why did [Vimalakirti](glossary#vimalakirti) become sick? Even though you obtain enlightenment, even though you try to practice deeply again and again, you become sick, because, I told you before, if you look at human beings around your life ... immediately you suffer. “Why do you do this? Is this useful for human beings? [That’s] ridiculous.” You get really sick. 
+Lots of questions. If you practice [zazen](glossary#zazen) and enlightenment, then immediately you can save all sentient beings – wonderful, no problem. It’s not necessary to become sick. This is really true. Why did [Vimalakirti](glossary#vimalakirti) become sick? Even though you obtain enlightenment, even though you try to practice deeply again and again, you become sick, because, I told you before, if you look at human beings around your life ... immediately you suffer. “Why do you do this? Is this useful for human beings? [That’s] ridiculous.” You get really sick. 
 
 And also, to die: when the time comes, whoever you are, you have to die. Regardless of whether you attain enlightenment or not, there are ignorant people there who don’t understand you absolutely. This is [a] really big problem, dragging in all human beings. Why? You have to practice.
 
@@ -106,7 +106,7 @@ You see just one disease: “Why is practice [like] this?” But this is not [ju
 
 The moment when this superintendent first asks him, “How have you been?” – this is already [a] disease, the question. For Baso Zen Master, when the time comes to die, just to die. No way; so, he doesn’t care. 
 
-The same applies to your practice: when you have to do zazen, just sit down to do zazen. When someone comes [and asks], “What are you doing? Are you happy to do this?” This question is really ignorant, don’t you think so? [It] is. It makes you sick.
+The same applies to your practice: when you have to do [zazen](glossary#zazen), just sit down to do zazen. When someone comes [and asks], “What are you doing? Are you happy to do this?” This question is really ignorant, don’t you think so? [It] is. It makes you sick.
  
 But, no way. When you have to sit, just sit. If you don’t like it: get up, go out; you can do [that]. But even though you can go out, or you can come in, come back, or you can go out, again and again – there is no basic solution [for a] human being. The basic solution [for a] human being is very simple: when the time comes to sit, just sit down. When the time comes to live: to live under all circumstances. This is the basic solution.
 
@@ -114,7 +114,7 @@ But, no way. When you have to sit, just sit. If you don’t like it: get up, go 
 
 “Four hundred and four diseases break out all at once. They will be lucky if they are not seeing off a dead monk in three days.”
 
-... Partly, you are a lucky person if you don’t crash during zazen. And then, if you have a question how ridiculous it is – you can’t stand up in such zazen, don’t you think so? It’s completely crashed. So it’s pretty easy to get out; that is really a dead monk. You perform a service for the dead monk. *[he laughs]* If still you can sit down there, you’re lucky, you are a lucky person. That’s why Engo says, “They will be lucky if they’re not seeing off a dead monk in three days.” Not three days; the number is dangerous, the number doesn’t matter. *Right now*; this is the question. Right now.
+... Partly, you are a lucky person if you don’t crash during [zazen](glossary#zazen). And then, if you have a question how ridiculous it is – you can’t stand up in such zazen, don’t you think so? It’s completely crashed. So it’s pretty easy to get out; that is really a dead monk. You perform a service for the dead monk. *[he laughs]* If still you can sit down there, you’re lucky, you are a lucky person. That’s why Engo says, “They will be lucky if they’re not seeing off a dead monk in three days.” Not three days; the number is dangerous, the number doesn’t matter. *Right now*; this is the question. Right now.
 
 ##### 26:35
 
@@ -397,7 +397,7 @@ So he said, “If you take this marijuana, you can go to see a wonderful high, [
 
 ##### 1:15:05
 
-**Question**: But Roshi – you say the same thing to us about zazen.
+**Question**: But Roshi – you say the same thing to us about [zazen](glossary#zazen).
 
 *[raucous laughter]*
 

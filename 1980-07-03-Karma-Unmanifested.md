@@ -36,7 +36,7 @@ From this point, [karma](glossary#karma) is exactly within us. And simultaneousl
 
 [Karma](glossary#karma) is really source of individual life. But that is not the inside, that is not outside. How can I know? This is the whole body, pretty much? That's why it's really connected with consciousness, according to twelvefold causation. It's really connected with consciousness, name and form [etc.] ... last, existence. That means, karma is directly, closely related to human body, human world. Strictly speaking, karma is basis of human life, but we don't know how to know, so that is really human body. 
 
-Through this human body and mind, we have to know what [karma](glossary#karma) is, what is the basis of human existence. That is really, no other better way. No other way; just to meditate, do [zazen](glossary#zazen), and then you can understand this. 
+Through this human body and mind, we have to know what [karma](glossary#karma) is, what is the basis of human existence. That is really, no other better way. No other way; just to meditate, do zazen, and then you can understand this. 
 
 ##### 15:00
 

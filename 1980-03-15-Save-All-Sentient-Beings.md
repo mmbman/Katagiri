@@ -136,7 +136,7 @@ The original nature of action *is* impermanence. Impermanence means “not perpe
 
 If you want to get something existent *always*, without change, that is called impermanence – not something perpetual. But at that time, this idea is not impermanent. If you believe, [as] Buddhism says, truth is the reality which everything is impermanent – if you say [that], immediately we get some idea [of] what “everything is impermanent” is true, which exists always, in all the times. But this “always, in all the times,” is not perpetual, is not something [permanent]. It is a certain state of being at any time, in whatever situation you may be: my situation, your situation. 
 
-For instance, if I see this zendo, this is *my* situation. If [I] see zazen, this is *my* situation. At any time, anywhere, if you see zazen, this is ‘all beings’, which is always there. But this zazen is always not perpetual, always changing. 
+For instance, if I see this zendo, this is *my* situation. If [I] see [zazen](glossary#zazen), this is *my* situation. At any time, anywhere, if you see zazen, this is ‘all beings’, which is always there. But this zazen is always not perpetual, always changing. 
 
 But zazen which is not perpetual is something real which exists, you believe. But this is – what? Something which exists always or in any time, in all the time, means, a state of being which you can experience in any time, wherever you may be. In your time, in your situation. So if I see zazen today, I feel good. This is my dharma, all dharmas, which is called zazen. Next day, [or] next moment, if I see zazen ... I don't feel good. But for zazen, this is also dharmas.
 
@@ -186,7 +186,7 @@ That is the second point of ‘all dharmas’. You should experience all dharmas
 
 ##### 48:29
 
-The same applies to zazen. Learn zazen: what is zazen? Well, philosophically, psychologically, you can learn [this]. But it's not good enough! So just jump in, jump [into] zazen. So finally, zazen teaches you, zazen takes care of you. 
+The same applies to [zazen](glossary#zazen). Learn zazen: what is zazen? Well, philosophically, psychologically, you can learn [this]. But it's not good enough! So just jump in, jump [into] zazen. So finally, zazen teaches you, zazen takes care of you. 
 
 Then you get, "Oh, zazen is pretty good!" Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don't know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. Samskara is impermanence, constantly working. That's why this is the conflict (confluence?) of all dharmas in Buddhism. 
 
@@ -196,7 +196,7 @@ Then you get, "Oh, zazen is pretty good!" Sometimes zazen is not good, but ... i
 
 So, all dharmas must be something, which becomes an individual experience. And then next, we should touch the depths of existence, which is called samskara. That means practically, jump into it. And then very naturally, you can learn something more than your effort. This is samskara, ‘together maker’, or original nature of action. 
 
-Whatever you do, this is a very important way of life. Not only in zazen; without this, you cannot learn anything.
+Whatever you do, this is a very important way of life. Not only in [zazen](glossary#zazen); without this, you cannot learn anything.
 
 Do you have some questions?
 
