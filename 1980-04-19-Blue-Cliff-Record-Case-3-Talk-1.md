@@ -110,7 +110,7 @@ Whatever you may be [doing] – [zazen](glossary#zazen), gassho, walking, [or] e
 
 This development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [*shikan*](glossary#shikan).
 
-Regardless of whether you are conscious of the truth or not, Buddhas and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to say [it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
+Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#buddha) and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to say [it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
 
 ##### 27:19
 
@@ -218,7 +218,7 @@ So, that is “diffuse”.
 
 ##### 52:11
 
-Next, “This way will not do, not this way will not do either.” Completely opposite. So, you cannot doubt this way or not this way. That means ... emptiness, or truth, or Buddhas, delusions, [or] whatever you say, all are something connected with your individual life; otherwise, you cannot exist in this world. So, you should appreciate [them]. [However] you judge your life, whatever you say – without this, you cannot exist. So, appreciate [it]. That means, *do*, this way, or not this way. Thinking carefully, with your best – make a choice.
+Next, “This way will not do, not this way will not do either.” Completely opposite. So, you cannot doubt this way or not this way. That means ... emptiness, or truth, or [Buddhas](glossary#buddha), delusions, [or] whatever you say, all are something connected with your individual life; otherwise, you cannot exist in this world. So, you should appreciate [them]. [However] you judge your life, whatever you say – without this, you cannot exist. So, appreciate [it]. That means, *do*, this way, or not this way. Thinking carefully, with your best – make a choice.
 
 That means your life is really accepted in [an] affirmative way. That means: “Oh, pretty good!” So you really like your life very much. But on the other hand, Setchō Zen Master says: “No, no... Don’t adopt this way or not this way.” Completely negative. Because, Setchō Zen Master [says], your life is nothing but all beings, connected with your individual life. He says, if you believe “wonderful, wonderful,” so you really accept yourself pretty easily – that means you’re already making the hole, and poking your head [in], and believing this. That’s why some stay in [their] den. In order to let it go, [to] be free from [the] den you believe [in], Setchō Zen Master says don’t adopt this way or not this way. That means, be free from [them].
 
@@ -226,7 +226,7 @@ We have to experience something transcendent. Basically, all beings are free.
 
 ##### 54:45
 
-That’s why Setchō says, “This way will not do, not this way will not do either—this is too cut off.” Because [the] great function and original nature of trees, and birds, modern civilization, are completely something transcendental: even though Buddhas and patriarchs try to approach [them], [there is] no way to attach [to them], no way to touch [them] – because there are no particular fixed rules and principles we can set up, we can believe.
+That’s why Setchō says, “This way will not do, not this way will not do either—this is too cut off.” Because [the] great function and original nature of trees, and birds, modern civilization, are completely something transcendental: even though [Buddhas](glossary#buddha) and patriarchs try to approach [them], [there is] no way to attach [to them], no way to touch [them] – because there are no particular fixed rules and principles we can set up, we can believe.
 
 It is pretty easy for us to believe certain rules or laws. For instance, Buddhism says all beings are produced by interdependent co-origination; all beings come from this interdependent co-origination. And then at that time, interdependent co-origination becomes a principal: “The Law.” And then, we can believe it.
 
@@ -260,7 +260,7 @@ This is just a good example, but these [situations] are all the same, whatever y
 
 But actually, we are always going on a one-way trip, forgetting to come back. That’s why we try to understand everything intellectually, and then if you understand it, well you can believe [it], you can depend on something. But, we cannot do [it] always in that way.
 
-That’s why Setchō Zen Master says, “This way will not do, not this way will not do either – this is too cut off.” How can the Buddha and patriarchs understand the real meaning of interdependent co-origination? No way; no way to understand. All they have to do is just dive into the ocean; then, they can learn something. But temporarily, after we experience this we can make a word, which is called “interdependent co-origination”.
+That’s why Setchō Zen Master says, “This way will not do, not this way will not do either – this is too cut off.” How can the [Buddha](glossary#buddha) and patriarchs understand the real meaning of interdependent co-origination? No way; no way to understand. All they have to do is just dive into the ocean; then, they can learn something. But temporarily, after we experience this we can make a word, which is called “interdependent co-origination”.
 
 [This is true] even [for] the Buddha: because that interdependent co-origination is really something without discipline or rules. That’s why this is too cut off: no communication. But, we can *be*. 
 
@@ -314,7 +314,7 @@ This is the final goal we have to reach. Zen Master Baso is treating his death l
 
 ##### 1:15:00
 
-One Zen Master [speaks] to the disciple; the disciple asks, “Please leave a good message for us, for our education, for our practice [as] monks.” So he says to the priest, “Before you die, please say something for us.” [The priest] says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a Buddha’s teaching, completely beyond human speculation. But he says, “I don’t want to die.” 
+One Zen Master [speaks] to the disciple; the disciple asks, “Please leave a good message for us, for our education, for our practice [as] monks.” So he says to the priest, “Before you die, please say something for us.” [The priest] says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a [Buddha](glossary#buddha)’s teaching, completely beyond human speculation. But he says, “I don’t want to die.” 
 
 This “I don’t want to die” doesn’t mean “I don’t want to die.” Without using these two ways, “I want to die” or “I don’t want to die,” completely beyond, what would be right? This is his death. Finally, [the] question is left – what would be the right way?
 
