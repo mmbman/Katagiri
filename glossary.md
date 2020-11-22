@@ -416,7 +416,9 @@ The Four Dharma Seals are:
 It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
 - [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
+
 External links:
+
 - [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
 ---
