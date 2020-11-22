@@ -27,8 +27,8 @@ all brackets 2				|	`\[[^\]\n]*\]`					|
 ## BBEdit Clippings
 
 ---------------- | ----------------- | -------------------
-Glossary Link With Selection	|	[#SELECT#](glossary##SELECT#)#INSERTION#
-Markdown Link Insert	|	[#SELECT#](#CLIPBOARD#)#INSERTION#
+Glossary Link With Selection	|	`[#SELECT#](glossary##SELECT#)#INSERTION#`
+Markdown Link Insert	|	`[#SELECT#](#CLIPBOARD#)#INSERTION#`
 
 [Home](index#technical)
 
