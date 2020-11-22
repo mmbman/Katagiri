@@ -20,9 +20,9 @@ Chapter 7:
 
 In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? The second question is, what are the dharmas taught or preached by Buddha, [Tathāgata](glossary#tathāgata)?
 
-Buddha asked [Subhuti](glossary#subhuti): "Is there any dharma which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
+Buddha asked [Subhuti](glossary#subhuti): "Is there any dharma which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect enlightenment'?" So, what does the Buddha experience? What does he know about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
-In Japanese, [enlightenment](glossary#enlightenment) is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
+In Japanese, enlightenment is described by three different characters. One is kaku - awareness. [The] second is satori - you are very familiar with this term, satori. Third is sho - that is usually translated as "realization". So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. [The] original nature of existence is, truth. 
 
 ##### 5:25
 
@@ -50,9 +50,9 @@ That is [the] third one, which is called "sho", translated usually [as] realizat
 
 By this "sho", [enlightenment](glossary#enlightenment), your life is supported, helped, constantly, regardless of whether you like or dislike [it]. That is the total picture of existence you have. This is enlightenment. 
 
-That's why [Buddha](glossary#buddha) says, "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect [enlightenment](glossary#enlightenment)'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
+That's why [Buddha](glossary#buddha) says, "Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as 'the utmost, right and perfect enlightenment'?" This is really point[ing] out to the third enlightenment, which is called sho: perfect, right, supreme enlightenment. But you cannot... If you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But you can be with it, always, constantly. 
 
-That is [enlightenment](glossary#enlightenment), real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
+That is enlightenment, real enlightenment. That's why, if you are called Buddha, that Buddha experiences enlightenment which he has known perfectly, as perfect, right, supreme enlightenment. [Subhuti](glossary#subhuti) says, "No." 
 
 ##### 16:04
 
@@ -60,7 +60,7 @@ So let's see about this utmost, right, perfect [enlightenment](glossary#enlighte
 
 According to the commentary by [Conze](glossary#edward-conze), he says: 
 
-> "Mahayanists are fond of saying that [Buddha](glossary#buddha)'s [enlightenment](glossary#enlightenment) is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn't be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in "The Version in 8,000 Lines" may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, of (2) their [emptiness](glossary#śūnyatā), and (3) of their Suchness." (Katagiri phrases this last part as "the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.")
+> "Mahayanists are fond of saying that [Buddha](glossary#buddha)'s enlightenment is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn't be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in "The Version in 8,000 Lines" may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, of (2) their [emptiness](glossary#śūnyatā), and (3) of their Suchness." (Katagiri phrases this last part as "the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.")
 
 So let's understand, let's think, one by one.
 
@@ -206,7 +206,7 @@ Do you have any questions?
  
 **Same person**: Of truth. 
 
-**Katagiri**: [Karma](glossary#karma). Enlightenment. The ultimate, utmost, right perfect [enlightenment](glossary#enlightenment). Okay?
+**Katagiri**: [Karma](glossary#karma). [Enlightenment](glossary#enlightenment). The ultimate, utmost, right perfect enlightenment. Okay?
 
 ##### 1:06:45
 

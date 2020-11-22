@@ -94,7 +94,7 @@ But in Chapter 7 the sutra discriminates between material gifts and dharma gifts
 
 That means the dharma gifts are the direct cause of leading people to reach spiritual welfare and stature – so-called [enlightenment](glossary#enlightenment), or dharma body. So in terms of givers and gifts themselves, there [is] no discrimination between the material gifts and dharma gifts, but in terms of the recipients, there is discrimination between the two. 
 
-The dharma gifts are, I told you, direct cause of leading people to reach spiritual welfare and stature, so-called [enlightenment](glossary#enlightenment) or dharma body. 
+The dharma gifts are, I told you, direct cause of leading people to reach spiritual welfare and stature, so-called enlightenment or dharma body. 
 
 ##### 23:57
 
@@ -208,11 +208,11 @@ Okay. Do you have some questions?
 
 **Question**: Roshi? In one of D.T. Suzuki's books, he says that [enlightenment](glossary#enlightenment) is forgetfulness. Is that true?
 
-**Katagiri**: I think so. In other words, [enlightenment](glossary#enlightenment) is no-enlightenment, that is real enlightenment. 
+**Katagiri**: I think so. In other words, enlightenment is no-enlightenment, that is real enlightenment. 
 
-If you say [enlightenment](glossary#enlightenment), [what] you think is [the] individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is [the] real picture of the truth. That's why forgetfulness is what we're really like. [The] term is different, but [it is] the same. 
+If you say enlightenment, [what] you think is [the] individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is [the] real picture of the truth. That's why forgetfulness is what we're really like. [The] term is different, but [it is] the same. 
 
-So you must be free from [the] [enlightenment](glossary#enlightenment) that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay [with] the Ph.D. without working with people. You have to forget [the] degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[group laughter]* See the peoples' bodies, and anyway, examine. Day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is [the] final goal you have to do. If you want to be real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
+So you must be free from [the] enlightenment that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay [with] the Ph.D. without working with people. You have to forget [the] degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[group laughter]* See the peoples' bodies, and anyway, examine. Day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually; not only enlightenment, but also whatever you do: painter, or photographer, mountaineer, or dancer. Whatever you want to do, this is [the] final goal you have to do. If you want to be real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
 
 ##### 58:56 end of recording
 

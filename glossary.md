@@ -87,7 +87,7 @@ An attendant to a teacher. Similar to the ceremonial [jisha](glossary#jisha) pos
 ---
 ## Arhat
 
-([Sanskrit](glossary#sanskrit)) "A person who deserves respect from others," because they have reached the "final goal" of entering nirvana.
+([Sanskrit](glossary#sanskrit)) "A person who deserves respect from others," because they have reached the "final goal" of entering [nirvana](glossary#nirvana).
 
 - [Fukanzazengi – Talk 3 (19:15)](1979-06-11-Fukanzazengi-Talk-3#1915),
 [(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Talk-3#11800)

@@ -16,15 +16,15 @@
 
 ... in [Shobogenzo](dogen#shobogenzo) [Genjokoan](dogen#genjokoan). "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are [buddhas](glossary#buddha), there are sentient beings." And next he says, "When myriad dharmas are not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." Next he says, "Because the [Buddha Way](glossary#buddha-way) originally sprung forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas." 
 
-Three sentences here. First one ... according to my term, first sentence mentions "A" world. A world, B world, C world; the first sentence is A world. That is, as [Dogen Zenji](glossary#dogen) mentioned, "When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." So, put simply, in our common sense, the seen(?) world, that is "A" world; mundane world.
+Three sentences here. First one ... according to my term, first sentence mentions "A" world. A world, B world, C world; the first sentence is A world. That is, as [Dogen Zenji](glossary#dogen) mentioned, "When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings." So, put simply, in our common sense, the seen(?) world, that is "A" world; mundane world.
 
-Then, second, is "B" world. [Dogen](glossary#dogen) mentions, "When myriad dharmas are all not self, there is no delusion, no [enlightenment](glossary#enlightenment), no buddhas, no sentient beings, no birth, no death." B world is spiritual world, simply speaking. 
+Then, second, is "B" world. [Dogen](glossary#dogen) mentions, "When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death." B world is spiritual world, simply speaking. 
 
 So, there are two worlds we are always confronted with: "A" world, mundane world, and "B" world, spiritual world. In terms of spiritual world, B world, mundane world (A world) is something impure. So very naturally, in the spiritual world, (there is) no mundane world; so no birth, no death. According to Nagarjuna, this is called "entrance"(?), he said. 
 
 Is that clear? "A" world, "B" world. So very naturally, everyone  see two worlds in their lives: mundane world as "A", and spiritual world as "B", which is pure.
 
-So in the spiritual world, there are lots of terms: buddhas, and [enlightenment](glossary#enlightenment), and god, and godhead, and... well, we try to use a lot of terms to explain pure spiritual world, which is quite different from mundane world as "A". So very naturally, we are always see(ing) the two things separately. That makes you confused. Very confused. So always, we have to seek a play(?), see some game. This way, that way, this way, that way; always.
+So in the spiritual world, there are lots of terms: buddhas, and enlightenment, and god, and godhead, and... well, we try to use a lot of terms to explain pure spiritual world, which is quite different from mundane world as "A". So very naturally, we are always see(ing) the two things separately. That makes you confused. Very confused. So always, we have to seek a play(?), see some game. This way, that way, this way, that way; always.
 
 ##### 5:00
 

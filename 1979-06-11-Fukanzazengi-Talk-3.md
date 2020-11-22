@@ -64,7 +64,7 @@ That is one type of [zazen](glossary#zazen). If you do zazen like this, of cours
 
 But, when the circumstances are changed: well, you cannot accept your calmness and tranquility [that] you have experienced; [you] cannot maintain [it]. Immediately, it's gone. So you are confused, very much. I know several examples in the United States. 
 
-But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much, and you attain [enlightenment](glossary#enlightenment). But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
+But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, very much, and you attain enlightenment. But when you come to the United States – completely different situation, okay? Very different situation. And then, weeds come back. It's really so. 
 
 Well, I don't mean it is good or bad, right and wrong. We should know that is life. That is life, okay? These [are] human beings; we should know that.
 
@@ -284,7 +284,7 @@ It [sees?] the [Buddha Nature](glossary#buddha-nature) of the second one. But, i
 
 ##### 1:18:00
 
-**Question**: [Roshi](glossary#roshi), were you making a distinction between the [enlightenment](glossary#enlightenment) of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter nirvana, but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+**Question**: [Roshi](glossary#roshi), were you making a distinction between the [enlightenment](glossary#enlightenment) of the [arhat](glossary#arhat) versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn't the arhat attain enlightenment and can then enter [nirvana](glossary#nirvana), but does it for himself or herself, while the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it. Is there a distinction there? Sometimes in literature, you see a distinction, the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
 **Katagiri**: Uh, [Bodhisattva](glossary#bodhisattva) practice, yes... Because bodhisattva says, without re-entering nirvana, they really want to save we the peoples to enter nirvana. That means, his practice is really open, not only to him, but also to all sentient beings, and also the time. Not only his present time, but also his past life, and also his future life, and also his life after next, and after next.
 
@@ -292,7 +292,7 @@ Then what he has to do is ... he practices. Continually, he practices. But [he] 
 
 ##### 1:19:55
 
-That means, without entering nirvana, [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his [Buddha Nature](glossary#buddha-nature). That is [Tathāgata](glossary#tathāgata). The bodhisattva has double face – Bodhisattva and Buddha.
+That means, without entering [nirvana](glossary#nirvana), [the] [Bodhisattva](glossary#bodhisattva) just sews, arranging environment, and then just stands up there. But it ... immediately blooms his [Buddha Nature](glossary#buddha-nature). That is [Tathāgata](glossary#tathāgata). The bodhisattva has double face – Bodhisattva and Buddha.
 
 When the Buddha appears, it's quiet. Nothing. You cannot see it. But a Buddha is hidden behind the [Bodhisattva](glossary#bodhisattva); bodhisattva walks, as a human being. Bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water.
 
@@ -332,7 +332,7 @@ Well, I don't know, of course, but it seems like if a person practices so that h
 
 **Katagiri**: Not automatic, sometimes. *[he chuckles]* Not automatic. No.
 
-It's not [automatically?] open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of [zazen](glossary#zazen) practice; that is, you can do [it]. But not everybody, because everybody has different karmas. But, it is not the object of criticism given by us, because, if I look [at the [arhat](glossary#arhat)'s] life in this world, his life is happy, wonderful, because he entered nirvana. Wonderful. So, better than nothing. Wonderful. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
+It's not [automatically?] open to everybody. Only the person selected among the human beings can do this automatically. You can get into the third type of [zazen](glossary#zazen) practice; that is, you can do [it]. But not everybody, because everybody has different karmas. But, it is not the object of criticism given by us, because, if I look [at the [arhat](glossary#arhat)'s] life in this world, his life is happy, wonderful, because he entered [nirvana](glossary#nirvana). Wonderful. So, better than nothing. Wonderful. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And you can wait for death, peacefully: wonderful. It's very wonderful. 
 
 So [normally?] there is no chance to come back to the samsaric world. 
 
@@ -410,7 +410,7 @@ So, take one step. If you take one step ... it's many steps immediately. That's 
 
 **Question**: Can you say what an [arhat](glossary#arhat) is?
 
-**Katagiri**: Well, [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), and [tathāgatas](glossary#tathāgata), are all discrimination, aren't they?  Well, [they are] categories of Buddhist capabilities. So temporarily, we categorized the [buddhas](glossary#buddha)' capability, the quality of buddhas is categorized. *[unintelligible]* ... there is arhat, and bodhisattva, and well-gone, et cetera. Arhat means a person who deserves to see respect from others. To deserve, to command, respect from others, that is arhat, because he becomes arhat by reaching the final goal, entering nirvana. So everyone respects [that]; perfect.
+**Katagiri**: Well, [arhats](glossary#arhat), [bodhisattvas](glossary#bodhisattva), and [tathāgatas](glossary#tathāgata), are all discrimination, aren't they?  Well, [they are] categories of Buddhist capabilities. So temporarily, we categorized the [buddhas](glossary#buddha)' capability, the quality of buddhas is categorized. *[unintelligible]* ... there is arhat, and bodhisattva, and well-gone, et cetera. Arhat means a person who deserves to see respect from others. To deserve, to command, respect from others, that is arhat, because he becomes arhat by reaching the final goal, entering [nirvana](glossary#nirvana). So everyone respects [that]; perfect.
 
 ##### 1:37:39
 

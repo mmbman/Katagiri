@@ -116,7 +116,7 @@ But when Te Shan said “Teacher!”, already Kuei Shan knows his mind, because 
 
 ##### 23:28
 
-[The] ‘whisk’ means daily routine, human daily life. Without daily living, you cannot exist. Even enlightenment: how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way. So enlightenment is just like scenery you can see on the way [during] travel; I [tell] you [this] very often. It’s not something extra, something unusual, which makes you exciting; it is a pretty usual case. When you take a trip, very naturally you can attain enlightenment, you can see the scenery. 
+[The] ‘whisk’ means daily routine, human daily life. Without daily living, you cannot exist. Even [enlightenment](glossary#enlightenment): how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way. So enlightenment is just like scenery you can see on the way [during] travel; I [tell] you [this] very often. It’s not something extra, something unusual, which makes you exciting; it is a pretty usual case. When you take a trip, very naturally you can attain enlightenment, you can see the scenery. 
 
 That’s why [Kuei Shan](glossary#isan-reiyū) knows pretty well that for [Te Shan](glossary#tokusan-senkan), enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very a holy air. Kuei Shan knows [that] pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already [an] answer to Te Shan. 
 
@@ -136,13 +136,13 @@ The head monk said, “He left already.”
 
 And Kuei Shan said, “Maybe in the future he could build a grass hut on the summit of the mountain, and slander [Buddhas](glossary#buddha) and patriarchs.”
 
-That means, in a sense, Kuei Shan really respected his practice; but on the other hand, he didn’t accept his practice. Because still there are ‘dregs’ in the bottom of the bottle, which is called enlightenment. When you hang on to something even slightly, there are dregs. It makes your attitude very rude and ‘holy’, and sometimes very rough.
+That means, in a sense, Kuei Shan really respected his practice; but on the other hand, he didn’t accept his practice. Because still there are ‘dregs’ in the bottom of the bottle, which is called [enlightenment](glossary#enlightenment). When you hang on to something even slightly, there are dregs. It makes your attitude very rude and ‘holy’, and sometimes very rough.
 
 Finally, [Setchō](glossary#setchō-jūken) added to the comment in the last part of this case: “He adds frost to snow.” Whatever you say, finally, [there is] nothing to say; because Te Shan’s practice is pretty good, but still there is a haughty air. A haughty air for him is not something ‘wrong’ [or] bad, but he has to check himself constantly. 
 
 ##### 29:15
 
-What is [Buddha](glossary#buddha)’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ [which] Buddha has, which are called enlightenment, or your wonderful face, or your attitude; Buddha can’t be seen by [these] salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[he laughs]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, [the] destination is Buddha.
+What is [Buddha](glossary#buddha)’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ [which] Buddha has, which are called [enlightenment](glossary#enlightenment), or your wonderful face, or your attitude; Buddha can’t be seen by [these] salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[he laughs]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, [the] destination is Buddha.
 
 We don’t know what is a Buddha. Well, we know; we can explain, and Buddha is very clear from Buddhism. But, finally it’s not clear; [there is] nothing to touch. It’s alive. Anyway, regardless of whether you are conscious of it or not, we have to move toward that, and [our] daily living must be alive. This ‘be alive’ means that from moment to moment, wherever you are, beyond criticism, your life must be alive. 
 

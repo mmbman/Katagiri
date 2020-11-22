@@ -42,7 +42,7 @@ But if you practice Zen, which is a little bit different from others’ practice
 
 ##### 9:04
 
-Anyway, you have lots of questions. “How long should I practice like this?” Or, “Will it be possible for us to attain enlightenment and nirvana? How long [do] we practice [zazen](glossary#zazen) itself?” Through [the] practice you are doing day after day, you don’t know when [that will happen].
+Anyway, you have lots of questions. “How long should I practice like this?” Or, “Will it be possible for us to attain [enlightenment](glossary#enlightenment) and nirvana? How long [do] we practice [zazen](glossary#zazen) itself?” Through [the] practice you are doing day after day, you don’t know when [that will happen].
 
 And also, if you look at the human world, the human world is constantly going. There are lots of people who are starving, and there are lots of people who are fighting, and there is a question, you really have a big doubt: what are you *doing* in this practice? 
 
@@ -88,7 +88,7 @@ The same applies to your practice. That is compassion, this is really [Buddha](g
 
 That’s why Engo’s note says, “This fellow has broken down quite a bit. He’s dragging in other people.”
 
-Lots of questions. If you practice [zazen](glossary#zazen) and enlightenment, then immediately you can save all sentient beings – wonderful, no problem. It’s not necessary to become sick. This is really true. Why did [Vimalakirti](glossary#vimalakirti) become sick? Even though you obtain enlightenment, even though you try to practice deeply again and again, you become sick, because, I told you before, if you look at human beings around your life ... immediately you suffer. “Why do you do this? Is this useful for human beings? [That’s] ridiculous.” You get really sick. 
+Lots of questions. If you practice [zazen](glossary#zazen) and [enlightenment](glossary#enlightenment), then immediately you can save all sentient beings – wonderful, no problem. It’s not necessary to become sick. This is really true. Why did [Vimalakirti](glossary#vimalakirti) become sick? Even though you obtain enlightenment, even though you try to practice deeply again and again, you become sick, because, I told you before, if you look at human beings around your life ... immediately you suffer. “Why do you do this? Is this useful for human beings? [That’s] ridiculous.” You get really sick. 
 
 And also, to die: when the time comes, whoever you are, you have to die. Regardless of whether you attain enlightenment or not, there are ignorant people there who don’t understand you absolutely. This is [a] really big problem, dragging in all human beings. Why? You have to practice.
 
@@ -134,7 +134,7 @@ The note says:
 
 Sun Face Buddha, Moon Face Buddha is “how fresh and new,” because ... it’s pretty rare to hear “Sun Face Buddha, Moon Face Buddha.” There are lots of Buddhas, but he has never heard of “Sun Face Buddha” or “Moon Face Buddha”; that’s why Engo says, “how fresh and new!”
 
-But [it is] not necessarily [a] name. He said “Sun Face Buddha” or “Moon Face Buddha”; that means [whether] his life is long [or] his life it short, it doesn’t matter – just a Buddha. He can live long, or he has to die. If he has to die now, [does] his body disappear completely, no life anymore? Or can he still dwell in nirvana, eternity? Whatever you say, it doesn’t hit the mark. 
+But [it is] not necessarily [a] name. He said “Sun Face Buddha” or “Moon Face Buddha”; that means [whether] his life is long [or] his life it short, it doesn’t matter – just a Buddha. He can live long, or he has to die. If he has to die now, [does] his body disappear completely, no life anymore? Or can he still dwell in [nirvana](glossary#nirvana), eternity? Whatever you say, it doesn’t hit the mark. 
 
 If it is true, where can he live? That is Buddha.
 
@@ -185,9 +185,9 @@ The second verse says,
 
 > What kind of people were the Ancient Emperors?
 
-That means, what kind of people were the Ancient Emperors before Baso (Setchō?) Zen Master. And [Buddhas](glossary#buddha) and patriarchs, and all beings, and enlightenment and delusion, and life and death – what are [they]?
+That means, what kind of people were the Ancient Emperors before Baso (Setchō?) Zen Master. And [Buddhas](glossary#buddha) and patriarchs, and all beings, and [enlightenment](glossary#enlightenment) and delusion, and life and death – what are [they]?
 
-What are *you* for? Whatever you say – “paradise,” and “health,” and “enlightenment, nirvana,” whatever you say – for Baso who was about to die, what is useful?
+What are *you* for? Whatever you say – “paradise,” and “health,” and “enlightenment, [nirvana](glossary#nirvana),” whatever you say – for Baso who was about to die, what is useful?
 
 That is the meaning of this verse, “What kind of people were the Ancient Emperors?”
 
@@ -201,7 +201,7 @@ Engo says, “Too lofty.” That means, “Uh-oh, Setchō, you’re proud of you
 
 That means, Engo Zen Master says to Setchō, do not be proud of Baso Zen Master. It is not desirable to insult Baso Zen Master. 
 
-“What kind of people were the Ancient Emperors” means Setchō Zen Master understands immediately Baso’s feeling about his life and death. That’s why he said, whatever person, whatever they are, life and death, delusion and enlightenment, nirvana, paradise, the world after death – whatever you say – I don’t care. What [is] useful? All I have to do is to die, when the time comes. That is Setchō Zen Master’s feeling [or] understanding. That’s why Engo says, “too lofty.” But it’s not criticism. 
+“What kind of people were the Ancient Emperors” means Setchō Zen Master understands immediately Baso’s feeling about his life and death. That’s why he said, whatever person, whatever they are, life and death, delusion and [enlightenment](glossary#enlightenment), [nirvana](glossary#nirvana), paradise, the world after death – whatever you say – I don’t care. What [is] useful? All I have to do is to die, when the time comes. That is Setchō Zen Master’s feeling [or] understanding. That’s why Engo says, “too lofty.” But it’s not criticism. 
 
 ##### 35:41
 
@@ -215,7 +215,7 @@ Engo says,
 
 >> This is your own fall into the weeds – it’s none of my business. Here’s a mute eating a bitter melon.
 
-Engo Zen Master says, “This is your own fall into the weeds.” That means in the basic nature of the human world, there is no extra world: nirvana, enlightenment, paradise or not paradise, et cetera. Finally, the original nature of existence, all we have to do is be quiet, just do it. That’s all we have to do. 
+Engo Zen Master says, “This is your own fall into the weeds.” That means in the basic nature of the human world, there is no extra world: [nirvana](glossary#nirvana), [enlightenment](glossary#enlightenment), paradise or not paradise, et cetera. Finally, the original nature of existence, all we have to do is be quiet, just do it. That’s all we have to do. 
 
 But, [if] you practice for 20 years and experience the bitterness; that is your fault, you did [that]. Engo says, “That is none of my business; you did it.” Basically, the human world is no-suffering.
 
@@ -293,7 +293,7 @@ So finally what you have to do is, you should have clear eyes. Who dies?
 
 ##### 51:26
 
-Enlightenment, in the United States mostly – sometimes I feel in the United States, Buddhism is still staying in the realm of [Sāvakabuddha](glossary#sāvakabuddha). Do you know Sāvakabuddha? Sāvakabuddha means a [buddha](glossary#buddha) who attains enlightenment through listening to the Buddha’s teaching. 
+[Enlightenment](glossary#enlightenment), in the United States mostly – sometimes I feel in the United States, Buddhism is still staying in the realm of [Sāvakabuddha](glossary#sāvakabuddha). Do you know Sāvakabuddha? Sāvakabuddha means a [buddha](glossary#buddha) who attains enlightenment through listening to the Buddha’s teaching. 
 
 Lots of people are interested in listening to Buddha’s teaching, and [in] enlightenment. It’s not good enough, because it doesn’t work in your daily living. Of course you can attain enlightenment intellectually by listening to Buddha. But, why is it that a Bodhisattva has to practice a thousand years continually – *why*? Because it’s not simple to practice your enlightenment in daily living. It’s not so simple. 
 
@@ -315,7 +315,7 @@ After “clear eyed patch-robed monks shouldn’t take it lightly”, this is th
 
 *[crosstalk about ‘bah’ as an exclamation]*
 
-“You must be even more thoroughgoing.” That means, Setchō Zen Master says, you should have clear eyes. Whatever you experience – enlightenment, delusion, whatever – it doesn’t make sense, so finally you should have clear eyes in order to make it alive in your daily living. And then, Engo says, you must be even more thoroughgoing. Watch out! What is that? Nothing to say. “Bah!” Forget it. 
+“You must be even more thoroughgoing.” That means, Setchō Zen Master says, you should have clear eyes. Whatever you experience – [enlightenment](glossary#enlightenment), delusion, whatever – it doesn’t make sense, so finally you should have clear eyes in order to make it alive in your daily living. And then, Engo says, you must be even more thoroughgoing. Watch out! What is that? Nothing to say. “Bah!” Forget it. 
 
 All you have to do is: Sun Face Buddha, Moon Face Buddha. When the time comes to die, just to die. No extra excitement, no extra sadness or pleasure – nothing; just *there*. That is ‘Bah’. Do you understand?
 

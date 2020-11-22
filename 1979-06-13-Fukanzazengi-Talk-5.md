@@ -511,9 +511,9 @@ Well, how about, for instance, some of these [Rinzai](glossary#rinzai-zen ) teac
 
 **Katagiri**: Yes, beautiful. That's why [Rinzai](glossary#rinzai-zen ) emphasizes, "Why don't you attain [enlightenment](glossary#enlightenment)?" So, if the enlightenment is beautiful, it's okay. 
 
-**Same person**: But you're still saying that that's [dualistic](glossary#dualistic) [enlightenment](glossary#enlightenment), and so that's unnecessary. 
+**Same person**: But you're still saying that that's [dualistic](glossary#dualistic) enlightenment, and so that's unnecessary. 
 
-**Katagiri**: I think so. What is it, real [enlightenment](glossary#enlightenment)? Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is – well, nothing to say. Nothing to show. 
+**Katagiri**: I think so. What is it, real enlightenment? Real enlightenment is not before experience of enlightenment or after experience of enlightenment. Real enlightenment itself is – well, nothing to say. Nothing to show. 
 
 *[there is a pause of several seconds]*
 

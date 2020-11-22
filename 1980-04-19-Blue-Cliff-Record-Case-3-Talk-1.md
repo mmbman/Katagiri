@@ -64,7 +64,7 @@ Shakyamuni Buddha showed the flowers with his hand, and [Mahākāśyapa](glossar
 
 Well, there is no reason why, because it is always there; without this, we cannot do anything at all. So, it’s completely beyond “why”. Before you make a question why, *it’s there*. It completely transcends the human question “why”; what we shouldn’t do, what we should do. 
 
-That’s why the intent is that you will have a place to enter. Through these four – the device, object, word, phrase – we can communicate the universal life, and we can communicate human life to each other. Understanding, living in peace and harmony. It is ... to guide people to realize a place to enter nirvana: a peaceful life, a peaceful world; how to live, how to exist. 
+That’s why the intent is that you will have a place to enter. Through these four – the device, object, word, phrase – we can communicate the universal life, and we can communicate human life to each other. Understanding, living in peace and harmony. It is ... to guide people to realize a place to enter [nirvana](glossary#nirvana): a peaceful life, a peaceful world; how to live, how to exist. 
 
 ##### 13:44
 

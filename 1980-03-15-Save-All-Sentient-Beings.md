@@ -324,7 +324,7 @@ On the other hand, if you touch it... If you are completely involved too much, i
 
 **Question**: [Person], would you repeat that statement please?
 
-**Person**: The distinguishing mind is permanent, and enlightenment isn’t.
+**Person**: The distinguishing mind is permanent, and [enlightenment](glossary#enlightenment) isn’t.
  
 **Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that's why you want to practice. But that is individual understanding, when you see [dharma](glossary#dharma) [from an] individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That's why he said ‘opposite’. 
 
