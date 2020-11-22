@@ -24,5 +24,11 @@ all brackets					|	`\[(.*?)\](?=\(?)`				|
 all brackets 2				|	`\[[^\]\n]*\]`					|
 `(T|t)athagata(s?)`			|	`\b(T|t)athagata(s?)\b`	| `\1athāgata\2`
 
+## BBEdit Clippings
+
+---------------- | ----------------- | -------------------
+Glossary Link With Selection	|	[#SELECT#](glossary##SELECT#)#INSERTION#
+Markdown Link Insert	|	[#SELECT#](#CLIPBOARD#)#INSERTION#
+
 [Home](index#technical)
 

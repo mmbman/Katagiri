@@ -94,7 +94,7 @@ Human speculation doesn't hit the mark, existence itself – the rose. Before yo
 
 And this is [emptiness](glossary#śūnyatā). Emptiness means, no reason. With no reason, everything exists, everything exists as it really is. And then, when your consciousness starts work, and consciousness catches your existence objectively, at that time, you create lots of things. Toward, like, dislike, good, bad; whatever it is. Many things come up. 
 
-The utmost, perfect, right [enlightenment](glossary#enlightenment) is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature's existence which exists without any reason, at that time, [emptiness](glossary#śūnyatā) is represented as *[finger snap]* stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
+The utmost, perfect, right [enlightenment](glossary#enlightenment) is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature's existence which exists without any reason, at that time, emptiness is represented as *[finger snap]* stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
 
 ##### 29:51
 
@@ -110,13 +110,13 @@ But when you don't satisfy this, immediately you create psychic crack, conscious
 
 That's wonderful. But this is still something you play with, constantly. This is important too. But [the] most important point is, be one with [the] nature of existence, because [the] nature of existence is [emptiness](glossary#śūnyatā). Emptiness means no gap between you and original nature of existence. No gap. So all you have to do is, you must be present with original nature of existence. Constantly, whatever happens, under all circumstances, day after day: stand up there, take care of it. And then at that time, you can experience perfect stability.
 
-And then this is called "the marklessness of all things". Completely [emptiness](glossary#śūnyatā). Emptiness means, no gap between you and the book, you and breakfast. No gap. So all you have to do is, [you] should ... experience stability there, in the oneness. 
+And then this is called "the marklessness of all things". Completely emptiness. Emptiness means, no gap between you and the book, you and breakfast. No gap. So all you have to do is, [you] should ... experience stability there, in the oneness. 
 
 ##### 36:32
 
 That is [emptiness](glossary#śūnyatā), and the second is the marklessness of their emptiness. If we say [the] original nature of existence is characterized by emptiness, immediately we don't understand it. So, we create [a] psychic crack, and your consciousness works, and [you] think of it, analyze it, synthesize it – what emptiness is. That means, you are stuck in the realm of emptiness, in the realm of oneness. If you're stuck in the oneness, it is not oneness, it is already two. Oneness is just one only, not two. If we say "[The] universe is one," we say, "Yes; I understand it." But that is already two. Do you understand? *[he laughs; some people laugh]*
 
-"I understand, yes." "Yes, I understand" is part of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say "I understand," next moment, you don't understand. [Emptiness](glossary#śūnyatā): "I studied for many many years about emptiness. I understand emptiness today." Next day, someone asks me from a different angle about emptiness: "I don't understand." Do you understand? The emptiness you chant in Prajnaparamita – wisdom, and emptiness, or [impermanence](glossary#impermanence) – lots of terms, Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it's not broad. If someone asks us about it from a different angle we have never seen, we don't understand it. So, even though you say "I understand it," it is not good enough, because still emptiness does not work in your daily life. So you're pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness. Emptiness is *something*; already it's not emptiness. 
+"I understand, yes." "Yes, I understand" is part of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say "I understand," next moment, you don't understand. Emptiness: "I studied for many many years about emptiness. I understand emptiness today." Next day, someone asks me from a different angle about emptiness: "I don't understand." Do you understand? The emptiness you chant in Prajnaparamita – wisdom, and emptiness, or [impermanence](glossary#impermanence) – lots of terms, Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it's not broad. If someone asks us about it from a different angle we have never seen, we don't understand it. So, even though you say "I understand it," it is not good enough, because still emptiness does not work in your daily life. So you're pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness. Emptiness is *something*; already it's not emptiness. 
 
 ##### 40:05
 
@@ -130,9 +130,9 @@ In your daily living... if you read this book on [Diamond Sutra](glossary#diamon
 
 But whatever kind of bubbles you can see, all you have to do is not to [leave?] any form of a certain bubble. Or, "I see this bubble," or "I see that bubble." You, stop there. But, don't stop there. Just see the bubbles. But basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#śūnyatā). 
 
-Stability in the realm of [emptiness](glossary#śūnyatā) is very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like, okay. Dislike, okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
+Stability in the realm of emptiness is very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like, okay. Dislike, okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
 
-That is marklessness of [emptiness](glossary#śūnyatā), formlessness. Openness. Continually, your heart and your mind must be open. [Open] to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
+That is marklessness of emptiness, formlessness. Openness. Continually, your heart and your mind must be open. [Open] to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
 
 ##### 45:03
 
@@ -164,7 +164,7 @@ That's why German poet says, "the rose exists without any reason." And finally, 
 
 If you say, "Katagiri exists without any reason," this is still logical explanation, based on [and] according to [a] philosophical understanding which is called [emptiness](glossary#śūnyatā). So, [the] original nature of Katagiri is completely emptiness. So, I exist with [envy?]; this is still logical explanation. The second, marklessness of emptiness – that means formlessness. Openness means throw away term without [envy?].
 
-At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is [emptiness](glossary#śūnyatā). If you understand [Buddha](glossary#buddha) – Buddha experiences this [enlightenment](glossary#enlightenment). That's why [Subhuti](glossary#subhuti) says, "The [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
+At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is emptiness. If you understand [Buddha](glossary#buddha) – Buddha experiences this [enlightenment](glossary#enlightenment). That's why [Subhuti](glossary#subhuti) says, "The [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known or demonstrated, it cannot be grasped." If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely absolute. Absolute is one, just one. 
 
 One is not something you can think or you can grab. When you think, when you experience, when you "get it," it is always two. That's why religion, all religion, speaks about the truth. But [there are] many kinds of truth. We fight each other, according to many kinds of truth. "[Buddhism](glossary#buddhism) is right." "Christianity is right; Buddhism is crazy." But Buddhism [and] Christianity explain about the truth. The truth is exactly one. One means, nothing to get, [to] grasp. 
 
@@ -172,9 +172,9 @@ One is not something you can think or you can grab. When you think, when you exp
 
 "It cannot be grasped, it cannot be talked about." To talk is very important, because ... the activity *you talk* comes up from [the] original nature of existence. Otherwise, you cannot talk. Otherwise you cannot talk about the truth. The activity *to talk* is aiming at the highest speech and level, always aiming. Words cannot reach there. But the activity *to talk* itself, coming from [the] original nature of existence, aims at [the] high spiritual level. Words cannot reach [there]; that's why there is some confusion. "[Emptiness](glossary#śūnyatā)": this is [a] word. But [the] activity I talk about, emptiness, is not [a] word, [it is] emptiness itself. Because, words are already emptiness. And [the] subject I am talking [about] is also emptiness. So I am not talking about [the] emptiness I can see or get. That is a word. When I am talking about emptiness, I myself [am] emptiness always. And words also are emptiness, always. 
 
-So, [emptiness](glossary#śūnyatā), this is, I have to talk about emptiness. To talk is important, [but] not [the] word. Most people are completely cheated by the word. If I say emptiness: "Oh, I don't like it, because emptiness is negative." But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* [do] I exist? Why [does the] rose exist? Completely denied. That negation leads you to touch the exact core of existence of [the] rose itself. That is negation; that's what emptiness is. 
+So, emptiness, this is, I have to talk about emptiness. To talk is important, [but] not [the] word. Most people are completely cheated by the word. If I say emptiness: "Oh, I don't like it, because emptiness is negative." But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* [do] I exist? Why [does the] rose exist? Completely denied. That negation leads you to touch the exact core of existence of [the] rose itself. That is negation; that's what emptiness is. 
 
-So [emptiness](glossary#śūnyatā) is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
+So emptiness is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
 
 ##### 59:00
 
@@ -230,7 +230,7 @@ That's why you can be alive for many years, and you should be appreciative. You 
 
 **Person**: 27.
 
-**Katagiri**: You should be appreciative. Because you are already [emptiness](glossary#śūnyatā). 
+**Katagiri**: You should be appreciative. Because you are already emptiness. 
 
 **Person**: I'm grateful.
 

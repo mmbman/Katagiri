@@ -141,9 +141,9 @@ Well, in [Buddhism](glossary#buddhism), that vastness of space is [what] is call
 
 "[Never] ... do we have a pure space before us in which the flowers are always unfolded. It's forever world and ... nowhere without not." We always see the world created by us; "nowhere without not." Always we see the world created by us, and believe that is important for us. But [the] most important thing is, the vastness of space. The world created by us is [a] tiny world. We can see [it through our] individual telescope. This is important for us, because that is the world in which we live. But in order to live in this small world, we have to know [the] bigger scale of the world. That is [the] vastness of space. According to [Buddhism](glossary#buddhism), it's called [emptiness](glossary#śūnyatā). 
 
-(Katagiri seems to interpret "without not" as [emptiness](glossary#śūnyatā), and "nowhere" meaning the same as "never", i.e. "never emptiness". The poem actually says "never nowhere without not" or "never the nowhere minus the no". So, "nowhere without not" or "nowhere minus the no" would be emptiness. However, the underlying the point is the same.)
+(Katagiri seems to interpret "without not" as emptiness, and "nowhere" meaning the same as "never", i.e. "never emptiness". The poem actually says "never nowhere without not" or "never the nowhere minus the no". So, "nowhere without not" or "nowhere minus the no" would be emptiness. However, the underlying the point is the same.)
 
-[Emptiness](glossary#śūnyatā) is not the world. I don't know what it is; but *it is*. Emptiness.
+Emptiness is not the world. I don't know what it is; but *it is*. Emptiness.
 
 ##### 32:17
 

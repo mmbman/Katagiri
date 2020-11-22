@@ -56,7 +56,7 @@ There are four kinds of perceptions of object negatively, because according to [
 
 One is, everything is [emptiness](glossary#śūnyatā). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say "Why," you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn't hit the mark. *Why*? Why I am Japanese? I don't know. I didn't choose. Why are you American? Can you choose? No.
 
-You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: [emptiness](glossary#śūnyatā), nothing. That means: Americans exist. We've got enemies. 
+You can explain why; but [the] explanation of the reason why you are American cannot hit the mark. So finally, "you are American" means: emptiness, nothing. That means: Americans exist. We've got enemies. 
 
 ##### 12:45
 

@@ -78,7 +78,7 @@ From this point, when you experience success, you feel good – but you cannot [
 
 So strictly speaking, why don’t you take off the clouds of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean this. 
 
-Nothing, emptiness, dynamic working, means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
+Nothing, [emptiness](glossary#śūnyatā), dynamic working, means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave?] so-called human culture.
 
 I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
 
@@ -255,7 +255,7 @@ That is, Dogen Zenji says, total manifestation of [the] whole world. Huge.
 
 ##### 50:31
 
-That is teaching coming from your back. This is teaching coming from a powerless power, [that] you can get from your practice. Behind the power, behind the effort, there is great power. Effort is not something you can create; [there is] power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond [the] name of concentration, name of practicer, name of emptiness – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
+That is teaching coming from your back. This is teaching coming from a powerless power, [that] you can get from your practice. Behind the power, behind the effort, there is great power. Effort is not something you can create; [there is] power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond [the] name of concentration, name of practicer, name of [emptiness](glossary#śūnyatā) – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
 
 So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called [zazen](glossary#zazen). You have to really work. 
 

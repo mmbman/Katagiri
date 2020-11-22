@@ -229,8 +229,9 @@ The room used for teaching (giving talks) in a traditional Zen monastery.
 ---
 ## Buddha Nature
 
-The original nature of existence, perfect and all pervading. 
+The original nature of existence, perfect and all pervading. Interconnection.
 
+- [Diamond Sutra Introduction (40:46)](1979-05-09-Diamond-Sutra-Introduction#4046)
 - e.g. [Fukanzazengi – Talk 2 (4:32)](1979-06-10-Fukanzazengi-Talk-2#432)
 
 External links:
