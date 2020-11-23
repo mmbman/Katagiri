@@ -16,7 +16,7 @@
 
 During the first and the second centuries, most of the Mahayana Buddhist scriptures were compiled. The completion of Mahayana sutras – Buddhist scriptures – is classified into three periods.
 
-The first period ... is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more group is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150 to 270 (AD).
+The first period ... is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more group is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150 to 270 CE.
 
 The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210 to 400. 
 
@@ -34,93 +34,93 @@ So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossar
 
 This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism ). 
 
-We don't know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures [are] mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor). So absolutely no direct [Buddha](glossary#buddha)'s teaching mentioned. Even the [āgamas](glossary#āgama), \[or] [Nikāyas](glossary#nikāya) – [there are] four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those āgamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
+We don't know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures are mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor). So absolutely no direct [Buddha](glossary#buddha)'s teaching mentioned. Even the [āgamas](glossary#āgama), or [Nikāyas](glossary#nikāya) – [there are] four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha's disciples after Buddha's death. So only those āgamas were compiled by Buddha's disciples, collecting the Buddha's statements or words and phrases and lots of teachings, which Buddha's disciples had heard and had memorized. 
 
 ##### 10:17
 
-At the first, second, and third conferences after [Buddha's](glossary#shakyamuni-buddha) death, many monks and Buddha's disciples gathered at a certain place, and collected Buddha's teachings from each monk, [the] Buddha's teaching [that] they [had] memorized. In those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures, so they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile [it all]; they tried to leave [behind] Buddha's teachings as written scriptures. \[Those are the\] [āgamas](glossary#āgama).
+At the first, second, and third conferences after [Buddha's](glossary#shakyamuni-buddha) death, many monks and Buddha's disciples gathered at a certain place, and collected Buddha's teachings from each monk, the Buddha's teaching that they had memorized. In those days, Indian people didn't have any custom to transmit Buddha's teachings or whatever it is by written scriptures, so they transmitted teachings with the oral method, directly. So at that time after Buddha's death, they tried to compile it all; they tried to leave behind Buddha's teachings as written scriptures. \[Those are the\] [āgamas](glossary#āgama).
 
 Within the [āgamas](glossary#āgama), it was based on [Buddha](glossary#shakyamuni-buddha) 's teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals: impermanence, [no-self](glossary#no-self), and nirvana. 
 
-So in [the] [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then [within] the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing [and] synthesizing what the āgama sutra[s] mentioned [or] taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
-But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by... no one knows. By someone. But those people were not usual (normal?) persons, but unusual persons, sort of genuine religious persons, who understood [Buddha](glossary#shakyamuni-buddha)'s teachings perfectly, and who understood perfectly the stream of Buddhist thought, [the] religious thought of those days. They were really concerned about the Buddha's teaching, how they should compile Buddha's teaching, how they should transmit Buddha's teaching. So they were required, by tendency of very public religious thought, to compile Buddha's teachings based on [the] original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). 
+But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual (or normal?) persons, but unusual persons, sort of genuine religious persons, who understood [Buddha's](glossary#shakyamuni-buddha) teachings perfectly, and who understood perfectly the stream of Buddhist thought, the religious thought of those days. They were really concerned about the Buddha's teaching, how they should compile Buddha's teaching, how they should transmit Buddha's teaching. So they were required, by tendency of very public religious thought, to compile Buddha's teachings based on the original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). 
 
-Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha), Indian people believe those scriptures are really Buddha's teaching. They don't have any doubt; they accept perfectly those scriptures as Buddha's teachings. That's why we don't know who wrote [them]. But it doesn't matter; it doesn't matter.
+Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha), Indian people believe those scriptures are really Buddha's teaching. They don't have any doubt; they accept perfectly those scriptures as Buddha's teachings. That's why we don't know who wrote them. But it doesn't matter; it doesn't matter.
 
-Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don't know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote [it] – but we are "suspicious" whether such a person existed or not. Well, anyway, we don't know who wrote it, but huge Buddhist scriptures exist. 
+Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don't know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote it – but we are "suspicious" whether such a person existed or not. Well, anyway, we don't know who wrote it, but huge Buddhist scriptures exist. 
 
-So those authors were really genuine religious persons, who understood [the] religious spirit mentioned by [Buddha](glossary#shakyamuni-buddha), and also [the] tendency of the religious and philosophical thought of those days. 
+So those authors were really genuine religious persons, who understood the religious spirit mentioned by [Buddha](glossary#shakyamuni-buddha), and also the tendency of the religious and philosophical thought of those days. 
 
 ##### 17:40
 
-I want to tell you the fundamental thought of [the] [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
+I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
 I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit "dry".... The Vimalakirti Sutra is more literature, Buddhist literature – beautiful. But Diamond Sutra is sort of the teaching based on philosophical Buddhist teaching. So, a little "dry". 
 
 ##### 18:58
 
-The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe [the] top, but Indian people use more than billions. That is kalpas, eons; [numbers] that [are] completely beyond [the] measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought. Huge.
+The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That's why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe the top, but Indian people use more than billions. That is kalpas, eons; [numbers] that are completely beyond the measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought. Huge.
 
-So [Prajnaparamita](glossary#prajnaparamita) is what is called The Perfection of Wisdom. [The] Indian people try to explain what wisdom is, according to concept. So, for instance, in [Diamond Sutra](glossary#diamond-sutra), it says: 
+So [Prajnaparamita](glossary#prajnaparamita) is what is called The Perfection of Wisdom. The Indian people try to explain what wisdom is, according to concept. So, for instance, in [Diamond Sutra](glossary#diamond-sutra), it says: 
 
 > [Subhuti](glossary#subhuti) asked: What then, O Lord, is this discourse on [dharma](glossary#dharma), and how should I bear it in mind? – The Lord replied: This discourse on dharma, Subhuti, is called "Wisdom which has gone beyond," and as such should you bear it in mind!
 >
 > (From ["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 49)
 
-Wisdom is expressed – explained, described – by [a] pretty conceptualized thing.
+Wisdom is expressed – explained, described – by a pretty conceptualized thing.
 
 So according to this, they understand wisdom and try to teach wisdom like this: 
 
-Prajnaparamita: wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
+Prajnaparamita: Wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
 
-In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of [the] Indian way of thinking: everything conceptual. That's why they use everything – they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
+In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything conceptual. That's why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
 ##### 22:51
 
-But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain [Prajnaparamita](glossary#prajnaparamita) not conceptually, [but] very practically. 
+But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] a little bit practical. Buddhism becomes "practical" in order to explain [Prajnaparamita](glossary#prajnaparamita) not conceptually, but very practically. 
 
 For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on Buddhist philosophy mentioned by Prajnaparamita sutra: "Mountain is mountain, mountain is not mountain, but mountain is mountain." Very practically they explain [it using the example of] Zen monks, just like this, for instance... 
 
-Oh, yes, here is a very good example. \[A] [Zen Master](glossary#zen-master) said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
+\[A] [Zen Master](glossary#zen-master) said to his assembly: "One day," he said, "a hundred years after my death, I will be reborn as a cow at one of the farmers' houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then," it says, "You can find my name there." *[the group laughs]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
 
 So if you see that, immediately you say, "Oh, this is Isan!" But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, "Oh, that is a cow, not Isan." But it's not cow; it's Isan. *[laughter]* And then, Isan said to the assembly: "How do you call it?" Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
 
 For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is cow. *[he laughs]* But you say "cow"; it's not cow. 
 
-[Or,] for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it? (Note: He might be saying "Dainin," not "Dan", but it doesn't sound like it.)
+Or, for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it? (Note: He might be saying "Dainin," not "Dan", but it doesn't sound like it.)
 
-That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhist philosophy. A is A, but A is not A. But A is really A.
+That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhist philosophy. 'A' is 'A', but 'A' is not 'A'. But 'A' is really 'A'.
 
 ##### 27:05
 
-This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, [the] matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, [there is] nothing to get. We are always chasing after something, but we cannot get it. 
+This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, the matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
 
-[The] important point is the existential reality. What is [the] existential reality? If you say [Katagiri](glossary#katagiri), [it is] what his existential fact or reality is. That is a point. But usually [we] don't believe that; we don't say that, we don't understand [it] in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's [a] very shallow understanding. 
+The important point is the existential reality. What is the existential reality? If you say [Katagiri](glossary#katagiri), it is what his existential fact or reality is. That is a point. But usually we don't believe that; we don't say that, we don't understand it in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's a very shallow understanding. 
 
 ##### 28:40
 
-Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or A, or B, or C, or mountain, or river. That is existential fact or reality. Because, completely... well, what would you say... nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is [the] basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or A, or B, or C, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say – nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
-In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: [separation]. That's why, first of all, we have to deny your understanding. But... to deny is not to destroy existence. To deny is to enable you to realize something else around [the] subject you have understood. 
+In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That's why, first of all, we have to deny your understanding. But – to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
 ##### 31:11 
 
-For instance, here is a paper, white paper. At that time you say immediately, "this is white paper." But, we don't say "white paper". If we say "this is white paper," ... you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, "this is not white." "Not white" means to bring the other colors into your mind. "Not white" doesn't mean to destroy white; "not white" means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means, white paper, white color, doesn't exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. 
+For instance, here is a paper, white paper. At that time you say immediately, "This is white paper." But, we don't say "white paper". If we say "this is white paper," you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, "This is not white." "Not white" means to bring the other colors into your mind. "Not white" doesn't mean to destroy white; "not white" means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means white paper, white color, doesn't exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. 
 
 That is negation. That's why we have to negate first: white is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
 
 ##### 33:04
 
-Do you understand? This is [a] very simple explanation. Usually we don't understand in that way, because we understand negation as negation. But negation is not merely negation, destroy[ing] something. "No eyes, no ears, no mouth, no body, no mind" doesn't mean to destroy your eyes, your nose. If you say "no eyes," that means pay careful attention to the rest of the physical parts: nose, mouth, ears, head, heart, and consciousness; lots of things. And also, circumstances, and the nature [of] all beings. 
+Do you understand? This is a very simple explanation. Usually we don't understand in that way, because we understand negation as negation. But negation is not merely negation, destroying something. "No eyes, no ears, no mouth, no body, no mind" doesn't mean to destroy your eyes, your nose. If you say "no eyes," that means pay careful attention to the rest of the physical parts: nose, mouth, ears, head, heart, and consciousness; lots of things. And also, circumstances, and the nature of all beings. 
 
 That's why eyes are eyes, but eyes are not eyes. That means, eyes are supported by ... nose, mouth, ears, body, mind – all natures. That's why at that time, no eyes can emphasize their own existence based on egoistic sense. "I am eye," they cannot say. So completely, eyes keep their own mouth shut. *[he chortles, then the group laughs]* 
 
-Actually, practically or actually, eyes function or eyes try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say eyes, that is really [the] idea of eyes, separate from nose, mouth, ears, body, heart. 
+Actually, practically or actually, eyes function or eyes try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say eyes, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. 
 
-If you understand eyes are eyes, this is [the] first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – anyway, everything. And then at that time, eyes really work, pretty well. 
+If you understand eyes are eyes, this is the first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – anyway, everything. And then at that time, eyes really work, pretty well. 
 
 ##### 35:44
 
@@ -132,7 +132,7 @@ Do you understand? So you say, "I am a guitar player", "I am a musician." You sa
 
 How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It's pretty hard. But at that time, you are called a great writer, great painter. 
 
-That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, [or] painter, [or] musician, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do [it]. 
+That's why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, or painter, or musician, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do it. 
 
 And then, at that time, you can say, "I am a guitar player, I am a musician." Even though you don't think so, people call you; you are a guitar player. And then, people don't tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that's pretty good. Sometimes you don't know when I became a writer, or when I am a great musician – you don't know. But it's not necessary. People ask you to play the guitar, to write something. 
 
@@ -140,7 +140,7 @@ That is a great chance for you to practice, to continue to do it.
 
 ##### 40:46
 
-This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. "A is A, but A is not A, that's why we [say] A is A." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. Even though you don't like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say – you don't like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
+This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. "'A' is 'A', but 'A' is not 'A', that's why we [say] 'A' is 'A'." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. Even though you don't like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say – you don't like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
