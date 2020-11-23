@@ -84,9 +84,9 @@ But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] 
 
 For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on Buddhist philosophy mentioned by Prajnaparamita sutra: “Mountain is mountain, mountain is not mountain, but mountain is mountain.” Very practically they explain [it using the example of] Zen monks, just like this, for instance... 
 
-\[A] [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” *[the group laughs]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
+\[A] [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” * – the group laughs – * That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
 
-So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You’ve made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not cow; it’s Isan. *[laughter]* And then, Isan said to the assembly: “How do you call it?” Do you understand? Very practical, very practical. *[laughter]* How do you call it? 
+So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You’ve made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not cow; it’s Isan. * – laughter – * And then, Isan said to the assembly: “How do you call it?” Do you understand? Very practical, very practical. * – laughter – * How do you call it? 
 
 For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is cow. *[he laughs]* But you say “cow”; it’s not cow. 
 
