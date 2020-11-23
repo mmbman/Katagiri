@@ -92,17 +92,17 @@ For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri
 
 Or, for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, "Shall I call you Dan?" *[the group laughs]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It's not Katagiri, or it's Dan. But it's not Dan; it's Katagiri. How do you call it? (Note: He might be saying "Dainin," not "Dan", but it doesn't sound like it.)
 
-That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhist philosophy. 'A' is 'A', but 'A' is not 'A'. But 'A' is really 'A'.
+That's sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhist philosophy. ‘A’ is ‘A’, but ‘A’ is not ‘A’. But ‘A’ is really ‘A’.
 
 ##### 27:05
 
-This philosophy is not matter of the A itself, or the buffalo or cow itself. It doesn't matter. But, the matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
+This philosophy is not matter of the ‘A’ itself, or the buffalo or cow itself. It doesn't matter. But, the matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
 
 The important point is the existential reality. What is the existential reality? If you say [Katagiri](glossary#katagiri), it is what his existential fact or reality is. That is a point. But usually we don't believe that; we don't say that, we don't understand it in that way. If you see Katagiri, immediately you say "Katagiri". This very understandable – but it's a very shallow understanding. 
 
 ##### 28:40
 
-Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or A, or B, or C, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say – nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say – nothing to say. Nothing to say. It's vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
 In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That's why, first of all, we have to deny your understanding. But – to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
@@ -140,7 +140,7 @@ That is a great chance for you to practice, to continue to do it.
 
 ##### 40:46
 
-This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. "'A' is 'A', but 'A' is not 'A', that's why we [say] 'A' is 'A'." We don't understand exactly. "A is A" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. Even though you don't like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say – you don't like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
+This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that's why we [say] ‘A’ is ‘A’." We don't understand exactly. "‘A’ is ‘A’" – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], "I like this," "I don't like this," or *[unintelligible]*. Even though you don't like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don't like it. But whatever you say – you don't like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
@@ -148,13 +148,13 @@ And sometimes, vastness is personalized, and it's called [Buddha](glossary#buddh
 
 ##### 43:50
 
-So, who makes your confused? ... We make ourselves confused, that's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is [the] intellectual understanding of human existence. Immediately we analyze [an] existential fact. If we analyze [the] existential fact, we are [at?] two contradictory [aspects?]. A is A, but A is not A. [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one?], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features?].
+So, who makes your confused? ... We make ourselves confused, that's all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is [the] intellectual understanding of human existence. Immediately we analyze [an] existential fact. If we analyze [the] existential fact, we are [at?] two contradictory [aspects?]. ‘A’ is ‘A’, but ‘A’ is not ‘A’. [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). So, Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one?], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features?].
 
 ##### 45:23
 
 This is very important. That's why we have to explain [ourselves?] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. [Katagiri](glossary#katagiri) is just Katagiri; that's all. That's enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
-This is very natural. If you understand in that way, it's not necessary to [have a] complicated system of understanding: "A is A; A is not A; that's why A is A" – it's not necessary to say so. But we have to do so, because consciousness is already complicated. That's why we have to explain. That's it.
+This is very natural. If you understand in that way, it's not necessary to [have a] complicated system of understanding: "‘A’ is ‘A’; ‘A’ is not ‘A’; that's why ‘A’ is ‘A’" – it's not necessary to say so. But we have to do so, because consciousness is already complicated. That's why we have to explain. That's it.
 
 That is [the] characteristic of [a] human being. Birds or dogs don't think in that way. When they feel hungry, [they] just bite, just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop [it]; don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
 
@@ -162,11 +162,11 @@ That is [the] characteristic of [a] human being. Birds or dogs don't think in th
 
 ... stop them barking, you say, "shut up." That's enough. 
 
-[A] dog ... just barks at you. This is [a] dog. No problem. But can you bark at people like that? *[laughter]* Of course, you can do [it]. I can bark at you like this. But immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
+A dog ... just barks at you. This is a dog. No problem. But can you bark at people like that? *[laughter]* Of course, you can do it. I can bark at you like this. But immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
 
 ##### 48:27
 
-You should enjoy your life, of course. Let's enjoy our life, as you like. Of course, let's enjoy [it]. 
+You should enjoy your life, of course. Let's enjoy our life, as you like. Of course, let's enjoy it.
 
 But immediately you think, "What is the purpose of human life? What is the purpose of life? Why is it we have to work hard every day? Why is it that we have to practice with pain?"
 
@@ -174,7 +174,7 @@ Obviously we have to think like this. This is [a] beautiful, beautiful aspect of
 
 ##### 49:42
 
-But finally, [the] final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to *do*. When you are [a] ballerina, you are [a] ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything; nothing to separate from her or him. At that time, this ballerina [is] called [a] great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
+But finally, [the] final practice is very simple: ‘A’ is just ‘A’. Mountain is just mountain. River is just river. And until this, you have to *do*. When you are [a] ballerina, you are [a] ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything; nothing to separate from her or him. At that time, this ballerina [is] called [a] great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
 
 That's why a [Zen Master](glossary#zen-master) says, "When you feel hungry, eat. When you feel [sleepy], sleep." But this is [the] third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand [the] Zen [saying], "When you feel hungry, eat. When you feel sleepy, sleep." This is not [the] first stage, first level of understanding; [this] is the very profound, highest level of understanding. 
 
@@ -216,7 +216,7 @@ Maybe it's connected with a previous statement. *[laughter]* ... from one senten
 
 *[laughter]* 
 
-Because we have to understand something as a whole. "A is A; A is not A." *[laughter]* "A is A."
+Because we have to understand something as a whole. "‘A’ is ‘A’; ‘A’ is not ‘A’." *[laughter]* "‘A’ is ‘A’."
 
 ##### 55:48
 
