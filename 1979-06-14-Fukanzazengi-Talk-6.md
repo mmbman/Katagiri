@@ -420,7 +420,7 @@ Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from som
 
 **Katagiri**: Well, the [Abhidharmakosha](glossary#abhidharmakosha) is an outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world is created, just like creation of world mentioned by Christianity.
 
-According to [that] ... I told you, right in the middle of the Universe there is the huge [Mount Sumeru](glossary#mount-sumeru). At top of the mountain, the gods exists; eightfold kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. *[unintelligible]* is human world. 
+According to that ... I told you, right in the middle of the Universe there is the huge [Mount Sumeru](glossary#mount-sumeru). At top of the mountain, the gods exists; eightfold kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. *[unintelligible]* is human world. 
 
 *[unintelligible]* this is an explanation of that thing. In the first book of [Abhidharmakosha](glossary#abhidharmakosha), the whole book is an explanation of how this structure and form exists. Very interesting.
 
