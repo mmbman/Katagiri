@@ -74,7 +74,7 @@ Wisdom is expressed – explained, described – by a pretty conceptualized thin
 
 So according to this, they understand wisdom and try to teach wisdom like this: 
 
-Prajnaparamita: Wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[he chuckles]* 
+Prajnaparamita: Wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[He chuckles.]* 
 
 In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything conceptual. That’s why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
@@ -84,9 +84,9 @@ But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] 
 
 For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on Buddhist philosophy mentioned by Prajnaparamita sutra: “Mountain is mountain, mountain is not mountain, but mountain is mountain.” Very practically they explain [it using the example of] Zen monks, just like this, for instance... 
 
-\[A] [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” – *[the group laughs]* – That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
+A [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” *[The group laughs.]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
 
-So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You’ve made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not cow; it’s Isan. – *[laughter]* – And then, Isan said to the assembly: “How do you call it?” Do you understand? Very practical, very practical. *[Laughter.]* How do you call it? 
+So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You’ve made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not cow; it’s Isan. *[Laughter.]* And then, Isan said to the assembly: “How do you call it?” Do you understand? Very practical, very practical. *[Laughter.]* How do you call it? 
 
 For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is cow. *[He laughs.]* But you say “cow”; it’s not cow. 
 
@@ -118,7 +118,7 @@ That is negation. That’s why we have to negate first: white is white, but whit
 
 Do you understand? This is a very simple explanation. Usually we don’t understand in that way, because we understand negation as negation. But negation is not merely negation, destroying something. “No eyes, no ears, no mouth, no body, no mind” doesn’t mean to destroy your eyes, your nose. If you say “no eyes,” that means pay careful attention to the rest of the physical parts: nose, mouth, ears, head, heart, and consciousness; lots of things. And also, circumstances, and the nature of all beings. 
 
-That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supported by ... nose, mouth, ears, body, mind – all natures. That’s why at that time, no eyes can emphasize their own existence based on egoistic sense. “I am eye,” they cannot say. So completely, eyes keep their own mouth shut. *[he chortles, then the group laughs]* 
+That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supported by ... nose, mouth, ears, body, mind – all natures. That’s why at that time, no eyes can emphasize their own existence based on egoistic sense. “I am eye,” they cannot say. So completely, eyes keep their own mouth shut. *[He chortles, then the group laughs.]* 
 
 Actually, practically or actually, eyes function or eyes try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say eyes, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. 
 
@@ -128,7 +128,7 @@ If you understand eyes are eyes, this is the first stage; this is very conceptua
 
 I told you always: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
-... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands: you have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don’t think that “Oh, I can play guitar.” [Buddhism](glossary#buddhism ) says, “No. You cannot play the guitar.” – “But I can play the guitar!” – “It’s not good enough.” *[he chuckles]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
+... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands: you have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don’t think that “Oh, I can play guitar.” [Buddhism](glossary#buddhism ) says, “No. You cannot play the guitar.” – “But I can play the guitar!” – “It’s not good enough.” *[He chuckles.]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
 
 Do you understand? So you say, “I am a guitar player”, “I am a musician.” You say it very simply: “I am a guitar player.” “I am a painter.” “I am a poet.” Of course, you are a poet. You are a guitar player, you are a musician, you are a painter. I understand. But it’s not good *enough*. You are *not* a poet. “How come?” A simple question: “How come? I am a poet. I am a writer.” Of course you are a writer, you are a musician. But, *watch out* – okay? You are not a musician; you are not a writer. That means, you have to write something with all sentient beings. 
 
@@ -142,7 +142,7 @@ That is a great chance for you to practice, to continue to do it.
 
 ##### 40:46
 
-This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that’s why we [say] ‘A’ is ‘A’.” We don’t understand exactly. “‘A’ is ‘A’” – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say – you don’t like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
+This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that’s why we say ‘A’ is ‘A’.” We don’t understand exactly. “‘A’ is ‘A’” – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say – you don’t like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
@@ -158,13 +158,13 @@ This is very important. That’s why we have to explain [ourselves] – because 
 
 This is very natural. If you understand in that way, it’s not necessary to have a complicated system of understanding: “‘A’ is ‘A’; ‘A’ is not ‘A’; that’s why ‘A’ is ‘A’” – it’s not necessary to say so. But we have to do so, because consciousness is already complicated. That’s why we have to explain. That’s it.
 
-That is characteristic of a human being. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don’t like the dog barking at me. But, nothing to do. Sometimes, well, just one word, a very simple word, you can stop it; don’t give a gentle word, just a simple word: “*shut up*”. *[laughter]*
+That is characteristic of a human being. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[Laughter.]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don’t like the dog barking at me. But, nothing to do. Sometimes, well, just one word, a very simple word, you can stop it; don’t give a gentle word, just a simple word: “*shut up*”. *[Laughter.]*
 
-*[tape change]*
+*[Tape change.]*
 
 ... stop them barking, you say, “shut up.” That’s enough. 
 
-A dog ... just barks at you. This is a dog. No problem. But can you bark at people like that? *[laughter]* Of course, you can do it. I can bark at you like this. But immediately I say, “Why do you bark at them? What do you mean? What do you mean by barking?” You start to think. Don’t you think so? 
+A dog ... just barks at you. This is a dog. No problem. But can you bark at people like that? *[Laughter.]* Of course, you can do it. I can bark at you like this. But immediately I say, “Why do you bark at them? What do you mean? What do you mean by barking?” You start to think. Don’t you think so? 
 
 ##### 48:27
 
@@ -186,7 +186,7 @@ Okay. Next time, we will study \[the chapters of the [Diamond Sutra](glossary#di
 
 Do you have some questions? 
 
-The textbook is the combined textbook, Buddhist Wisdom Books, [compiling] two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find [a] cheaper ... paperback. ([“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
+The textbook is the combined textbook, Buddhist Wisdom Books, [compiling] two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find a cheaper ... paperback. ([“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 
 He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra). Without the commentary, it’s very difficult to understand, because very often you can see very contradictory expression of the Buddhist teaching.
 
@@ -196,7 +196,7 @@ Okay, do you have any questions?
 
 **Question**: [Roshi](glossary#roshi)? Do you *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
 
-*[some confusion]*
+*[There is some confusing discussion.]*
 
 **Another person**: Is it by the *[unintelligible]* calendar?
 
@@ -206,29 +206,29 @@ Okay, do you have any questions?
 
 **Question**: [Roshi](glossary#roshi), two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. And this came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
-*[laughter]*
+*[Laughter.]*
 
-**Katagiri**: *[quietly]* Uh, before that, what did I say? 
+**Katagiri**: *[Quietly:]* Uh, before that, what did I say? 
 
 **Same person**: Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I’m not sure... *[unintelligible]* But that sentence really struck me. 
 
-**Katagiri**: *[quietly]* Yeah. *[laughter]*
+**Katagiri**: *[Quietly:]* Yeah. *[Laughter.]*
 
-Maybe it’s connected with a previous statement. *[laughter]* ... from one sentence, before, previous *[unintelligible]*
+Maybe it’s connected with a previous statement. *[Laughter.]* ... from one sentence, before, previous *[unintelligible]*
 
-*[laughter]* 
+*[Laughter.]* 
 
-Because we have to understand something as a whole. “‘A’ is ‘A’; ‘A’ is not ‘A’.” *[laughter]* “‘A’ is ‘A’.”
+Because we have to understand something as a whole. “‘A’ is ‘A’; ‘A’ is not ‘A’.” *[Laughter.]* “‘A’ is ‘A’.”
 
 ##### 55:48
 
-It makes you sometimes confused, but this is very nice practice for you. *[laughter]* But practically, it’s very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That’s all. This is [zazen](glossary#zazen).
+It makes you sometimes confused, but this is very nice practice for you. *[Laughter.]* But practically, it’s very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That’s all. This is [zazen](glossary#zazen).
 
 But when you expect something, you completely go away from your home. Seeking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it’s fine, but it makes you dizzy, that’s all. Running here and there, always. But the more you are busy, the more you are exhausted. That’s all. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is [alright].” This is our point. That’s all. The basic practice is very simple, very simple, really.
 
 But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: “Oh yes, I want to go back to my home.” Everyone understands. But it takes time, because until it’s penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
 
-That’s why we have to continue to sit. I don’t know why. *[he chuckles]* But you are a lucky man, anyway. You are a lucky person. 
+That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* But you are a lucky man, anyway. You are a lucky person. 
 
 ##### 58:09 end of recording
 
