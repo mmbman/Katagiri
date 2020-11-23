@@ -1,4 +1,4 @@
-<a name=”0”></a>
+<a name="0"></a>
 [Previous](about#0) – 
 [Home](index#diamond-sutra-introduction) – 
 [Next](1979-06-09-Fukanzazengi-Talk-1#0)
@@ -9,7 +9,7 @@
 
 [Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
-<a name=”000”></a>
+<a name="000"></a>
 ##### 0:00 start of recording
 
 [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [Diamond Sutra](glossary#diamond-sutra). This is quite different from [Vimalakirti Sutra](glossary#vimalakirti-sutra) we studied that was compiled almost in the same century. 
@@ -40,7 +40,7 @@ We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know 
 
 At the first, second, and third conferences after [Buddha’s](glossary#shakyamuni-buddha) death, many monks and Buddha’s disciples gathered at a certain place, and collected Buddha’s teachings from each monk, the Buddha’s teaching that they had memorized. In those days, Indian people didn’t have any custom to transmit Buddha’s teachings or whatever it is by written scriptures, so they transmitted teachings with the oral method, directly. So at that time after Buddha’s death, they tried to compile it all; they tried to leave behind Buddha’s teachings as written scriptures. \[Those are the\] [āgamas](glossary#āgama).
 
-Within the [āgamas](glossary#āgama), it was based on [Buddha](glossary#shakyamuni-buddha) ‘s teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals: impermanence, [no-self](glossary#no-self), and nirvana. 
+Within the [āgamas](glossary#āgama), it was based on [Buddha's](glossary#shakyamuni-buddha) teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals: impermanence, [no-self](glossary#no-self), and nirvana. 
 
 So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
