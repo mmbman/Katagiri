@@ -158,27 +158,25 @@ This is very important. That's why we have to explain [ourselves?] – because c
 
 This is very natural. If you understand in that way, it's not necessary to [have a] complicated system of understanding: "A is A; A is not A; that's why A is A" – it's not necessary to say so. But we have to do so, because consciousness is already complicated. That's why we have to explain. That's it.
 
-##### 46:38
-
-That is characteristic of human being. Bird, dog, don't think in that way. When they feel hungry, just bite. Just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop [it]. Don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
+That is [the] characteristic of [a] human being. Birds or dogs don't think in that way. When they feel hungry, [they] just bite, just eat. *[laughter]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don't like the dog barking at me. But, nothing to do. Sometimes, well, just one word, very simple word, you can stop [it]; don't give a gentle word, just a simple word: "*shut up*". *[laughter]*
 
 *[tape change]*
 
 ... stop them barking, you say, "shut up." That's enough. 
 
-But dog, dog without himself, just barks at you. This is dog. No problem. But can you bark at people? Can you bark at people like that? *[laughter]* Of course, you can do [it]. I can bark at you like this; but immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
+[A] dog ... just barks at you. This is [a] dog. No problem. But can you bark at people like that? *[laughter]* Of course, you can do [it]. I can bark at you like this. But immediately I say, "Why do you bark at them? What do you mean? What do you mean by barking?" You start to think. Don't you think so? 
 
 ##### 48:27
 
-You should enjoy your life, of course. Let's enjoy our life, as you like. Of course, let's enjoy. 
+You should enjoy your life, of course. Let's enjoy our life, as you like. Of course, let's enjoy [it]. 
 
 But immediately you think, "What is the purpose of human life? What is the purpose of life? Why is it we have to work hard every day? Why is it that we have to practice with pain?"
 
-Obviously we have to think like this. But this is [a] beautiful, beautiful aspect of human life. Because you are human, not dog, not bird, that's why you can realize a universe in a broad [region?], and we understand people. We can figure out ways to live in peace and harmony with people – not only under certain circumstances, under *all* circumstances, we can live, because we think always like this. That's why we have to think like this.
+Obviously we have to think like this. This is [a] beautiful, beautiful aspect of human life. Because you are human, not dog, not bird, that's why you can realize a universe in a broad [region?], and ... understand people. We can figure out ways to live in peace and harmony with people – not only under certain circumstances, under *all* circumstances, we can live, because we think always like this. That's why we have to think like this.
 
 ##### 49:42
 
-But finally, final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to do. When you are ballerina, you are ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything. Nothing to separate from her or him. At that time, this ballerina [is] called [a] great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
+But finally, [the] final practice is very simple: A is just A. Mountain is just mountain. River is just river. And until this, you have to *do*. When you are [a] ballerina, you are [a] ballerina, and just a ballerina – that's enough. But this ballerina is exactly interconnected, interpenetrated – [components?], everything; nothing to separate from her or him. At that time, this ballerina [is] called [a] great ballerina. So what is that? Ballerina is ballerina; that's enough. River is green; flower is red. 
 
 That's why a [Zen Master](glossary#zen-master) says, "When you feel hungry, eat. When you feel [sleepy], sleep." But this is [the] third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand [the] Zen [saying], "When you feel hungry, eat. When you feel sleepy, sleep." This is not [the] first stage, first level of understanding; [this] is the very profound, highest level of understanding. 
 
@@ -188,10 +186,9 @@ Okay. Next time, we will study \[the chapters of the [Diamond Sutra](glossary#di
 
 Do you have some questions? 
 
-Ah, the textbook is the combined textbook, Buddhist Wisdom Books, compiled two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find cheaper, not hard copy – paperback cover, you can find. (["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
+The textbook is the combined textbook, Buddhist Wisdom Books, [compiling] two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find [a] cheaper ... paperback. (["Buddhist Wisdom: The Diamond Sutra and the Heart Sutra"](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 
-He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra) 
-. Without [the] commentary, it's very difficult to understand, because very often you can see very contradictory expression of the Buddhist teaching.
+He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra). Without [the] commentary, it's very difficult to understand, because very often you can see very contradictory expression of the Buddhist teaching.
 
 Okay, do you have any questions? 
 
