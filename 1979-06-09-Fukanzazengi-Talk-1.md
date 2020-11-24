@@ -60,25 +60,31 @@ The important point is, you must accept zazen as really total activity, which is
 
 ##### 17:16
 
-Psychologically speaking, there are several component factors in living. One is circumstances. The second is sensory world, sensory system. And also movement system, movement world – movement system of your living. And also, the gut system; your guts. We have lots of guts. The world of the guts, and also, brain-nerve system.
+Psychologically speaking, there are several component factors in living. One is circumstances. The second is sensory world, sensory system. And also movement system, movement world – movement system of your living. And also, the gut system: your guts. We have lots of guts. The world of the guts; and also, the brain-nerve system.
 
-So, circumstances, and also, sensory world, sensory system. Sensory system is to accept or to give some information; to get some information or to give some information to somebody, and to learn information from the outside. Through the sensory system, which is called eyes, nose, ears – so, sense of seeing, sense of hearing, sense of tangibility, et cetera. That is sensory world, sensory system. 
+So, circumstances, and also, sensory world, sensory system. Sensory system is to accept or to give some information; to get some information or to give some information to somebody, and to learn information from the outside. Through the sensory system, which is called eyes, nose, ears – so, sense of seeing, sense of hearing, sense of tangibility, et cetera – that is sensory world, sensory system. 
 
-And also, movement system. Movement system is through the body and the mind; by getting lots of information inside, immediately you can do [something]. Your whole body and mind creates a certain energy, to compel you to act. That is the movement system; you have this. That is complete unity of the sensory system, and also nerve system and brain system; lots of things. Then immediately you can create a certain movement.
+And also, movement system. Movement system is through the body and the mind; by getting lots of information inside, immediately you can do [something]. Your whole body and mind creates a certain energy, to compel you to act. That is the movement system; you have this. That is complete unity of the sensory system, and also the nerve system and brain system; lots of things. Then immediately you can create a certain movement.
 
 And also, the gut system. You have lots of guts. 
 
-Next is brain-nerve system. 
+Next is the brain-nerve system. 
 
 ##### 21:08
 
-And one more [system]: that is total personality. Total personality is the exact center of your living, core of your living. Without total personality, you cannot get circumstances, and sensory world, or movement system, nothing. There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. *My* personality is something I can create, after my birth. So this is kind of [like] character. If you say "personality," psychologically speaking this is a little bit broad. So *my* personality is something I can create after my birth; but there is another personality I can create. I have carried my personality from before my birth; this is maybe my parents. And also maybe I have carried, from my parents, from my grandparents, from my grand-grandparents, and ancestors. So that is total personality, the whole personality. 
+And one more system: that is total personality. 
+
+Total personality is the exact center of your living, the core of your living. Without total personality, you cannot get circumstances, and sensory world, or movement system, nothing. There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
+
+*My* personality is something I can create, after my birth. So this is kind of [like] character. If you say "personality," psychologically speaking this is a little bit broad. So *my* personality is something I can create after my birth; but there is another personality I can create. I have carried my personality from before my birth; this is maybe my parents. And also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. 
+
+So that is total personality, the whole personality. 
 
 ##### 23:23
 
-So, if I see myself – here is Katagiri – immediately there is a certain kind of a [sense]; a "smell". Because that smell is... Well, a part of this smell consists of something I have created after my birth. So the other aspect of my "smell" is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a "smell". If you see somebody, there is a smell. Katagiri smells. 
+So, if I see myself – here is Katagiri – immediately there is a certain kind of a [sense]; a “smell”. A part of this smell consists of something I have created after my birth. The other aspect of my “smell” is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a “smell”. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri "smell" is a kind of a result we have judged. So ... from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginingless past; you have to go back. And you have to go to the endless future; then you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, original nature of existence. Psychologically speaking, that is called total personality. Total personality; maybe trans-personality, whatever you say. (Presumably referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology)) 
+But Katagiri “smell” is a kind of a result we have judged. So ... from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginingless past; you have to go back. And you have to go to the endless future; then you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, original nature of existence. Psychologically speaking, that is called total personality. Total personality; maybe trans-personality, whatever you say. (Presumably referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology)) 
 
 But trans-personality immediately smells: "I smell something," "I smell myself as Katagiri". So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense. But in a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes a stink.
 
