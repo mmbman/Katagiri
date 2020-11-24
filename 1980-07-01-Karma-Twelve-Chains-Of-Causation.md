@@ -9,7 +9,9 @@
 
 **This transcript is still in rough draft form.**
 
-[Link to audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
+[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800701.mp3)
+
+<a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 (The online audio of this first talk is only about five minutes long: apparently the first side of the tape was blank. Very unfortunate. However, the talk from the following day appears after this one.)
 
@@ -27,3 +29,14 @@ So before time and space is completely normal sense of ignorance. This is birth 
 [Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
 
 [Home](index#karma-twelve-chains-of-causation)
+
+<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
+<script>
+    window.addEventListener("DOMContentLoaded", function() {
+        if (typeof NRWebReader != 'undefined') {
+            window['NRWebReader'] = new NRWebReader({
+            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
+            });
+        }
+    }); 
+</script>

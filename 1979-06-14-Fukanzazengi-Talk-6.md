@@ -7,7 +7,9 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6
 ## June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Audio file (mnzencenter.org link)](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
+[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790614.mp3)
+
+<a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -430,3 +432,14 @@ According to that ... I told you, right in the middle of the Universe there is t
 [Next Talk: Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7#0)
 
 [Home](index#fukanzazengi-lecture-6)
+
+<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
+<script>
+    window.addEventListener("DOMContentLoaded", function() {
+        if (typeof NRWebReader != 'undefined') {
+            window['NRWebReader'] = new NRWebReader({
+            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
+            });
+        }
+    }); 
+</script>

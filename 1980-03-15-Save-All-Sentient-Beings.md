@@ -7,7 +7,9 @@
 # Save All Sentient Beings
 ## March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800315.mp3)
+[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800315.mp3)
+
+<a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -342,3 +344,14 @@ The big shock is very important. It isn't important whether you understand it or
 [Next: Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
 
 [Home](index#1980)
+
+<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
+<script>
+    window.addEventListener("DOMContentLoaded", function() {
+        if (typeof NRWebReader != 'undefined') {
+            window['NRWebReader'] = new NRWebReader({
+            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
+            });
+        }
+    }); 
+</script>

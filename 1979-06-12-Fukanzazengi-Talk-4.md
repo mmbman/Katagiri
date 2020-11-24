@@ -7,7 +7,9 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4
 ## June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790612.mp3)
+[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790612.mp3)
+
+<a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -248,3 +250,14 @@ At that time, you can die while you're sitting, you can die while you're standin
 [Next Talk: Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5#0)
 
 [Home](index#fukanzazengi-lecture-4)
+
+<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
+<script>
+    window.addEventListener("DOMContentLoaded", function() {
+        if (typeof NRWebReader != 'undefined') {
+            window['NRWebReader'] = new NRWebReader({
+            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
+            });
+        }
+    }); 
+</script>

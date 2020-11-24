@@ -7,7 +7,9 @@
 # Diamond Sutra: Dharma / Not Dharma / Dharma
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Audio file at mnzencenter.org](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3)
+[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3)
+
+<a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -220,3 +222,14 @@ So you must be free from the enlightenment that you have experienced – and the
 [Next Talk: Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma)
+
+<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
+<script>
+    window.addEventListener("DOMContentLoaded", function() {
+        if (typeof NRWebReader != 'undefined') {
+            window['NRWebReader'] = new NRWebReader({
+            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
+            });
+        }
+    }); 
+</script>
