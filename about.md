@@ -1,7 +1,9 @@
 <a name="0"></a>
+<div class="header">
 [Previous](index) – 
 [Home](index) – 
 [Next](1979-05-09-Diamond-Sutra-Introduction#0)
+</div>
 
 ---
 # About This Website
