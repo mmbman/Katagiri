@@ -11,7 +11,7 @@
 
 (Note: On the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 came before Talk 2, I have switched the dates accordingly.)
 
-[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800517.mp3)
+<a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19800517.mp3" target="_blank">Listen to the Online Audio Archive</a>
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 

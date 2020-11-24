@@ -7,7 +7,7 @@
 # Diamond Sutra: Dharma / Not Dharma / Dharma
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3)
+<a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790815.mp3" target="_blank">Listen to the Online Audio Archive</a>
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
