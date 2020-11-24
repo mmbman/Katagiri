@@ -76,7 +76,7 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 Prajnaparamita: Wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[He chuckles.]* 
 
-In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything is conceptual. That’s why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
+In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything is conceptual. That is why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
 ##### 22:51
 
