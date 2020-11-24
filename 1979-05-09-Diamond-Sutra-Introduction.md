@@ -24,7 +24,7 @@ The third is the period in which a group of [Yogachara](glossary#yogachara) sutr
 
 ##### 3:18
 
-During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. And the third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [Fourth,] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four greater organizers and philosophers of Buddhist scriptures. 
+During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. And the third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [Fourth,] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers of Buddhist scriptures. 
 
 ##### 5:24
 
@@ -34,7 +34,7 @@ So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossar
 
 This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism ). 
 
-We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures are mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor). So absolutely no direct [Buddha](glossary#buddha)’s teaching mentioned. Even the [āgamas](glossary#āgama), or [Nikāyas](glossary#nikāya) – [there are] four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha’s disciples after Buddha’s death. So only those āgamas were compiled by Buddha’s disciples, collecting the Buddha’s statements or words and phrases and lots of teachings, which Buddha’s disciples had heard and had memorized. 
+We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures are mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor) – so absolutely no direct [Buddha's](glossary#buddha) teachings are mentioned. Even the [āgamas](glossary#āgama), or [Nikāyas](glossary#nikāya) – [there are] four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha’s disciples after Buddha’s death. So only those āgamas were compiled by Buddha’s disciples, collecting the Buddha’s statements or words and phrases and lots of teachings, which Buddha’s disciples had heard and had memorized. 
 
 ##### 10:17
 
@@ -50,7 +50,7 @@ But during the first and the second centuries, lots of the [Mahayana](glossary#m
 
 Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha), Indian people believe those scriptures are really Buddha’s teaching. They don’t have any doubt; they accept perfectly those scriptures as Buddha’s teachings. That’s why we don’t know who wrote them. But it doesn’t matter; it doesn’t matter.
 
-Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don’t know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote it – but we are “suspicious” whether such a person existed or not. Well, anyway, we don’t know who wrote it, but huge Buddhist scriptures exist. 
+Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don’t know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote it – but we are “suspicious” whether such a person existed or not. Well, anyway, we don’t know who wrote them, but huge Buddhist scriptures exist. 
 
 So those authors were really genuine religious persons, who understood the religious spirit mentioned by [Buddha](glossary#shakyamuni-buddha), and also the tendency of the religious and philosophical thought of those days. 
 
@@ -58,11 +58,11 @@ So those authors were really genuine religious persons, who understood the relig
 
 I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
-I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more literature, Buddhist literature – beautiful. But Diamond Sutra is sort of the teaching based on philosophical Buddhist teaching. So, a little “dry”. 
+I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more like literature, Buddhist literature – beautiful. But Diamond Sutra is sort of the teaching based on philosophical Buddhist teaching. So, a little “dry”. 
 
 ##### 18:58
 
-The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of A.D. by Indian people. Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That’s why if you read the Buddhist scriptures written by Indian people, they use lots of numbers. In modern people, in our days, the number billions is maybe the top, but Indian people use more than billions. That is kalpas, eons; [numbers] that are completely beyond the measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought. Huge.
+The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of the Common Era by Indian people. The Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That’s why if you read the Buddhist scriptures written by the Indian people, they use lots of numbers. With modern people in our days, the number billions is maybe the top, but Indian people use more than billions. That is kalpas, eons; numbers that are completely beyond the measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought. Huge.
 
 So [Prajnaparamita](glossary#prajnaparamita) is what is called The Perfection of Wisdom. The Indian people try to explain what wisdom is, according to concept. So, for instance, in [Diamond Sutra](glossary#diamond-sutra), it says: 
 
@@ -76,7 +76,7 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 Prajnaparamita: Wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[He chuckles.]* 
 
-In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything conceptual. That’s why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
+In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything is conceptual. That’s why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
 ##### 22:51
 
