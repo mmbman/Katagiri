@@ -86,11 +86,13 @@ For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) alwa
 
 A [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” *[The group laughs.]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
 
-So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You've made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not cow; it’s Isan. *[Laughter.]* And then, Isan said to the assembly: “How do you call it?” Do you understand? Very practical, very practical. *[Laughter.]* How do you call it? 
+So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You have made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not a cow; it’s Isan. *[Laughter.]* And then, Isan said to the assembly: “How do you call it?” 
 
-For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is cow. *[He laughs.]* But you say “cow”; it’s not cow. 
+Do you understand? Very practical, very practical. *[Laughter.]* How do you call it? 
 
-Or, for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha: human beings buddha, floors buddha, trees buddha, Dan is buddha. If so, monk says, “Shall I call you Dan?” *[The group laughs.]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It’s not Katagiri, or it’s Dan. But it’s not Dan; it’s Katagiri. How do you call it?
+For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is a cow. *[He laughs.]* But you say “cow”; it’s not a cow. 
+
+Or, for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha; human beings are buddha, floors are buddha, trees are buddha, Dan is buddha. If so, a monk says, “Shall I call you Dan?” *[The group laughs.]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It’s not Katagiri, or it’s Dan. But it’s not Dan; it’s Katagiri. How do you call it?
 
 (Note: He might be saying “Dainin” not “Dan”, but it doesn’t sound like it.)
 
