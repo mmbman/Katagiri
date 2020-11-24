@@ -34,7 +34,7 @@ So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossar
 
 This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism ). 
 
-We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures are mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor) – so absolutely no direct [Buddha's](glossary#buddha) teachings are mentioned. Even the [āgamas](glossary#āgama), or [Nikāyas](glossary#nikāya) – [there are] four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha’s disciples after Buddha’s death. So only those āgamas were compiled by Buddha’s disciples, collecting the Buddha’s statements or words and phrases and lots of teachings, which Buddha’s disciples had heard and had memorized. 
+We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures are mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor) – so absolutely no direct [Buddha's](glossary#buddha) teachings are mentioned. Even the [āgamas](glossary#āgama), or [Nikāyas](glossary#nikāya) – there are four kinds of āgamas, which are the oldest Buddhist scriptures, compiled by Buddha’s disciples after Buddha’s death. So only those āgamas were compiled by Buddha’s disciples, collecting the Buddha’s statements or words and phrases and lots of teachings, which Buddha’s disciples had heard and had memorized. 
 
 ##### 10:17
 
@@ -58,7 +58,7 @@ So those authors were really genuine religious persons, who understood the relig
 
 I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
-I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more like literature, Buddhist literature – beautiful. But Diamond Sutra is sort of the teaching based on philosophical Buddhist teaching. So, a little “dry”. 
+I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more like literature, Buddhist literature – beautiful. But Diamond Sutra is sort of based on philosophical Buddhist teaching. So, a little “dry”. 
 
 ##### 18:58
 
@@ -242,3 +242,14 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 [Next Talk: Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1#0)
 
 [Home](index#diamond-sutra-introduction)
+
+<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
+<script>
+    window.addEventListener("DOMContentLoaded", function() {
+        if (typeof NRWebReader != 'undefined') {
+            window['NRWebReader'] = new NRWebReader({
+            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
+            });
+        }
+    }); 
+</script>
