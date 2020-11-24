@@ -92,7 +92,7 @@ Do you understand? Very practical, very practical. *[Laughter.]* How do you call
 
 For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is a cow. *[He laughs.]* But you say “cow”; it’s not a cow. 
 
-Or, for instance, everything is [Buddha](glossary#buddha) . Everything is Buddha; human beings are buddha, floors are buddha, trees are buddha, Dan is buddha. If so, a monk says, “Shall I call you Dan?” *[The group laughs.]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It’s not Katagiri, or it’s Dan. But it’s not Dan; it’s Katagiri. How do you call it?
+Or, for instance, everything is [Buddha](glossary#buddha): human beings are buddha, floors are Buddha, trees are Buddha, Dan is Buddha. If so, a monk says, “Shall I call you Dan?” *[The group laughs.]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It’s not Katagiri, or it’s Dan. But it’s not Dan; it’s Katagiri. How do you call it?
 
 (Note: He might be saying “Dainin” not “Dan”, but it doesn’t sound like it.)
 
@@ -100,27 +100,27 @@ That’s sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddh
 
 ##### 27:05
 
-This philosophy is not matter of the ‘A’ itself, or the buffalo or cow itself. It doesn’t matter. But, the matter of existential fact, or reality – that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
+This philosophy is not a matter of the ‘A’ itself, or the buffalo or cow itself. It doesn’t matter. But, the matter of existential fact or reality, that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
 
-The important point is the existential reality. What is the existential reality? If you say [Katagiri](glossary#katagiri), it is what his existential fact or reality is. That is a point. But usually we don’t believe that; we don’t say that, we don’t understand it in that way. If you see Katagiri, immediately you say “Katagiri”. This very understandable – but it’s a very shallow understanding. 
+The important point is the existential reality. What is the existential reality? If you say [Katagiri](glossary#katagiri), it is what his existential fact or reality is. That is a point. But usually we don’t believe that; we don’t say that, we don’t understand it in that way. If you see Katagiri, immediately you say “Katagiri.” This is very understandable – but it’s a very shallow understanding. 
 
 ##### 28:40
 
-Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say – nothing to say. Nothing to say. It’s vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say – nothing to say. Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
-In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That’s why, first of all, we have to deny your understanding. But – to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
+In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why, first of all, we have to deny your understanding. But – to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
 ##### 31:11 
 
-For instance, here is a paper, white paper. At that time you say immediately, “This is white paper.” But, we don’t say “white paper”. If we say “this is white paper,” you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, “This is not white.” “Not white” means to bring the other colors into your mind. “Not white” doesn’t mean to destroy white; “not white” means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means white paper, white color, doesn’t exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. 
+For instance, here is a paper, white paper. At that time you say immediately, “This is white paper.” But, we don’t say “white paper.” If we say “this is white paper,” you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, “This is not white.” “Not white” means to bring the other colors into your mind. “Not white” doesn’t mean to destroy white; “not white” means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means white paper, white color, doesn’t exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. 
 
-That is negation. That’s why we have to negate first: white is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
+That is negation. That is why we have to negate first: white is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
 
 ##### 33:04
 
 Do you understand? This is a very simple explanation. Usually we don’t understand in that way, because we understand negation as negation. But negation is not merely negation, destroying something. “No eyes, no ears, no mouth, no body, no mind” doesn’t mean to destroy your eyes, your nose. If you say “no eyes,” that means pay careful attention to the rest of the physical parts: nose, mouth, ears, head, heart, and consciousness; lots of things. And also, circumstances, and the nature of all beings. 
 
-That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supported by ... nose, mouth, ears, body, mind – all natures. That’s why at that time, no eyes can emphasize their own existence based on egoistic sense. “I am eye,” they cannot say. So completely, eyes keep their own mouth shut. *[He chortles, then the group laughs.]* 
+That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supported by ... nose, mouth, ears, body, mind – all natures. That is why at that time, no eyes can emphasize their own existence based on egoistic sense. “I am eye,” they cannot say. So completely, eyes keep their own mouth shut. *[He chortles, then the group laughs.]* 
 
 Actually, practically or actually, eyes function or eyes try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say eyes, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. 
 
@@ -134,7 +134,7 @@ I told you always: Zen practice is very simple. I told you, very practically, th
 
 Do you understand? So you say, “I am a guitar player”, “I am a musician.” You say it very simply: “I am a guitar player.” “I am a painter.” “I am a poet.” Of course, you are a poet. You are a guitar player, you are a musician, you are a painter. I understand. But it’s not good *enough*. You are *not* a poet. “How come?” A simple question: “How come? I am a poet. I am a writer.” Of course you are a writer, you are a musician. But, *watch out* – okay? You are not a musician; you are not a writer. That means, you have to write something with all sentient beings. 
 
-How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It’s pretty hard. But at that time, you are called a great writer, great painter. 
+How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing, just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All the *[unintelligible]* that your pen and hands move to write, very naturally. It is pretty hard. But at that time, you are called a great writer, great painter. 
 
 That’s why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, or painter, or musician, you have to practice. Not for a certain period of time – for long. From the beginning to end, you have to do it. 
 
@@ -144,15 +144,17 @@ That is a great chance for you to practice, to continue to do it.
 
 ##### 40:46
 
-This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that’s why we say ‘A’ is ‘A’.” We don’t understand exactly. “‘A’ is ‘A’” – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already. Because we originally are completely vastness; no confusion. But we are always [saying], “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say – you don’t like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
+This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of ... contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that’s why we say ‘A’ is ‘A’.” We don’t understand exactly. “‘A’ is ‘A’” – why is it we have to think that? It makes us confused. 
+
+But *who* makes you confused? *You* make yourself confused, already; because we originally are completely vastness; no confusion. But we are always [saying], “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say – you don’t like, or you like – what is life? What are you? You are still you, and your life is existent. How can you judge? 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
-And sometimes, vastness is personalized, and it’s called [Buddha](glossary#buddha). Because we realize vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
+And sometimes, vastness is personalized, and it’s called [Buddha](glossary#buddha).  We realize the vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
 ##### 43:50
 
-So, who makes your confused? ... We make ourselves confused, that’s all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is the intellectual understanding of human existence. Immediately we analyze an existential fact. If we analyze the existential fact, we are at two contradictory [aspects]. ‘A’ is ‘A’, but ‘A’ is not ‘A’. [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features].
+So, who makes you confused? ... We make ourselves confused, that’s all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is the intellectual understanding of human existence. Immediately we analyze an existential fact. If we analyze the existential fact, we are at two contradictory [aspects]. ‘A’ is ‘A,’ but ‘A’ is not ‘A.’ [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must be [one], must be alive, with Zen Center. It is true, Katagiri is not Katagiri. And then, I understand myself in all [features].
 
 ##### 45:23
 
@@ -160,7 +162,9 @@ This is very important. That’s why we have to explain [ourselves] – because 
 
 This is very natural. If you understand in that way, it’s not necessary to have a complicated system of understanding: “‘A’ is ‘A’; ‘A’ is not ‘A’; that’s why ‘A’ is ‘A’” – it’s not necessary to say so. But we have to do so, because consciousness is already complicated. That’s why we have to explain. That’s it.
 
-That is characteristic of a human being. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[Laughter.]* Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don’t like the dog barking at me. But, nothing to do. Sometimes, well, just one word, a very simple word, you can stop it; don’t give a gentle word, just a simple word: “*shut up*”. *[Laughter.]*
+That is characteristic of a human being. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[Laughter.]* 
+
+Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don’t like the dog barking at me. But, nothing to do. Sometimes, well, just one word, a very simple word, you can stop it; don’t give a gentle word, just a simple word: “*shut up*”. *[Laughter.]*
 
 *[Tape change.]*
 
@@ -178,9 +182,9 @@ Obviously we have to think like this. This is a beautiful, beautiful aspect of h
 
 ##### 49:42
 
-But finally, the final practice is very simple: ‘A’ is just ‘A’. Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything; nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
+But finally, the final practice is very simple: ‘A’ is just ‘A.’ Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything; nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
 
-That’s why a [Zen Master](glossary#zen-master) says, “When you feel hungry, eat. When you feel [sleepy], sleep.” But this is the third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand the Zen saying, “When you feel hungry, eat. When you feel sleepy, sleep.” This is not the first stage, first level of understanding; this is the very profound, highest level of understanding. 
+That’s why a [Zen Master](glossary#zen-master) says, “When you feel hungry, eat. When you feel [sleepy], sleep.” But this is the third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand the Zen saying, “When you feel hungry, eat. When you feel sleepy, sleep.” This is not the first stage, the first level of understanding; this is the very profound, highest level of understanding. 
 
 ##### 51:30
 
@@ -190,7 +194,7 @@ Do you have some questions?
 
 The textbook is the combined textbook, Buddhist Wisdom Books, [compiling] two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find a cheaper ... paperback. ([“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 
-He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra). Without the commentary, it’s very difficult to understand, because very often you can see very contradictory expression of the Buddhist teaching.
+He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra). Without the commentary, it’s very difficult to understand, because often you can see very contradictory expressions of the Buddhist teaching.
 
 Okay, do you have any questions? 
 
@@ -206,7 +210,7 @@ Okay, do you have any questions?
 
 ##### 54:13
 
-**Question**: [Roshi](glossary#roshi), two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. And this came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
+**Question**: [Roshi](glossary#roshi), two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. This came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
 *[Laughter.]*
 
@@ -226,7 +230,7 @@ Because we have to understand something as a whole. “‘A’ is ‘A’; ‘A�
 
 It makes you sometimes confused, but this is very nice practice for you. *[Laughter.]* But practically, it’s very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That’s all. This is [zazen](glossary#zazen).
 
-But when you expect something, you completely go away from your home. Seeking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it’s fine, but it makes you dizzy, that’s all. Running here and there, always. But the more you are busy, the more you are exhausted. That’s all. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is [alright].” This is our point. That’s all. The basic practice is very simple, very simple, really.
+But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it’s fine, but it makes you dizzy, that’s all. Running here and there, always. But the more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is [alright].” This is our point. That’s all. The basic practice is very simple, very simple, really.
 
 But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: “Oh yes, I want to go back to my home.” Everyone understands. But it takes time, because until it’s penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
 
