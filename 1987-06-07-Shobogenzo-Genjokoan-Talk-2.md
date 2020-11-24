@@ -46,10 +46,9 @@ So you should live in the vast, expansive realm of the world, surrounded by all 
 
 ##### 9:40
 
-So, let's see the [Genjokoan](shobogenjo#genjokoan). Do you have Genjokoan? [rustling of papers in group]
+So, let's see the [Genjokoan](shobogenjo#genjokoan). Do you have Genjokoan? *[There is the sound of rustling papers in the group.]*
 
 And, last sentence, there is a conclusion there. Last one. 
-[more page turning in group]
 
 Last sentence, it says: "Because the nature of wind is eternal, the wind of [Buddhism](glossary#buddhism) causes the manifestation of the earth's being gold, and by participation, develops the long river into butter."
 
@@ -71,7 +70,7 @@ Last sentence, it says: "Because the nature of wind is eternal, the wind of [Bud
 > 
 > (Transcriber's Note: I will include alternative translations from "Dark Side of the Mirror" by David Brazier, "Realizing Genjokoan" by Shohaku Okumura, "Treasury of the True Dharma Eye" edited by Kazuaki Tanahashi, and the Nishijima & Cross translation of Shobogenzo, in that order. Comparison may be useful. The line numbering, which is somewhat arbitrary, here is borrowed from Brazier. I do not know what translation Katagiri Roshi is using.)
 
-[More of the group figuring out what page to be on. Page 35, apparently.]
+*[More of the group figuring out what page to be on. Page 35, apparently.]*
 
 ##### 10:45
 
@@ -81,7 +80,7 @@ The wind of [Buddhism](glossary#buddhism): I think... in this case [Dogen Zenji]
 
 What is the responsibility, what is the duty for us, if you want to be present in this world as a human being? That is, a human being who has great refined lifestyle of [Buddha](glossary#buddha)'s family. What is the duty? Our duty is to turn the earth - [alayavijñāna](glossary#alayavijñāna), alaya world, karmic life - into gold - means [tathāgatagarbha](glossary#tathāgatagarbha), Buddha's world. How? You should participate in it(?), directly. Regardless of whether you judge your life, "I am enlightened," or "unenlightened"; it doesn't matter. All you have to do is, you should participate in this practice, directly, day by day. And then, at that time, your life ripens, very naturally. So, you can develop the long river: your whole life, including past, present, future, into the butter, sweet butter - means into the peaceful, harmonious world. That is your total personality coming up.
 
-How do you develop the whole personality? It's not your business. Your business is, just to participate in this practice. That's it! And then, whole personality coming up just like water under the ground, coming up if your pipe touches the water vine(?) - naturally water [makes "shoop" sound] coming up. 
+How do you develop the whole personality? It's not your business. Your business is, just to participate in this practice. That's it! And then, whole personality coming up just like water under the ground, coming up if your pipe touches the water vine(?) - naturally water – *[shoop]* – coming up. 
 
 ##### 15:00
 
@@ -91,7 +90,7 @@ Is that okay?
 
 ##### 15:42
 
-So, what is the practice for us? [chuckle] Well, we always say, "We want to, we want to attain enlightenment, we want to be enlightened person," et cetera. We are always "juggling" - juggling? - in the realm of human ... samsara. Always juggling: "you are wrong," "I am right," you know? "I practice for ten years, and with person," "You are always lazy; you are not Buddhist." And always, "I love him, so he is my teacher." It's ridiculous! [laughter] And then always... a person sometimes tells you the bitter things: "Oh, I don't like him. He is not my teacher." Something like that. They're always juggling like this. 
+So, what is the practice for us? *[He chuckles.]* Well, we always say, "We want to, we want to attain enlightenment, we want to be enlightened person," et cetera. We are always "juggling" - juggling? - in the realm of human ... samsara. Always juggling: "you are wrong," "I am right," you know? "I practice for ten years, and with person," "You are always lazy; you are not Buddhist." And always, "I love him, so he is my teacher." It's ridiculous! *[Laughter.]* And then always... a person sometimes tells you the bitter things: "Oh, I don't like him. He is not my teacher." Something like that. They're always juggling like this. 
 
 How do you understand? How do you share your life with all sentient beings, in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, with shaking hand; actually, practically, you never built up peaceful world, from day to day. No way. Always you are fighting, [suffering](glossary#suffering). That's why [Dogen Zenji](glossary#dogen) mentions like this. 
 
@@ -161,7 +160,7 @@ Yesterday I mentioned, if you see the human world in terms in terms of ordinary 
 
 At that time ... if you go beyond, free from conceptualization of karmic life, at that time you really participate directly in [alayavijñāna](glossary#alayavijñāna), which means [tathāgatagarbha](glossary#tathāgatagarbha). Tathāgatagarbha is only when you participate in it, in deep understanding, deep taste, profound taste of alayavijñāna; then alayavijñāna turns into [Buddha](glossary#buddha)'s world, tathāgatagarbha.
 
-Yesterday I mentioned, whole space, koku, fall down to the earth and be *crushed*. Then, that is the time when oak tree become buddha. We are always separated. When whole skies, whole world are crushed. We must be buddha. When you become buddha? Whole world, crushed. Nothing to compare. What do you mean? Just energy, working. And then, you become buddha. When you become buddha, that is the time when whole earths are crushed. That is direct participation in [alayavijñāna](glossary#alayavijñāna), instead of understanding the human world, human life in the world of conceptualization. That is very tricky, very tricky. It's very difficult to participate in that, the alayavijñāna directly, and turn it into [tathāgatagarbha](glossary#tathāgatagarbha). It's very difficult. Because, our head, it's very strong; stubborn. [chuckles] Oh, it's stubborn.
+Yesterday I mentioned, whole space, koku, fall down to the earth and be *crushed*. Then, that is the time when oak tree become buddha. We are always separated. When whole skies, whole world are crushed. We must be buddha. When you become buddha? Whole world, crushed. Nothing to compare. What do you mean? Just energy, working. And then, you become buddha. When you become buddha, that is the time when whole earths are crushed. That is direct participation in [alayavijñāna](glossary#alayavijñāna), instead of understanding the human world, human life in the world of conceptualization. That is very tricky, very tricky. It's very difficult to participate in that, the alayavijñāna directly, and turn it into [tathāgatagarbha](glossary#tathāgatagarbha). It's very difficult. Because, our head, it's very strong; stubborn. *[He chuckles.]* Oh, it's stubborn.
 
 ##### 29:27
 
@@ -171,7 +170,7 @@ What is this? This is your world, created by you? No. This is the world created 
 
 ##### 30:30
 
-And then, next, "When the myriad [dharma](glossary#dharma) are all not self, there is no delusion, no enlightenment, no [buddhas](glossary#buddha), no sentient beings, no birth and no death." Then at that time, you are you, but you are not you. You are all sentient beings. You are supported by all sentient beings. So you shouldn't always attach to yourself: "I am great." I don't think (so); this is really egoistic. If you become really great, in other words, if you really become mature, you don't know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water. People just participating in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It's not a stream of water, so always bumping, lots of maturity there: your maturity, my maturity, [laughter] always bumping, and creating a creaking sound. Do you understand? That is the human world that we all research(?).
+And then, next, "When the myriad [dharma](glossary#dharma) are all not self, there is no delusion, no enlightenment, no [buddhas](glossary#buddha), no sentient beings, no birth and no death." Then at that time, you are you, but you are not you. You are all sentient beings. You are supported by all sentient beings. So you shouldn't always attach to yourself: "I am great." I don't think (so); this is really egoistic. If you become really great, in other words, if you really become mature, you don't know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water. People just participating in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It's not a stream of water, so always bumping, lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we all research(?).
 
 ##### 31:57
 
@@ -183,7 +182,7 @@ So in the next, if so, what is true reality? He said, "Because the [Buddha Way](
 
 Next, last sentence says, "Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them." Yesterday, Shoken Floyd Winecoff asked me, when you feel (pensive?) ... talking about sadness. Religiously speaking, if you see your karmic life, there is some deep sadness there. For instance, if I look at myself, there is a deep sadness there. Because I cannot handle it... I cannot control, anyway. It can be controlled, but it's not usual way. You cannot control it in the usual way. It can be controlled, but not in the usual way; that's why it's very difficult. So in a sense, deep sadness there. 
 
-Deep sadness means, completely beyond speculation, when you see something, you feel sad, you feel pensive. So when the flower falls, you feel, well, pensive. And say, "Please, stay on the branch," you know? When weeds grows, you *hate* it. I've really experienced this hatred in the everyday cleaning my temple yard. [chuckles] Big temple yard, and by myself, picking up. I didn't have a big machine, or chemicals to kill the weeds, so I had to pick up weeds every day. When you see them, you know, it's really questionable. I always ask them, "What are you doing here? (What am I doing here?) That is your lifestyle, spending your... picking up grasses like this? This is purpose of monk's life?" [laughter] So I thought, "Oh, big mistake." [laughter] "Why did I become a monk?" [laughter] I have no choice, so always, I did it, you know? 
+Deep sadness means, completely beyond speculation, when you see something, you feel sad, you feel pensive. So when the flower falls, you feel, well, pensive. And say, "Please, stay on the branch," you know? When weeds grows, you *hate* it. I've really experienced this hatred in the everyday cleaning my temple yard. *[He chuckles.]* Big temple yard, and by myself, picking up. I didn't have a big machine, or chemicals to kill the weeds, so I had to pick up weeds every day. When you see them, you know, it's really questionable. I always ask them, "What are you doing here? (What am I doing here?) That is your lifestyle, spending your... picking up grasses like this? This is purpose of monk's life?" *[Laughter.]* So I thought, "Oh, big mistake." *[Laughter.]* "Why did I become a monk?" *[Laughter.]* I have no choice, so always, I did it, you know? 
 
 ##### 37:44
 
@@ -241,13 +240,13 @@ So here it says, acting on... witnessing myriad things means cultivating practic
 
 ##### 44:30
 
-If it is delusion, which you should hate - at that time, all sentient nature coming to you and help(ing) you. In the 1960's and 70's, always the hippie says, "I don't know where I am going (now). The Universe takes care of me." Something like that. Can't you say so? [chuckles] No way. If you do it, your life becomes mess. 
+If it is delusion, which you should hate - at that time, all sentient nature coming to you and help(ing) you. In the 1960's and 70's, always the hippie says, "I don't know where I am going (now). The Universe takes care of me." Something like that. Can't you say so? *[He chuckles.]* No way. If you do it, your life becomes mess. 
 
 So first of all, you have to move toward the nature, toward the world, and take care of it. And then, at that time, you can verify the presence of the world, with you. That's why we have to do it. But, it is delusion. But we say, "It is right. Enlightenment." I don't think it is. Prejudice. Ego. So that's why, if you see the very ... energetic businessmen, and politicians, whoever they are; you really respect them, because he's always acting positively, creating something. He's a wonderful person. But I don't think it's wonderful. It is a delusion. 
 
 But that delusion, the point is: there is no other way, except deluded way, in order to reach whole world. So, important point is: Don't be stuck in delusion. You can use properly delusion. How? Simply deal with delusions; as simple as you can. There is no reason you should be stuck, you should (be) proud of yourself; no matter how long, no matter what. You are successful in business, or politics, et cetera; even though I became a saint, there is no reason I should be proud of myself. No way. Because it is delusion. That is my karmic life. Just like an owl can see everything at night; something like that. "By practice, I became a saint": it is wonderful? No; it's not wonderful. It is just like a owl...
 
-[tape change]
+*[Tape change.]*
 
 ... because I create it. But on the other hand, please deal with... If so, it is wrong? No, it's not wrong. Behind this delusion, huge, expansive world is there, by which your delusion is supported. So, don't get stuck with delusion. Please use delusion in universal perspective. That is a [bodhisattva](glossary#bodhisattva) practice. That's why bodhisattvas suffer from their life, and also from peoples' life, all sentient beings' life: how to save, how to help all sentient beings. Is that clear? 
 
@@ -301,7 +300,7 @@ So, it's... just like your body soaks in the stream. And then, your whole body (
 
 ##### 55:37
 
-That's why you sense when the [buddhas](glossary#buddha) are indeed the buddhas, at that time, you become buddhas. With great enlightenment about delusion, is all sentient beings. That is you. Great enlightenment about delusion is buddhas; great delusion about enlightenment is sentient beings, because, how to save all sentient beings? How to guide deluded, stubborn people to buddha's way? It's very hard. It's really tired. [group laughter] But this is... anyway, there is no other way. So you have to continue to live. That is great delusion about enlightenment. This is called sentient being. This is called *you*. 
+That's why you sense when the [buddhas](glossary#buddha) are indeed the buddhas, at that time, you become buddhas. With great enlightenment about delusion, is all sentient beings. That is you. Great enlightenment about delusion is buddhas; great delusion about enlightenment is sentient beings, because, how to save all sentient beings? How to guide deluded, stubborn people to buddha's way? It's very hard. It's really tired. *[Laughter.]* But this is... anyway, there is no other way. So you have to continue to live. That is great delusion about enlightenment. This is called sentient being. This is called *you*. 
 
 And then, at that time, if you do it, that is called buddha becomes buddha. But, how do we know? Who proves this? 
 
@@ -331,7 +330,7 @@ Next, in seeing how do we do this... he says, that practice seems to be very har
 
 ##### 58:30
 
-So, all you have to do is, anyway, to bore a hole, you should throw away whole body and mind into your object. At that time, your body is reflected in the realm of your object. And interconnected and interpenetrating each other at super-speed, just like moon and water. But, never disturbed. Just creating the world; so-called "how beautiful it is". You feel this one, simultaneously. That's why it says, it isn't like reflecting image in the mirror, it is not like water and the moon. Because if you see the water and the moon, you separate. If you attain enlightenment, all sentient beings are reflected in your whole body and mind. And then, you say, "I am Universe!" [laughs] That's ridiculous. And then when you fall, and when you walk, a little far from the earth, three feet and five feet and walking, and then you say, "I am saint. Whole universe helps my life, and free from." That is not real enlightenment. That's ridiculous. That is called *prejudice*, okay? [group laughter]
+So, all you have to do is, anyway, to bore a hole, you should throw away whole body and mind into your object. At that time, your body is reflected in the realm of your object. And interconnected and interpenetrating each other at super-speed, just like moon and water. But, never disturbed. Just creating the world; so-called "how beautiful it is". You feel this one, simultaneously. That's why it says, it isn't like reflecting image in the mirror, it is not like water and the moon. Because if you see the water and the moon, you separate. If you attain enlightenment, all sentient beings are reflected in your whole body and mind. And then, you say, "I am Universe!" *[He laughs.]* That's ridiculous. And then when you fall, and when you walk, a little far from the earth, three feet and five feet and walking, and then you say, "I am saint. Whole universe helps my life, and free from." That is not real enlightenment. That's ridiculous. That is called *prejudice*, okay? *[Laughter.]*
 
 So, that's why it says, it is not like a reflecting image in the mirror. If you believe religion is to experience such a miracle, flying in the sky, that is just like relationship between... water and the moon. That's it. But real enlightenment is not like that. That's why he says it isn't like a reflecting image in the mirror, it is not like water and the moon. When you witness one side, one side is obscure. So, what is real enlightenment, what is real activity of human beings? At that time, when the moon is reflected in the water, whole water becomes moon. That's it. Whole universe. 
 
@@ -340,8 +339,6 @@ So, that's why it says, it is not like a reflecting image in the mirror. If you 
 So, you cannot see the moon, because moon's penetrated and disappeared, melted into your body and mind. So it is, you can experience; the way you climb, walk mountains, and then you have a consciousness, and always using a consciousness. But the more you really devote yourself into the rock mountains. Because no choice to escape, so it requires enormous attention to it. At that time, mind penetrates, your body and mind finally melts away. So where is it? What is this? What are they? They are just body; there is no work. Rock penetrated your body; just your body is there. But your body, through the rock procedures, using boots, using a rope, et cetera; that your body doesn't confuse, because mind is there, rock is there; but all are penetrated and melted away, so whole body is rock, whole body is rock mountain. And then, how do we know? Just climb. Activity of climb; perpetual flow of activity, called climbing. From moment to moment. That's it.
 
 [Buddhas](glossary#buddha) teaching is often mentioning about this one; worried about human beings from that point of view. That's why, a little difficult. That's why [Dogen Zenji](glossary#dogen) brings (it) up first. You should see the world in terms of buddha's eye. 
-
-[checks the time]
 
 ##### 1:03:30
 
@@ -379,7 +376,7 @@ Okay, do you have a question? I'm sorry, I didn't finish.
 
 **Question**: When no side is obscure - that's when all things are buddhas. 
 
-**Katagiri**: Yeah; behind, anyway. In other words, all sentient beings are behind you, always supporting. We are always going in front. But we have a back. But we don't see the back, you know; we always see the front, what's going on. But we always ignore the back. The back is huge. So, "the other sentient beings are obscure" means "with a back," in other words, behind you, and then supporting. Even though you don't like crying, "Oh, go ahead, go ahead," in many ways. [group laughter]
+**Katagiri**: Yeah; behind, anyway. In other words, all sentient beings are behind you, always supporting. We are always going in front. But we have a back. But we don't see the back, you know; we always see the front, what's going on. But we always ignore the back. The back is huge. So, "the other sentient beings are obscure" means "with a back," in other words, behind you, and then supporting. Even though you don't like crying, "Oh, go ahead, go ahead," in many ways. *[Laughter.]*
 
 That's spiritual teacher. If you become a spiritual teacher, you must be like that. You cannot be a front. If you become a front person, if you become a person in front, it's trouble maker. So if you become a spiritual teacher, you must be always a person of behind. But, it really helps.
 

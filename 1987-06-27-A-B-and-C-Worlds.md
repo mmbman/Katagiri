@@ -90,7 +90,7 @@ So ... why do you talk to the babies, in English or Japanese? Or why do you talk
 
 But constantly, you don't know, beyond good or bad, beyond being or not being. Beyond abundance or paucity - you always do it. There is a language, there is a baby's life, there is a monk's life. And then, whole thing's coming up. And then finally, you can say, this is education and this is language. But we don't do it. 
 
-And then lately, we say, let's teach English for the baby. And then [chuckles], we always set up a schedule, set up a frame, so-called "English Education"; training. And then we put the baby into the frame of training, just like training horses and cows. And always give language, and then, if baby doesn't understand, you're mad at it. Something like this. 
+And then lately, we say, let's teach English for the baby. And then – *[he chuckles]* – we always set up a schedule, set up a frame, so-called "English Education"; training. And then we put the baby into the frame of training, just like training horses and cows. And always give language, and then, if baby doesn't understand, you're mad at it. Something like this. 
 
 ##### 34:40
 

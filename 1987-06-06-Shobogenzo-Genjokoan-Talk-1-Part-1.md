@@ -40,7 +40,7 @@ Wisdom is regarded as [enlightenment](glossary#enlightenment). Which you really 
 
 **Person 1**: Something will come from outside and save you. 
 
-**Katagiri**: Oh, I see. [laughter] Alright, okay... that's fine. That is one way, fine. Any other.
+**Katagiri**: Oh, I see. *[Laughter.]* Alright, okay... that's fine. That is one way, fine. Any other.
 
 **Person 2**: Separated from something undesirable.
 
@@ -72,11 +72,11 @@ Speak up, that's alright. Anything? How do you understand?
 
 **Person 6**: Like a pawn shop.
 
-[laughter]
+*[Laughter.]*
 
 **Person 6**: No, literally, that's the image!
 
-**Katagiri**: Redemption. Is that okay? Do you understand now? Oh, all of you understand already, you know. [laughter] 
+**Katagiri**: Redemption. Is that okay? Do you understand now? Oh, all of you understand already, you know. *[Laughter.]* 
 
 Okay, that's... Any other person?
 
@@ -100,9 +100,9 @@ But, at that time, how do you feel, directly? Say that. That is the point. I’m
 
 **Person**: Peace.
 
-**Katagiri**: Peace! That’s it. If you use the usual term: peace. Peace is very popular. The more something is popular, the more people misunderstand it. But if something is not popular, then more people be really be careful to understand it. Do you understand? This is the human world. [chuckles] 
+**Katagiri**: Peace! That’s it. If you use the usual term: peace. Peace is very popular. The more something is popular, the more people misunderstand it. But if something is not popular, then more people be really be careful to understand it. Do you understand? This is the human world. *[He chuckles.]* 
 
-So [Buddhism](glossary#buddhism) is not popular now; that’s why you really struggle, paying attention what Buddhism is, what your life is. Being free from existing philosophy, psychology, religion, Western culture - you really pay attention carefully. But in the future, probably Buddhism could be popular in United States. At that time, I don’t know, it could be good for you, or not. I bet you, anyway. [laughter] You could see the many people who misunderstand it. 
+So [Buddhism](glossary#buddhism) is not popular now; that’s why you really struggle, paying attention what Buddhism is, what your life is. Being free from existing philosophy, psychology, religion, Western culture - you really pay attention carefully. But in the future, probably Buddhism could be popular in United States. At that time, I don’t know, it could be good for you, or not. I bet you, anyway. *[Laughter.]* You could see the many people who misunderstand it. 
 
 ##### 18:50
 
@@ -150,15 +150,15 @@ Okay. Salvation. So two crucial points I mentioned, alright? Wisdom and compassi
 
 **Person**: Everywhere.
 
-**Katagiri**: Everywhere; yes. Only everywhere is very vague. [laughter] Everywhere... how can you see that everywhere. From where? When you say everywhere, who talking about everywhere? *You* talking about everywhere. [laughs] So everywhere come from here. But if you are not there, you cannot say everywhere. Do you understand? When you say ‘everywhere,’ at that time, you are really important pivot, pivotal position of existence. And then with that pivotal position of your life, it is very peaceful and harmonious. At that time, you can see everywhere. But when you are very confused, you cannot see everywhere. You are limited. That’s why you are very confused. Is that clear?
+**Katagiri**: Everywhere; yes. Only everywhere is very vague. *[Laughter.]* Everywhere... how can you see that everywhere. From where? When you say everywhere, who talking about everywhere? *You* talking about everywhere. *[He laughs.]* So everywhere come from here. But if you are not there, you cannot say everywhere. Do you understand? When you say ‘everywhere,’ at that time, you are really important pivot, pivotal position of existence. And then with that pivotal position of your life, it is very peaceful and harmonious. At that time, you can see everywhere. But when you are very confused, you cannot see everywhere. You are limited. That’s why you are very confused. Is that clear?
 
 ##### 26:02
 
 So when you say everywhere, yes we understand it, but it’s very vague, very abstract. So finally where is ‘everywhere’? Where is cosmic? Where is the universe? The universe is  - immediately we can see the universe is a world, out of our life. But it is not. If you see the universe like this, out of you, you never understand the universe, cosmic. Because such a universe and cosmic, is nothing but the theoretical, nothing but the world of conceptualization; that’s it. So in the conceptualization you are always playing game; like chasing after your own tail, like a [cat](glossary#cat). 
 
-That is always. In philosophy, in psychology, in physics, in religion, even in religion, we do it. That’s why finally, it makes you fun, but simultaneously, fun is not always fun; it’s trouble. We are fighting and killing each other, under the beautiful flag of religion. Particularly priest; I have been a monk since 18 years old, I am talking about compassion and [egolessness](glossary#egolessness) - how much I understand the egolessness? You know, my mouth is always moving, just like the croaking frog [Dogen Zenji](glossary#dogen) mentions. Croacking frog in the spring field, rice field. Just like the cricket in Hokyoji in Autumn. But, it doesn’t connect with me. Just my mouth moves, that’s it. Lots of noise. But I have never experienced, directly, what the egolessness is. Do you understand? [laughs] You don’t understand. [laughs] The question I ask you, “Do you understand,” it is always something questionable. But what I want to tell you is, egolessness is not something conceptualized or understandable. Or ... reasonable. No. It’s not. You have to directly touch it. I don’t know, how can I say? 
+That is always. In philosophy, in psychology, in physics, in religion, even in religion, we do it. That’s why finally, it makes you fun, but simultaneously, fun is not always fun; it’s trouble. We are fighting and killing each other, under the beautiful flag of religion. Particularly priest; I have been a monk since 18 years old, I am talking about compassion and [egolessness](glossary#egolessness) - how much I understand the egolessness? You know, my mouth is always moving, just like the croaking frog [Dogen Zenji](glossary#dogen) mentions. Croacking frog in the spring field, rice field. Just like the cricket in Hokyoji in Autumn. But, it doesn’t connect with me. Just my mouth moves, that’s it. Lots of noise. But I have never experienced, directly, what the egolessness is. Do you understand? *[He laughs.]* You don’t understand. *[He laughs.]* The question I ask you, “Do you understand,” it is always something questionable. But what I want to tell you is, egolessness is not something conceptualized or understandable. Or ... reasonable. No. It’s not. You have to directly touch it. I don’t know, how can I say? 
 
-So I have been talking about [Buddha Nature](glossary#buddha-nature), compassion, wisdom, for many, many years, but I always slip off. Real [egolessness](glossary#egolessness), real compassion, always, I haven’t realized it for long, long time. But... talking is better than nothing. Better than nothing. That’s why if I talk about compassion through my head, it penetrates my skin and marrow. So talking and preaching is pretty nice. But if I preached, if I taught something compassionate, and then I fully believe that "I am good Buddhist” - no way. [laughs] That’s prejudice and ego. Okay? You don’t know this. Particularly when you become priest: *very* careful, you must be *very*, very careful. Because you are a person who conveys teaching of egolessness to others. By which people must be relieved and liberated, and guide them to have productive life. But ... we don’t do it.
+So I have been talking about [Buddha Nature](glossary#buddha-nature), compassion, wisdom, for many, many years, but I always slip off. Real [egolessness](glossary#egolessness), real compassion, always, I haven’t realized it for long, long time. But... talking is better than nothing. Better than nothing. That’s why if I talk about compassion through my head, it penetrates my skin and marrow. So talking and preaching is pretty nice. But if I preached, if I taught something compassionate, and then I fully believe that "I am good Buddhist” - no way. *[He laughs.]* That’s prejudice and ego. Okay? You don’t know this. Particularly when you become priest: *very* careful, you must be *very*, very careful. Because you are a person who conveys teaching of egolessness to others. By which people must be relieved and liberated, and guide them to have productive life. But ... we don’t do it.
 
 ##### 30:40
 
@@ -166,7 +166,7 @@ So, I think that’s why there are two crucial points. Let’s go back to crucia
 
 Last is, we don’t like salvation. Because if you love salvation so much, you feel boring. You feel boring, and also you feel cold from humanity, human nature. Do you understand that one? You feel cold, because always keep away from it. And then you have to get something from heaven... very relieved. Always you have to be mindful of something great beyond human world. Okay? But I don’t think it is salvation. The salvation is something manifested in concrete, in details, every day. That’s why when you do gassho, there is enlightenment and salvation there; otherwise, you cannot deal with gassho as a form with stability. Is that clear? 
 
-[Dogen Zenji](glossary#dogen) mentions [Buddha](glossary#buddha)’s teaching in terms of wisdom; that is [Shobogenzo](dogen#shobogenzo) [Genjokoan](dogen#genjokoan). Salvation is described by regulation of the monastery, so called Eihei Shingi. The last year, couple years ago, we had that practice; how to wash your face [chuckles], how to use the bathroom, how to cook in the kitchen, and how do you deal with toilet paper, and how do you deal with your clothes, and hairs, et cetera. And then, according to Dogen’s teaching, and everyone completely said the... kind of ... it seems to me everyone could be kind of suffocated, to death. [laughs] Because ... form, gassho is do this like this, and not like this, not like this, not like this; something like that. All this, Dogen [Zenji](glossary#zenji) puts you in a certain frame or form. And then you don’t like it; because you like freedom. The freedom that you like is not freedom! [chuckle] Confusion. In terms of Buddha’s eyes, your freedom is missed(?). That’s why Buddha always expresses his own compassion, and puts you in a certain frame, so called Buddha’s land, Buddha’s world. Cosmic. Whatever you say. But we don’t like it. But, there is salvation there. So where is the salvation? Right now, right here. That’s it.
+[Dogen Zenji](glossary#dogen) mentions [Buddha](glossary#buddha)’s teaching in terms of wisdom; that is [Shobogenzo](dogen#shobogenzo) [Genjokoan](dogen#genjokoan). Salvation is described by regulation of the monastery, so called Eihei Shingi. The last year, couple years ago, we had that practice; how to wash your face – *[he chuckles]*, how to use the bathroom, how to cook in the kitchen, and how do you deal with toilet paper, and how do you deal with your clothes, and hairs, et cetera. And then, according to Dogen’s teaching, and everyone completely said the... kind of ... it seems to me everyone could be kind of suffocated, to death. *[He laughs.]* Because ... form, gassho is do this like this, and not like this, not like this, not like this; something like that. All this, Dogen [Zenji](glossary#zenji) puts you in a certain frame or form. And then you don’t like it; because you like freedom. The freedom that you like is not freedom! *[He chuckles.]* Confusion. In terms of Buddha’s eyes, your freedom is missed(?). That’s why Buddha always expresses his own compassion, and puts you in a certain frame, so called Buddha’s land, Buddha’s world. Cosmic. Whatever you say. But we don’t like it. But, there is salvation there. So where is the salvation? Right now, right here. That’s it.
 
 ##### 35:35
 
@@ -184,7 +184,7 @@ So what is [egolessness](glossary#egolessness)? Egolessness is being liberated, 
 
 The second crucial point is, quality of [Buddha](glossary#buddha)’s experience or Buddha's teaching is wisdom and compassion. Wisdom, compassion; or, [enlightenment](glossary#enlightenment), salvation; both should work together from moment to moment. That is called spiritual life. You understand it, and you should live it. Live in it. This is our practice. 
 
-But problem is, you have never experienced (it) before. That’s why I always tell you, when you do [zazen](glossary#zazen), *do* zazen with wholeheartedness. But, you never believe it. [laughs] It is salvation, backed by whole universe. But you never believe it! So always, you don’t like it. Because it’s too simple; too simple to know. Something directly you have to touch is *too* close, too close to know. Very delicate. Do you understand? No. Never mind. Too close. 
+But problem is, you have never experienced (it) before. That’s why I always tell you, when you do [zazen](glossary#zazen), *do* zazen with wholeheartedness. But, you never believe it. *[He laughs.]* It is salvation, backed by whole universe. But you never believe it! So always, you don’t like it. Because it’s too simple; too simple to know. Something directly you have to touch is *too* close, too close to know. Very delicate. Do you understand? No. Never mind. Too close. 
 
 ##### 43:40
 
@@ -196,7 +196,7 @@ So genjo, present is...
 
 ##### 47:24
 
-[tape change]
+*[Tape change.]*
 
 ... present as it truly is. This is called gen jo. Present perfections. That is your reality. So, what is the present of what you are doing? That is called [zazen](glossary#zazen). It's something more than you believe. So, present of zazen is what you have been completed, and is being completed, and will be completed, constantly. Means, the present of zazen becomes present of zazen, right now, right here, and settle in the present of zazen. That's it! Believe this! If I explain it's complicated, but if you practice it, very simple. 
 
