@@ -144,36 +144,39 @@ That's why [Dogen Zenji](glossary#dogen) says, "A quiet room is suitable." Or, "
 
 ("Do not allow drafts of air to enter," etc. is from the [Zazengi](dogen#zazengi) chapter of [Shobogenzo](dogen#shobogenzo), which is distinct from [Fukan zazengi](dogen#fukanzazengi).)
 
-First of all, you should make a choice of circumstances. What kind of a room you have to use? Because you have six senses. You can see this room through your eyes. It gets really dark. If you paint this wall red, and green, and yellow – completely seems different, don't you think so? And also, if this room is too dark, it's not good; if this room is too bright, well, it distracts your mind, distracts the sense of seeing, vision. And also, if you choose the location of the room which is very noisy, a very noisy location, at that time it really distracts the sense of hearing. So the important point is, "A quiet room is suitable." And also, "Not too dark, not too bright, at any time, day or night." 
+First of all, you should make a choice of circumstances. What kind of a room you have to use? Because you have six senses. You can see this room through your eyes. It gets really dark. If you paint this wall red, and green, and yellow – it completely seems different, don't you think so? And also, if this room is too dark, it's not good; if this room is too bright, well, it distracts your mind, distracts the sense of vision. And also, if you choose ... a very noisy location, at that time it really distracts the sense of hearing. So the important point is, "A quiet room is suitable," and also, "Not too dark, not too bright, at any time, day or night." 
 
-
-So that is how to make arrangement of sensory world, instead of destroying, escaping from, or expressing hatred toward sensory world. You should do this.
+So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should do this.
 
 ##### 39:42
 
-And next, movement system. Movement system comes from unity of your physical and mental focus. Your body and mind work, then simultaneously movement comes up. You cannot destroy your movement. Sometimes movement comes from instinct, sometimes comes from sensory world, sometimes comes from higher level of [thought]. Sometimes, we don't know. [Karma](glossary#karma)? But anyway, there is always movement. 
+And next, the movement system. Movement system comes from unity of your physical and mental focus. Your body and mind work, then simultaneously movement comes up. You cannot destroy your movement. Sometimes movement comes from instinct, sometimes it comes from the sensory world, sometimes it comes from a higher level of [thought]. Sometimes, we don't know. [Karma](glossary#karma)? But anyway, there is always movement. 
 
-So, we have to make arrangement of movement. For this, [Dogen Zenji](glossary#dogen) says, that is half lotus position or full lotus position. Or Dogen Zenji says, "Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel." Or, "Sitting upright in proper position, neither inclining to the left nor to right; leaning neither forward nor backward. Sitting in [zazen](glossary#zazen) silently, and immobile." 
+So, we have to make arrangement of movement. For this, [Dogen Zenji](glossary#dogen) says, that is half lotus position or full lotus position. Or Dogen Zenji says: "Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel." Or, "Sitting upright in proper position, neither inclining to the left nor to right; leaning neither forward nor backward. Sitting in [zazen](glossary#zazen) silently, and immobile." 
 
 This is very simple movement. Two hands are unified; your eyes are not wide open, not closed, just [half]. That is [unification] of the movement of your eye-nerve system. Very unified. 
 
-If you open your eyes wide, it really distracts your mind. So, not wide, not closed. And two hands put together, and lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, and half lotus. And just sit down; not leaning forward, not leaning backward; just straight up. 
+If you open your eyes wide, it really distracts your mind. So, not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward; just straight up. 
 
-This is movement, simplified by our arrangement. 
+This is movement simplified by our arrangement. 
 
 ##### 42:38
 
-And next, the gut system. For this, [Dogen](glossary#dogen) says, "Eat and drink moderately." And also, "Breathe gently through your nose." But actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It's going on. Even though your heart is beating, [go and] slow down, okay? And then you put the gasoline into it, and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* slow down - but that is [*unintelligible*]. Either way, it is. Sometimes you have to accept it.
+And next, the gut system. For this, [Dogen](glossary#dogen) says, "Eat and drink moderately." And also, "Breathe gently through your nose."
 
-So, your heart, your lungs, and your stomach, your intestines, hormone system, are completely beyond your control. But there is one thing that you can control, and that is the breath. And also this breath really influences the whole system, all systems of the hormones, and also the lungs, and heart, everything. That is the breath. That's why we try to concentrate on the breath, taking care of breath. At that time, all guts work very naturally, very naturally. Circulation of your breath, pretty good. [The pulse] is pretty good. And your heart is beating normally. Very natural. 
+But actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It's going on. Even though your heart is beating, [go and] slow down, okay? And then you put the gasoline into it, and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* slow down - but that is [*unintelligible*]. Either way, it is. Sometimes you have to accept it.
+
+So, your heart, your lungs, and your stomach, your intestines, hormone system, are completely beyond your control. But there is one thing that you can control, and that is the breath. This breath really influences the whole system, all systems of the hormones, and the lungs, and heart, everything. 
+
+That is the breath. That's why we try to concentrate on the breath, taking care of breath. At that time, all your guts work very naturally. Circulation of your breath, pretty good. [The pulse] is pretty good. And your heart is beating normally. Very natural. 
 
 ##### 44:56
 
-Next, the brain-nerve system. According to brain-nerve system, [Dogen Zenji](glossary#dogen) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha)." 
+Next, the brain-nerve system. [About the] brain-nerve system, [Dogen Zenji](glossary#dogen) says, "Do not think good or bad; do not administer pros and cons." Or, "Cease all the movements of the conscious mind, the gauging of thoughts and views. Have no design on becoming a [Buddha](glossary#buddha)." 
 
 (It looks like the translation Katagiri is using may be Norman Waddell's, as it says "administer pros and cons". See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf))
 
-That is the brain-nerve system. According to brain-nerve system, we have to regulate mind. Mind is characterized by attachment; attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind...
+That is the brain-nerve system. According to the brain-nerve system we have to regulate mind. Mind is characterized by attachment; attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind...
 
 [*Tape change.*]
 
@@ -181,7 +184,7 @@ That is the brain-nerve system. According to brain-nerve system, we have to regu
 
 ##### 46:20
 
-Completely throw away any germination of wishes, thoughts, views. You just view yourself spin with [zazen](glossary#zazen) . That's all you have to do. 
+Completely throw away any germination of wishes, thoughts, views. You just view yourself spin with [zazen](glossary#zazen). That's all you have to do. 
 
 [Dogen](glossary#dogen) says, "Do not think good or bad, right and wrong," because we have to regulate mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That is [egolessness](glossary#egolessness). Selflessness. Practice of egolessness. 
 
