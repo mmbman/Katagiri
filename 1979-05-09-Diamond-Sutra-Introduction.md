@@ -9,7 +9,7 @@
 
 [Listen to the Online Audio Archive](http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3)
 
-<span class="nr-trigger-placeholder"><span> <span class="nr-custom-trigger">Listen using NaturalReader</span>
+<span class="nr-trigger-placeholder"><span> <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
