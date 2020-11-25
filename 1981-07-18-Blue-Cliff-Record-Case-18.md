@@ -12,7 +12,7 @@
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 00:00 start of recording
+##### 0:00:00 start of recording
 
 Case 18 of Blue Cliff Record:
 
@@ -42,13 +42,13 @@ Case 18 of Blue Cliff Record:
 > Within the crystal palace, there is no one who knows.  
 >> Hsueh Tou added the comment, “He has raised it up.”  
 
-##### 03:05
+##### 3:05
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
 This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by Chinese emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
 
-##### 05:00
+##### 5:00
 
 > The National Teacher said, “Build a seamless monument for me.”
 
@@ -60,7 +60,7 @@ So, seamless means formless. In [Prajnaparamita](glossary#Prajnaparamita), we sa
 
 Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life is just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
-##### 08:25
+##### 8:25
 
 In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and the suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
