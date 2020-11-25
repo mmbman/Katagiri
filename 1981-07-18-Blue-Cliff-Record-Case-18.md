@@ -12,7 +12,7 @@
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 0:00:00 start of recording
+##### start of recording
 
 Case 18 of Blue Cliff Record:
 
