@@ -6,6 +6,7 @@
 -----
 # Diamond Sutra: Introduction
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
+### Transcribed by Kikan Mike Howard
 
 <a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3" target="_blank">Listen to the Online Audio Archive</a>
 
