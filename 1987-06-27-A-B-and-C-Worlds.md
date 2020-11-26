@@ -6,6 +6,7 @@
 ---
 # A, B, and C Worlds
 ## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
+### Transcribed by Kikan Mike Howard
 
 **This transcript is still in rough draft form.**
 
