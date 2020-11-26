@@ -12,7 +12,7 @@
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+##### start of recording
 
 [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [Diamond Sutra](glossary#diamond-sutra). This is quite different from [Vimalakirti Sutra](glossary#vimalakirti-sutra) we studied that was compiled almost in the same century. 
 
@@ -26,7 +26,7 @@ The third is the period in which a group of [Yogachara](glossary#yogachara) sutr
 
 ##### 3:18
 
-During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. And the third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [Fourth was] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
+During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. And the third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [The fourth was] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
 
 ##### 5:24
 
@@ -44,13 +44,13 @@ At the first, second, and third conferences after [Buddha’s](glossary#shakyamu
 
 Within the [āgamas](glossary#āgama), it was based on [Buddha's](glossary#shakyamuni-buddha) teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals: impermanence, [no-self](glossary#no-self), and nirvana. 
 
-So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras. That is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras – that is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
 
 ##### 13:51
 
 But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual (or normal?) persons, but unusual persons, sort of genuine religious persons, who understood [Buddha’s](glossary#shakyamuni-buddha) teachings perfectly, and who understood perfectly the stream of Buddhist thought, the religious thought of those days. They were really concerned about the Buddha’s teaching, how they should compile Buddha’s teaching, how they should transmit Buddha’s teaching. So they were required, by tendency of very public religious thought, to compile Buddha’s teachings based on the original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). 
 
-Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha), Indian people believe those scriptures are really Buddha’s teaching. They don’t have any doubt; they accept perfectly those scriptures as Buddha’s teachings. That’s why we don’t know who wrote them. But it doesn’t matter; it doesn’t matter.
+Even though those Buddhist scriptures were not mentioned directly by [Buddha](glossary#shakyamuni-buddha), the Indian people believe those scriptures are really Buddha’s teaching. They don’t have any doubt; they accept perfectly those scriptures as Buddha’s teachings. That’s why we don’t know who wrote them. But it doesn’t matter; it doesn’t matter.
 
 Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don’t know who wrote that one. Traditionally, [Vimalakirti](glossary#vimalakirti) wrote it – but we are “suspicious” whether such a person existed or not. Well, anyway, we don’t know who wrote them, but huge Buddhist scriptures exist. 
 
@@ -60,7 +60,7 @@ So those authors were really genuine religious persons, who understood the relig
 
 I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
-I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more like literature, Buddhist literature – beautiful. But Diamond Sutra is sort of based on philosophical Buddhist teaching. So, a little “dry”. 
+I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more like literature, Buddhist literature – beautiful. But Diamond Sutra is sort of based on philosophical Buddhist teaching. So, it is a little “dry”. 
 
 ##### 18:58
 
@@ -72,9 +72,9 @@ So [Prajnaparamita](glossary#prajnaparamita) is what is called The Perfection of
 >
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 49)
 
-Wisdom is expressed – explained, described – by a pretty conceptualized thing.
+So wisdom is expressed – explained, described – by a pretty conceptualized thing.
 
-So according to this, they understand wisdom and try to teach wisdom like this: 
+According to this, they understand wisdom and try to teach wisdom like this: 
 
 Prajnaparamita: Wisdom is wisdom; but, wisdom is not wisdom; *this is* really wisdom. *[He chuckles.]* 
 
@@ -86,17 +86,17 @@ But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] 
 
 For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on Buddhist philosophy mentioned by Prajnaparamita sutra: “Mountain is mountain, mountain is not mountain, but mountain is mountain.” Very practically they explain [it using the example of] Zen monks, just like this, for instance... 
 
-A [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” *[The group laughs.]* That is called [Isan](glossary#isan-reiyū) ; his name was Isan.
+A [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” *[The group laughs.]* That is called [Isan](glossary#isan-reiyū); his name was Isan.
 
 So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You have made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not a cow; it’s Isan. *[Laughter.]* And then, Isan said to the assembly: “How do you call it?” 
 
 Do you understand? Very practical, very practical. *[Laughter.]* How do you call it? 
 
-For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is a cow. *[He laughs.]* But you say “cow”; it’s not a cow. 
+For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is a cow. *[He laughs.]* But you say “cow” – it’s not a cow. 
 
 Or, for instance, everything is [Buddha](glossary#buddha): human beings are buddha, floors are Buddha, trees are Buddha, Dan is Buddha. If so, a monk says, “Shall I call you Dan?” *[The group laughs.]* So: [Katagiri](glossary#katagiri), Buddha, Dan. It’s not Katagiri, or it’s Dan. But it’s not Dan; it’s Katagiri. How do you call it?
 
-(Note: He might be saying “Dainin” not “Dan”, but it doesn’t sound like it.)
+(Transcriber's note: He might be saying “Dainin,” not “Dan”, but it doesn’t sound like it.)
 
 That’s sort of a [Zen](glossary#zen) puzzle; but this is really based on Buddhist philosophy. ‘A’ is ‘A’, but ‘A’ is not ‘A’. But ‘A’ is really ‘A’.
 
@@ -108,7 +108,7 @@ The important point is the existential reality. What is the existential reality?
 
 ##### 28:40
 
-Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say – nothing to say. Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say? Nothing to say. Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
 In the very basic nature of existence, Katagiri really is interdependent, interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why, first of all, we have to deny your understanding. But – to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
@@ -126,13 +126,15 @@ That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supporte
 
 Actually, practically or actually, eyes function or eyes try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say eyes, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. 
 
-If you understand eyes are eyes, this is the first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – anyway, everything. And then at that time, eyes really work, pretty well. 
+If you understand eyes are eyes, this is the first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – everything. And then at that time, eyes really work, pretty well. 
 
 ##### 35:44
 
 I told you always: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
-... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands: you have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. Don’t think that “Oh, I can play guitar.” [Buddhism](glossary#buddhism ) says, “No. You cannot play the guitar.” – “But I can play the guitar!” – “It’s not good enough.” *[He chuckles.]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
+... If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands: you have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. 
+
+Don’t think that “Oh, I can play guitar.” [Buddhism](glossary#buddhism ) says, “No. You cannot play the guitar.” – “But I can play the guitar!” – “It’s not good enough.” *[He chuckles.]* Try to practice until the playing guitar is completely tuning in the rhythm of the universe, including trees, birds, and your mouth, your eyes, your heart, your emotions, audience, and composer; everything. And then at that time, you are called a guitar player.
 
 Do you understand? So you say, “I am a guitar player”, “I am a musician.” You say it very simply: “I am a guitar player.” “I am a painter.” “I am a poet.” Of course, you are a poet. You are a guitar player, you are a musician, you are a painter. I understand. But it’s not good *enough*. You are *not* a poet. “How come?” A simple question: “How come? I am a poet. I am a writer.” Of course you are a writer, you are a musician. But, *watch out* – okay? You are not a musician; you are not a writer. That means, you have to write something with all sentient beings. 
 
@@ -152,7 +154,7 @@ But *who* makes you confused? *You* make yourself confused, already; because we 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
-And sometimes, vastness is personalized, and it’s called [Buddha](glossary#buddha).  We realize the vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
+And sometimes, vastness is personalized, and it’s called [Buddha](glossary#buddha). We realize the vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
 ##### 43:50
 
@@ -166,11 +168,11 @@ This is very natural. If you understand in that way, it’s not necessary to hav
 
 That is characteristic of a human being. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[Laughter.]* 
 
-Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don’t like the dog barking at me. But, nothing to do. Sometimes, well, just one word, a very simple word, you can stop it; don’t give a gentle word, just a simple word: “*shut up*”. *[Laughter.]*
+Dogs, they bark at you. When you pass a certain home, immediately they appear and bark at you. I don’t like the dog barking at me. But, nothing to do. Sometimes, well, just one word, a very simple word can stop it; don’t give a gentle word, just a simple word: “*shut up*”. *[Laughter.]*
 
 *[Tape change.]*
 
-... stop them barking, you say, “shut up.” That’s enough. 
+... [to] stop them barking, you say, “shut up.” That’s enough. 
 
 A dog ... just barks at you. This is a dog. No problem. But can you bark at people like that? *[Laughter.]* Of course, you can do it. I can bark at you like this. But immediately I say, “Why do you bark at them? What do you mean? What do you mean by barking?” You start to think. Don’t you think so? 
 
@@ -180,13 +182,13 @@ You should enjoy your life, of course. Let’s enjoy our life, as you like. Of c
 
 But immediately you think, “What is the purpose of life? Why is it we have to work hard every day? Why is it that we have to practice with pain?”
 
-Obviously we have to think like this. This is a beautiful, beautiful aspect of human life. Because you are human, not dog, not bird, that’s why you can realize a universe in a broad [region], and ... understand people. We can figure out ways to live in peace and harmony with people – not only under certain circumstances, under *all* circumstances, we can live, because we think always like this. That’s why we have to think like this.
+Obviously we have to think like this. This is a beautiful, beautiful aspect of human life. Because you are human, not dog, not bird, that’s why you can realize a universe in a broad [region], and ... understand people. We can figure out ways to live in peace and harmony with people – not only under certain circumstances, under *all* circumstances. We can live, because we think always like this. That’s why we have to think like this.
 
 ##### 49:42
 
 But finally, the final practice is very simple: ‘A’ is just ‘A.’ Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything; nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
 
-That’s why a [Zen Master](glossary#zen-master) says, “When you feel hungry, eat. When you feel [sleepy], sleep.” But this is the third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand the Zen saying, “When you feel hungry, eat. When you feel sleepy, sleep.” This is not the first stage, the first level of understanding; this is the very profound, highest level of understanding. 
+That’s why a [Zen Master](glossary#zen-master) said, “When you feel hungry, eat. When you feel [sleepy], sleep.” But this is the third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand the Zen saying, “When you feel hungry, eat. When you feel sleepy, sleep.” This is not the first stage, the first level of understanding; this is the very profound, highest level of understanding. 
 
 ##### 51:30
 
@@ -194,7 +196,7 @@ Okay. Next time, we will study \[the chapters of the [Diamond Sutra](glossary#di
 
 Do you have some questions? 
 
-The textbook is the combined textbook, Buddhist Wisdom Books, [compiling] two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](Heart Sutra), translated by Doctor Conze. You can find a cheaper ... paperback. ([“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
+The textbook is the combined textbook, Buddhist Wisdom Books, [compiling] two sutras: [Diamond Sutra](glossary#diamond-sutra) and [Heart Sutra](glossary#heart-sutra), translated by Doctor Conze. You can find a cheaper ... paperback. (Transcriber's note: the updated book is [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 
 He also [added] his commentary [to the translations]. Those commentaries will be very helpful for you to understand the [Diamond Sutra](glossary#diamond-sutra). Without the commentary, it’s very difficult to understand, because often you can see very contradictory expressions of the Buddhist teaching.
 
@@ -202,7 +204,7 @@ Okay, do you have any questions?
 
 ##### 53:00
 
-**Question**: [Roshi](glossary#roshi)? Do you *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
+**Question**: [Roshi](glossary#roshi)? *[unintelligible]* when you gave the year when the sutras were written, do those years correspond with the Christian years that we use *[unintelligible]* or are they Buddhist years? 
 
 *[There is some confusing discussion.]*
 
@@ -230,11 +232,11 @@ Because we have to understand something as a whole. “‘A’ is ‘A’; ‘A�
 
 ##### 55:48
 
-It makes you sometimes confused, but this is very nice practice for you. *[Laughter.]* But practically, it’s very simple, very simple. Because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That’s all. This is [zazen](glossary#zazen).
+It makes you sometimes confused, but this is very nice practice for you. *[Laughter.]* But practically, it’s very simple, very simple, because you have to return home, and settle in peace and harmony. Where is home? *[unintelligible]* That’s all. This is [zazen](glossary#zazen).
 
 But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. So, if you seek something going out of yourself, out of your home, well it’s fine, but it makes you dizzy, that’s all. Running here and there, always. But the more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is [alright].” This is our point. That’s all. The basic practice is very simple, very simple, really.
 
-But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: “Oh yes, I want to go back to my home.” Everyone understands. But it takes time, because until it’s penetrated, it becomes one with your skin, muscle, bone, and marrow, it takes time. 
+But before, it takes time. It takes time, returning to home and settling in the self. Until you understand this, penetrating from skin, muscle, bone, and marrow, it takes time. But intellectually, we understand pretty well: “Oh yes, I want to go back to my home.” Everyone understands. But it takes time ... until it’s penetrated [and] it becomes one with your skin, muscle, bone, and marrow. It takes time. 
 
 That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* But you are a lucky man, anyway. You are a lucky person. 
 
