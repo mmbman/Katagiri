@@ -27,7 +27,7 @@ The third is the period in which a group of [Yogachara](glossary#yogachara) sutr
 
 ##### 3:18
 
-During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. And the third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [The fourth was] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
+During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. The third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [The fourth was] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
 
 ##### 5:24
 
@@ -41,11 +41,11 @@ We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know 
 
 ##### 10:17
 
-At the first, second, and third conferences after [Buddha’s](glossary#shakyamuni-buddha) death, many monks and Buddha’s disciples gathered at a certain place, and collected Buddha’s teachings from each monk, the Buddha’s teaching that they had memorized. In those days, Indian people didn’t have any custom to transmit Buddha’s teachings or whatever it is by written scriptures, so they transmitted teachings with the oral method, directly. So at that time after Buddha’s death, they tried to compile it all; they tried to leave behind Buddha’s teachings as written scriptures. \[Those are the\] [āgamas](glossary#āgama).
+At the first, second, and third conferences after [Buddha’s](glossary#shakyamuni-buddha) death, many monks and Buddha’s disciples gathered at a certain place, and collected Buddha’s teachings from each monk, the Buddha’s teaching that they had memorized. In those days, the Indian people didn’t have any custom to transmit Buddha’s teachings or whatever it is by written scriptures, so they transmitted teachings with the oral method, directly. So at that time after Buddha’s death, they tried to compile it all; they tried to leave behind Buddha’s teachings as written scriptures. \[Those are the\] [āgamas](glossary#āgama).
 
 Within the [āgamas](glossary#āgama), it was based on [Buddha's](glossary#shakyamuni-buddha) teaching: philosophical, psychological teachings, mentioning [impermanence](glossary#impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). Those four are called the [Four Dharma Seals](glossary#four-dharma-seals), mentioned by Buddha. Or sometimes, Three Dharma Seals: impermanence, [no-self](glossary#no-self), and nirvana. 
 
-So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras – that is the philosophical, Buddhist psychological scripture which is called Abhidharmakosha. 
+So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism ), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras – that is the philosophical, Buddhist psychological scripture that is called Abhidharmakosha. 
 
 ##### 13:51
 
@@ -87,7 +87,7 @@ But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] 
 
 For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on Buddhist philosophy mentioned by Prajnaparamita sutra: “Mountain is mountain, mountain is not mountain, but mountain is mountain.” Very practically they explain [it using the example of] Zen monks, just like this, for instance... 
 
-A [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then,” it says, “You can find my name there.” *[The group laughs.]* That is called [Isan](glossary#isan-reiyū); his name was Isan.
+A [Zen Master](glossary#zen-master) said to his assembly: “One day,” he said, “a hundred years after my death, I will be reborn as a cow at one of the farmers’ houses in my village, down far from my temple. And then if you go there to see the cow, first look at his underarm. And then, you can find my name there.” *[The group laughs.]* That is called [Isan](glossary#isan-reiyū); his name was Isan.
 
 So if you see that, immediately you say, “Oh, this is Isan!” But it is not Isan. You have made a mistake if you say so, because it is not Isan; it is a cow. So you say, “Oh, that is a cow, not Isan.” But it’s not a cow; it’s Isan. *[Laughter.]* And then, Isan said to the assembly: “How do you call it?” 
 
@@ -115,7 +115,7 @@ In the very basic nature of existence, Katagiri really is interdependent, interp
 
 ##### 31:11 
 
-For instance, here is a paper, white paper. At that time you say immediately, “This is white paper.” But, we don’t say “white paper.” If we say “this is white paper,” you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, “This is not white.” “Not white” means to bring the other colors into your mind. “Not white” doesn’t mean to destroy white; “not white” means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means white paper, white color, doesn’t exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. 
+For instance, here is a paper, white paper. At that time you say immediately say, “This is white paper.” But, we don’t say “white paper.” If we say “this is white paper,” you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, “This is not white.” “Not white” means to bring the other colors into your mind. “Not white” doesn’t mean to destroy white; “not white” means to bring other colors into your mind. So, black, or yellow, or red – immediately. That means white paper, white color, doesn’t exist alone. White color exists with the rest of the colors: black, yellow, red, and other colors. 
 
 That is negation. That is why we have to negate first: white is white, but white is not white. And then at that time, you can understand this white in the broad vision. At that time, this white is really white. 
 
@@ -163,7 +163,7 @@ So, who makes you confused? ... We make ourselves confused, that’s all. Why? B
 
 ##### 45:23
 
-This is very important. That’s why we have to explain [ourselves] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. [Katagiri](glossary#katagiri) is just Katagiri; that’s all. That’s enough. If I say Katagiri is just Katagiri, that Katagiri is broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
+This is very important. That’s why we have to explain [ourselves] – because consciousness already analyzes existential fact. Existential fact itself is nothing; no waves, very calm. [Katagiri](glossary#katagiri) is just Katagiri; that’s all. That’s enough. If I say Katagiri is just Katagiri, that Katagiri is the broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
 This is very natural. If you understand in that way, it’s not necessary to have a complicated system of understanding: “‘A’ is ‘A’; ‘A’ is not ‘A’; that’s why ‘A’ is ‘A’” – it’s not necessary to say so. But we have to do so, because consciousness is already complicated. That’s why we have to explain. That’s it.
 
