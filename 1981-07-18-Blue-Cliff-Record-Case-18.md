@@ -30,7 +30,16 @@ Case 18 of Blue Cliff Record:
 > The National Teacher said, “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.”
 > 
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
-> 
+
+(Transcriber comment: first, here is the poem without Hsueh Tou’s comments.)
+
+> South of Hsiang, north of T’an;  
+> In between there is gold sufficient to a nation.  
+> Beneath the shadowless tree, the community ferryboat;  
+> Within the crystal palace, there is no one who knows.  
+
+(Now, here is the poem with Hseuh Tou’s comments, as Katagiri Roshi read it.)
+
 > South of Hsiang, north of T’an;  
 >> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
 >
