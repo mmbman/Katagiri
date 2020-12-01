@@ -31,7 +31,7 @@ Case 18 of Blue Cliff Record:
 > 
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 
-(Transcriber’s comment: first, here is the poem without Hsueh Tou’s comments.)
+(First, here is the poem without Hsueh Tou’s comments.)
 
 > South of Hsiang, north of T’an;  
 > In between there is gold sufficient to a nation.  
