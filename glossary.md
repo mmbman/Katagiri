@@ -894,6 +894,11 @@ External links:
 One-pointedness. Often the kind achieved in meditation, but it can refer to complete absorption in any activity.
 
 ---
+## Samsara
+
+(Sanskrit) Literally, “wandering in circles”: the “wandering in circles world.” 
+
+-----
 ## Samskara
 
 [Sanskrit](glossary#sanskrit): saṃskāra संस्कार<br>
