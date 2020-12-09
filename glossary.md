@@ -356,7 +356,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 ---
 ## Distraction
 
-- [Fukanzazengi – Talk 1 (48:16)](1979-06-09-Fukanzazengi-Talk-1#4816)
+- [Fukanzazengi – Talk 1 (47:29)](1979-06-09-Fukanzazengi-Talk-1#4729)
 
 ---
 ## Dogen
@@ -377,7 +377,7 @@ External links:
 ---
 ## Dullness
 
-- [Fukanzazengi – Talk 1 (48:16)](1979-06-09-Fukanzazengi-Talk-1#4816)
+- [Fukanzazengi – Talk 1 (47:29)](1979-06-09-Fukanzazengi-Talk-1#4729)
 
 ---
 # E
