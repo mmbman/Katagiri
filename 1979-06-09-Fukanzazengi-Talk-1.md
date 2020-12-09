@@ -15,9 +15,9 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-The last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says, “For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” [*He repeats the quote.*] 
+The last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says, “For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” *[He repeats the quote.]* 
 
-This is a sort of conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi). If you do zazen ... “right dharma is manifesting itself” means that the original nature of the self is manifesting, very naturally. And also, “from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside”: from the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
+This is a sort of conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi). If you do zazen ... “right dharma is manifesting itself” means that the original nature of the self is manifesting, very naturally. And also [it means] that “from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside”: from the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true, which you experience in your daily living. Life is really based on this teaching. 
 
 When you yourself manifest, if you manifest yourself as you really are, at that time, very naturally, from the first, [dullness](glossary#dullness) and confusion and [distraction](glossary#distraction) are struck aside – because you are manifesting yourself as you really are, from moment to moment. In other words, you can stand up straight, right now, right here, [and] that means you can manifest yourself. So if you can stand up straight, right now, right here, that means you can't be stumbling over distractions; from the first, they are struck aside.
 
@@ -25,7 +25,7 @@ When you yourself manifest, if you manifest yourself as you really are, at that 
 
 Particularly when you get angry, when you're confused, very naturally you really want to express anger and confusion through your daily living. But I don't know exactly [if that] is the best way to keep away from anger – or to understand anger, what it really is. 
 
-If you really want anger to go away very naturally, all you have to do is, you must be a little bit ‘scared’ of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me, please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri) – or while you are sitting here – there is quietness, tranquility. Very naturally, anger is struck aside, from the first. 
+If you really want anger to go away very naturally, all you have to do is, you must be a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me, please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri) – or while you are sitting here – there is quietness, tranquility. Very naturally, anger is struck aside, from the first. 
 
 But we don't do this; completely the opposite. If you get angry, [just this]. But if you express anger, you know pretty well, the expression of anger influences others – so you can create your circumstances, which are called “angry world”. So very naturally, people don't feel good; people get angry with *you*.‌ And very naturally, anger is sort of snowballing, again and again.
 
@@ -43,7 +43,7 @@ So, we have the practice of [bowing](glossary#bowing) to [Buddha](glossary#buddh
 
 But anyway, how sublime life is is reality, real reality. Completely beyond human speculation, this is reality. This is your life. This is a tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. 
 
-So, if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? With a [bow](glossary#bowing). Just bow, to the Buddha. Touching your whole body to the floor, anyway: bow. That is the way to express appreciation to your existence. 
+So, if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? With a [bow](glossary#bowing). Just bow, to the Buddha. Touching your whole body to the floor, anyway: bow. That is a way to express appreciation to your existence. 
 
 ##### 10:30
 
@@ -57,13 +57,13 @@ So first, if you do [zazen](glossary#zazen) according to Dogen's mention, or wha
 
 But actually we don't do [zazen](glossary#zazen) like this; zazen is used as a means. 
 
-At that time, you accept yourself as an immature person. Through zazen you want to reach a certain higher level, which is called a mature level of human life. [When you see yourself] in the future – at that time, the present life is not mature; [the present life is] immature, or unhappy; that's why you want to practice zazen. At that time, zazen is completely a means to an end.
+At that time, you accept yourself as an immature person. Through zazen you want to reach a certain higher level, which is called a mature level of human life. [When you see yourself] in the future – at that time, the present life is not mature; [the present life is] immature, or unhappy. That's why you want to practice zazen. So at that time, zazen is completely a means to an end. 
 
-So that means you already accept your life [as] not sublime. Your life is unhappy, your life is not sublime; lack of sublimity there. 
+That means you already accept your life [as] not sublime. Your life is unhappy, your life is not sublime; lack of sublimity there. 
 
-If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. But no matter how long you do zazen like this, it's very difficult to realize your peaceful, harmonious life, because at that time zazen is a means. ‘Means’ means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. 
+If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence; that's why you really want to do zazen. But no matter how long you do zazen like *this*, it's very difficult to realize [your] real peaceful, harmonious life. Because, at that time zazen is a means; ‘means’ means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. 
 
-So just *do zazen*. “Do zazen” means you are present from moment to moment within the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the [dualistic](glossary#dualistic) world. 
+So just *do* zazen. “Do zazen” means you are present from moment to moment within the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the [dualistic](glossary#dualistic) world. 
 
 The important point is, you must accept zazen as really total activity, which is vividly alive from moment to moment. Even though you don't understand what zazen is, accept zazen; which means, do zazen. Even though you don't understand how sublime your life is, anyway, [bow](glossary#bowing) to the [Buddha](glossary#buddha). If you bow to the Buddha, selfish understanding from the first is struck aside. That is [shikantaza](glossary#shikantaza) – very naturally.
 
