@@ -231,21 +231,21 @@ So, there are three important [points]:  [samadhi](glossary#samadhi), [egolessne
 
 [Egolessness](glossary#egolessness): that practice is to regulate the mind. How to regulate the mind? Egolessness. How to practice egolessness? Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen). How can you do that? By the help of  [samadhi](glossary#samadhi), one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
-If you really want to accomplish one thing which you want to do, you have to cut off involvement in all affairs. In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing. It seems to be good, but it's not the real achievement [or] accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with your wholeheartedness, it is very natural that you keep away, you make arrangement of circumstances. 
+If you really want to accomplish one thing which you want to do, you have to cut off involvement in all affairs. In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing: it seems to be good, but it's not the real achievement or accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with your wholeheartedness, it is very natural that you keep away, you make arrangement of circumstances. 
 
 This is a very natural attitude to our life. That's why [Dogen Zenji](glossary#dogen) says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; so what? 
 
-How can you throw away? Simplify. You should simplify your activity; yourself and object. Let's see the relationship with subject and object. ... See the relationship simplified, between you and [zazen](glossary#zazen), or study, or playing guitar, whatever. At that time, very naturally, how can you simplify? Let's practice  [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. 
+How can you throw away? Simplify. You should simplify your activity. [Simplify the relationship with] subject and object. See the relationship simplified between you and [zazen](glossary#zazen), or study, or playing guitar, or whatever. How can you simplify? Let's practice [samadhi](glossary#samadhi). Samadhi is one-pointedness. If you come from one-pointedness, there is [egolessness](glossary#egolessness). Let egolessness simplify your life. 
 
-Manifest simplicity; simplify your life. Because [then] you can offer yourself into the object; zazen, [or] study, et cetera. 
+Manifest simplicity; simplify your life. Because [then] you can offer yourself to the object: zazen, [or] study, et cetera. 
 
 ##### 1:00:05
 
-Simplify, unify; that is what is called harmonious. Or regulating; we use the term regulating. Regulating is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept. And [then], how to *arrange* this; how to use the circumstances; the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down, in the core of your total personality. That is [Buddha Nature](glossary#buddha-nature).
+Simplify, unify; that is what is called *harmonious*. Or regulating; we use the term regulating. Regulating is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept [them]. And [then], how to *arrange* them; how to use the circumstances; the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is [Buddha Nature](glossary#buddha-nature).
 
-And then this total personality, which is called [Buddha](glossary#buddha), is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.” [It is] manifesting [the] original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect; perfect, harmonious life. That is peaceful life.
+And then this total personality, which is called [Buddha](glossary#buddha), is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.” [It is] manifesting the original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain system, nervous system – very naturally, you can practice  [samadhi](glossary#samadhi), you can offer yourself into [zazen] and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
-And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. [*unintelligible*] It's really helpful. 
+And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? ... This is belief. Belief really helps your activities, your practice. Belief is really helpful. 
 
 ##### 1:02:39
 
@@ -253,25 +253,25 @@ So, four important – and I told you three important, but, four important point
 
 First, belief. That is faith. 
 
-Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree, huge tree. When you are there, you are saved. Anyway, you are saved. And, you grow, very naturally. This is faith.
+Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree, huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
 
 And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). 
 
 How can you experience enlightenment? Well first, [through the] practice of [egolessness](glossary#egolessness). How can you practice egolessness?  [Samadhi](glossary#samadhi); one-pointedness. And then, just do it. 
 
-And then if you just do it, there is ... no design on expecting any reward. Just do it. That is [shikantaza](shikantaza).
+And then if you just do it, there is no design on expecting any reward. Just do it; that is [shikantaza](shikantaza).
 
 That is really helpful. That is really a way of helping the people: offering your merit, the merit of your practice, to all sentient beings. 
 
-According to a narrow understanding of human life, first you ... cut off your weeds, the root of your weeds, and you want to be happy. That's nice; but it is a narrow understanding, because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. So the important point is arrangement: arrangement of our circumstances. How to use the weeds.
+According to a narrow understanding of human life, first you ... cut off your weeds, the root of your weeds, [then] you want to be happy. That's nice; but it is a narrow understanding – because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
 
-And release. If you release, [there] is nothing but being, which is helping all sentient beings.
+So the important point is arrangement: arrangement of our circumstances. How to use the weeds. And release; if you release, it is nothing but being, which is helping all sentient beings.
 
 ##### 1:05:26
 
-So, that is the conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi). That's why [Dogen Zenji](glossary#dogen) said, if you do [zazen](glossary#zazen) according to [what] Dogen mentions, very naturally, the [dharma](glossary#dharma) is manifesting itself, and from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. Very naturally. That is the meaning of zazen. We do [this] always.
+So, that is the conclusion of the main subject in [Fukanzazengi](glossary#fukanzazengi). That's why [Dogen Zenji](glossary#dogen) says, if you do [zazen](glossary#zazen) according to [what] Dogen mentions, very naturally the [dharma](glossary#dharma) is manifesting itself, and from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside. Very naturally. That is the meaning of zazen. We do [this] always.
 
-By the zazen, if you believe “I should be happy,” or “I want to do something” – this is not real practice. You never find peace and harmony [this way], because if you believe that, zazen is always something far from you. And also, not only zazen; you accept yourself. So, you are not a happy person; you yourself are also a person far from the real person, opposed to happiness or unhappiness. That's why it's pretty difficult [for people] to deal with you, and also it's very difficult [for you] to deal with zazen, and whatever you do. So, that is not the practice for us.
+By the zazen, if you believe “I should be happy,” or “I want to do something” – this is not real practice. You never find peace and harmony [this way] – because if you believe that, zazen is always something far from you. And also, not only zazen – you accept yourself [as an] unhappy person; so you yourself are also a person far from the real person, opposed to happiness or unhappiness. That's why it's pretty difficult [for people] to deal with you, and also it's very difficult [for you] to deal with zazen, and whatever you do. So, that is not the practice for us.
 
 ##### 1:07:20 end of recording
 
