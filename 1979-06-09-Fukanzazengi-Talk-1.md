@@ -121,7 +121,7 @@ Karma is completely beyond good or bad, right and wrong. But simultaneously, kar
 
 ##### 30:00
 
-When I became a monk and went to a monastery, at that time, monastic life was completely blooming for me, so ... it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. But, some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing [zazen](glossary#zazen), and laziness... [*He chuckles.*] 
+When I became a monk and went to a monastery, at that time, monastic life was completely blooming for me, so ... it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. But, some of the monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing [zazen](glossary#zazen), and laziness... [*He chuckles.*] 
 
 But for me, it was wonderful for me. On the other hand, I felt wonderful, but people called me crazy. Of course, maybe so. Accordingly to indulgence, maybe to practice hard was crazy. It might be crazy. But I didn't care, because I learned lots of things. So day after day was really bright; I just did it.
 
@@ -141,7 +141,7 @@ We should be there. And finally, we should accept this, and we must be *present*
 
 And circumstances: In order to realize this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and also brain-nerve system. Anyway, we have to make arrangement. That's why [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](glossary#fukanzazengi), “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
 
-If you meddle with all environment or all affairs right in the middle of [zazen](glossary#zazen), you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. 
+If you meddle with all involvements or all affairs right in the middle of [zazen](glossary#zazen), you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. 
 
 So first of all, we have to make arrangement of circumstances. Instead of expressing hatred of circumstances, or destroying circumstances; just to make arrangement. 
 
@@ -161,7 +161,7 @@ So that is how to make arrangement of the sensory world, instead of destroying, 
 
 And next, the movement system. The movement system comes from the unity of your physical and mental organs. Your body and mind work, then simultaneously movement comes up. 
 
-You cannot destroy your movement. Sometimes movement comes from instinct; sometimes it comes from the sensory world; sometimes it comes from a higher level of [thought]. Sometimes, we don't know. [Karma](glossary#karma)? But anyway, there is always movement. 
+You cannot destroy your movement. Sometimes movement comes from instinct; sometimes it comes from the sensory world; sometimes it comes from a higher level of [spirit]. Sometimes, we don't know. [Karma](glossary#karma)? But anyway, there is always movement. 
 
 So, we have to make arrangement of movement. For this, [Dogen Zenji](glossary#dogen) says, that is the half lotus position or full lotus position. Or Dogen Zenji says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in [zazen](glossary#zazen) silently and immobile.” 
 
@@ -177,7 +177,7 @@ And next, the gut system. For this, [Dogen Zenji](glossary#dogen) says, “Eat a
 
 (Transcriber’s Note: Parts of the next paragraph are hard to make out.)
 
-Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It's going on. Even though your heart is beating, *[unintelligible]*, and then you put the gasoline into it, and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [as it is]... Either way, it is. Sometimes you have to accept it.
+Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It's going on. Even though your heart is beating, *[unintelligible]*, and then you put the gasoline into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [as it is]... Either way, it is. Sometimes you have to accept it.
 
 So, your heart, your lungs, and your stomach, your intestines, hormone system, are completely beyond your control. But there is one thing that you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart; everything. 
 
@@ -195,7 +195,7 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 “... [Cease all the movements of the conscious mind, the gauging] of all thoughts and views. Have no design on becoming a Buddha.” Completely throw away any germination of wishes, thoughts, or views. Just [view] yourself spin with [zazen](glossary#zazen). That's all you have to do. 
 
-[Dogen](glossary#dogen) says, “Do not think good or bad, right and wrong,” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means [egolessness](glossary#egolessness); selflessness. The practice of egolessness. 
+So [Dogen](glossary#dogen) says, “Do not think good or bad, right and wrong,” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means [egolessness](glossary#egolessness); selflessness. The practice of egolessness. 
 
 ##### 47:29
 
@@ -213,13 +213,13 @@ So finally, we have to practice regulating the mind. That regulating of the mind
 
 But how can you practice [egolessness](glossary#egolessness)? [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, if you really simply forget your body and mind, you should throw away yourself into the heart of [Buddha](glossary#buddha). That means, you should throw yourself away – to something. That “to something” is, to your object. But this object is not merely an object, this [object] is the house of the Buddha. 
 
-So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is Buddha. So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book, as well as dealing with your life. So, you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something.
+So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is Buddha. So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book as well as dealing with your life. So, you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something.
 
-So that is [egolessness](glossary#egolessness). And also, at that time, if you throw away yourself, your body and mind, into the house of the [Buddha](glossary#buddha), at that time, [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, “When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any man's mind.” At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very natural. Simultaneous. 
+So that is [egolessness](glossary#egolessness). And also, at that time, if you throw away yourself, your body and mind, into the house of the [Buddha](glossary#buddha), at that time, [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, “When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.” At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very natural. Simultaneous. 
 
 ##### 52:56
 
-So, there is [zazen](glossary#zazen) and you. If you see them separately, that is a situation in which you can create the discriminatory world, the [dualistic](glossary#dualistic) world. Zazen and you – “I like zazen,” “I don't like zazen” – whatever you say, that is the dualistic world. So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, I told you before: then, you should take care of zazen, with [egolessness](glossary#egolessness).
+So, there is [zazen](glossary#zazen) and you; if you see them separately, that is a situation in which you can create the discriminatory world, the [dualistic](glossary#dualistic) world. Zazen and you – “I like zazen,” “I don't like zazen” – whatever you say, that is the dualistic world. So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, I told you before: you should take care of zazen, with [egolessness](glossary#egolessness).
 
 At that time, the practice of [egolessness](glossary#egolessness) is to throw away yourself into [zazen](glossary#zazen), [be] perfectly in the flow of zazen. Offer your body and mind to zazen, completely. At that time, there is [no-self](glossary#no-self). No self.
 
@@ -237,9 +237,9 @@ So, [it’s a] very simple practice. And then, at that time, if you offer yourse
 
 So, there are three important [points]:  [samadhi](glossary#samadhi), [egolessness](glossary#egolessness), and no design on becoming [Buddha](glossary#buddha), no design of expecting reward. [Those] three points are very important. 
 
-[Egolessness](glossary#egolessness): that practice is to regulate the mind. How to regulate the mind? Egolessness. How to practice egolessness? Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen). How can you do that? By the help of  [samadhi](glossary#samadhi), one-pointedness. With wholeheartedness, you can do it, very naturally. 
+[Egolessness](glossary#egolessness): that is to regulate the mind. How to regulate the mind? Egolessness. How to practice egolessness? Throw yourself away; in other words, offer yourself into [zazen](glossary#zazen). How can you do that? By the help of  [samadhi](glossary#samadhi), one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
-If you really want to accomplish one thing which you want to do, you have to cut off involvement in all affairs. In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing; it seems to be good, but it's not the real achievement or accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with wholeheartedness, it is very natural that you keep away, you make arrangement of circumstances. 
+If you really want to accomplish one thing which you want to do, you have to cut off all involvements and all affairs. In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing; it seems to be good, but it's not the real achievement or accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with wholeheartedness, it is very natural that you keep away, you make arrangement of circumstances. 
 
 This is a very natural attitude to our life. That's why [Dogen Zenji](glossary#dogen) says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; so what? 
 
@@ -249,7 +249,7 @@ Manifest simplicity; simplify your life. Because [then] you can offer yourself t
 
 ##### 1:00:05
 
-Simplify, unify; that is what is called *harmonious*. Or ‘regulating’; we use the term regulating. Regulating is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept [them]. And [then], how to *arrange* them; how to use the circumstances; the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is [Buddha Nature](glossary#buddha-nature).
+And then, completely simplified, unified: that is what is called *harmonious*. Or ‘regulating’; we use the term regulating. Regulating is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept [them]. And [then], how to *arrange* them; how to use the circumstances; the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is [Buddha Nature](glossary#buddha-nature).
 
 And then this total personality, which is called [Buddha](glossary#buddha), is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.” [It is] manifesting the original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain system, nervous system – very naturally, you can practice [samadhi](glossary#samadhi), you can offer yourself into [zazen] and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
@@ -257,7 +257,7 @@ And then, even though you don't understand, your total personality is perfectly 
 
 ##### 1:02:39
 
-So, four important – and I told you three important, but, four important points. 
+So, I told you three important points, but, four important points. 
 
 First, belief. That is faith. 
 
