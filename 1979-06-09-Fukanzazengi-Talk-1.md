@@ -259,7 +259,7 @@ And then, even though you don't understand, your total personality is perfectly 
 
 So, I told you three important points, but, four important points. 
 
-First, belief. That is faith. Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree, huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
+First, belief. That is faith. Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
 
 And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). 
 
