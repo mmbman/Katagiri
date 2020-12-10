@@ -123,7 +123,7 @@ Karma is completely beyond good or bad, right and wrong. But simultaneously, kar
 
 When I became a monk and went to a monastery, at that time, monastic life was completely blooming for me, so ... it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. But, some of the monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing [zazen](glossary#zazen), and laziness... [*He chuckles.*] 
 
-But for me, it was wonderful for me. On the other hand, I felt wonderful, but people called me crazy. Of course, maybe so. Accordingly to indulgence, maybe to practice hard was crazy. It might be crazy. But I didn't care, because I learned lots of things. So day after day was really bright; I just did it.
+But for me, it was wonderful for me. On the other hand, I felt wonderful, but people called me crazy. Of course, maybe so. According to indulgence, maybe to practice hard was crazy. It might be crazy. But I didn't care, because I learned lots of things. So day after day was really bright; I just did it.
 
 On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it that way? Why are you in the monastery? In the monastery, you want to be lazy? You want to learn laziness? Well of course, it's okay, but what is the purpose – why? Why are you here?” I didn't understand.
 
@@ -215,7 +215,7 @@ But how can you practice [egolessness](glossary#egolessness)? [Dogen](glossary#d
 
 So ... first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is Buddha. So, to throw away yourself into this book means, throw away yourself into the house of Buddha. That means, deal with the book as well as dealing with your life. So, you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something.
 
-So that is [egolessness](glossary#egolessness). And also, at that time, if you throw away yourself, your body and mind, into the house of the [Buddha](glossary#buddha), at that time, [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, “When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.” At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very natural. Simultaneous. 
+So that is [egolessness](glossary#egolessness). And also, if you throw away yourself, your body and mind, into the house of the [Buddha](glossary#buddha), at that time, [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, “When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.” At that time, it means, if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very natural. Simultaneous. 
 
 ##### 52:56
 
@@ -259,9 +259,7 @@ And then, even though you don't understand, your total personality is perfectly 
 
 So, I told you three important points, but, four important points. 
 
-First, belief. That is faith. 
-
-Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree, huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
+First, belief. That is faith. Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree, huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
 
 And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). 
 
