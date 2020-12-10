@@ -85,23 +85,23 @@ And one more system: that is total personality.
 
 Total personality is the exact center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing. There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
 
-*My* personality is something I can create, after my birth. So this is kind of [like] ‘character’. If you say ‘personality,’ psychologically speaking this is a little bit broad. So *my* personality is something I can create after my birth; but there is another personality I can create. I have carried my personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. 
+*My* personality is something *I* can create, after my birth. So that is kind of [like] ‘character’. If you say ‘personality,’ psychologically speaking this is a little bit broad. So my personality is something I can create after my birth; but there is another personality I can create. I have carried [that] personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. 
 
-So that is total personality, the whole personality. 
+So that is total personality, the *whole* personality. 
 
 ##### 23:23
 
-So, if I see myself – here is Katagiri – immediately there is a certain kind of a [sense]; a ‘smell’. A part of this ‘smell’ consists of something I have created after my birth. The other aspect of my ‘smell’ is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a ‘smell’. If you see somebody, there is a smell. Katagiri smells. 
+So, if I see myself – here is Katagiri – immediately there is a certain kind of a sense; a ‘smell’. A part of this ‘smell’ consists of something I have created after my birth. The other aspect of my ‘smell’ is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a ‘smell’. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri ‘smell’ is a kind of a result we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginingless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, the original nature of existence. But psychologically speaking, that is called total personality. Total personality; maybe trans-personality, whatever you say. 
+But Katagiri’s ‘smell’ is a kind of a result we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginingless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, the original nature of existence. But psychologically speaking, that is called total personality. Total personality; or maybe trans-personality, whatever you say. 
 
 (Transcriber’s Note: “Trans-personality” may be referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
-But trans-personality immediately smells: “I smell something,” “I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense.  In a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes a ‘stink’.
+But trans-personality immediately smells: “I smell something.” “I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense.  In a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes a ‘stink’.
 
 ##### 26:18
 
-So, whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from ... ‘stink’, what is called total personality. 
+So, whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from a ‘stink’, what is called total personality. 
 
 Because I don't know, what is my [karma](glossary#karma)? Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
