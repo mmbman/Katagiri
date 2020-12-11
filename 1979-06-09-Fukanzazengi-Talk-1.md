@@ -29,7 +29,7 @@ If you really want anger to go away very naturally, all you have to do is, you m
 
 But we don't do this; completely the opposite. If you get angry, [just this]. But if you express anger, you know pretty well, the expression of anger influences others – so you can create your circumstances, which are called “angry world”. So very naturally, people don't feel good; people get angry with *you*.‌ And very naturally, anger is sort of snowballing, again and again.
 
-But when you do [zazen](glossary#zazen), or when you pray to the gods, “Protect me” – even though you don't know how to deal with anger, “please help me” ... why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so.
+When you do [zazen](glossary#zazen), or when you pray to the gods, “Protect me” – even though you don't know how to deal with anger, “please help me” ... why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so.
 
 Or, [maybe] you believe God really takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it; because anger is still anger, even though you pray to the gods, even though you pray to the [bodhisattvas](glossary#bodhisattva). [Avalokiteshvara](glossary#avalokiteshvara) is very nice; bodhisattvas expressing Buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. So, you don't believe, but in a sense you believe. So finally you don't know why you are doing it in that way. 
 
@@ -39,7 +39,7 @@ That is our life, okay?
 
 ##### 8:43
 
-So, we have the practice of [bowing](glossary#bowing) to [Buddha](glossary#buddha). Bowing to Buddha is to express the deepest appreciation to your existence; how sublime life is, how important your life is. But you don't understand how sublime it is, how important your life is, how important a tree’s life is; you don't understand. Even [if] you understand, that is just a speck of dust of understanding of the human world. It's just a speck of dust. So actually, you don't understand. 
+So, we have the practice of [bowing](glossary#bowing) to [Buddha](glossary#buddha). Bowing to Buddha is to express the deepest appreciation to your existence; how sublime it is, how important your life is. But you don't understand how sublime it is, how important your life is, how important a tree’s life is; you don't understand. Even [if] you understand, that is just a speck of dust of understanding of the human world. It's just a speck of dust. So actually, you don't understand. 
 
 But anyway, how sublime life is is reality, real reality. Completely beyond human speculation, this is reality. This is your life. This is a tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. 
 
@@ -153,7 +153,7 @@ That's why [Dogen Zenji](glossary#dogen) says, “A quiet room is suitable.” O
 
 (Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](dogen#zazengi) chapter of [Shobogenzo](dogen#shobogenzo), which is distinct from [Fukan zazengi](dogen#fukanzazengi).)
 
-First of all, you should make a choice of circumstances. What kind of a room [do] you have to use? Because you have six senses. You can see this room through your eyes. It gets really dark. If you painted this wall red, green, and yellow – [you would] completely see it differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose ... a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
+First of all, you should make a choice of circumstances. What kind of a room [do] you have to use? Because you have six senses; you can see this room through your eyes. It gets really dark. If you painted this wall red, green, and yellow – [you would] completely see it differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose ... a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
 So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should [do this].
 
@@ -259,7 +259,7 @@ And then, even though you don't understand, your total personality is perfectly 
 
 So, I told you three important points, but, four important points. 
 
-First, belief. That is faith. Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
+First, belief. That is faith. Faith is total acceptance that [your] original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved; and you grow, very naturally. This is faith.
 
 And then, if you are under the huge tree, and saved, at that time that is called salvation. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). 
 
