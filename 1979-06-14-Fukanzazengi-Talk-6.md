@@ -355,7 +355,7 @@ So, water is the universe. The self is the whole universe. Time is being.
 
 **Question**: *[unintelligible]*
 
-**Katagiri**: Well, because we have enjoyed our little, small mind for many years. So we have got used to enjoying it, for many, many years. Not only your [own] life; from the beginingless past. Anyway, we have done so always. That's why it's pretty hard to see the big mind immediately. It really depends on the individual. 
+**Katagiri**: Well, because we have enjoyed our little, small mind for many years. So we have got used to enjoying it, for many, many years. Not only your [own] life; from the beginningless past. Anyway, we have done so always. That's why it's pretty hard to see the big mind immediately. It really depends on the individual. 
 
 Maybe someone really can see big mind after practicing three years, or five years, maybe ten years. Maybe so. It doesn't matter. 
 

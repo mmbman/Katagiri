@@ -858,6 +858,12 @@ External links:
 Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 
 ---
+## religious zazen
+
+[Fukanzazengi – Talk 2 (25:09)](1979-06-10-Fukanzazengi-Talk-2#2509)
+[Fukanzazengi – Talk 5 (15:10-)](1979-06-13-Fukanzazengi-Talk-5#1510)
+
+---
 ## Rinzai Zen
 
 ---
