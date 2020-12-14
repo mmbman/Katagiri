@@ -10,6 +10,8 @@
 
 <a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790609.mp3" target="_blank">Listen to the Online Audio Archive</a>
 
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-dogens-universal-recommendation-for-zazen-–-talk-1/" target="_blank">Listen to the transcript read by Kikan</a>
+
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
@@ -93,7 +95,7 @@ So that is total personality, the *whole* personality.
 
 So, if I see myself – here is Katagiri – immediately there is a certain kind of a sense; a ‘smell’. A part of this ‘smell’ consists of something I have created after my birth. The other aspect of my ‘smell’ is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a ‘smell’. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri’s ‘smell’ is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginingless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, the original nature of existence. But psychologically speaking, that is called total personality. Total personality; or maybe trans-personality, whatever you say. 
+But Katagiri’s ‘smell’ is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, the original nature of existence. But psychologically speaking, that is called total personality. Total personality; or maybe trans-personality, whatever you say. 
 
 (Transcriber’s Note: “Trans-personality” may be referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
@@ -105,7 +107,7 @@ So, whatever I feel from my personality, there is always some confusion, waves o
 
 Because I don't know, what is my [karma](glossary#karma)? Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
-That is really ‘stink’... But where does that stink of Katagiri come from? No way. You have to really go back to the beginingless past, to the endless future. 
+That is really ‘stink’... But where does that stink of Katagiri come from? No way. You have to really go back to the beginningless past, to the endless future. 
 
 ##### 27:35
 
