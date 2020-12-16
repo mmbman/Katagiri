@@ -712,6 +712,13 @@ External links:
 - [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
 
 ---
+## Mudra
+
+A symbolic pose of (usually) the hands, found in Hinduism, Jainism and Buddhism. In zazen (zen meditation), the “cosmic mudra” is used.
+
+- [Mudra on Wikipedia][https://en.wikipedia.org/wiki/Mudra]
+
+---
 # N
 
 ---
