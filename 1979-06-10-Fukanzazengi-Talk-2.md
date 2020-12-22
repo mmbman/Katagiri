@@ -46,7 +46,6 @@ So, total personality. That total personality has a double face. One is [karma](
 So, you cannot know what [karma](glossary#karma) is, because karma comes from the beginningless past, and is going to the endless future. So that's why in [Fukanzazengi](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen) says, "The origin of the way is perfect and all-pervading."
 
 And then also, if you do [zazen](glossary#zazen), the original face of existence appears, manifests itself. That is, as Dogen mentions zazen in Fukanzazengi, perfect.... The origin of the way, the origin of existence is perfect and all-pervading. That is [Buddha Nature](glossary#buddha-nature). If you do zazen, immediately it appears. That is what is called the original nature of existence, manifesting itself. So Dogen Zenji says in Fukanzazengi. 
-
 That is really the total picture of our personal living, everyday life. 
 
 ##### 6:29
@@ -115,7 +114,7 @@ This regulation of the mind doesn't connect with this. Of course, it connects, b
 
 ##### 22:51
 
-Usually, there is always some attachment. [People say,] "[Zazen](glossary#zazen) is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says it in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. It’s always [said so]: "[By] regulation of the body and regulation of the breath, you can preserve physical and mental health." That is, zazen is seen as a means. 
+Usually, there is always some attachment. [People say,] "[Zazen](glossary#zazen) is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says it in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. It’s always [said so]: "[By the] regulation of the body and regulation of the breath, you can preserve physical and mental health." That is, zazen is seen as a means. 
 
 But according to shikantaza, there is no ... [sense] which is called “for the sake of”. “If you do zazen, you will be healthy, mentally, psychologically, or physically” – nothing to say. All you have to do is, completely ... practice  [samadhi](glossary#samadhi), through the regulation of the body, through the regulation of the breath. And then at that time, there must be the practice of [egolessness](glossary#egolessness), based on no design on having any reward. That's why finally there is something left, which is called actual practice; activity. That's all. 
 
@@ -127,9 +126,9 @@ That is really [Buddha](glossary#buddha)'s [zazen](glossary#zazen) – as a reli
 
 "Taza" is just to hit, right in the middle of the head, of zazen. Completely beyond ... whether you can know or you can't know; it's completely beyond. You have to hit it. That is just the practice. "Taza" is just *do* it, *actually you have to do* it, right now, right here. 
 
-So, that is shikantaza. "Shikan" is [egolessness](glossary#egolessness), or  [samadhi](glossary#samadhi). If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; a mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[Unintelligible]*, we have to practice samadhi in zazen. 
+"Shikan" is [egolessness](glossary#egolessness), or  [samadhi](glossary#samadhi). If you have some ego sense, you cannot practice samadhi, because ego sense creates a certain gap, or crack; a mental crack, or slip. Through the crack, cold air blows. So, that is not real samadhi. *[Unintelligible]*, we have to practice samadhi in zazen. 
 
-Okay?
+So, that is shikantaza. 
 
 That's what I said yesterday. So, if you have questions about this, please, let's discuss.
 
@@ -199,11 +198,11 @@ But usually, I told you: total personality. Total personality is – well, throu
 
 On the other hand, that total personality comes from – where? Beginningless past, and endless future. Finally, that's total personality, where [Katagiri](glossary#katagiri) is Katagiri. So why don't you take care of Katagiri, with careful, compassionate attention – completely beyond judgement, good or bad, right and wrong? We must be right in the middle of total personality [in] everyday life, always. Total personality is the core of life – so we must be there, always.
 
-So from this point, it's pretty easy; no difficulty. That's why [Dogen Zenji](glossary#dogen) says, there is faith, if you believe total personality or [Buddha Nature](glossary#buddha-nature), whatever there is. Within total personality, or the original nature of existence, there is no confusion, no [suffering](glossary#suffering). No suffering, no confusion, no agitation, et cetera. Completely perfect. 
+From this point, it's pretty easy; no difficulty. That's why [Dogen Zenji](glossary#dogen) says there is faith, if you believe total personality or [Buddha Nature](glossary#buddha-nature), whatever there is. Within total personality, or the original nature of existence, there is no confusion, no [suffering](glossary#suffering). No suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 ##### 37:59
 
-So it's pretty easy, in a sense. But in a sense, according to the six consciousnesses, it's pretty hard. In the six consciousnesses, we can understand our life according to the huge pile of experiences which you have accumulated; that's why it's pretty hard. 
+So it's pretty easy, in a sense. But in a sense, according to the six consciousnesses, it's pretty hard. In the six consciousnesses, we can understand our life according to the huge pile of experiences which we have accumulated; that's why it's pretty hard. 
 
 So arrangement, regulating the body – it's not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture; why don't you do it?
 
@@ -341,7 +340,7 @@ So it is different from the ... second grade and third grade [[calligraphy](glos
 
 **Another person**: You're comparing that [to a] teacher ... of meditation.
 
-*Katagiri*: Yes, yes, that's right. Sure, it's a wonderful, wonderful [calligraphy](glossary#calligraphy) – but you don't understand. But it's universal – everyone understands this is good. [Or] even though you don't understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don't like it, anyway, look at this, and write it, again and again.
+**Katagiri**: Yes, yes, that's right. Sure, it's a wonderful, wonderful [calligraphy](glossary#calligraphy) – but you don't understand. But it's universal – everyone understands this is good. [Or] even though you don't understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don't like it, anyway, look at this, and write it, again and again.
 
 Maybe it takes time. Maybe tomorrow you could be a master, but maybe it takes time, too. But it doesn't matter. Whatever happens, always we have to look at that kind of example, and we have to write, again and again. Don't you think so? Do you understand?
 
@@ -363,7 +362,7 @@ Is that clear? Is that okay?
 
 **Same person**: So if the teacher is a poor teacher, then there’s no way you can ... 
 
-*Katagiri*: Yes. That is, you can attain [enlightenment](glossary#enlightenment), that is but a poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, [there are] many kinds of enlightenment. 
+**Katagiri**: Yes. That is, you can attain [enlightenment](glossary#enlightenment), that is but a poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, [there are] many kinds of enlightenment. 
 
 So, the teacher is important, but the teacher is a teacher – that *this* teacher also followed – of real zazen. I have to teach real zazen; I have to show real zazen mentioned by Buddha, and [Dogen](glossary#dogen), et cetera.
 
@@ -373,7 +372,7 @@ So, the teacher is important, but the teacher is a teacher – that *this* teach
 
 ##### 1:05:15
 
-**Question**: [Roshi](glossary#roshi)? Is that why you don't see [Zen](glossary#zen ) emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva) and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that. And like [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
+**Question**: [Roshi](glossary#roshi)? Is that why you don't see [Zen](glossary#zen ) emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva) and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that? And like [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
 
 **Katagiri**: Sure. Even though I don't emphasize [them], we are with [them] already, don't you think so?
 
@@ -397,8 +396,6 @@ Can you see this? I want to ask you. I think so.
 
 **Question**: Well, like at other [Zen](glossary#zen) centers, with training periods and [sesshins](glossary#sesshin) they're very rigid, and if you don't fit their schedule exactly, you don't participate at all. Like, they would kick people out if they left during periods during sesshins, or, if you couldn't fit to the training period schedule they would say just don't do the training period. Whereas I see you being much more open and just encouraging people to keep coming even if they can't do it totally. And it occurred to me that this is true not just for training periods and sesshin, but overall that you really seem to be trying to encourage *everybody* to do as much as possible.
 
-##### 1:08:24
-
 **Katagiri**: Well, I don't think it is *good*; I don't think it is right. But what I can do is, to see the reality, okay? That's all. And then, sometimes I give lots of rules; rigid rules, sometimes. Even though I give the rigid rules, the rigid rules are still open. So, again, a rigid rule; but still – *[he laughs]* – something happens within the rigid rule, so someone doesn't appear. This [is a] training [situation] that I run [into] a lot. *[Laughter.]* 
 
 I didn't say anything to the students; but I look at it every day. I say the rules; I say “this is the rule.” Do you want to attend a training session? Yes, you want to. If you want to, why don't you follow this? But – *[he laughs]* – something happens. I know that I don't know.
@@ -417,7 +414,7 @@ But it doesn't mean I don't care about the future, or I don't care about the pas
 
 Well, I don't know.
 
-*[Laughter.]*
+*[More laughter.]*
 
 I don't know other teachers, so, I just follow the, well, [Buddhistic](glossary#buddhistic) sense. That's all.
 
@@ -443,7 +440,7 @@ I don't know other teachers, so, I just follow the, well, [Buddhistic](glossary#
 
 **Same person**: Is there an arrow going from breath to [samadhi](glossary#samadhi)?
 
-**Katagiri**:  [Samadhi](glossary#samadhi) is the regulation of the body through the regulation of the breath. You can practice [it]. Okay? You can practice samadhi. But that samadhi should be practiced with mind too. That's why, by the help of samadhi, you can practice [egolessness](glossary#egolessness); that is because you have to practice samadhi with the mind too. But, the mind is always creating a certain kind of attachment; that's why [you need] egolessness. 
+**Katagiri**:  [Samadhi](glossary#samadhi) is the regulation of the body through the regulation of the breath. You can practice [it]. Okay? You can practice samadhi. But that samadhi should be practiced with mind, too. That's why, by the help of samadhi, you can practice [egolessness](glossary#egolessness); that is because you have to practice samadhi with the mind too. But, the mind is always creating a certain kind of attachment; that's why [you need] egolessness. 
 
 Simultaneously, we do both body and mind. So you have to practice  [samadhi](glossary#samadhi) with body and mind. But with the body, it seems to be simple: just to use the body, and just do it. Plunge into it; that's simple. But the moment when you plunge into it, the mind can see lots of things, and also the mind attaches to them. That's why, by the help of samadhi, we have to practice [egolessness](glossary#egolessness). If you have real samadhi, very naturally, there is egolessness. That means offering yourself completely into your regulating of breath and mind.
 
@@ -477,11 +474,11 @@ Is that clear?
 
 **Katagiri**: Yes, in a sense, the mind is connected with your breath and body. So, sometimes when your mind is very agitated and very unrestful, uneasy, it's pretty hard to breathe smoothly. But sometimes breath is connected with the body, and also nerves; well, many ways. And also sometimes, circumstances, environment. So, we have to check. Okay?
 
-**Question**: Check what?
+**Same person**: Check what?
 
 **Katagiri**: *[Laughing.]* Check what. Your body; and also your mind. 
 
-For instance, if you sit [zazen](glossary#zazen) *[strain in voice]* too hard, like this – you can't breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe; immediately, it influences your breath. So you have to check: your body, your posture, and also mind.
+For instance, if you sit [zazen](glossary#zazen) *[strain in voice]* too hard, like this – you can't breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe; immediately, it influences your breath. So you have to check: your body, your posture, and also your mind.
 
 Is that okay?
 
@@ -515,7 +512,7 @@ Is that okay?
 
 **Katagiri**: Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* 
 
-But how do you keep doing? That is [excellent] practice. If you use too much enormous effort, you exhaust [yourself]. If your attention slackens ... then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally? That's pretty hard, in the practice of [calligraphy](glossary#calligraphy). That is very important. 
+But how do you keep doing? That is [excellent] practice. If you use too much enormous effort, you exhaust [yourself]. If your attention slackens ... then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally? That's pretty hard, in the practice of [calligraphy](glossary#calligraphy). That is very important.  
 
 ##### 1:23:27
 
@@ -527,7 +524,7 @@ So, I did it. But I don't know if my [calligraphy](glossary#calligraphy) is good
 
 ##### 1:25:50
 
-... Here is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends was very enthusiastic, he was being present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is a particular gassho. His face is very – not rigid, a very wonderful face. And his [bow](glossary#bowing) is a particular bow. He is completely the same as the teacher: gassho, bow, exactly the same. But he didn't try to imitate [the teacher’s] gassho and bow; all he had to do was just to be present with it. So finally, his gassho and also calligraphy [is the] exact same. Is that helpful?
+... Here is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends was very enthusiastic; he was always present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is a particular gassho. His face is very – not rigid, a very wonderful face. And his [bow](glossary#bowing) is a particular bow. He is completely the same as the teacher: gassho, bow, exactly the same. But he didn't try to imitate [the teacher’s] gassho and bow; all he had to do was just to be present with it. So finally, his gassho and also calligraphy [is the] exact same. Is that helpful?
 
 So if you are always with a first grade child who is a master of [calligraphy](glossary#calligraphy), you become a first grade child. It's not bad; it's good. 
 
