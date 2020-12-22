@@ -10,6 +10,8 @@
 
 <a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790610.mp3" target="_blank">Listen to the Online Audio Archive</a>
 
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-2/" target="_blank">Listen to the transcript read by Kikan</a>
+
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
