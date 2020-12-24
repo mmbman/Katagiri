@@ -8,7 +8,7 @@
 ## June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Mike Howard
 
-<a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790610.mp3" target="_blank">Listen to the Online Audio Archive</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Listen to the Online Audio Archive</a>
 
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-2/" target="_blank">Listen to the transcript read by Kikan</a>
 

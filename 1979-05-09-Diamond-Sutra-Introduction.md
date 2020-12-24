@@ -8,7 +8,7 @@
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Mike Howard
 
-<a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/DK19790509.mp3" target="_blank">Listen to the Online Audio Archive</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/05-1979" target="_blank">Listen to the Online Audio Archive</a>
 
 <a href="https://katagiritranscripts.podbean.com/e/1979-05-09-diamond-sutra-introduction/" target="_blank">Listen to the transcript read by Kikan</a>
 

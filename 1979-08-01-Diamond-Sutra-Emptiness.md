@@ -8,7 +8,7 @@
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Mike Howard
 
-<a href="http://www.mnzencenter.org/media_download.php?file=katagiri_audio/dk19790801.mp3" target="_blank">Listen to the Online Audio Archive</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Listen to the Online Audio Archive</a>
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
