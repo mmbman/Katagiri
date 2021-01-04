@@ -11,7 +11,7 @@
 
 ## Podcast Description
 
-Dainin Katagiri Roshi was one of the pioneers who brought Zen Buddhism from Japan to the United States. (“Roshi” means “respected elder teacher.”) Katagiri Roshi’s talks, recorded from 1979 to 1989, contain a huge volume of material not included in the four books compiled from his teachings. Audio recordings of his talks are generously made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since Katagiri was a non-native speaker and the recording quality varied, he can be difficult to understand. To try to translate “enthusiastic but somewhat jumbled English” to “fluent English” for a new audience, here these talks are carefully transcribed and read by second- or third-generation student Kikan Mike Howard. New episodes will be posted regularly, going through the talks in order.
+Dainin Katagiri Roshi was one of the pioneers who brought Zen Buddhism from Japan to the United States. (“Roshi” means “respected elder teacher.”) Katagiri Roshi’s talks, recorded from 1979 to 1989, contain a huge volume of material not included in the four books compiled from his teachings. Audio recordings of his talks are generously made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since Katagiri was a non-native speaker and the recording quality varied, he can be difficult to understand. To try to translate “enthusiastic but somewhat jumbled English” to “fluent English” for a new audience, here these talks are carefully transcribed and read by second- or third-generation student Kikan Michael Howard. New episodes will be posted regularly, going through the talks in order.
 
 [Katagiri Transcripts Podcast](https://katagiritranscripts.podbean.com)
 
@@ -25,7 +25,7 @@ Each talk requires many hours to carefully transcribe. That said, there may stil
 
 I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
 
-  – Kikan Mike Howard
+  – Kikan Michael Howard
 
 For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 

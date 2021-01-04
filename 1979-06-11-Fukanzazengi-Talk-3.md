@@ -6,7 +6,7 @@
 ---
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3
 ## June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
-### Transcribed by Kikan Mike Howard
+### Transcribed by Kikan Michael Howard
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Listen to the Online Audio Archive</a>
 
@@ -15,39 +15,33 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-[I want to] say something more, a little bit, about the same subject as I told yesterday. The subject was, "You must know that first, there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject, from a different angle today, because this is very important characteristic of the zazen we do, which is called [shikantaza](glossary#shikantaza).
+[I want to] say something a little bit more about the subject I talked about yesterday. The subject was, "You must know that first, there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject, from a different angle today, because this is very important characteristic of the zazen we do, which is called [shikantaza](glossary#shikantaza).
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This was the first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but, I was moved very much by this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[Mild laughter.]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
+Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This was the first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but I was moved very much by this point. If you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[Mild laughter.]* I was lucky, anyway. If I had a big head, I couldn't accept it. But anyway, I accepted it, totally. I was a lucky guy.
 
 ##### 2:33
 
-Particularly according to [dullness](glossary#dullness) and [distraction](glossary#distraction): dullness and distraction here are meant to exemplify all kinds of [delusion](glossary#delusion). But according to [Abhidharmakosha](glossary#abidharmakosha), dullness and distraction are just two of the delusions. So, you can find the dullness and distractions, one of the delusions according to the list of the Abidharmakosha. Thirty-seven and thirty-eight says, dullness in [Sanskrit](glossary#sanskrit), [styāna](glossary#styāna), this is dullness. Translation says: torpor; or stiffness, or [obduracy], and [sterility], indifference, and in Latin, *[unintelligible]* ... languor, torpor, sloth. (Also, lethargy.)
+Particularly [with regard to] to [dullness](glossary#dullness) and [distraction](glossary#distraction): dullness and distraction here are meant to exemplify all kinds of [delusion](glossary#delusion). But according to [Abhidharmakosha](glossary#abidharmakosha), dullness and distraction are just two of the delusions. You can find dullness and distraction, two of the delusions according to the list in the Abidharmakosha. Thirty-seven and thirty-eight say, dullness – in [Sanskrit](glossary#sanskrit), [styāna](glossary#styāna), this is dullness. The translation says: torpor, or stiffness, or obduracy. And [sterility], indifference. And *[unintelligible]* ... languor, torpor, sloth. (Transcriber’s Note: also, lethargy.) ... And the other one is distraction; they present it in [Sanskrit](glossary#sanskrit) as [auddhatya](glossary#auddhatya) – that means restlessness, or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
-This is dullness, and the other one is distraction. They present it as, in [Sanskrit](glossary#sanskrit), [auddhatya](glossary#auddhatya) – that means, restlessness. Or, agitation, restlessness of mind, recklessness, or frivolity. Et cetera.
-
-##### 5:18
-
-But in Fukanzazengi, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of [delusions](glossary#delusion). So, if you do shikantaza, not only dullness and distraction, all kinds of delusions drop off from the first. This is shikantaza.
+But in Fukanzazengi, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of [delusions](glossary#delusion). So, if you do shikantaza, not only dullness and distraction, [but] all kinds of delusions drop off from the first. This is shikantaza.
 
 ##### 6:00
 
-First let me say a little bit about the meaning of ... dullness and distraction. Broadly speaking, dullness and distraction are the state where the mind acts reactively, like the swing of a pendulum, and the body and mind lose a state of their equilibrium. That is in a state of either distraction or dullness. Just like a pendulum. 
+First let me say a little bit about the meaning of ... dullness and distraction. Broadly speaking, dullness and distraction are the state where the mind acts reactively, like the swing of a pendulum. The body and mind lose [their] state of equilibrium ... in a state of either distraction or dullness, just like a pendulum. 
 
 So it is represented as [kon-san?] in Japanese. [Kon?] is dullness, [san?] is distraction... 
 
-The structure of the Chinese letter [kon] consists of two parts: one is bottom, the second is the sun. The sun sinks, or sets, at the bottom; the complete darkness. So [kon] means dullness, which means the state which the mind becomes gloomy and doesn't work. As if the sun sets, and the surroundings completely become dark. That is the meaning of [kon], dullness.
+The structure of the Chinese letter [kon] consists of two parts: one is bottom, the second is the sun. The sun sinks or sets at the bottom: the complete darkness. So [kon] or dullness means the state which the mind becomes gloomy and doesn't work, as if the sun sets and the surroundings completely become dark. That is the meaning of [kon], dullness.
 
-[San] is distraction. Distraction is a state where the mind is annoyed with troublesome [things], and is [indeterminate]. That is distraction. So distraction, broadly speaking, means ... relative understanding. Various relative understandings: relative views, relative thoughts. Or, worldly thoughts. Worldly thoughts means to understand or view something in the [dualistic](glossary#dualistic) world. That is distraction. 
+[San] is distraction. Distraction is a state where the mind is annoyed with troublesome [things], and is [indeterminate]. So distraction, broadly speaking, means ... relative understanding: various relative understandings, relative views, relative thoughts, or worldly thoughts. Worldly thoughts means to understand or view something in the [dualistic](glossary#dualistic) world.
 
-So if you understand something in the [dualistic](glossary#dualistic) world ... whatever kind of idea or view you can get, it's a cause of distraction. For instance, good or evil, or neutral. Or hard practice, or easy practice, or so-so. Whatever kind of idea you get in the dualistic world, all becomes a cause of distraction. That is really distraction. 
+So if you understand something in the [dualistic](glossary#dualistic) world ... whatever kind of idea or view you can get, it's a cause of distraction. For instance, good or evil, or neutral; or hard practice, easy practice, or so-so. Whatever kind of idea you get in the dualistic world, it all becomes a cause of distraction.
 
 ##### 10:27
 
 There are many types of [zazen](glossary#zazen) in this world, but broadly speaking, let me say, maybe three types of zazen. 
 
-##### 10:48
-
-One type of [zazen](glossary#zazen) is, that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds," perfectly. At any cost, by the zazen, we struggle for weeding out, and make the whole world completely clean. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So someday, weeds come back, come up, because you cannot destroy weeds. Because weeds are nothing but being – just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers. As long as flowers exist in this world, immediately there are weeds. 
+One type of [zazen](glossary#zazen) is that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds" perfectly. By [this] zazen, at any cost we struggle for weeding out and making the whole world perfectly clean. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So, someday weeds come back, come up – because you cannot destroy weeds. Weeds are nothing but being – just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers – as long as flowers exist in this world, immediately there are weeds. 
 
 But actually, in the [dualistic](glossary#dualistic) world, we don't like weeds. So, with hatred, we try to cut them down. But while you maintain ... hatred ... by the hatred, maybe you can cut them down. But it is not completely removing the weeds from the human world. Sometimes, somewhere, weeds come up. 
 

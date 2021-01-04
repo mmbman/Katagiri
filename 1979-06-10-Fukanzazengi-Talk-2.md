@@ -6,7 +6,7 @@
 ---
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2
 ## June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
-### Transcribed by Kikan Mike Howard
+### Transcribed by Kikan Michael Howard
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Listen to the Online Audio Archive</a>
 
