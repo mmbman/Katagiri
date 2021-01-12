@@ -410,7 +410,7 @@ See [Dogen](#dogen)
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
-- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Talk-3#11402)
+- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:12:30)](1979-06-11-Fukanzazengi-Talk-3#11230)
 
 ---
 ## Emptiness
@@ -468,9 +468,11 @@ See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 ---
 ## Fukutoku
 
-(Japanese) Fukutoku 福徳 – "merit and virtue". Possibly equivalent to [Sanskrit](glossary#sanskrit) "punya".
+Also: **kudoku**
 
-- [Fukanzazengi – Talk 3 (39:28)](1979-06-11-Fukanzazengi-Talk-3#3928)
+(Japanese) Fukutoku 福徳 – "merit and virtue". Equivalent to [Sanskrit](glossary#sanskrit) "punya".
+
+- [Fukanzazengi – Talk 3 (38:30)](1979-06-11-Fukanzazengi-Talk-3#3830)
 
 External links:
 
@@ -523,7 +525,7 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 Eko Hashimoto, abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
  
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
-- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:14:02)](1979-06-11-Fukanzazengi-Talk-3#11402)
+- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:12:30)](1979-06-11-Fukanzazengi-Talk-3#11230)
 
 ---
 ## Heart Sutra
@@ -1034,7 +1036,7 @@ The “*just*” from “just sitting”; see [shikantaza](glossary#shikantaza).
 A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
 
 - [Fukanzazengi – Talk 2 (25:09)](1979-06-10-Fukanzazengi-Talk-2#2509)
-- [Fukanzazengi – Talk 3 (1:04:30)](1979-06-11-Fukanzazengi-Talk-3#10430), [(1:09:49)](1979-06-11-Fukanzazengi-Talk-3#10949)
+- [Fukanzazengi – Talk 3 (1:04:30)](1979-06-11-Fukanzazengi-Talk-3#10430), [(1:08:27)](1979-06-11-Fukanzazengi-Talk-3#10827)
 
 ---
 ## Shobogenzo

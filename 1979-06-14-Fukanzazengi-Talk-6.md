@@ -115,11 +115,11 @@ And also, one of the conditioned elements which are not associated with mind is 
 
 There are sort of three kinds of obtaining and getting. Obtaining is to obtain and complete something. That is a characteristic of conditioned element: to get and complete. There are three kinds of getting and completing. 
 
-[One] is, you can sew a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sew a seed. [Sewing] a seed is completely a seed, not [prāpti](glossary#prāpti); seed.
+[One] is, you can sow a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sow a seed. [Sowing] a seed is completely a seed, not [prāpti](glossary#prāpti); seed.
 
 And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prāpti](glossary#prāpti). Even though you are in the [dualistic](glossary#dualistic) world, you can ... complete [Buddha](glossary#buddha)'s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
 
-And then, on the other hand, is seed. You don't actualize, but you can sew a seed. For instance, shikantaza ... in the shikantaza, all [delusions](glossary#delusion) drop off and you don't understand. But, if you do [zazen](glossary#zazen), anyway you can sew a seed, in your mind, in your life. But it doesn't appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it's actualization of zazen itself. So even though you don't understand, you gain something and complete something, as a truth. Even though you are in the [dualistic](glossary#dualistic) world, you can do this.
+And then, on the other hand, is seed. You don't actualize, but you can sow a seed. For instance, shikantaza ... in the shikantaza, all [delusions](glossary#delusion) drop off and you don't understand. But, if you do [zazen](glossary#zazen), anyway you can sow a seed, in your mind, in your life. But it doesn't appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it's actualization of zazen itself. So even though you don't understand, you gain something and complete something, as a truth. Even though you are in the [dualistic](glossary#dualistic) world, you can do this.
 
 ##### 43:20
 
