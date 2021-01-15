@@ -61,13 +61,13 @@ So immediately, your goal completely goes far from you. That's why the moment th
 
 ##### 16:42
 
-That is one type of [zazen](glossary#zazen). If you do zazen like this, of course you can attain [enlightenment](glossary#enlightenment). You can completely weed out. By arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath, you can reach a certain spiritual stage which is called calmness or tranquility – which enables you to feel happy, et cetera.
+That is one type of [zazen](glossary#zazen). If you do zazen like this, of course you can attain [enlightenment](glossary#enlightenment). You can completely “weed out”. By arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath, you can reach a certain spiritual stage which is called calmness or tranquility – which enables you to feel happy, et cetera.
 
-But, when the circumstances are changed: well, you cannot accept the calmness and tranquility [that] you have experienced; [you] cannot maintain [it]. Immediately it's gone; so you are very much confused. I know several examples [of this] in the United States. 
+But, when the circumstances are changed: well, you cannot maintain the calmness and tranquility [that] you have experienced. Immediately it's gone; so you are very much confused. I know several examples [of this] in the United States. 
 
 But at a certain stage, under certain circumstances, for instance Burma, or wherever – if you are right in the middle of a monastery in Burma, you can follow the rules, the strict practice, and you attain enlightenment. But when you come to the United States – [it is a] completely different situation, okay? A very different situation. And then, the weeds come back. It's really so. 
 
-Well, I don't mean it is good or bad, right or wrong. We should know, that is life. These [are] human beings; we should know that.
+Well, I don't mean it is good or bad, right or wrong. We should know [that] such is life, such are human beings. We should know that.
 
 ##### 19:15
 
@@ -79,19 +79,19 @@ So, [arhats](glossary#arhat) and many saints in the history of [Buddhism](glossa
 
 This is also zazen. You can do this.
 
-But that is just weeding out on their own territory. That's all. And then, when they completely weed out on their territory, they don't know what to do. So there is only death to wait for; that's all. All they have to do is just to wait for their death. Can you imagine this? 
+But that is just weeding out on their own territory; that's all. And then, when they completely weed out on their territory, they don't know what to do. So there is only death to wait for; that's all. All they have to do is just to wait for their death. Can you imagine this? 
 
-If the people don't offer them food, they can survive, because they can stop their breath for many hours. Do you know that? Yes, they can do that. Still there is a possibility to survive, so it's not necessary to struggle for their life; just be there. No more weeds come up. Very clean. But, they don't know what to do. Just wait for their death; that's all. 
+If the people don't offer them food, they can survive, because they can stop their breath for many hours. Do you know that? Yes, they can do that. Still there is a possibility to survive, so it's not necessary to struggle for their life; just be there. No more weeds come up. Very clean. But they don't know what to do. Just wait for their death; that's all. 
 
 ##### 24:25
 
-Here is a very good example in Japan. This is a recent news story of one of the famous Japanese actors, who was interested in business. He cherished for a long time some project he really wanted. He waited for the chance to do it. He got that chance; he started to do that business project. Finally, he *finished* – perfectly finished. Risking his whole life – he did it! Everyone respected it: wonderful job, perfect. But finally, he didn't know what to do *next*. And then – can you imagine what would happen? He committed suicide. Why? ... He must be happy, because he did it. But he committed suicide. Why? People didn't understand it. 
+Here is a very good example in Japan. This is a recent news story of one of the famous Japanese actors, who was interested in business. He cherished for a long time some project he really wanted. He waited for the chance to do it. He got that chance; he started to do that business project. Finally, he *finished* – perfectly finished. Risking his whole life – he did it! Everyone respected it: wonderful job, perfect. But finally, he didn't know what to do *next*. And then – can you imagine what would happen? He committed suicide. Why? ... He must be happy, because he did it. But he committed suicide. Why? People didn't understand this. 
 
-So, that is a really good example; not only Buddhists, this is really human life. If you really want to do something, to completely weed out, and if you want to be successful in any kind of business, or Buddhist practice – if you want to live in a paradise, you can do it. But, this is not the final goal [Buddha](glossary#buddha) mentions. Because, if you do it, there is still confusion. You don't know what to do. Finally, nothing to do. After reaching that highest level, [there is] nothing to do, because that highest level is nothing but something [in the] [dualistic](glossary#dualistic) world. The highest level is a certain level opposed to a lowest level. So, [it’s] always the dualistic world. If you reach the highest level in the dualistic world, still there is confusion.
+So, that is a really good example; not only Buddhists, this is really human life. If you really want to do something, to completely weed out; if you want to be successful in any kind of business, or Buddhist practice; if you want to live in a paradise, you can do it. But, this is not the final goal [Buddha](glossary#buddha) mentions. Because, if you do it, there is still confusion. You don't know what to do. Finally, nothing to do. After reaching that highest level, [there is] nothing to do, because that highest level is nothing but something [in the] [dualistic](glossary#dualistic) world. The highest level is a certain level opposed to a lowest level. So, [it’s] always the dualistic world. If you reach the highest level in the dualistic world, still there is confusion.
 
-Or, another confusion is, they really are very weary of having reached the highest level, and having stayed with that highest level. Nothing to do; enjoy themselves. And all they have to do is, just to wait for death. 
+Or, another confusion is ... by way of having reached the highest level, and having stayed with that highest level, [they really have] nothing to do; [just] enjoy themselves. And all they have to do is just to wait for death. 
 
-That is what is called dullness. In other words, too much pride: "I finished. My task is done. So, at any time, any where, I can die." So, you can wait for death in peace and harmony, without having the weeds, but this is called dullness – because that high spirit is just one of the lifestyles in the [dualistic](glossary#dualistic) world. It's not completely happiness. 
+That is what is called dullness. In other words, too much pride: "I finished. My task is done. So, at any time, any where, I can die." So, you can wait for death in peace and harmony, without having the weeds – but this is called dullness; because that high spirit is just one of the lifestyles in the [dualistic](glossary#dualistic) world. It's not completely happiness. 
 
 ##### 29:00
 
