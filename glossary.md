@@ -911,7 +911,7 @@ One-pointedness. Often the kind achieved in meditation, but it can refer to comp
 ---
 ## Samsara
 
-(Sanskrit) Literally, “wandering in circles”: the “wandering in circles world.” 
+(Sanskrit) Literally, “wandering in circles”: the “wandering in circles world” of the Six Realms of Existence. 
 
 -----
 ## Samskara
