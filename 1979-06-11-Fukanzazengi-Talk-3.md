@@ -95,25 +95,23 @@ That is what is called dullness. In other words, too much pride: "I finished. My
 
 ##### 29:00
 
-The last type of [zazen](glossary#zazen) is something we do: [shikantaza](glossary#shikantaza). 
+The last type of [zazen](glossary#zazen) is something *we* do: [shikantaza](glossary#shikantaza). 
 
-Struggling for reaching the other shore at any cost: this is also distraction. Even though you reach the highest level of spiritual life, still there is a struggle – because the moment you reach the final goal, the final goal turns into the beginning. You have to start again. That's why struggle is constantly going on. 
-
-That is distraction – and on the other hand, dullness. But if you do shikantaza, dullness and distraction drop off, from the first. 
+Struggling for reaching the other shore at any cost: this is also distraction. Even though you reach the highest level of spiritual life, still there is a struggle – because the moment you reach the final goal, the final goal turns into the beginning. You have to start again. That's why struggle is constantly going on. That is distraction. And on the other hand, dullness. But if you do shikantaza, dullness and distraction drop off, from the first. 
 
 ##### 30:12
 
-You know the [karma](glossary#karma) we did, [that] we planted in the past. Some karmas were good, some karmas were evil, some karmas were neutral; many karmas we created in the past. And then, you know pretty well, where are those karmas? They are at the bottom of our mind, this body and mind. Karma is here. 
+You know the [karma](glossary#karma) we did, [that] we planted in the past: some karmas were good, some karmas were evil, some karmas were neutral. Many karmas we created in the past. And then, you know pretty well, those karmas are where? They are at the bottom of our mind, this body and mind. Karma is here. 
 
-Through your daily living, you can realize [this]. Your present lives are influenced by something else, which you don't understand. Maybe some people call it [karma](glossary#karma) – [but] only when they realize that something's wrong. Because only when you realize something's wrong, [then] you really get the chance to reflect upon yourself very seriously. That's when you put a certain [evaluation] on your life: “That is something wrong. That karma is *wrong*; evil karma.” But actually, \[the] [karma](glossary#karma) [that] exists with you is completely beyond the moral sense of good, bad, or neutral. 
+Through your daily living, you can realize [this]. Your present lives are influenced by something else, which you don't understand. Maybe some people call it karma – [but] only when they realize that something's wrong. Because only when you realize something's wrong, [then] you really get the chance to reflect upon yourself very seriously. That's when you put a certain [evaluation] on your life: “That is something wrong. That karma is *wrong*; evil karma.” But actually, \[the] karma [that] exists with you is completely beyond the moral sense of good, bad, or neutral. 
 
-I told you very often, that [karmas](glossary#karma) in the past and existing in the present in your life, appear or don't appear when time and occasion are ripe and conditions are arranged. All kinds of karmas are still here, [but] nothing happens; only when time and occasions are ripe and conditions arranged perfectly, some [karma](glossary#karma) appears. That is a characteristic of the [karma](glossary#karma) you [have] created in the past. 
+I told you very often, that karmas in the past and existing in the present in your life, appear or don't appear when time and occasion are ripe and conditions are arranged. All kinds of karmas are still here, [but] nothing happens; only when time and occasions are ripe and conditions arranged perfectly, some karma appears. That is a characteristic of the karma you [have] created in the past. 
 
 That's why karmas you created in the past are completely beyond the moral sense of good, bad, or neutral. They are always there. If you don't touch it – if you don't have particular time and opportunity created, or conditions arranged – then completely karma sits. But if you create certain conditions and time and occasion, it appears. 
 
-So the question is, what kind of time and occasion and conditions should we create in our daily living. That's the point, don't you think – rather than keeping away or criticizing [karmas](glossary#karma) you did in the past. Because, karmas in the past are completely quiet, in your daily living. But any time, anywhere, they appear and disappear according to time and occasion and conditions *you* do.
+So the question is, what kind of time and occasion and conditions should we create in our daily living. That's the point, don't you think – rather than keeping away or criticizing karmas you did in the past. Because, karmas in the past are completely quiet, in your daily living. But any time, anywhere, they appear and disappear according to time and occasion and conditions *you* do.
 
-So this is [karma](glossary#karma). 
+So this is karma. 
 
 ##### 34:45
 
@@ -127,7 +125,7 @@ And also, karmas appear ignoring your judgement, evaluation, and dislike – wha
 
 So, it is very important what kind of time and occasion and conditions we make from moment to moment, in the process of moving to our future – rather than criticizing and blaming the karmas in the past. 
 
-The important point is that we have to create good time and occasion and good conditions, as best as we can. If you create good time and occasion, and good conditions ... immediately some of the karmas in the past which are called “good” appear in the present. And, if you have done it, immediately that will be a seed of the [karma](glossary#karma) which will appear in the future. So, you can always sow a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. The evil karmas are always here, very quiet; but if you always create good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
+The important point is that we have to create good time and occasion and good conditions, as best as we can. If you create good time and occasion, and good conditions ... immediately some of the karmas in the past which are called “good” appear in the present. And, if you have done it, immediately that will be a seed of the karma which will appear in the future. So, you can always sow a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. The evil karmas are always here, very quiet; but if you always create good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
 
 ##### 38:30
 
@@ -137,7 +135,7 @@ We call \[this] [fukutoku](glossary#fukutoku) \[asuru]. Fukutoku means merit and
 
 But let me say about this: we don't understand [it]. Still we don't understand why it is that dullness and distraction drop off from the first if you accumulate merit and virtue.
 
-In order to understand this point, first of all, we have to see practice for the long range, life after life. Not only seeing your life in this life, in this world; you have to see your whole life, life after life. Maybe the next life, or the life after next life. Anyway, life is continually going on, because we created [karma](glossary#karma) in the past, and also we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means [a] future will exist – so, you can get the chance to be born in the next life. That is the meaning or sense of [the theory] of karma. As long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
+In order to understand this point, first of all, we have to see practice for the long range, life after life. Not only seeing your life in this life, in this world; you have to see your whole life, life after life. Maybe the next life, or the life after next life. Anyway, life is continually going on, because we created karma in the past, and also we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means [a] future will exist – so, you can get the chance to be born in the next life. That is the meaning or sense of [the theory] of karma. As long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
 
 ##### 42: 44
 
