@@ -203,7 +203,7 @@ So genjo, present is...
 
 ... present as it truly is. This is called gen jo. Present perfections. That is your reality. So, what is the present of what you are doing? That is called [zazen](glossary#zazen). It's something more than you believe. So, present of zazen is what you have been completed, and is being completed, and will be completed, constantly. Means, the present of zazen becomes present of zazen, right now, right here, and settle in the present of zazen. That's it! Believe this! If I explain it's complicated, but if you practice it, very simple. 
 
-Too simple to know. So that's why this is called shikantaza. So you have never experienced before; that's why [Buddhas](glossary#buddha) constantly express compassion over everyone, whoever you are, enlightened or non enlightened, and try to put you in that reality. How? Please do zazen. Please take care of gassho as a form, as best as you can. That's all.
+Too simple to know. So that's why this is called [shikantaza](glossary#shikantaza). So you have never experienced before; that's why [Buddhas](glossary#buddha) constantly express compassion over everyone, whoever you are, enlightened or non enlightened, and try to put you in that reality. How? Please do zazen. Please take care of gassho as a form, as best as you can. That's all.
 
 ##### 49:12
 

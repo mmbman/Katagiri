@@ -63,7 +63,7 @@ That's why we have to use the mind. But first, we have to use our body. In other
 
 ##### 21:38
 
-I already told you a few stories so far, and [Dogen](glossary#dogen) gives lots of examples, but he didn't explain completely about each story. But the few stories I told you ... really [imply very well] the meaning of shikantaza, [zazen](glossary#zazen), based on body and mind dropping off. 
+I already told you a few stories so far, and [Dogen](glossary#dogen) gives lots of examples, but he didn't explain completely about each story. But the few stories I told you ... really [imply very well] the meaning of [shikantaza](glossary#shikantaza), [zazen](glossary#zazen), based on body and mind dropping off. 
 
 And then he says here: "In addition, the bringing about of [enlightenment](glossary#enlightenment) by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (whisk), a fist, a staff, or a shout..." – those things come from the old stories [of the exchanges] between the [Zen masters](glossary#zen-master) and the Zen monks; [they are explained] in this book in the note. But overall it's not necessary; I don't have enough time to explain all things. That's why I told you a few stories; [Gensha Shibi](glossary#gensha-shibi)'s, and one more I forgot. 
 
@@ -101,11 +101,11 @@ At that time, something happens. That is zazen as an event. So mind immediately 
 
 And then when we see just the [zazen](glossary#zazen), it is zazen. It is just zazen. When in your body, body is hidden behind zazen. But that body doesn't bother zazen. Just zazen. Just like a doll, and also dish.
 
-But on the other hand, if you see that zazen from the back, which is called clay, or your body, breath and mind; at that time, body appears. But zazen is completely hidden behind it. It doesn't bother you. Then at that time, mind and all [delusions](glossary#delusion) completely drop off. This is zazen; shikantaza. 
+But on the other hand, if you see that zazen from the back, which is called clay, or your body, breath and mind; at that time, body appears. But zazen is completely hidden behind it. It doesn't bother you. Then at that time, mind and all [delusions](glossary#delusion) completely drop off. This is zazen; [shikantaza](glossary#shikantaza). 
 
 ##### 39:00
 
-Shikantaza, based on dropping off body and mind, is not a new idea mentioned by [Dogen](glossary#dogen). It's really [Buddhism](glossary#buddhism). Well, you can explain it according to Buddhist psychology, but we don't understand the real meaning of [samskara](glossary#samskara), and also about the elements which are not associated with mind. That's why we understand it just as a concept, apart from human life. That's why we don't understand.
+[Shikantaza](glossary#shikantaza), based on dropping off body and mind, is not a new idea mentioned by [Dogen](glossary#dogen). It's really [Buddhism](glossary#buddhism). Well, you can explain it according to Buddhist psychology, but we don't understand the real meaning of [samskara](glossary#samskara), and also about the elements which are not associated with mind. That's why we understand it just as a concept, apart from human life. That's why we don't understand.
 
 ##### 39:44 
 
@@ -119,7 +119,7 @@ There are sort of three kinds of obtaining and getting. Obtaining is to obtain a
 
 And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prāpti](glossary#prāpti). Even though you are in the [dualistic](glossary#dualistic) world, you can ... complete [Buddha](glossary#buddha)'s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
 
-And then, on the other hand, is seed. You don't actualize, but you can sow a seed. For instance, shikantaza ... in the shikantaza, all [delusions](glossary#delusion) drop off and you don't understand. But, if you do [zazen](glossary#zazen), anyway you can sow a seed, in your mind, in your life. But it doesn't appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it's actualization of zazen itself. So even though you don't understand, you gain something and complete something, as a truth. Even though you are in the [dualistic](glossary#dualistic) world, you can do this.
+And then, on the other hand, is seed. You don't actualize, but you can sow a seed. For instance, [shikantaza](glossary#shikantaza) ... in the shikantaza, all [delusions](glossary#delusion) drop off and you don't understand. But, if you do [zazen](glossary#zazen), anyway you can sow a seed, in your mind, in your life. But it doesn't appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it's actualization of zazen itself. So even though you don't understand, you gain something and complete something, as a truth. Even though you are in the [dualistic](glossary#dualistic) world, you can do this.
 
 ##### 43:20
 

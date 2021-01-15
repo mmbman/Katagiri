@@ -15,21 +15,21 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-[I want to] say something a little bit more about the subject I talked about yesterday. The subject was, "You must know that [just] there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called [shikantaza](glossary#shikantaza).
+[I want to] say something a little bit more about the subject I talked about yesterday. The subject was, "You must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called [shikantaza](glossary#shikantaza).
 
 Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This was the first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn't understand the meaning, but I was moved very much by this point: if you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[There is some mild laughter.]* I was lucky, anyway. If I had a big head, I couldn't accept it. But I accepted it, totally. I was a lucky guy.
 
 ##### 2:33
 
-Particularly [with regard to] to [dullness](glossary#dullness) and [distraction](glossary#distraction): 
+Particularly [with regard] to [dullness](glossary#dullness) and [distraction](glossary#distraction): 
 
 Dullness and distraction here are meant to exemplify all kinds of [delusion](glossary#delusion). According to the [Abhidharmakosha](glossary#abidharmakosha), dullness and distraction are just two of the delusions. You can find dullness and distraction, two of the delusions according to the list [of dharmas] in the Abidharmakosha. Thirty-seven and thirty-eight say, dullness [and distraction]. 
 
-[Dullness] in [Sanskrit](glossary#sanskrit) is [styāna](glossary#styāna). The translation says: torpor, stiffness, or obduracy ... indifference. And *[unintelligible]* ... languor ... sloth.
+[Dullness] in [Sanskrit](glossary#sanskrit) is [styāna](glossary#styāna). The translation says: torpor, stiffness, or obduracy ... indifference. And *[unintelligible]* ... sluggishness, languor, sloth.
 
 And the other one is distraction: they present it in [Sanskrit](glossary#sanskrit) as [auddhatya](glossary#auddhatya) – that means restlessness, or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
-But in Fukanzazengi, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of [delusions](glossary#delusion). So, if you do shikantaza, not only dullness and distraction, [but] all kinds of delusions drop off from the first. This is shikantaza.
+But in Fukanzazengi, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of [delusions](glossary#delusion). So, if you do [shikantaza](glossary#shikantaza), not only dullness and distraction, [but] all kinds of delusions drop off from the first. This is shikantaza.
 
 ##### 6:00
 
@@ -211,7 +211,7 @@ Anyway, we don't know how much [delusions](glossary#delusion) drop off. We don't
 
 That is ... [to] sow a good seed. Good time and occasion, and good conditions – we can create them, right now, right here.
 
-That's why shikantaza is not a means to an end – leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine; well this is very nice, this is a kind of [zazen](glossary#zazen). So, you can do this – but, what you are struggling for is nothing but a distraction. This is really true. Distraction is one of the delusions. This is still a [delusion](glossary#delusion).
+That's why [shikantaza](glossary#shikantaza) is not a means to an end – leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine; well this is very nice, this is a kind of [zazen](glossary#zazen). So, you can do this – but, what you are struggling for is nothing but a distraction. This is really true. Distraction is one of the delusions. This is still a [delusion](glossary#delusion).
 
 ##### 1:02:50
 
@@ -231,7 +231,7 @@ But, if you do it by yourself – it's pretty hard. Because, making arrangement 
 
 While \[the] [lotus](glossary#lotus) flower is blooming, mud water exists. But it doesn't bother us; it's really appreciated. Lotus flowers just bloom. And then, mud water drops off, very naturally, and then, whole lotus flowers bloom in the universe. 
 
-That is shikantaza. If you do this, that practice creates merit and virtue, which bloom in the future. In the life after next life, it's blooming. Yes it is. I promise. *[He laughs softly.]* I promise.
+That is [shikantaza](glossary#shikantaza). If you do this, that practice creates merit and virtue, which bloom in the future. In the life after next life, it's blooming. Yes it is. I promise. *[He laughs softly.]* I promise.
 
 ##### 1:08:27
 
@@ -241,11 +241,11 @@ But we don't know. We really want to know; we are always curious of poking our h
 
 You cannot ignore all circumstances, environment, outwardly, inwardly – so all you have to do is take care of everything, with your best. And then, *stop it there*. Just like that gentleman: he doesn't feel peaceful from anything, even a [Buddha](glossary#buddha) statue. But he sits up here, and he feels calm.
 
-That is very important. At that time, completely all of his [delusions](glossary#delusion) drop off. This is shikantaza. 
+That is very important. At that time, completely all of his [delusions](glossary#delusion) drop off. This is [shikantaza](glossary#shikantaza). 
 
 ##### 1:09:51
 
-So, shikantaza is arrangement of all things, and then sit down. That's all. 
+So, [shikantaza](glossary#shikantaza) is arrangement of all things, and then sit down. That's all. 
 
 This is really the [Bodhisattva](glossary#bodhisattva) path, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don't say [anything], somebody realizes. You have something to tell him, or her. 
 
@@ -267,7 +267,7 @@ Okay ... Shall I discuss now, or tomorrow? If you have some questions – tomorr
 
 ##### 1:14:57
 
-**Question**: [Roshi](glossary#roshi), what's the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn't that the same thing? 
+**Question**: [Roshi](glossary#roshi), what's the difference between the second kind and the third kind, if our goal becomes to do [shikantaza](glossary#shikantaza). Isn't that the same thing? 
 
 **Katagiri**: What is the ... ?
 
@@ -363,7 +363,7 @@ So [normally] there is no chance to come back to the samsaric world.
 
 ##### 1:28:55
 
-Well actually, briefly speaking – if you want to reach the other shore, let's take one step, huh? Shikantaza, okay? Just take one step. *[He snaps his fingers.]* It's a very simple practice: let's take one step. *[There is a loud sound of an engine as a vehicle accelerates and passes by.]* But we do this mostly. On the other shore, *go* and gassho are included, simultaneously. This is one step. That is shikantaza.
+Well actually, briefly speaking – if you want to reach the other shore, let's take one step, huh? [Shikantaza](glossary#shikantaza), okay? Just take one step. *[He snaps his fingers.]* It's a very simple practice: let's take one step. *[There is a loud sound of an engine as a vehicle accelerates and passes by.]* But we do this mostly. On the other shore, *go* and gassho are included, simultaneously. This is one step. That is shikantaza.
 
 So, there are many ways to take one step. Everyone is different and takes one step in a different way, don't you think so? Everyone takes even one step in a different way. So, somebody takes one step and immediately stumbles over; somebody enjoys it very much; somebody always suffers; and somebody has sadness and is pensive – lots of types of one step. So, how to take one step in the *best* way? That is [the practice]. I don't know. But we know we can do one step.
 

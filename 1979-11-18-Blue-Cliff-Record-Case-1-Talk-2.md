@@ -324,7 +324,7 @@ It’s not necessary to kill the [cat](glossary#cat). But in a sense, “to kill
 
 ##### 1:04:55
 
-Even in shikantaza, just doing the sitting doesn’t mean that you ignore such experience of [Zen Buddhism](glossary#zen-buddhism ). That’s why we have to study; we have to understand [Blue Cliff Record](glossary#blue-cliff-record). Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything, but this silence is not silence. We can show.
+Even in [shikantaza](glossary#shikantaza), just doing the sitting doesn’t mean that you ignore such experience of [Zen Buddhism](glossary#zen-buddhism ). That’s why we have to study; we have to understand [Blue Cliff Record](glossary#blue-cliff-record). Not understand it, we have to... This Blue Cliff Record, there are hundreds of stories that penetrate ... your skin and muscles and bones. Sometimes we have to say something. Sometimes we cannot say anything, but this silence is not silence. We can show.
 
 That’s why Zen always denies the words, always points out the world beyond verbal explanation. But it doesn’t mean ignoring the words, because it’s not necessary to be bogged down with words. Without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words – kind of the words – because we get used to understanding ourselves pretty easily through the words. But anyway, we have to come to our experience of no words. At that time, nothing to say. You have to experience it. 
 

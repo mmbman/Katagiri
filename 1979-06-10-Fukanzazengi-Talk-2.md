@@ -111,7 +111,7 @@ If you concentrate on body and breath, that is [samadhi](glossary#samadhi). By t
 
 When you see the breath: long breath, you should take your long breath. Short breath, you should take care of short breath. Really practice the continuation of samadhi. At that time, there is the practice of [egolessness](glossary#egolessness). That egolessness is what is called having no design of having reward. 
 
-Finally, something is left. That something is just activity. Just activity; that is called shikantaza. 
+Finally, something is left. That something is just activity. Just activity; that is called [shikantaza](glossary#shikantaza). 
 
 This regulation of the mind doesn't connect with this. Of course, it connects, because regulation of the mind it is really closely related with number three, regulation of the body. The body and mind are one; so that's why it's very close. But if you completely practice the regulation of the mind based on [samadhi](glossary#samadhi) and [egolessness](glossary#egolessness), and no design on having any reward – at that time, you don't know. You cannot perceive what total personality is, what is it that [Buddha Nature](glossary#buddha-nature) is. You can experience it – but you don't know what it is. It doesn't connect. In a sense it connects; but it doesn't connect totally. So you don't know what it is.
 
@@ -119,7 +119,7 @@ This regulation of the mind doesn't connect with this. Of course, it connects, b
 
 Usually, there is always some attachment. [People say,] "[Zazen](glossary#zazen) is the total state of having experience of [enlightenment](glossary#enlightenment)." Any kind of book says it in that way: "Do zazen, and you can attain enlightenment," or, "Zazen makes you strong," or "Zazen makes you happy," et cetera. It’s always [said so]: "[By the] regulation of the body and regulation of the breath, you can preserve physical and mental health." That is, zazen is seen as a means. 
 
-But according to shikantaza, there is no ... [sense] which is called “for the sake of”. “If you do zazen, you will be healthy, mentally, psychologically, or physically” – nothing to say. All you have to do is, completely ... practice  [samadhi](glossary#samadhi), through the regulation of the body, through the regulation of the breath. And then at that time, there must be the practice of [egolessness](glossary#egolessness), based on no design on having any reward. That's why finally there is something left, which is called actual practice; activity. That's all. 
+But according to [shikantaza](glossary#shikantaza), there is no ... [sense] which is called “for the sake of”. “If you do zazen, you will be healthy, mentally, psychologically, or physically” – nothing to say. All you have to do is, completely ... practice  [samadhi](glossary#samadhi), through the regulation of the body, through the regulation of the breath. And then at that time, there must be the practice of [egolessness](glossary#egolessness), based on no design on having any reward. That's why finally there is something left, which is called actual practice; activity. That's all. 
 
 This is [shikantaza](glossary#shikantaza). Shikan taza. *[He writes it on the board.]*
 
@@ -241,7 +241,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 *[Tape change.]*
 
-... immediately you attach to the adjustment you have made, trying to judge, "it is good," or "it is bad." "I am doing [zazen](glossary#zazen)," "This is the real zazen," or, "This is really shikantaza itself." Do you understand?
+... immediately you attach to the adjustment you have made, trying to judge, "it is good," or "it is bad." "I am doing [zazen](glossary#zazen)," "This is the real zazen," or, "This is really [shikantaza](glossary#shikantaza) itself." Do you understand?
 
 ##### 46:52
 
