@@ -37,9 +37,9 @@ First let me say a little bit [more] about the meaning of ... dullness and distr
 
 It is represented as *konsan* in Japanese. *Kon* is dullness, *san* is distraction.
 
-The structure of the Chinese letter *kon* consists of two parts: one is bottom, the second is the sun. The sun sinks or sets at the bottom: complete darkness. So *kon* or dullness means the state which the mind becomes gloomy and doesn't work, as if the sun sets and the surroundings completely become dark. That is the meaning of *kon*, dullness.
+The structure of the Chinese letter *kon* consists of two parts: one is bottom, the second is the sun. The sun sinks or sets at the bottom: complete darkness. So *kon* or dullness means the state in which the mind becomes gloomy and doesn't work, as if the sun sets and the surroundings completely become dark. That is the meaning of *kon*, dullness.
 
-*San* is distraction. Distraction is a state where the mind is annoyed with troublesome [things], and is [indeterminate]. So distraction, broadly speaking, means ... relative understanding: various relative views, relative thoughts, or worldly thoughts. Worldly thoughts means to understand or view something in the [dualistic](glossary#dualistic) world.
+*San* is distraction. Distraction is a state in which the mind is [bothered] with troublesome [things] and is [indeterminate]. So distraction, broadly speaking, means ... relative understanding: various relative views, relative thoughts, or worldly thoughts. Worldly thoughts means to understand or view something in the [dualistic](glossary#dualistic) world.
 
 So if you understand something in the [dualistic](glossary#dualistic) world ... whatever kind of idea or view you can get, it's a cause of distraction. For instance, good or evil, or neutral; or hard practice, easy practice, or so-so. Whatever kind of idea you get in the dualistic world, it all becomes a cause of distraction.
 
@@ -47,9 +47,9 @@ So if you understand something in the [dualistic](glossary#dualistic) world ... 
 
 There are many types of [zazen](glossary#zazen) in this world, but broadly speaking, let me say [there are] maybe three types of zazen. 
 
-One type of [zazen](glossary#zazen) is that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds" perfectly. By [this] zazen, at any cost we struggle for weeding out and making the whole world perfectly clean. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So, someday the weeds come back, come up – because you cannot destroy weeds. Weeds are nothing but being – just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers – as long as flowers exist in this world, immediately there are weeds. 
+One type of [zazen](glossary#zazen) is that by zazen, we try to remove weeds on the ground, and reach certain stages of "no weeds" perfectly. At any cost, by [this] zazen we struggle for weeding out and making the whole world perfectly clean. But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time. So, someday the weeds come back up – because you cannot destroy weeds. Weeds are nothing but being – just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers – as long as flowers exist in this world, immediately there are weeds. 
 
-But actually, in the [dualistic](glossary#dualistic) world, we don't like weeds. So, with hatred, we try to cut them down. While you maintain ... hatred ... by the hatred, maybe you can cut them down. But it is not completely removing the weeds from the human world. Sometime, somewhere, the weeds come up. 
+But actually, in the [dualistic](glossary#dualistic) world, we don't like weeds. So, with hatred, we try to cut them down. While you maintain hatred, by the hatred maybe you can cut them down. But it is not completely removing the weeds from the human world. Sometime, somewhere, the weeds come up. 
 
 ##### 13:36
 
