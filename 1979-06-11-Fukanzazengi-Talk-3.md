@@ -117,33 +117,33 @@ So this is karma.
 
 The point is that life is not going backward; life must go forward. We know that pretty well. In order to go forward to the future, actually there is no chance to discriminate or to blame the [karmas](glossary#karma) you did in the past, because karmas are quiet in your life. 
 
-But karmas appear *why*? Because you move toward the future. You do something; you create time, occasion, and conditions; that's why karmas appear. That means you are alive. 
+But karmas appear *why*? Because you move toward the future. You do something: you create time, occasion, and conditions; that's why karmas appear. That means you are alive. 
 
-Anyway, we have to move toward our future. There is no chance to blame your karmas in the past. Good or bad, right or wrong, whatever you say: karmas don't care.
+Anyway, we have to move toward the future. There is no chance to blame your karmas in the past. Good or bad, right or wrong, whatever you say: karmas don't care.
 
 And also, karmas appear ignoring your judgement, evaluation, and dislike – whatever. Karmas appear only when time and occasion are right, and conditions arranged. They appear even though you don't like it. That's why you are confused.
 
-So, it is very important what kind of time and occasion and conditions we make from moment to moment, in the process of moving to our future – rather than criticizing and blaming the karmas in the past. 
+So, it is very important what kind of time and occasion and conditions we should make from moment to moment, in the process of moving to our future – rather than criticizing and blaming the karmas in the past. 
 
-The important point is that we have to create good time and occasion and good conditions, as best as we can. If you create good time and occasion, and good conditions ... immediately some of the karmas in the past which are called “good” appear in the present. And, if you have done it, immediately that will be a seed of the karma which will appear in the future. So, you can always sow a good seed, because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. The evil karmas are always here, very quiet; but if you always create good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
+The important point is that we have to create good time and occasion and good conditions, as best as we can. If you create good time and occasion, and good conditions ... immediately some of the karmas in the past which are called “good” appear in the present. And, if you have done it, immediately that will be a seed of the karma which will appear in the future. So, you can always sow a good seed because of good conditions and good time and occasions you create, day after day. And then, evil karmas don't have a chance to appear. The evil karmas are always here, very quiet; but if you always create good karmas ... then the evil karmas will disappear of themselves. They lose the chance to appear. 
 
 ##### 38:30
 
-What is “good”? What is a good time and occasion, and what is a good condition? That is a point. This "good" is not the "good" opposed to "evil". [This] good is *super-good*: the supreme good, beyond good or bad, right or wrong. Such a good seed should be stored, right now, right here, from day to day. At that time, that good seed is planted in your life, and creates new life. 
+What is “good”? What is a good time and occasion, and what is a good condition? That is a point. This "good" is not the "good" opposed to "evil". [This] good is *super-good*: the supreme good, beyond good or bad, right or wrong. Such a good seed should be sowed, right now, right here, from day to day. At that time, that good seed is planted in your life, and creates new life. 
 
-We call \[this] [fukutoku](glossary#fukutoku) \[asuru]. Fukutoku means merit and virtue. Suru (累積?) means to accumulate. So, to accumulate merit and virtue. That means, to sow a good seed. Completely that good seed originates from the intrinsic value of very pure human activities. That is fukutoku: merit and virtue. Fukutoku [asuru], we say. 
+We call \[this] [fukutoku](glossary#fukutoku) \[a]suru. Fukutoku means merit and virtue. Suru (累積?) means to accumulate. So, to accumulate merit and virtue. That means, to sow a good seed. Completely that good seed originates from the intrinsic value of very pure human activities. That is fukutoku: merit and virtue. Fukutoku [a]suru, we say. 
 
 But let me say about this: we don't understand [it]. Still we don't understand why it is that dullness and distraction drop off from the first if you accumulate merit and virtue.
 
-In order to understand this point, first of all, we have to see practice for the long range, life after life. Not only seeing your life in this life, in this world; you have to see your whole life, life after life. Maybe the next life, or the life after next life. Anyway, life is continually going on, because we created karma in the past, and also we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means [a] future will exist – so, you can get the chance to be born in the next life. That is the meaning or sense of [the theory] of karma. As long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
+In order to understand this point, first of all we have to see practice for the long range, life after life. Not only seeing your life in this life, in this world; you have to see your whole life, life after life. Maybe the next life, or the life after next life. Anyway, life is continually going on, because we created karma in the past, and also we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means [a] future will exist – so, you can get the chance to be born in the next life. That is the meaning or sense of [the theory] of karma. As long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
 
 ##### 42: 44
 
 So, the point is ... that we sow a good seed. We sow a good time and occasion, and good conditions. According to my talk yesterday, when good time and occasion are ripe, when good conditions are arranged, finally there is something left: that is total personality. Do you remember? 
 
-That's why all we have to do is, to arrange. Arrange number one, the environment; second, the sensory world. Arrange [them] in many ways, with careful consideration for the movement system – that is the body: hands, feet, tongue. We have to arrange all the movement system, and then finally, sit down in the proper way, immobile. [An] immobile state; at that time, very naturally, the body can be kept in equilibrium. And fourth, regulation of the breath. Very naturally, the regulation of the breath influences *so much*: the system of your hormones, blood circulation, and also your nerve system, and internal organs; it influences [all those] very much. 
+That's why all we have to do is, to arrange. Arrange number one, the environment; second, the sensory world. Arrange [them] in many ways, with careful consideration for the movement system – that means the body: hands, feet, tongue. We have to arrange all the movement system, and then finally, sit down in the proper way, immobile. [An] immobile state; at that time, very naturally, the body can be kept in equilibrium. And fourth, regulation of the breath. Very naturally, the regulation of the breath influences *so much*: the system of your hormones, blood circulation, and also your nerve system, and internal organs; it influences [all those] very much. 
 
-And also, finally, [there is] regulating the mind. That means, no [design] of having a reward, becoming [Buddha](glossary#buddha); just do it. Just do it, because, if the mind has a certain [stickyness], which is called attachment – if you attach, immediately there is a string between [zazen](glossary#zazen) and you. You cannot cut it; you cannot see the zazen clearly. So immediately ... that is a type of ...
+And also, finally, [there is] regulating the mind. That means, no [design] of having a reward, becoming [Buddha](glossary#buddha); just do it. Just do it, because if the mind has a certain [stickyness], which is called attachment – if you attach, immediately there is a string between [zazen](glossary#zazen) and you. You cannot cut it; you cannot see the zazen clearly. So immediately ... that is a type of ...
 
 *[Tape change.]*
 
@@ -155,17 +155,17 @@ So, first of all, “let's sow the good seed” means completely beyond good or 
 
 ##### 48:46
 
-Here is a good example. I know a gentleman – I forgot his name. He has a particular job: he was a commando. Do you know that [word]? Commmando is one of the soldiers hired by the government. But that commando, his task is, well, very hard.... Sort of a spy, but not exactly a spy. One of the novel stories in England – I saw the pictures on TV probably – the man in this novel was just like a commando. The government asked him to do something; a secret task. You have to go to another country immediately, by the order of the government, and then serve somebody, who could be killed, or who could be arrested. Whatever happens, he has to do it. 
+Here is a good example. I know a gentleman – I forgot his name. He has a particular job: he was a commando. Do you know that [word]? Commmando is one of the soldiers hired by the government. But that commando, his task is, well, very hard.... Sort of a spy, but not exactly a spy. One of the novel stories in England – I saw the pictures on TV probably – the man in this novel was just like a commando. The government asked him to do something, a secret task: you have to go to another country immediately by the order of the government, and then serve somebody, who could be killed or who could be arrested. Whatever happens, he has to do it. 
 
 That is a commando; he does [that]. He is very sharp, very sharp, and his eyes are very sharp eyes. If you look at him, immediately he *glares* at you. *[He chuckles.]* [You’re] just like a frog in front of a snake. Can you imagine? Because he has to maintain continually a certain mental, psychological tension; no seam or psychological crack between him and object. Always there is no crack. So he is very sharp.
 
-But he suffered a lot. And he likes it very much here. So he came a single time to see me, and he sat here a few times. He lives here, but he doesn't have a particular home; every day, he has to move, he has to do something secretly. He wants to come here, but, the government, FBI, everybody follows him. So he cannot walk in sunshine, daytime; he has to walk in the darkness. He wants to come here because [zazen](glossary#zazen) starts in the dark. *[The group laughs.]* [It’s dark] in the morning, that's why he wanted to come, and he came once. 
+But he suffered a lot. And he likes it very much here. So he came a single time to see me, and he sat here a few times. He lives here, but he doesn't have a particular home; every day, he has to move, he has to do something secretly. He wants to come here, but, the government, FBI, everybody follows him. So he cannot walk in the sunshine, daytime; he has to walk in the darkness. He wants to come here because [zazen](glossary#zazen) starts in the dark. *[The group laughs.]* [It’s dark] in the morning, that's why he wanted to come, and he came once. 
 
 He has a small passport; that passport is a special passport issued by the government. This is a secret passport. Any time, any place, he can go. At any time, any where, he can kill anybody. *[Some laughter.]* That means, he is also at any time, anywhere, killed by somebody. Don't you think so? That is his job: any time. 
 
 And also, if he kills somebody his task is successful, and the government gives asylum to him. He doesn't want the government, FBI, to look for him, always look for him. 
 
-But he came here. And then I asked, “I [would like to] give a [Buddha](glossary#buddha) statue [to you].” [A statue] carved in ivory, from India – so that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: “Please keep this.” And I [asked] him, “How about this Buddhist statue? Can you feel something?” Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I told him – because I want to know his soft, gentle mind – so, [I asked,] “How do you feel there?” 
+But he came here. And then I asked, “I [would like to] give a [Buddha](glossary#buddha) statue [to you]. [A statue] carved in ivory, from India.” So that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: “Please keep this.” And I [asked] him, “How about this Buddhist statue? Can you feel something?” Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I wanted to know his soft, gentle mind, so [I asked,] “How do you feel there?” 
 
 He said, “No, I don't like it.” 
 
@@ -183,25 +183,25 @@ He said, “No.”
 
 He said, “He's still suffering.” 
 
-I think so; he's very sharp. Because Kannon Bodhisattva, [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, what is called [Buddha Nature](glossary#buddha-nature). But we cannot touch it directly. That's why [we ask], “How can we touch it, that Buddha's compassion, or Buddha Nature?” So, let's touch that Buddha's compassion through a human shape: that is a [Bodhisattva](glossary#bodhisattva). 
+I think so; he's very sharp. Because Kannon Bodhisattva, [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha's compassion. That is completely pure, what is called [Buddha Nature](glossary#buddha-nature), but we cannot touch it directly. That's why [we ask] how can we touch it, that Buddha's compassion or Buddha Nature? So, let's touch that Buddha's compassion through a human shape: that is a [Bodhisattva](glossary#bodhisattva). 
 
-That's why Avalokiteshvara has a double face: a human body, and also on the other hand, compassion. That's why he sees [suffering](glossary#suffering). To see suffering is Avalokiteshvara – of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. 
+That's why Avalokiteshvara has a double face: a human body, and also on the other hand, compassion. That's why he sees [suffering](glossary#suffering). To see suffering in Avalokiteshvara – of course, that is human. Without a human body, a human shape, we cannot find any way to touch the Buddha's compassion. 
 
 That is the art of the Buddhist statue. So we have to see the double face. 
 
 ##### 56:42
 
-So, nothing he likes here. I point out, “How about this?” or “How about that?” He doesn't like anything. So finally, right before he left, he stands up here, and he says: “Only this place is very calm. No one sitting here, no one there; only I am here.” He said to me, “Only this place makes me calm, return to human.” Can you imagine?
+So, [we find] nothing he likes here. I point out, “How about this?” or “How about that?” He doesn't like anything. So finally, right before he left, he stands up here, and he says: “Only this place is very calm. No one sitting here, no one there; only I am here.” He said to me, “Only this place makes me calm, return to human.” Can you imagine?
 
-That's why making arrangement of the environment, and the sensory world, and also the brain system, and the movement system, and the internal organs – all things arranged perfectly – at that time, immediately, he can feel calm. The moment he feels calm, that means dullness and distraction drop off, from the first. Don't you think so? Yes it is. Not only dullness and distraction; all [delusions](glossary#delusion) drop off. "Drop off" doesn't mean destroy. Just drop off; there's no chance to poke their head into someplace. Just, keep quiet. 
+That's why making arrangement of the environment, and the sensory world, and also the brain system, and the movement system, and the internal organs – all things arranged perfectly – at that time, immediately, he can feel calm. The moment he feels calm, that means dullness and distraction drop off, from the first. Don't you think so? Yes it is. Not only dullness and distraction; all [delusions](glossary#delusion) drop off. “Drop off” doesn't mean destroy. Just drop off; there's no chance to poke their head into someplace. Just, keep quiet. 
 
-So, for instance, as long as he is standing here, feeling quiet, no one can hit him. I don't want to hit him. Even though an FBI person came, I told him, "Just wait a minute. I can tell him." Even the FBI cannot hit him, because he feels calm. Even though you get angry with me, I just sit down here and gassho; can you hit me? Or I smile at you; while I am smiling at you, [can you] hit me? No. *[he laughs]* So finally, you smile too. That means anger drops off. Anger drops off while you are smiling.
+For instance, as long as he is standing here, feeling quiet, no one can hit him. I don't want to hit him. Even though an FBI person came, I told him, "Just wait a minute. I can tell him." Even the FBI cannot hit him, because he feels calm. Even though you get angry with me, I just sit down here and gassho; can you hit me? Or I smile at you; while I am smiling at you, [can you] hit me? No. *[he laughs]* So finally, you smile too. That means anger drops off. Anger drops off while you are smiling.
 
 ##### 59:40
 
 Little boys in [Green Gulch](glossary#green-gulch) – during the mealtime, we shouldn't say anything, so everybody is quiet. Kids’ [delusions](glossary#delusion) drop off very naturally, so the moment when they come into the Green Gulch dining room, all delusions drop off, so they keep quiet. That's interesting.
 
-And then, during the meal, the [Ino](glossary#ino) hit the clapper – *[clap]* – that means the sign of giving permission to talk. So the Ino hit the clapper once, and immediately a little boy said, "Hi!" *[He laughs.]* Immediately he said to me, "Hi!" So I said, "Hi!" *[Laughter.]* This is very interesting.
+And then, during the meal, the [Ino](glossary#ino) hit the one clapper – *[clap]* – that means the sign of giving permission to talk. So the Ino hit the clapper once, and immediately a little boy said, “Hi!” *[He laughs.]* Immediately he said to me, “Hi!” So I said, “Hi!” *[Laughter.]* This is very interesting.
 
 ##### 1:00:46
 
@@ -215,17 +215,17 @@ That's why [shikantaza](glossary#shikantaza) is not a means to an end – leavin
 
 Now also, on the other hand, I told you, you can completely clean your whole life, so weeds no longer grow. But, after reaching that stage, you don't know what to do, so all you have to do is just wait for death. That's why the Japanese actor committed suicide. It's not necessary to commit suicide – but he did it. Why? 
 
-Because, whatever it is, all things are completely [delusions](glossary#delusion), created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say “good,” you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, immediately evil comes up, and then immediately you try to move to the other place. So always going this way, going that way – that's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
+Because, whatever it is, all things are completely [delusions](glossary#delusion), created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say “good,” you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, within the good, evil comes up, and then immediately you try to move to the other place. So always going this way, going that way – that's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
 
 If you want to stop it, we have to sow a good seed, right now, right here. That is, we have to create good time and occasion, and arrange good conditions. That's all we have to do. 
 
-That is freedom. Anyone can do it. Even though you are not Buddhist, or even though you cannot come [to the Zen Center], you can sit down, arrange your room, and arrange circumstances, environment, and your sensory world, breathing, and internal organs, and – you can sit down. Don't you think so? This is [shikantaza](glossary#shikantaza). Just *[unintelligible]* your environment, everything. And then, that's all we have to do. This is *freedom* – open to *everybody*! No exceptions. 
+That is freedom. Anyone can do it. Even though you are not Buddhist, or even though you cannot come [to the Zen Center], you can sit down, arrange your room, and arrange circumstances, environment, and your sensory world, breathing, and internal organs, and – you can sit down. Don't you think so? This is [shikantaza](glossary#shikantaza). Just arrange your environment, everything, and then that's all we have to do. This is *freedom* – open to *everybody*! No exceptions. 
 
 That's why [Dogen Zenji](glossary#dogen) says, Universal Recommendation for Zazen – *Universal* Recommendation. It's really universal – not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
 ##### 1:05:58
 
-But, if you do it by yourself – it's pretty hard. Because, making arrangement is done by your sense; that's all. But first of all: by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means the sensory world, movement system, internal organs, and also the brain and nervous system. We have to arrange them according to a certain way. And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality – [Buddha Nature](glossary#buddha-nature). At that time, very naturally, all [delusions](glossary#delusion) drop off, just like a lotus flower blooms through mud water.
+But, if you do it by yourself – it's pretty hard. Because, making arrangement is done by your sense, that's all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means the sensory world, movement system, internal organs, and also the brain and nervous system. We have to arrange them according to a certain way. And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality – [Buddha Nature](glossary#buddha-nature). At that time, very naturally, all [delusions](glossary#delusion) drop off, just like a lotus flower blooms through mud water.
 
 While \[the] [lotus](glossary#lotus) flower is blooming, mud water exists. But it doesn't bother us; it's really appreciated. Lotus flowers just bloom. And then, mud water drops off, very naturally, and then, whole lotus flowers bloom in the universe. 
 
@@ -235,29 +235,27 @@ That is [shikantaza](glossary#shikantaza). If you do this, that practice creates
 
 This way is exactly to cut off the stream of [karma](glossary#karma). Without this, [there is] nothing else to cut off karma. This is the best way. 
 
-But we don't know. We really want to know; we are always curious of poking our head into a certain hole, always. That is a [dualistic](glossary#dualistic) world, okay? Anyway, *stop it*. If you stop, everything comes up, very naturally, passing by you.
+But we don't know. We really want to know; we are always curious, poking our head into a certain hole, always. That is a [dualistic](glossary#dualistic) world, okay? Anyway, *stop it*. If you stop, everything comes up very naturally, passing by you.
 
-You cannot ignore all circumstances, environment, outwardly, inwardly – so all you have to do is take care of everything, with your best. And then, *stop it there*. Just like that gentleman: he doesn't feel peaceful from anything, even a [Buddha](glossary#buddha) statue. But he sits up here, and he feels calm.
-
-That is very important. At that time, completely all of his [delusions](glossary#delusion) drop off. This is [shikantaza](glossary#shikantaza). 
+You cannot ignore all circumstances, environment, outwardly, inwardly – so all you have to do is take care of everything, with your best, and then *stop it there*. Just like that gentleman: he doesn't feel peaceful from anything, even a [Buddha](glossary#buddha) statue; but he stands up here, and he feels calm. That is very important. At that time, completely all of his [delusions](glossary#delusion) drop off. This is [shikantaza](glossary#shikantaza). 
 
 ##### 1:09:51
 
 So, [shikantaza](glossary#shikantaza) is arrangement of all things, and then sit down. That's all. 
 
-This is really the [Bodhisattva](glossary#bodhisattva) path, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don't say [anything], somebody realizes. You have something to tell him, or her. 
+This is really [Bodhisattva](glossary#bodhisattva) practice, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don't say [anything], somebody realizes. You have something to tell him, or her. 
 
 So that is shikantaza. It's pretty difficult to understand for us intellectually, because we are getting the use of always analyzing and synthesizing everything in the [dualistic](glossary#dualistic) world; it's very difficult to stop immediately. That's why even though you stop for a while, you don't appreciate that practice. But this practice is only the best way. That is shikantaza – the [zazen](glossary#zazen) you do, mentioned by [Buddha](glossary#buddha). 
 
 We can explain how important this kind of Buddhist practice is philosophically, psychologically – but it takes time. That is a huge world: the philosophical background, psychological background. But even though you don't know [about it], you can do it – right now, right here. This is a very urgent need; we have to do it. Whoever you are, wherever you may be, you can do it. 
 
-For instance, if you are in an office – well still you can do it. If there is no one there, you can sit down in a chair and calm yourself. If you talk with somebody, you can realize a certain pause, where no words come up. At that time, you can return to yourself, and breathe. 
+For instance, if you are in an office – well still you can do it. If there is no one there, you can sit down in a chair and calm yourself. If you talk with somebody, you can realize a certain pause, where no words come up. For that time, you can return to yourself, and breathe. 
 
 ##### 1:12:30
 
 You can do it, okay? Wherever you may go; it's really universal. [It’s] very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just to sow the seeds. Arrange circumstances, environment – inwardly, outwardly – and just stand up there. That's all you have to do. That is to sow good seeds. 
 
-Good time and occasion, good conditions must be arranged – and then, stand up there. That's all we have to do. And then, at that time, right [dharma](glossary#dharma) is manifest. [Dogen Zenji](glossary#dogen) says, right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside. 
+Good time and occasion and good conditions must be arranged, and then stand up there. That's all we have to do. And then at that time,  [Dogen Zenji](glossary#dogen) says, right dharma is manifesting itself, and from the first, dullness and distraction are struck aside. Very naturally, they drop off.
 
 So that's why when I was at [Eiheiji](glossary#eiheiji) monastery, [Hashimoto Roshi](glossary#hashimoto-roshi) said, “If you sit down even for a moment, you become [Buddha](glossary#buddha).” Yes, you become Buddha. If you can accept this, you are a really lucky person.
 
@@ -313,7 +311,7 @@ When the Buddha appears, it's quiet. Nothing – you cannot see it. But a Buddha
 
 ##### 1:21:10
 
-**Question**: [Roshi](glossary#roshi), is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal?
+**Question**: [Roshi](glossary#roshi), is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal? Is that what you mean?
 
 **Katagiri**: The goal in third type of [zazen](glossary#zazen) is broad. It's really broad. That goal is not [only] open to him, his practice, [but] also to others’ practice. It is open to everybody; everybody's goal. And also, it's open to not only the present, but also the past, present, and future – for [the] long range. The goal is extended through [the three times](glossary#three-times) – so it's huge. 
 
