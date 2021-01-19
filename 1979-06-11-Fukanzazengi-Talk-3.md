@@ -57,7 +57,7 @@ We can see this kind of practice in the human world – for instance, within bus
 
 If you struggle with wholeheartedness, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. But, if you reach the other shore, that is [not] the final goal, because ... the other shore is also a part of transiency. So the goal you have reached is no longer [the] goal. Immediately, you have to go [back to] the first step, you have to do something from now. Do you understand? This is very clear; this is human life. We do this.
 
-So immediately, your goal completely goes far from you. That's why the moment that you reach the goal, immediately you don't feel satisfied; that's why you want to do something more. So that desire is infinite; just like snowballing. And then finally, we have to die. And then, death waits for you; that's all. This is very common, very common. But I don't know whether it is a real way or not. 
+So immediately, your goal completely goes far from you. That's why the moment that you reach the goal, immediately you don't feel satisfied; that's why you want to do something more. So that desire is infinite; just like snowballing. And then finally, we have to die. Death waits for you; that's all. This is very common, very common. But I don't know whether it is a real way or not. 
 
 ##### 16:42
 
@@ -71,7 +71,7 @@ Well, I don't mean it is good or bad, right or wrong. We should know [that] such
 
 ##### 19:15
 
-And the second type is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the [samsaric](glossary#samsara) world in the [Six Realms of Existence](glossary#six-realms-of-existence): hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly only on the ground of *our own property*, and we cherish a feeling of having reached the final goal. In other words ... by way of having done our final goal, we spent our whole life without considering others' life.
+And the second type [of zazen] is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the [samsaric](glossary#samsara) world in the [Six Realms of Existence](glossary#six-realms-of-existence): hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly only on the ground of *our own property*, and we cherish a feeling of having reached the final goal. In other words ... by way of having done our final goal, we spent our whole life without considering others' life.
 
 So, by the practice of [zazen](glossary#zazen), it's possible to weed out even the seeds completely, and the weeds no longer grow. That means, some [Buddhism](glossary#buddhism) says, if you attain [enlightenment](glossary#enlightenment), which is the highest level of spiritual life ... then at that time, it's not necessary to come back to the human world. You can stay constantly in heaven.
 
@@ -101,7 +101,7 @@ Struggling for reaching the other shore at any cost: this is also distraction. E
 
 ##### 30:12
 
-You know the [karma](glossary#karma) we did, [that] we planted in the past: some karmas were good, some karmas were evil, some karmas were neutral. Many karmas we created in the past. And then, you know pretty well, those karmas are where? They are at the bottom of our mind, this body and mind. Karma is here. 
+You know the [karma](glossary#karma) we did, [that] we planted in the past: some karmas were good, some karmas were evil, some karmas were neutral. Many karmas we created in the past. And then, you know pretty well, those karmas are where? They are at the bottom of our mind, this body and mind. Karma is *here*. 
 
 Through your daily living, you can realize [this]. Your present lives are influenced by something else, which you don't understand. Maybe some people call it karma – [but] only when they realize that something's wrong. Because only when you realize something's wrong, [then] you really get the chance to reflect upon yourself very seriously. That's when you put a certain [evaluation] on your life: “That is something wrong. That karma is *wrong*; evil karma.” But actually, \[the] karma [that] exists with you is completely beyond the moral sense of good, bad, or neutral. 
 
@@ -137,7 +137,7 @@ But let me say about this: we don't understand [it]. Still we don't understand w
 
 In order to understand this point, first of all we have to see practice for the long range, life after life. Not only seeing your life in this life, in this world; you have to see your whole life, life after life. Maybe the next life, or the life after next life. Anyway, life is continually going on, because we created karma in the past, and also we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means [a] future will exist – so, you can get the chance to be born in the next life. That is the meaning or sense of [the theory] of karma. As long as we have karma in the past and we are creating karma in this life, we have to have [a] future. So life is going on, constantly.
 
-##### 42: 44
+##### 42:44
 
 So, the point is ... that we sow a good seed. We sow a good time and occasion, and good conditions. According to my talk yesterday, when good time and occasion are ripe, when good conditions are arranged, finally there is something left: that is total personality. Do you remember? 
 
@@ -165,7 +165,7 @@ He has a small passport; that passport is a special passport issued by the gover
 
 And also, if he kills somebody his task is successful, and the government gives asylum to him. He doesn't want the government, FBI, to look for him, always look for him. 
 
-But he came here. And then I asked, “I [would like to] give a [Buddha](glossary#buddha) statue [to you]. [A statue] carved in ivory, from India.” So that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: “Please keep this.” And I [asked] him, “How about this Buddhist statue? Can you feel something?” Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I wanted to know his soft, gentle mind, so [I asked,] “How do you feel there?” 
+But he came here. And then I asked, “I [would like to] give a [Buddha](glossary#buddha) statue [to you]. [A statue] carved in ivory, from India.” So that is wonderful, the Buddha statue. Somebody gave [it to] me, so I gave it to him: “Please keep this.” And I [asked] him, “How about this Buddha statue? Can you feel something?” Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. I wanted to know his soft, gentle mind, so [I asked,] “How do you feel there?” 
 
 He said, “No, I don't like it.” 
 
@@ -175,7 +175,7 @@ He said, “He's a strict teacher.”
 
 Maybe so, maybe so!
 
-And also, that [other] Buddha statue. “How about this? Do you feel something quiet, or calmness?” 
+And also, [I showed him] that [other] Buddha statue. “How about this? Do you feel something quiet, or calmness?” 
 
 He said, “No.” 
 
@@ -195,11 +195,11 @@ So, [we find] nothing he likes here. I point out, “How about this?” or “Ho
 
 That's why making arrangement of the environment, and the sensory world, and also the brain system, and the movement system, and the internal organs – all things arranged perfectly – at that time, immediately, he can feel calm. The moment he feels calm, that means dullness and distraction drop off, from the first. Don't you think so? Yes it is. Not only dullness and distraction; all [delusions](glossary#delusion) drop off. “Drop off” doesn't mean destroy. Just drop off; there's no chance to poke their head into someplace. Just, keep quiet. 
 
-For instance, as long as he is standing here, feeling quiet, no one can hit him. I don't want to hit him. Even though an FBI person came, I told him, "Just wait a minute. I can tell him." Even the FBI cannot hit him, because he feels calm. Even though you get angry with me, I just sit down here and gassho; can you hit me? Or I smile at you; while I am smiling at you, [can you] hit me? No. *[he laughs]* So finally, you smile too. That means anger drops off. Anger drops off while you are smiling.
+For instance, as long as he is standing here, feeling quiet, no one can hit him. I don't want to hit him. Even though an FBI person came, I told him, "Just wait a minute. I can tell him." Even the FBI cannot hit him, because he feels calm. Even though you get angry with me, I just sit down here and gassho; can you hit me? Or I smile at you; while I am smiling at you, [can you] hit me? No. *[He laughs.]* So finally, you smile too. That means anger drops off. Anger drops off while you are smiling.
 
 ##### 59:40
 
-Little boys in [Green Gulch](glossary#green-gulch) – during the mealtime, we shouldn't say anything, so everybody is quiet. Kids’ [delusions](glossary#delusion) drop off very naturally, so the moment when they come into the Green Gulch dining room, all delusions drop off, so they keep quiet. That's interesting.
+Little boys in [Green Gulch \[Farm\]](glossary#green-gulch) – during the mealtime, we shouldn't say anything, so everybody is quiet. Kids’ [delusions](glossary#delusion) drop off very naturally, so the moment when they come into the Green Gulch dining room, all delusions drop off, so they keep quiet. That's interesting.
 
 And then, during the meal, the [Ino](glossary#ino) hit the one clapper – *[clap]* – that means the sign of giving permission to talk. So the Ino hit the clapper once, and immediately a little boy said, “Hi!” *[He laughs.]* Immediately he said to me, “Hi!” So I said, “Hi!” *[Laughter.]* This is very interesting.
 
@@ -209,13 +209,13 @@ Anyway, we don't know how much [delusions](glossary#delusion) drop off. We don't
 
 That is ... [to] sow a good seed. Good time and occasion, and good conditions – we can create them, right now, right here.
 
-That's why [shikantaza](glossary#shikantaza) is not a means to an end – leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine; well this is very nice, this is a kind of [zazen](glossary#zazen). So, you can do this – but, what you are struggling for is nothing but a distraction. This is really true. Distraction is one of the delusions. This is still a [delusion](glossary#delusion).
+That's why [shikantaza](glossary#shikantaza) is not a means to an end – leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine; well this is very nice, this is a kind of [zazen](glossary#zazen). So, you can do this – but, what you are struggling for is nothing but a distraction. This is really true. Distraction is one of the delusions; so this is still a [delusion](glossary#delusion).
 
 ##### 1:02:50
 
 Now also, on the other hand, I told you, you can completely clean your whole life, so weeds no longer grow. But, after reaching that stage, you don't know what to do, so all you have to do is just wait for death. That's why the Japanese actor committed suicide. It's not necessary to commit suicide – but he did it. Why? 
 
-Because, whatever it is, all things are completely [delusions](glossary#delusion), created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say “good,” you are really holding this – but on the other hand, evil comes up. So, you don't like the evil, you like the good – but, within the good, evil comes up, and then immediately you try to move to the other place. So always going this way, going that way – that's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
+Because, whatever it is, all things are completely [delusions](glossary#delusion), created in the [dualistic](glossary#dualistic) world. In the dualistic world, if you say “good,” you are really holding this – but on the other hand, “evil” comes up. So, you don't like the evil, you like the good – but, within the good, evil comes up, and then immediately you try to move to the other place. So always going this way, going that way – that's why [it is like a] pendulum. Distraction and dullness is that life moves reactively, just like a pendulum, going to the right, to the left constantly, no end. 
 
 If you want to stop it, we have to sow a good seed, right now, right here. That is, we have to create good time and occasion, and arrange good conditions. That's all we have to do. 
 
@@ -351,7 +351,7 @@ So [normally] there is no chance to come back to the samsaric world.
 
 **Katagiri**: Oh, of course, it's related. Of course.
 
-**Question**: Well, maybe sometime *[unintelligible]*
+**Same person**: Well, maybe sometime *[unintelligible]*
 
 *[Laughter.]*
 
