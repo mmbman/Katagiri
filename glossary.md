@@ -632,6 +632,14 @@ External links:
 Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen) Buddhism to America. His Buddhist name, Jikai Dainin, means "Compassion Ocean Great Patience". In these talks he is usually addressed as [Roshi](glossary#roshi) or Hojo-san, but he often refers to himself as "Katagiri". He sometimes refers to his younger self (e.g. in monastic training) as just [Dainin](glossary#dainin).
 
 ---
+## Keitoku Dentō-roku
+
+Japanese: Keitoku Dentō-roku
+Chinese: Jǐngdé Chuándēnglù (Ching-te Ch'uan teng lu) 景德传灯录
+English: The Jingde Record of the Transmission of the Lamp
+
+[Wikipedia: The Jingde Record of the Transmission of the Lamp](https://en.wikipedia.org/wiki/The_Jingde_Record_of_the_Transmission_of_the_Lamp)
+
 ## Koan
 
 ---

@@ -341,7 +341,7 @@ It's not open to everybody [automatically]. Only the person selected among the h
 
 But, it is not the object of criticism given by us, because if I look [at the [arhat](glossary#arhat)'s] life in this world: his life is happy, wonderful, because he entered [nirvana](glossary#nirvana). Wonderful. So, better than nothing. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And when you can wait for death, peacefully: wonderful. It's very wonderful. 
 
-So [normally] there is no chance to come back to the samsaric world. 
+So [normally] there is no chance to come back to the [samsaric](glossary#samsara) world. 
 
 **Same person**: They don't?
 
