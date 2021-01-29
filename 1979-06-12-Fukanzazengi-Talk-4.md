@@ -53,9 +53,7 @@ And then, when I visited there, he immediately grabbed me, held me here, and he 
 
 That was his last scene. He had for so long persisted in his egoistic sense, in order to pursue his purpose, the purpose of his life. That was concluded.
 
-This is very common. Very common.
-
-For such people, they never thought of the significance of [zazen](glossary#zazen), which causes all [delusions](glossary#delusion) to drop off, from the first. They never thought of glancing even once at such a wonderful world. They don't care. That is okay. 
+This is very common. Very common. For such people, they never thought of the significance of [zazen](glossary#zazen), which causes all [delusions](glossary#delusion) to drop off, from the first. They never thought of glancing even once at such a wonderful world. They don't care. That is okay. 
 
 But it is not bad to glance at that wonderful world. [If you glance at it] even once in your whole life, that's great. It's not bad. Even if you cannot have the chance to glance at this wonderful world once in your whole life, still, if you want to pursue this, it's not bad for us. Because life is going on; so life after life, we can do it. 
 
@@ -79,9 +77,9 @@ There is a [Zen](glossary#zen) story in [The Blue Cliff Record](BCR), the [46th 
 
 ##### 16:46
 
-What [Kyosei Zen Master](glossary#kyosei) asked the monk – his question is something [with] which [he] raked [the] monk’s mind [to see] how much his practice was going on. So [he asked], “What sound is that outside the gate?” The monk said, “The sound of raindrops.” The teacher didn’t ask for the sound of the raindrops; he asked for the raindrops themselves. But he used the words, “What’s the sound outside of the gate?” So the monk said, “That is the sound of raindrops.” 
+What [Kyosei Zen Master](glossary#kyosei) asked the monk, his question, is something [with] which [he] raked [the] monk’s mind [to see] how much his practice was going on. So [he asked], “What sound is that outside the gate?” The monk said, “The sound of raindrops.” The teacher didn’t ask for the sound of the raindrops; he asked for the raindrops themselves. But he used the words, “What’s the sound outside of the gate?” So the monk said, “That is the sound of raindrops.” 
 
-You know the sound [of raindrops]. The sound is not the raindrops. Raindrops are raindrops. But the sound comes from where? Raindrops. But the sound is not raindrops. It's very clear, don't you think so? Because raindrops are, anyway, *raindrops* – I cannot say. Raindrops are active, moving, very active. Becoming one, or the merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, "some raindrops." That is already something *extra*, don't you think so? 
+You know the sound [of raindrops]. The sound is not the raindrops. Raindrops are raindrops. But the sound comes from where? Raindrops. But the sound is not raindrops. It’s very clear, don’t you think so? Because raindrops are, anyway, *raindrops*. I cannot say. Raindrops are active, moving, very active. Becoming one, or the merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, “some raindrops.” That is already something *extra*, don’t you think so? 
 
 ##### 19:02
 
@@ -97,7 +95,7 @@ That’s why the Zen teacher says, “sentient beings are inverted.”
 
 Yes, we are inverted. This is really true, don't you think so? 
 
-You’re sitting here; how much can you sit? What is the sound of your [shikantaza](glossary#shikantaza)? You say, “Yes! Sound; that is a sound.” What is the sound, in you? You say, “the sound of shikantaza” – but it’s too late, because real shikantaza has gone already! And then you catch the sound from the shikantaza, and when you grasp it, “that is shikantaza” – it’s not shikantaza. You are already inverted; don’t you think so? And then you judge [it] immediately; and then finally, you follow after that, again and again. What happens after that, after following after things? “After things” means, sound.
+You’re sitting here; how much can you sit? What is the sound of your [shikantaza](glossary#shikantaza)? You say, “Yes! Sound; that is a sound.” What is the sound, in you? You say, “the sound of shikantaza” – but it’s too late, because real shikantaza has gone already! And then you catch the sound from the shikantaza, and when you grasp it, [you say,] “that is shikantaza.” It’s not shikantaza. You are already inverted; don’t you think so? And then you judge [it] immediately; and then finally, you follow after that, again and again. What happens after that, after following after things? “After things” means, sound.
 
 You know that [Dogen Zenji](glossary#dogen) says, I told you often, the moment consists of 60 instants. (Transcriber’s Note: Katagiri says “instances,” but he probably means “instants”; that may be the better translation.) So what you can hear, the moment, is the sound of the moment. *[He snaps his fingers.]* Like this. But, this one moment – *[finger snap]* – consists of 60 instants. If it is true – what did you hear? What in the moment have you heard? *[Snap.]* This sound, don’t you think so? But this sound, the moment, is nothing but sort of dregs, after you squeeze the 60 instants. And then you got the one grip of the raindrops, just the raindrops: “I’ve got it.” But that is one moment – already, you have missed 60 instants! So how can you know? 
 
@@ -149,7 +147,7 @@ On the other hand, stop shooting “catches” many things. Even a small sound, 
 
 What are the raindrops? The raindrops are you. The raindrops are [zazen](glossary#zazen). 
 
-If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe “that is raindrops” or “[that is] shikantaza.” That is confusion. So completely cease firing. For this – no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just do, okay?
+If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe “that is raindrops” or “[that is] shikantaza.” That is confusion. So, completely cease firing. For this – no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just do, okay?
 
 ##### 40:16
 
@@ -221,7 +219,7 @@ And then, I cannot stop sitting, so I have to do zazen without the machine. Well
 
 Well, [zazen](glossary#zazen) – [shikantaza](glossary#shikantaza) – is completely nothing. Here is a good example in San Francisco. This man was a little bit *[unintelligible]*. Ten years ago, Japanese scholars were interested in checking the brain waves during zazen, so it influenced American scholars. So American scholars started to check [Zen](glossary#zen ) teachers and students, and so, I was one of the students, and he was interested in checking my brain. I didn’t like it, but [Suzuki](glossary#suzuki-roshi) said, “Why don’t you go there?” *[Laughter.]* But *he* didn’t go! *[Louder laughter.]* He didn’t go, but he asked me, “Why don’t you go there,” so I went. 
 
-One gentleman was very interested in checking his brain, so he went to the hospital *every day*, because he was so interested. Every day he went there, and the psychology student really appreciated him because he completely offered his brain with his zazen. So he enjoyed it very much. Every day he went, and checked, and checked, and finally there is data, which says: “Your zazen is perfect.” 
+One gentleman was very interested in checking his brain, so he went to the hospital *every day*, because he was so interested. Every day he went there, and the psychology student really appreciated him because he completely offered his brain with his zazen. So he enjoyed it very much. Every day he went, and checked, and checked, and finally there is data, which said: “Your zazen is perfect.” 
 
 Well, he couldn’t stop. Still he wanted to go there and check his brain – because he didn’t have his life with confidence without the machine. So finally, he bought it. *[He laughs.]* He bought the machine. Then he put the machine on; the machine is saying, “You’re good. Now... *Uh-oh*, you aren’t!” *[Laughter.]* 
 
@@ -243,7 +241,7 @@ But we don't do that. Taking away all [delusions](glossary#delusion), *and then*
 
 If you look at the [Zen](glossary#zen) teachers in the United States, I don't believe there are any good Zen teachers. If you check all the Zen teachers, according to [Dogen](glosssary#dogen) and [Buddhas](glossary#buddha): no real Zen teachers. I'm sorry for you. No Zen teacher. Failure of Zen teacher, okay? Failure. 
 
-But this is an explanation of Zen teacher, understanding of Zen teacher. If you say, “I am a failure of a Zen teacher” – then why don’t you give it away, and return to normal life? Of course, it’s very reasonable. But I don’t want that; even though you say, “I am a failure of a Zen teacher; I don’t want to come back, I want to be dead.” Because, we can do [shikantaza](glossary#shikantaza). 
+But this is an explanation of Zen teacher, an understanding of Zen teacher. If you say, “I am a failure of a Zen teacher” – then why don’t you give it away, and return to normal life? Of course, it’s very reasonable. But I don’t want that; even though you say, “I am a failure of a Zen teacher; I don’t want to come back, I want to be dead.” Because, we can do [shikantaza](glossary#shikantaza). 
 
 Shikantaza is really *compassion*, really compassion. But, this is really strict. No way. All we have to do is, whatever people say – “You are a failure of Zen teacher” or “You are a great Zen teacher” – it doesn’t matter, it doesn’t matter. All you have to do is just listen to the sound of the raindrops. 
 
@@ -253,17 +251,17 @@ If you don't like this: if you look at the United States, I promise, there is no
 
 But whatever happens, all we have to do is, to be present right in the middle of death itself, life itself, where all [delusions](glossary#delusion) drop off. Qualified or not qualified, it doesn't matter. You cannot ignore it; you should accept it. But all we have to do is, just practice this. At that time, you can find great teacher, finally. Teacher finds great teacher. 
 
-So, some teacher says, “I am not qualified to be a teacher,” so he returns to normal life. But what he does [then]: he does the same things as before. Don’t you think so? Same things. I know several people [like this]. And also he makes an announcement in public: “I am no longer a priest.” This is wonderful; but what he does is the same thing. 
+So, some teacher says, “I am not qualified to be a teacher,” so he returns to normal life. But what he does [then]: he does the same things as before. Don’t you think so? Same things. I know several people [like this]. And also he makes an announcement in public: “I am no longer a priest.” This is wonderful – but what he does is the same thing. 
 
 ##### 1:05:45
 
-What would you like? There is stinky, muddy water, there is beautiful water – but both [are the] same. And you can do the same things, wherever you may be: a beautiful, nice smelling place, or here is a muddy, stinky [place], and lots of things. That is the [samsaric](glossary#samsara) world, and here is another beautiful world; but both are the same. And wherever you may be, you can do the same things. What would you like? What would you *be*? What would you *prefer* to be? Do you want be a stinky, muddy [group]? Do you understand?
+What would you like? There is stinky, muddy water, there is beautiful water – but both [are the] same. And you can do the same things, wherever you may be: a beautiful, nice smelling place, or here is a muddy, stinky [place], and lots of things. That is the [samsaric](glossary#samsara) world, and here is another beautiful world – but both are the same, and wherever you may be, you can do the same things. What would you like? What would you *be*? What would you *prefer* to be? Do you want be a stinky, muddy [group]? Do you understand?
 
-If you are in a beautiful place, there’s a lot of “barking.” Remember this. Many people bark at you. Because you are already in a beautiful place, that’s why you can see lots of ugly things. If you make a mistake, lots of things happen; and then immediately you say, “That is something extra.” If you do this, you never touch the core of human life. 
+If you are in a beautiful place, there’s a lot of “barking.” Remember this. Many people bark at you. Because you are already in a beautiful place, that’s why you can see lots of ugly things. If you make a mistake, lots of things happen, and then immediately you say, “That is something extra.” If you do this, you never touch the core of human life. 
 
 All are [Buddha](glossary#buddha). Muddy water, beautiful water: all Buddha. Wherever you may be, you can do the same things; Buddha's world. Which would you like? It's very clear. No one prefers a dirty place. It's a very simple practice. But if you are in a beautiful place, it's not so easy. It's not so easy. But we should accept it. 
 
-And all we have to do is – wherever you may be, we can do the same thing – that same thing is [shikantaza](glossary#shikantaza). Shikantaza, where all [delusions](glossary#delusion) drop off from the first. It’s not necessary that you should find some order or demand. “Go away” – you cannot say so. If you say “go away” – they don’t go away. Even though you say “please stay” – they don’t stay.
+And all we have to do is – wherever you may be, we can do the same thing – that same thing is [shikantaza](glossary#shikantaza). Shikantaza: where all [delusions](glossary#delusion) drop off from the first. It’s not necessary that you should find some order or demand. You cannot say, “Go away.” If you say “go away” – they don’t go away. Even though you say “please stay” – they don’t stay.
 
 ##### 1:08:50
 
