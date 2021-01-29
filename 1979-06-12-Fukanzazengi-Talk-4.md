@@ -10,6 +10,8 @@
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Listen to the Online Audio Archive</a>
 
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-4/" target="_blank">Listen to the transcript read by Kikan</a>
+
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
