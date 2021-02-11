@@ -634,9 +634,9 @@ Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen
 ---
 ## Keitoku Dentō-roku
 
-Japanese: Keitoku Dentō-roku
-Chinese: Jǐngdé Chuándēnglù (Ching-te Ch'uan teng lu) 景德传灯录
-English: The Jingde Record of the Transmission of the Lamp
+Japanese: Keitoku Dentō-roku  
+Chinese: Jǐngdé Chuándēnglù (Ching-te Ch'uan teng lu) 景德传灯录  
+English: The Jingde Record of the Transmission of the Lamp  
 
 [Wikipedia: The Jingde Record of the Transmission of the Lamp](https://en.wikipedia.org/wiki/The_Jingde_Record_of_the_Transmission_of_the_Lamp)
 
