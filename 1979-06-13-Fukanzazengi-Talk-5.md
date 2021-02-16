@@ -141,7 +141,7 @@ If you are really involved in that feeling or idea, that is nothing but looking 
 
 **Same person**: Okay, but, it happens anyway.
 
-**Katagiri**: Oh, of course. But how can you see that life before and after? Because you are right in the middle of zazen, that's why you can see it. Don't you think so?
+**Katagiri**: Oh, of course. But how can you see that life before and after? Because you are right in the middle of zazen, that's why you can see it.
 
 For instance, [Gensha](glossary#gensha-shibi) striking his toes: this is completely right in the middle of [occurrence]; no pains, no pleasures, no [suffering](glossary#suffering). *That’s* why he can experience: “Pain. Ouch.” That’s why he can see his life after striking his toes. If he was not there, he wouldn’t see his life after striking. He wouldn’t scream. Do you understand?
 
@@ -153,7 +153,7 @@ You don't understand?
 
 **Same person**: Well, it seems that if someone hit their toe on a rock... whether or not *[unintelligible]*
 
-**Katagiri**: That means – *[He laughs.]* You're always poking at the human life in the time process. Time is coming from the past, through the present, to the future. You are always, immediately – all America, we follow this. So, if you see a certain occurrence, immediately you can see the before and after – but we don't see the right in the middle, because we are already there. That's why we don't [see it]; we miss, pretty easily. But without this middle, we cannot see the before and after. 
+**Katagiri**: That means – *[He laughs.]* You're always poking at the human life in the time process. Time is coming from the past, through the present, to the future. All America, we follow this. So, if you see a certain occurrence, immediately you can see the before and after – but we don't see the right in the middle, because we are already there. That's why we don't [see it]; we miss, pretty easily. But without this middle, we cannot see the before and after. 
 
 Is that okay? No? *[He laughs.]*
 
