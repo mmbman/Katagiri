@@ -8,7 +8,7 @@
 ## April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/04-1980" target="_blank">Listen to the Online Audio Archive</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/04-1980" target="_blank">Listen to the original recording</a>
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 

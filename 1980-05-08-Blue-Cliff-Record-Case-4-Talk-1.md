@@ -12,7 +12,7 @@
 
 (Note: On the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 came before Talk 2, I have switched the dates accordingly.)
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to the Online Audio Archive</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to the original recording</a>
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
