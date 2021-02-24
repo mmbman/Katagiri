@@ -27,8 +27,6 @@ The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sut
 
 The third is the period in which a group of [Yogachara](glossary#yogachara) sutras and a group of esoteric sutras were all compiled, after 480. 
 
-##### 3:18
-
 During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. The third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [The fourth was] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
 
 ##### 5:24
@@ -64,8 +62,6 @@ So those authors were really genuine religious persons, who understood the relig
 I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
 I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”.... The Vimalakirti Sutra is more like literature, Buddhist literature – beautiful. But Diamond Sutra is sort of based on philosophical Buddhist teaching. So, it is a little “dry”. 
-
-##### 18:58
 
 The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of the Common Era by Indian people. The Indian people like very much the ... conceptualizing, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That’s why if you read the Buddhist scriptures written by the Indian people, they use lots of numbers. With modern people in our days, the number billions is maybe the top, but Indian people use more than billions. That is kalpas, eons; numbers that are completely beyond the measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [emptiness](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought. Huge.
 

@@ -345,7 +345,7 @@ So it is different from the ... second grade and third grade [[calligraphy](glos
 
 **Katagiri**: Yes, yes, that's right. Sure, it's a wonderful, wonderful [calligraphy](glossary#calligraphy) – but you don't understand. But it's universal – everyone understands this is good. [Or] even though you don't understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don't like it, anyway, look at this, and write it, again and again.
 
-Maybe it takes time. Maybe tomorrow you could be a master, but maybe it takes time, too. But it doesn't matter. Whatever happens, always we have to look at that kind of example, and we have to write, again and again. Don't you think so? Do you understand?
+Maybe it takes time. Maybe tomorrow you could be a master, but maybe it takes time, too. But it doesn't matter. Whatever happens, always we have to look at that kind of example, and we have to write, again and again. Don't you think so?
 
 That means, if you attain [enlightenment](glossary#enlightenment) in the [dualistic](glossary#dualism) world, that is nothing but dualistic enlightenment; that's all.
 

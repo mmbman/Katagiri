@@ -1,5 +1,7 @@
 <a name="0"></a>
 
+**New**: [Katagiri Transcripts Podcast](https://katagiritranscripts.podbean.com)! (A lot of work is going into the podcast right now. New transcripts will resume once the podcast has caught up.)
+
 # Table of Contents
 
 - [About This Website](about#0)

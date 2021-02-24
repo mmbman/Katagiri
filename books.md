@@ -28,7 +28,7 @@ This translation did not exist when Katagiri gave his talks, but now it is an es
 <a name="buddhist-wisdom"></a>
 ### "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze)
 
-- [Diamond Sutra: Introduction (18:58)](1979-05-09-Diamond-Sutra-Introduction#1858)
+- [Diamond Sutra: Introduction (17:40)](1979-05-09-Diamond-Sutra-Introduction#1740)
 - [Diamond Sutra: Provisional-Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 - [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
 - [Diamond Sutra: Giving and Non Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness.md#0)
