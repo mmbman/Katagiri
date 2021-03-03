@@ -253,8 +253,6 @@ We can explain how important this kind of Buddhist practice is philosophically, 
 
 For instance, if you are in an office – well still you can do it. If there is no one there, you can sit down in a chair and calm yourself. If you talk with somebody, you can realize a certain pause, where no words come up. For that time, you can return to yourself, and breathe. 
 
-##### 1:12:30
-
 You can do it, okay? Wherever you may go; it's really universal. [It’s] very simple. It's too simple to realize. But, this is the best way. Not only for your life in this world; in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just to sow the seeds. Arrange circumstances, environment – inwardly, outwardly – and just stand up there. That's all you have to do. That is to sow good seeds. 
 
 Good time and occasion and good conditions must be arranged, and then stand up there. That's all we have to do. And then at that time,  [Dogen Zenji](glossary#dogen) says, right dharma is manifesting itself, and from the first, dullness and distraction are struck aside. Very naturally, they drop off.

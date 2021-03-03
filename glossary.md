@@ -410,7 +410,7 @@ See [Dogen](#dogen)
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
-- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:12:30)](1979-06-11-Fukanzazengi-Talk-3#11230)
+- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:09:51)](1979-06-11-Fukanzazengi-Talk-3#10951)
 
 ---
 ## Emptiness
@@ -525,7 +525,7 @@ Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#
 Eko Hashimoto, abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
  
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
-- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:12:30)](1979-06-11-Fukanzazengi-Talk-3#11230)
+- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:09:51)](1979-06-11-Fukanzazengi-Talk-3#10951)
 
 ---
 ## Heart Sutra
