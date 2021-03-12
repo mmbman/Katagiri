@@ -247,7 +247,7 @@ External links:
 ---
 ## Buddhist Psychology
 
-- [Fukanzazengi – Talk 6 39:00](1979-06-14-Fukanzazengi-Talk-6#3900)
+- [Fukanzazengi – Talk 6 35:32](1979-06-14-Fukanzazengi-Talk-6#3532)
 
 ---
 ## Buddhistic
