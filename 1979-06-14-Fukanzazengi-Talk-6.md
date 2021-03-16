@@ -53,7 +53,9 @@ So from this point, conditioned elements are sort of a ‘force’ – well sort
 
 So what is [samskara](glossary#samskara)? Samskara [means] “together-maker”. “Together maker” means conditioned element. Conditioned elements are something which is not associated with your mind. But yesterday, or the day before yesterday, I told you mind is characterized by dichotomy of two beings; always dichotomy. But in the realm of, in the context of, samskara, there is no mind which is associated with conditioned elements. No way; nothing. But, these conditioned elements are a kind of force, which is called to combine, to unify two beings, object and subject. At that time, there is something that happens. So, in the process of combining and unifying two objects, there is no mind. It is perfect. Perfect. That’s why there is no room even slightly to let human conscious speculation insert into it. Nothing. That’s why, very naturally, all [delusions](glossary#delusion), dullness and distraction, throw up. No dullness, no distraction, no confusion. Completely nothing. 
 
-And then, something happens. And when the something happens, that is event or occurrence. At that time, mind associates with this event. That is what is called *after* something. Something happens *after*: mind associates with this occurrence which happened. And it’s okay – that is very natural. Simultaneously, this happens. But the point is, at that time, when the mind attaches to events, this is called the conditioned world, [dualistic](glossary#dualistic) world. But when mind doesn’t attach to this event, it turns into the truth. That is unconditioned world. That’s why [samskara](glossary#samskara) is sort of a bridge, which enables you to take it to the dualistic world, or the not-dualistic world. That is completely a bridge, or door. The door is free, always free. No [delusions](glossary#delusion), no confusions –– always, the door exists. 
+And then, something happens. And when the something happens, that is event or occurrence. At that time, mind associates with this event. That is what is called *after* something. Something happens *after*: mind associates with this occurrence which happened. And it’s okay – that is very natural. Simultaneously, this happens. But the point is, at that time, when the mind attaches to events, this is called the conditioned world, [dualistic](glossary#dualistic) world. But when mind doesn’t attach to this event, it turns into the truth. That is unconditioned world. That’s why [samskara](glossary#samskara) is sort of a bridge, which enables you to take it to the dualistic world, or the not-dualistic world. That is completely a bridge, or door. 
+
+The door is free, always free. No [delusions](glossary#delusion), no confusions –– always, the door exists. 
 
 So something happens, and at the moment when it happens, mind associates and attaches to something. At that time, you can enter into the [dualistic](glossary#dualistic) world. But when mind doesn’t attach to [something] – “Oh!” – immediately you can go there, go to the truth. But unfortunately, mind is always characterized by dichotomy, as I told you. So more or less, we immediately enter into the dualistic world. 
 
@@ -95,7 +97,7 @@ So, what is oneness? Oneness appears, oneness manifests itself, only when your b
 
 We don’t understand yet, because – well, there is a good example. There is a saying, “[Like] a lump of clay.” However you use this clay, it depends on you. But let’s imagine we try to make a doll. A doll, or china, or a plate – whatever it is. Let’s make a plate, a dish, china – and also a doll. 
 
-When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot [say], “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t say it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll. No clay.” You cannot say [so].
+When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot [say], “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t [see] it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll. No clay.” You cannot say [so].
 
 On the other hand, turn [it around]. If you see the doll in terms of the clay: just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” So in terms of the clay, doll and dish are completely hidden behind the clay. Just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
 
@@ -105,7 +107,7 @@ So, this is oneness. The same applies to our zazen. First of all, mind is always
 
 ##### 35:32
 
-So how can you stop the functioning of your mind? You cannot stop it. The all-important point is, let’s return to the origin, which is called [samskara](glossary#samskara)’s world, which is called elements which are not associated with mind and truth, completely nothing. Let’s return to conditioned elements. How can we return to conditioned elements? ... I told you before, conditioned elements are characterized by unifying two beings perfectly. That means, one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this, using your body and breath ... perfectly, fitting into [zazen](glossary#zazen). 
+So how can you stop the functioning of your mind? You cannot stop it. The all-important point is, let’s return to the origin, which is called [samskara](glossary#samskara)’s world, which is called elements which are not associated with mind and truth, completely nothing. Let’s return to conditioned elements. How can we return to conditioned elements? ... I told you before, conditioned elements are characterized by unifying two beings perfectly. That means, one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this, using your body and breath perfectly, fitting into [zazen](glossary#zazen). 
 
 At that time, something happens. That is zazen as an event. So mind immediately catches it. That’s, “I got it.” You catch it. The moment when you “catch” it, there is attachment. So, that’s why regulation of the mind is important. That is, [Dogen Zenji](glossary#dogen) says, “Throw away good or bad, right and wrong. Have no designs of becoming a [Buddha](glossary#buddha).” Through and through, we have to practice having no design of becoming Buddha. No reward there. Just return to conditioned element, using your body, perfectly fitting into object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. [It] *is* zazen. That’s all. 
 
@@ -169,7 +171,7 @@ Do you have questions?
 
 ##### 52:33
 
-**Question**: [Roshi](glossary#roshi)? In *[unintelligible]* Buddhism, I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and, well not exactly its opposite, but the similar force aprāpti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
+**Question**: [Roshi](glossary#roshi)? In “Central Conception of Buddhism”, I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and, well not exactly its opposite, but the similar force aprāpti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
 
 **Katagiri**: Positives, yes.
 
@@ -239,11 +241,9 @@ Philosophically speaking, that is interdependent co-production.
 
 **Same person**: Well I’m saying maybe he would have noticed the rock. Can we look at that and see that, or is that attaching to it?
 
-**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment, completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
+**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment: completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
 
-But how do they associate with each other? We don’t know. Because between the two, something connected. 
-
-That connection is not something that happens right now. It’s really connected with the past, and future. That’s why it’s broad. 
+But how do they associate with each other? We don’t know. Because between the two, something connected. That connection is not something that happens right now. It’s really connected with the past, and future. That’s why it’s broad. 
 
 That’s why if you don’t pay careful attention to your life, well, many things come up. That’s why all we have to do is, to use perfectly, with our best, fitting into the object. [Zazen](glossary#zazen), if we want to do zazen. And become one. 
 
@@ -283,7 +283,7 @@ And then his mind catches that event. Monastery, and movies, and his karmas: all
 
 **Katagiri**: Well, if you use the term “body and mind,” already that is the image of the body and mind. You are already taken in by the [word], the trick, already. The body and mind doesn’t exist means, well, body and mind is what? Body and mind is nothing but a being which exists, right now, right here, beyond good or bad, right and wrong. So, body is what? Well, a very important thing, but on the other hand, it’s not important. So if you judge the body from your mind – in other words, if you see the body after something, before something – if you understand the body before and after, always there is *[unintelligible]*. But really, body and mind is just the being becoming one with you, becoming one with some event. 
 
-If you strike your toes on the rock, your body and mind – what? Nothing but the toes. The toes exemplify your whole body and mind.
+If you strike your toes on the rock, your body and mind – what? Nothing but the toes. The toes exemplify your whole body and mind. 
 
 So, toes, your body, are just the being as it is, beyond human speculation. Before you judge, before you see your body before, something happens. And also after, if you see your body after, something happens. You can say, “that is the body,” that’s why you attach to it and scream, “Ouch!” But right in the middle of occurrence, body has no idea of body, because toes and rock are just one. That’s all. Body, rock, and conditions are just one. Your toes are used perfectly for the rock, fitting into it. That’s all. Something happens. 
 
@@ -409,7 +409,7 @@ Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from som
 
 **Katagiri**: Who?
 
-**Question**: [Aprāpti](glossary#aprāpti) and [prāpti](glossary#prāpti). With the two in the example you gave, both of those people were monks, they were practicing the Buddha’s way. And we’re talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone’s life? In Roman Catholics’ life?
+**Same person**: [Aprāpti](glossary#aprāpti) and [prāpti](glossary#prāpti). With the two in the example you gave, both of those people were monks, they were practicing the Buddha’s way. And we’re talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone’s life? In Roman Catholics’ life?
 
 **Katagiri**: Sure. *[Laugher.]* It’s universal. Yes. *[Laugher.]*
 
