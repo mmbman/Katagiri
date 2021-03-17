@@ -10,6 +10,8 @@
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-6" target="_blank">Listen to the original recording</a>
 
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-6/" target="_blank">Listen to the transcript read by Kikan</a>
+
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
@@ -77,7 +79,7 @@ And then he says here [in Fukanzazengi]: “In addition, the bringing about of [
 
 “... cannot be fully understood by one’s discriminative thinking.” You cannot understand why [Gensha Shibi](glossary#gensha-shibi) attained enlightenment by striking his toes and seeing the blood coming up. We don’t understand – why? The blood has a mysterious power? I don’t think so. Blood is blood. His toes have particular mysterious powers? No. He didn’t have telepathy. He didn’t use telepathy, just a rock. Rock is rock; it has no mysterious power. 
 
-So why did he attain enlightenment? *[In the distance, the sound of a police siren starts.]* Because, I told you before, we are mind. Something happens with the rock, and toes, and the [Gensha Shibi](glossary#gensha-shibi)s, and the passages, all are beings which are not associated with the mind. So everything exists, day after day, in the process of change, in the stream of change. *[The police siren is getting louder.]* Birds, zazen, and that siren; all things exist in peace and harmony, in the stream of change. And then, something happens, according to conditioned elements, which happen between the two. That is, conditioned element – *[the police siren finally stops]* – is characterized by one object, one being, used perfectly for another being, fitting into its object perfectly. This is conditional element.
+So why did he attain enlightenment? *[In the distance, the sound of a police siren starts.]* Because, I told you before, we are mind. Something happens with the rock, and toes, and the [Gensha Shibi](glossary#gensha-shibi)s, and the passages –– all are beings which are not associated with the mind. So everything exists, day after day, in the process of change, in the stream of change. *[The police siren is getting louder.]* Birds, zazen, and that siren; all things exist in peace and harmony, in the stream of change. And then, something happens, according to conditioned elements, which happen between the two. That is, conditioned element – *[the police siren finally stops]* – is characterized by one object, one being, used perfectly for another being, fitting into its object perfectly. This is conditional element.
 
 ##### 25:44
 
@@ -97,7 +99,7 @@ So, what is oneness? Oneness appears, oneness manifests itself, only when your b
 
 We don’t understand yet, because – well, there is a good example. There is a saying, “[Like] a lump of clay.” However you use this clay, it depends on you. But let’s imagine we try to make a doll. A doll, or china, or a plate – whatever it is. Let’s make a plate, a dish, china – and also a doll. 
 
-When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot [say], “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t [see] it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll. No clay.” You cannot say [so].
+When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot [say], “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t [see] it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll; no clay.” You cannot say [so].
 
 On the other hand, turn [it around]. If you see the doll in terms of the clay: just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” So in terms of the clay, doll and dish are completely hidden behind the clay. Just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
 
@@ -137,9 +139,7 @@ So, three possibilities. One possibility is to plant a seed. The second possibil
 
 But this is also pretty good, because that is a possibility which will bloom in the future. That is called completion of liberation, completion of freedom. In other words, you are free. No particular realm, good or bad or neutral. Your life is “so-so”. Are you happy? No. Are you unhappy? No. Are you neutral? No. Well, how do you feel? So-so. That’s okay. Still there is a possibility.
 
-So that is one of the conditioned elements, which is called obtaining or getting. So between the two objects, [zazen](glossary#zazen) and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility exist. You can plant a seed, right now, with your body, completely. According to instructions, you can plant seeds – even though you don’t understand. Or, you can completely actualize; actualize completion. According to suggestions and instructions; you can find, you can realize. If you actualize exactly, even though intellectually you cannot reach it, it’s really actualized. You can actualize. So, you can complete something in your daily living. 
-
-But also between zazen and you there is another possibility: “Well, I don’t understand.” “Well, I don’t want to do it, but I will just do it... so-so.”
+So that is one of the conditioned elements, which is called obtaining or getting. So between the two objects, [zazen](glossary#zazen) and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility exist. You can plant a seed, right now, with your body, completely. According to instructions, you can plant seeds, even though you don’t understand. Or, you can completely actualize; actualize completion. According to suggestions and instructions, you can find, you can realize. If you actualize exactly, even though intellectually you cannot reach it, it’s really actualized. You can actualize. So, you can complete something in your daily living. But also between zazen and you there is another possibility: “Well, I don’t understand.” “Well, I don’t want to do it, but I will just do it... so-so.”
 
 The best way, that is...
 
@@ -171,7 +171,7 @@ Do you have questions?
 
 ##### 52:33
 
-**Question**: [Roshi](glossary#roshi)? In “Central Conception of Buddhism”, I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and, well not exactly its opposite, but the similar force aprāpti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
+**Question**: [Roshi](glossary#roshi)? In “Central Conception of Buddhism,” I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and, well not exactly its opposite, but the similar force aprāpti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
 
 **Katagiri**: Positives, yes.
 
@@ -231,7 +231,7 @@ Philosophically speaking, that is interdependent co-production.
 
 ##### 1:02:55
 
-**Same person**: Well then, we can still see the instant without attaching to it and learning from that? Because, perhaps if he’d have noticed the rock an instant before, he wouldn’t have bumped his toe on it.
+**Same person**: Well then, we can still see the instant without attaching to it, and learning from that? Because, perhaps if he’d have noticed the rock an instant before, he wouldn’t have bumped his toe on it.
 
 **Katagiri**: Hmm?
 
@@ -241,9 +241,9 @@ Philosophically speaking, that is interdependent co-production.
 
 **Same person**: Well I’m saying maybe he would have noticed the rock. Can we look at that and see that, or is that attaching to it?
 
-**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment: completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
+**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment: completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have [had] such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
 
-But how do they associate with each other? We don’t know. Because between the two, something connected. That connection is not something that happens right now. It’s really connected with the past, and future. That’s why it’s broad. 
+But how do they associate with each other? We don’t know. Because between the two, something connected. That connection is not something that happens right now. It’s really connected with the past, and the future. That’s why it’s broad. 
 
 That’s why if you don’t pay careful attention to your life, well, many things come up. That’s why all we have to do is, to use perfectly, with our best, fitting into the object. [Zazen](glossary#zazen), if we want to do zazen. And become one. 
 
@@ -309,7 +309,7 @@ And then we say that [means] body and mind exist. But I don’t think so. But we
 
 **Same person**: Independent of these things? Independent of toe hitting rock?
 
-**Katagiri**: Oh, independent. You mean the mind is independent. Yes, actually mind is independent from that total dynamic working. Yes. *[Some laughter.]* The original nature of the mind is already there. Original nature of the mind is what? Not-mind. No mind. It’s just conditioned origination, conditioned co-production. Function. That’s all.
+**Katagiri**: Oh, independent. You mean the mind is independent. Yes, actually mind is independent from that total dynamic working. Yes. *[There is some laughter.]* The original nature of the mind is already there. Original nature of the mind is what? Not-mind. No mind. It’s just conditioned origination, conditioned co-production. Function. That’s all.
 
 **Same person**: But anyway, mind exists before these things are happening. 
 
@@ -411,13 +411,13 @@ Is that clear? That is [aprāpti](glossary#aprāpti): force to separate from som
 
 **Same person**: [Aprāpti](glossary#aprāpti) and [prāpti](glossary#prāpti). With the two in the example you gave, both of those people were monks, they were practicing the Buddha’s way. And we’re talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone’s life? In Roman Catholics’ life?
 
-**Katagiri**: Sure. *[Laugher.]* It’s universal. Yes. *[Laugher.]*
+**Katagiri**: Sure. *[Laughter.]* It’s universal. Yes. *[Laughter.]*
 
 ##### 1:32:51
 
 **Question**: Are they simultaneous, [Roshi](glossary#roshi)? [Prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti)? Do they operate simultaneously? 
 
-**Katagiri**: Sometimes together, sometimes different, okay? Because sometimes you can see them both. Say “I want to go there,” “I don’t want to go there,” simultaneously, so you don’t know what to do. The sort of original nature of such a feeling comes from [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti). Intellectually, you know pretty well you should choose this one, but actually you don’t know what to do, so you can see them both. So sometimes both work together, sometimes separately. 
+**Katagiri**: Sometimes together, sometimes different, okay? Because sometimes you can see them both. Say “I want to go there,” “I don’t want to go there” simultaneously, so you don’t know what to do. The sort of original nature of such a feeling comes from [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti). Intellectually, you know pretty well you should choose this one, but actually you don’t know what to do, so you can see them both. So sometimes both work together, sometimes separately. 
 
 ##### 1:33:42
 
