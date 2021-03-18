@@ -616,6 +616,15 @@ External links:
 ---
 # K
 
+
+## Kaijo
+
+(Japanese): Signal of the end of [zazen](glossary#zazen). One bell.
+
+- [Missouri Zen Center Glossary](https://www.missourizencenter.org/glossary.html#K-O)
+
+- [Fukanzazengi – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
+
 ## Kapleau Roshi
 
 ---
