@@ -17,7 +17,19 @@
 
 (Transcriber’s Note: A loud thunderstorm was going on during this talk. Katagiri Roshi’s words are occasionally punctuated by peals of thunder.)
 
-... when the [Buddha Shakyamuni](glossary#shakyamuni-buddha) sat in meditation in [zazen](glossary#zazen), under a tree – *[there is a sound of thunder]* – [there was a] tremendous sound of thunder, that was more than this. But, his meditation, zazen, was not disturbed by the thunder. And after zazen, he stood from his seat, and practiced kinhin, walking meditation. At that time, the thunder was completely gone; the surroundings were very quiet. [Near] him there was one of the Buddhist laymen, who [had] watched the Buddha’s meditation. The Buddha’s zazen – *[sound of thunder]* – was never disturbed by the thunder – *[loud sound of thunder continues]* – [even though it was a] really tremendous sound of thunder. [So the layman] asked the Buddha: “Four cows and two farmers were killed by electric shock of lightning at this time, a few minutes ago. Did you hear the sound of the thunder? There was a huge sound of thunder, everyone knew that. Did you sleep at that time?” Buddha said, “No, I didn’t sleep.” So the layman asked, “Were you in the state of a person who is without consciousness?” The Buddha said, “No. I did zazen, with consciousness.” So the layman said, “That’s excellent, wonderful! I have never heard [of something like this] before.” So the layman really respected – *[thunder]* – the Buddha Shakyamuni’s zazen. 
+... when the [Buddha Shakyamuni](glossary#shakyamuni-buddha) sat in meditation in [zazen](glossary#zazen), under a tree – *[there is a sound of thunder]* – [there was a] tremendous sound of thunder, that was more than this. But, his meditation, zazen, was not disturbed by the thunder. And after zazen, he stood from his seat, and practiced kinhin, walking meditation. At that time, the thunder was completely gone; the surroundings were very quiet. [Near] him there was one of the Buddhist laymen, who [had] watched the Buddha’s meditation. The Buddha’s zazen – *[sound of thunder]* – was never disturbed by the thunder – *[loud sound of thunder continues]* – [even though it was a] really tremendous sound of thunder. 
+
+[So the layman] asked the Buddha: “Four cows and two farmers were killed by electric shock of lightning at this time, a few minutes ago. Did you hear the sound of the thunder? There was a huge sound of thunder, everyone knew that. Did you sleep at that time?” 
+
+Buddha said, “No, I didn’t sleep.” 
+
+So the layman asked, “Were you in the state of a person who is without consciousness?” 
+
+The Buddha said, “No. I did zazen, with consciousness.” 
+
+So the layman said, “That’s excellent, wonderful! I have never heard [of something like this] before.” 
+
+So the layman really respected – *[thunder]* – the Buddha Shakyamuni’s zazen. 
 
 In those days, the attainment of [samadhi](glossary#samadhi) with no consciousness was regarded as the highest level of spiritual life. From this point, you can stop your breath for a certain period of time, or you can stay in a sort of death. You can stop the functioning of your heart. 
 
@@ -41,7 +53,9 @@ Also, [Dogen Zenji](glossary#dogen) said, in [Bendowa](dogen#bendowa):
 
 > Moreover, although in realization the mind of the [zazen](glossary#zazen) practicer and its objects both arise and disappear within the stillness of [samadhi](glossary#samadhi), since it occurs [within] the sphere of jijuyu, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.
 
-“Although in realization, the mind of the zazen practicer and also its object both arise and disappear...” – that means, the mind and its objects goes in and goes out \[of] [enlightenment](glossary#enlightenment) – “... within the stillness of [samadhi](glossary#samadhi).” “Within the stillness of samadhi”: that is, we have a technical term, [shijo](glossary#shijo), [the] sign of the beginning of zazen. When you hit the bell three times, that is called shijo, sign of the beginning of zazen. The ‘shi’ is ‘struck’. ‘Jo’ is ‘stillness’. Stillness implies samadhi; stillness implies zazen itself. So, “struck zazen” means, zazen settles itself in zazen. So you dwell in zazen at that time. That is the sign of the starting of zazen, so we call it ‘shijo’. The end of zazen is called [kaijo](glossary#kaijo). ‘Kai’ means ‘open’. ‘Jo’ is ‘stillness’. So, “open stillness”. The stillness means zazen: “to open zazen”. That means, the end of zazen. 
+“Although in realization, the mind of the zazen practicer and also its object both arise and disappear...” – that means, the mind and its objects goes in and goes out \[of] [enlightenment](glossary#enlightenment).
+
+“Within the stillness of samadhi”: that is, we have a technical term, [shijo](glossary#shijo), [the] sign of the beginning of zazen. When you hit the bell three times, that is called shijo, sign of the beginning of zazen. The ‘shi’ is ‘struck’. ‘Jo’ is ‘stillness’. Stillness implies samadhi; stillness implies zazen itself. So, “struck zazen” means, zazen settles itself in zazen. So you dwell in zazen at that time. That is the sign of the starting of zazen, so we call it ‘shijo’. The end of zazen is called [kaijo](glossary#kaijo). ‘Kai’ means ‘open’. ‘Jo’ is ‘stillness’. So, “open stillness”. The stillness means zazen: “to open zazen”. That means, the end of zazen. 
 
 So in this case, the same applied to this. “Within the stillness of [samadhi](glossary#samadhi)” – within [zazen](glossary#zazen) itself – “the mind and its objects” – the mind and also zazen. Mind and zazen both goes in, goes out \[of] [enlightenment](glossary#enlightenment) and realization. 
 
@@ -57,7 +71,9 @@ And also: “... nor infringe upon a single phenomenon.” That means, when your
 
 So [zazen](glossary#zazen) is you, you are zazen. At that time, I told you – I think on the second day of sesshin, or the first day, I forgot. Anyway: total personality blooms there. In other words, original nature of the self blooms, very naturally. Because, there is no mind which is picky. Mind is there, but mind doesn’t work; mind is [just] existent with your zazen and your body. So that’s why “nor infringe upon a single phenomena” means, your original nature of the body and mind blooms, without destroying your nose, or your ears, your eyes, your consciousness. Without doing anything. For this, it just blooms. 
 
-And then, “since it occurs within the sphere of jijuyu” means, when you do [zazen](glossary#zazen) in that way, your body and mind become one with zazen, and then, zazen and all circumstances return to you. All circumstances exist simultaneously in peace and harmony. The sound of the car, the sound of the thunder, exist. But your mind is *[unintelligible]*. Zazen and all circumstances return to you. That means, [when] we do zazen, everything exists in peace and harmony. Japan, the United States, the sound of the car, the sound of the [cat](glossary#cat), the sound of the raindrops, lightning – whatever happens, all exist in peace, right in the middle of zazen. At that time it is called jijuyu – [samadhi](glossary#samadhi) of jijuyu. ‘Ji’ is “of itself”. The ‘ju’ of jijuyu means “receive”. ‘Yu’ is “to function, to work, or to take advantage of”. So ... if you do zazen like this, you can receive freedom, very naturally, of itself. And, you can use it. 
+And then, “since it occurs within the sphere of jijuyu” means, when you do [zazen](glossary#zazen) in that way, your body and mind become one with zazen, and then, zazen and all circumstances return to you. All circumstances exist simultaneously in peace and harmony. The sound of the car, the sound of the thunder, exist. But your mind is *[unintelligible]*. Zazen and all circumstances return to you. That means, [when] we do zazen, everything exists in peace and harmony. Japan, the United States, the sound of the car, the sound of the [cat](glossary#cat), the sound of the raindrops, lightning – whatever happens, all exist in peace, right in the middle of zazen. 
+
+At that time it is called jijuyu – [samadhi](glossary#samadhi) of jijuyu. ‘Ji’ is “of itself”. The ‘ju’ of jijuyu means “receive”. ‘Yu’ is “to function, to work, or to take advantage of”. So ... if you do zazen like this, you can receive freedom, very naturally, of itself. And, you can use it. 
 
 So that’s why [Dogen Zenji](glossary#dogen) says, “Although in realization the mind and its object both arise and disappear within the stillness of [samadhi](glossary#samadhi), since it occurs within the sphere of jijuyu, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
 
@@ -79,9 +95,7 @@ In other words, I always use, “Your kind, compassionate attention [must] penet
 
 Or, I always tell you, if you play the guitar, you can play the guitar with two hands, of course. But it is not the perfect way of playing guitar, with two hands. You have to play the guitar with two hands and two feet. You have to play the guitar with two feet. How you can play [that way]? I don’t know. *[He chuckles.]* But you can play. [You can play with] two feet, and with your nose, with your mouth, with your eyes, with your knowledge, with your perceptions, with your consciousness, with your heart, with your emotions, with your past life, with your present life, with your future life, and the composers, and all circumstances. At that time, that is a perfect practice of playing guitar.
 
-And then, that is what is called “to culminate the quest of your body”. And then, in the playing guitar, in the daily living, at that time you really feel good, from playing guitar from your body, from your mind. So that’s why you cannot stop, finally, playing guitar. Something compels you to continue to practice. Even though consciously you don’t want to, something compels you. 
-
-So that’s why finally, you will be a great guitar player. Even though you don’t like it, even though you don’t expect it, finally, you will be a great guitar player.
+And then, that is what is called “to culminate the quest of your body”. And then, in the playing guitar, in the daily living, at that time you really feel good, from playing guitar from your body, from your mind. So that’s why you cannot stop, finally, playing guitar. Something compels you to continue to practice. Even though consciously you don’t want to, something compels you.  So that’s why finally, you will be a great guitar player. Even though you don’t like it, even though you don’t expect it, finally, you will be a great guitar player.
 
 That’s why [Dogen Zenji](glossary#dogen) Zenji says, “[Buddha](glossary#buddha) uses this from morning to night and culminates the quest of his body in the [zendo](glossary#zendo).” 
 
@@ -141,7 +155,7 @@ Before, I told you always, there is a scale. Now why don’t you point out the *
 
 ##### 47:30
 
-(Transcriber’s Note: The following anecdote, at the end of the seven day sesshin, starts quietly, but is difficult to transcribe after a while because it’s hard to hear over all the laughter. I’ve done my best with it.)
+(Transcriber’s Note: The following anecdote, at the end of the seven day sesshin, starts quietly, but is difficult to transcribe after a while because it’s hard to hear over all the laughter.)
 
 **Katagiri**: If you think about [zazen](glossary#zazen) for seven days, you become good friends with zazen. How do you like it? Do you hate it? *[Soft laughter.]*
 
@@ -149,13 +163,15 @@ Is there anyone who attained [enlightenment](glossary#enlightenment)? No one? *[
 
 Nakagawa Roshi (probably [Sōen Nakagawa](glossary#sōen-nakagawa)) – at the last day of sesshin, he would say... He is a very interesting [Zen Master](glossary#zen-master). He is very dramatic, and sometimes he is very mysterious, and sometimes he’d behave very strangely. But that is the [Rinzai Zen](glossary#rinzai-zen ) style, so that’s okay; beautiful, anyway. 
 
-So one day he sat in the middle, and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked it very much, so he played that, and – *[he laughs]* – he immediately said: *[in a loud voice]* “At this time during sesshin, there is one person who attained enlightenment. Do you know who it is?” *[Everyone laughs.]* That is in a very big voice: “**DO YOU KNOW WHO IT IS**?” *[Laughter.]* And then no one would really say. *[Laughter.]* And then anyway, he said, “DO YOU WANT TO KNOW WHO YOU ARE?” *[Laughter.]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully,]* “*This* person?” *[He loudly slams down a stick or something.]* *[Gales of laughter.]* *[unintelligible]* 
+So one day he sat in the middle [of the zendo], and during sitting he played a record of a Bach ... concerto. Famous music, anyway. He liked it very much, so he played that, and – *[he laughs]* – he immediately said: *[in a loud voice]* “At this time during sesshin, there is one person who attained enlightenment. Do you know who it is?” *[Everyone laughs.]* That is in a very big voice: “**DO YOU KNOW WHO IT IS**?” *[Laughter.]* And then no one would really say. *[Laughter.]* And then anyway, he said, “DO YOU WANT TO KNOW WHO YOU ARE?” *[Laughter.]* But no one said. And only one person said, *[unknown gesture]*. And then he immediately said, *[scornfully,]* “*This* person?” *[He loudly slams down a stick or something.]* *[Gales of laughter.]* *[unintelligible]* 
 
 That’s interesting, isn’t it? *[unintelligible]* Everybody [searches], “Who? Who? Who?” ... “Maybe I?” *[Laughter.]* But he says, “No, no, no. I don’t either.” He’s a nice guy, huh? 
 
-Finally, *[unintelligible]*. “Yes.” *[Laughter.]*
+Finally, all *[unintelligible]* gone. “Yes.” *[Laughter.]*
 
-*[The laughter eventually dies down, and Katagiri laughs.]* Remember that story. That’s a real, true story. 
+*[The laughter eventually dies down, and Katagiri laughs.]* 
+
+Remember that story. That’s a beautiful story, isn’t it?
 
 ##### 51:04 end of recording
 
