@@ -17,7 +17,7 @@
 
 There must be a person who tries to establish a peaceful world, always. But when you see the world, it’s pretty difficult for us to see a beautiful aspect of the human world. At that time, [we see] lots of chaos. We are disappointed. 
 
-But, according to [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of [Buddha](glossary#buddha)’s ten major disciplines, asks him, “How do we teach the Buddha’s teaching, which seems to be complicated – particularly in the confused world?” Buddha says, “There must be even one person who tries to teach Buddha’s teaching under all circumstances.” 
+According to the [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of [Buddha](glossary#buddha)’s ten major disciplines, asks him, “How do we teach the Buddha’s teaching, which seems to be complicated – particularly in the confused world?” Buddha says, “There must be even one person who tries to teach Buddha’s teaching under all circumstances.” 
 
 That is Buddha’s answer. So, you shouldn’t be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha’s teaching. So Buddha says, “Don’t think that; don’t be disappointed. There is always some person who teaches Buddha’s teaching.”
 
@@ -31,7 +31,7 @@ One is, we believe that there is something particular apart from ourselves. That
 
 The second kind of [ego consciousness](glossary#ego-consciousness) is: we believe there is that which is continuous. Otherwise, it seems to be difficult for us to believe or go from child to adult, so, it’s pretty easy for us to believe that there is that which is continuous from your birth to your death. And then you believe, “I am changing,” “I change.” Then the idea of change comes into existence. If you don’t believe there is something which is continuous, it’s pretty difficult to get the idea of change. So, it is pretty easy for us to believe there is something particular which is continuous. This is the second misunderstanding, this is the second [ego consciousness](glossary#ego-consciousness). So, no perception of a being.
 
-The third: if you believe there is that which is continuous, that is kind of a “soul”, unifying, harmonizing your life. Sort of a ‘watchmaker’. The watchmaker controls one watch, and the second watch; no matter how many watches there are, he controls them, so all watches go exactly right, in the proper way. That is, the watchmaker is sort of a “soul”, which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, the whole universe. This is also the third [ego consciousness](glossary#ego-consciousness). That’s why [Buddha](glossary#buddha) says, no perception of a soul.
+The third: if you believe there is that which is continuous, that is kind of a “soul”, unifying, harmonizing your life. Sort of a ‘watchmaker’. The watchmaker controls one watch, and the second watch; no matter how many watches there are, he controls them, so all watches go exactly right, in the proper way. That is, the watchmaker is sort of a “soul”, which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, the whole universe. This is the third [ego consciousness](glossary#ego-consciousness). That’s why [Buddha](glossary#buddha) says, no perception of a soul.
 
 The fourth kind of [ego consciousness](glossary#ego-consciousness) is: we want to believe something particular [exists] which is called [karma](glossary#karma), which leads you to be reborn in the next life. So [we believe] karma is something particular, which is an eternal entity which leads you to your next life. But actually, karma doesn’t exist in that way, as an idea of an entity which exists forever. No. Karma is also one of the beings which is changing, constantly. Appear, disappear. When you yawn, that is your [karma](glossary#karma). If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But if right after expression of your anger, you smile – well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that’s why, no perception of a person. This is a kind of idea of karma. 
 
@@ -43,9 +43,7 @@ Second, he practiced the no perception of object. Object means trees, birds, and
 
 There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
 
-##### 11:02
-
-One is, everything is [emptiness](glossary#śūnyatā). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say “Why,” you can explain. Why Katagiri is Japanese? I can explain. But that explanation of Katagiri doesn’t hit the mark. *Why*? Why I am Japanese? I don’t know. I didn’t choose. Why are you American? Can you choose? No.
+One is, everything is [emptiness](glossary#śūnyatā). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, how – no reason. If you say “Why,” you can explain. Why is Katagiri Japanese? I can explain. But that explanation of Katagiri doesn’t hit the mark. *Why*? Why I am Japanese? I don’t know. I didn’t choose. Why are you American? Can you choose? No.
 
 You can explain why; but the explanation of the reason why you are American cannot hit the mark. So finally, “you are American” means: emptiness, nothing. That means: Americans exist without any reason. 
 
@@ -97,9 +95,9 @@ But it’s pretty hard to understand this. So, I want to explain this.
 
 Why do you believe a thing to be accurate? Even though [Buddha](glossary#buddha) says everything is provisional being, you don’t believe it, because, [for instance], here is a book. Here is a book; no one believes this is a provisional being. You say, this is a being which is real, or accurate. Here it is! You don’t believe it [is a provisional being].
 
-Well, for instance, if you see a movie. You know movies – what are you watching? You’re watching the screen, pictures on a screen. The world created by the pictures on the screen is not a real world; this is a provisional world. You believe pretty well: this is a provisional world. So, don’t worry about whatever happens. Whatever scary scene happens, or whatever thing happens – don’t cry, don’t be surprised, whatever. So you sit down on a chair and watch the screen. Finally, you cry. You cry, and you *jump up* when something happens. Did you see “Jaws”? *[Laughter.]* You scream, immediately.
+Well, for instance, if you see a movie. You know movies – what are you watching? You’re watching the screen, pictures on a screen. The world created by the pictures on the screen is not a real world; this is a provisional world. You believe pretty well [that] this is a provisional world. So, don’t worry about whatever happens. Whatever scary scene happens, or whatever thing happens – don’t cry, don’t be surprised, whatever. So you sit down on a chair and watch the screen. Finally, you cry. You cry, and you *jump up* when something happens. Did you see “Jaws”? *[Laughter.]* You scream, immediately.
 
-It is not a real being. The artificial shark, also that is a provisional being, created on the screen. But you scream, simultaneously. Why do you scream? Because you are participating in that provisional world. At that time, provisional world is no longer provisional; that is actual being. It turns into actual being. Do you understand? Is that clear? It completely turns into actual being.
+It is not a real being. The artificial shark, that is also a provisional being, created on the screen. But you scream, simultaneously. Why do you scream? Because you are participating in that provisional world. At that time, provisional world is no longer provisional; that is actual being. It turns into actual being. Do you understand? Is that clear? It completely turns into actual being.
 
 So, always you are being with creating pictures on a screen. Intellectually, you believe that is a provisional world, but while you are watching this, completely unconsciously or consciously, you are present with provisional beings, so provisional beings turn into actual beings. So that’s why you cry, and you smile, with the world created on the screen.
 
@@ -129,11 +127,11 @@ For instance, if you feel melancholy, pensive, at that time the surrounding envi
 
 [This] means we can move initiatively to the object, creating our world. In other words, the world doesn’t exist alone. The world always exists connected with the subject, in many ways. 
 
-But not always; we cannot [always] believe in that way. For instance, even though you feel melancholy, if you see the beautiful morning sun rising – you feel good! Don’t you think so? Wonderful. So we do not always create our environment by our feelings; sometimes, the object creates you. Even though you feel sad, if you see the morning sun rising, you feel great! You feel how beautiful it is. 
+But not always; we cannot [always] believe in that way. For instance, even though you feel melancholy, if you see the beautiful morning sun rising – you feel good! Don’t you think so? Wonderful. So we do not always create our environment by our feelings; sometimes, the object creates you. Even though you feel sad – if you see the morning sun rising, you feel great! You feel how beautiful it is. 
 
 ##### 38:47
 
-According to empathy ... that understanding is a mistake, a misunderstanding, because if morning sunlight makes you happy, at that time you believe a morning sun rising has a mind, as well as your mind. According to empathy, psychology, this is a misunderstanding, this is a [delusion](glossary#delusion), because you project yourself into the morning sun and then you believe that it seems to have a mind, but actually it is the morning sun, apart from you. That is the psychological understanding, but that is a misunderstanding broadly speaking, because we distinguish between subject and object. If you always see or accept subject and object separately, there is not a warm feeling of the world, not a feeling of warmness [in] communicating between the subject and object. 
+According to empathy ... that understanding is a mistake, a misunderstanding, because if morning sunlight makes you happy, at that time you believe a morning sun rising has a mind, as well as your mind. According to empathy [in] psychology, this is a misunderstanding, this is a [delusion](glossary#delusion), because you project yourself into the morning sun and then you believe that it seems to have a mind, but actually it is the morning sun, apart from you. That is the psychological understanding, but that is a misunderstanding broadly speaking, because we distinguish between subject and object. If you always see or accept subject and object separately, there is not a warm feeling of the world, not a feeling of warmness [in] communicating between the subject and object. 
 
 So an important point is, if you see the morning sun and the morning sun makes you happy, at that time, whatever you think intellectually, morning sun has mind, has a feeling. That feeling is completely universal. That feeling is something through which we can have mutual rapport between the morning sun and you. Psychologically, this is universal consciousness, or according to Buddhism, that is [Buddha Nature](glossary#buddha-nature). So, the morning sun, the subject, trees, all sentient beings, have feeling, universal feeling, as well as we have. That’s why we can communicate with each other. 
 
@@ -155,7 +153,7 @@ Through the wisdom, you don’t participate in your object, but, through the wis
 
 *[Tape change.]*
 
-... another one is, [aesthetic contemplation](glossary#aesthetic-contemplation). This is kind of a religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
+... This is kind of a religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
 
 Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because ... you merge yourself into your object with your wisdom. Not carelessly; you don’t participate at random. You participate in it very carefully, with wisdom. You merge yourself into your object.
 
@@ -177,15 +175,17 @@ So it really depends on your attitude, how to participate in your activity. Some
 
 That’s why it says, “If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’”
 
-The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. So that means, no perception of the subject, no perception of the object. That means, if you study at school in order to get a masters degree or Ph.D. – get a degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave Ph.D. for the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud of yourself too much: “I am doctor.” You are not doctor. “I am doctor. Student, I am teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
+The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. So that means, no perception of the subject, no perception of the object. 
 
-That [makes it] pretty hard to communicate with each other, so – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So: forget it. All you have to do is forget it, and share your life with all sentient beings.
+That means, if you study at school in order to get a masters degree or Ph.D. – get a degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave Ph.D. for the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud of yourself too much: “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
+
+That [makes it] pretty hard to communicate with each other, so – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
 
 Do you have questions?
 
 Do you understand provisional being? 
 
-*[A few quiet chuckles.]*
+*[There are a few quiet chuckles.]*
 
 ##### 56:18
 
@@ -209,9 +209,9 @@ Do you understand provisional being?
 
 **Katagiri**: *[Calls on someone to help out.]*
 
-**Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people weren’t real. If somebody comes up to you and starts chopping at you... [*Laughter.*]
+**Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people weren’t real. If somebody comes up to you and starts chopping at you... *[Laughter.]*
 
-**Katagiri**: Well, don’t commit suicide. [*Laughter.*] Because someone chops your neck and your hands; if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* No; provisional being is a possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
+**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because someone chops your neck and your hands; if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
 
 So, if you believe all sentient beings as just provisional beings, intellectually – well, someone can come and chop your neck, [and you say,] “Okay, you’re a provisional being.” It’s ridiculous! *[Laughter.]* 
 
