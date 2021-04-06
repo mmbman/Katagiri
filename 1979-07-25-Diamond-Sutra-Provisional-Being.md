@@ -10,6 +10,8 @@
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Listen to the original recording</a>
 
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-provisional-being/" target="_blank">Listen to the transcript read by Kikan</a>
+
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
