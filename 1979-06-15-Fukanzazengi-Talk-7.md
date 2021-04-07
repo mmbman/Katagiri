@@ -7,7 +7,7 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-#### Description: The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
+#### The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-7" target="_blank">Listen to the original recording</a>
 
