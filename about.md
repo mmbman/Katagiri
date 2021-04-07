@@ -8,10 +8,9 @@
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
-
 ## Podcast Description
 
-Dainin Katagiri Roshi was one of the pioneers who brought Zen Buddhism from Japan to the United States. (“Roshi” means “respected elder teacher.”) Katagiri Roshi’s talks, recorded from 1979 to 1989, contain a huge volume of material not included in the four books compiled from his teachings. Audio recordings of his talks are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since Katagiri was a non-native speaker and the recording quality varied, he can be difficult to understand. To translate “enthusiastic but somewhat jumbled English” to “fluent English,” here these talks are carefully transcribed and read by second-generation student Kikan Michael Howard. New episodes will be posted regularly, going through the talks in order.
+Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to America. Audio recordings of his talks, recorded from 1979 to 1989, are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since Katagiri was a non-native speaker and the recording quality varied, he can be difficult to understand. Here these talks are carefully transcribed and read by second-generation student Kikan Michael Howard, with the intention of staying as true as possible to Katagiri Roshi's words, while polishing up the grammar to make them more understandable. New episodes will be posted regularly, going through the talks in order.
 
 [Katagiri Transcripts Podcast](https://katagiritranscripts.podbean.com)
 
