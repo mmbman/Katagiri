@@ -7,6 +7,7 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6
 ## June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
+#### Description: Katagiri Roshi talks about “body and mind dropping off” from a different angle, from a psychological point of view. This talk focuses on samskara, which is usually translated as ‘impulses’, one of the five skandhas or ‘aggregates’. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to his knowledge and perceptions?” During a challenging discussion on the ‘forces’ of prāpti and aprāpti, he tells a story about the 1948 Fukui earthquake in Japan.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-6" target="_blank">Listen to the original recording</a>
 
@@ -15,7 +16,7 @@
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+##### start of recording
 
 [We] talked about [zazen](glossary#zazen) based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to [look at] this from a pretty different angle, that is sort of from the psychological point of view. 
 

@@ -7,8 +7,7 @@
 # Diamond Sutra: Provisional Being
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-
-Description: *Why shouldn’t we be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi explains the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of provisional being, and how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.*
+#### Description: Why shouldn’t we be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi explains the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of provisional being, and how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Listen to the original recording</a>
 
@@ -17,7 +16,7 @@ Description: *Why shouldn’t we be disappointed with this world, if there seems
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+##### start of recording
 
 There must be a person who tries to establish a peaceful world, always. When you see the world, it’s pretty difficult for us to see a beautiful aspect of the human world. At that time, in many cases, we are disappointed. But according to [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of [Buddha](glossary#buddha)’s ten major disciples, asks him, “How do we teach the Buddha’s teaching, which seems to be complicated – particularly in the confused world?” Buddha says, “There must be even one person who tries to teach Buddha’s teaching under all circumstances.” 
 

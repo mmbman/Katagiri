@@ -7,7 +7,6 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1
 ## June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-
 #### Description: Katagiri Roshi begins this series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Listen to the original recording</a>
@@ -17,7 +16,7 @@
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+##### start of recording
 
 The last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says, “For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” *[He repeats the quote.]* 
 

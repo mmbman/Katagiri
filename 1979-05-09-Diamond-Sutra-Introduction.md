@@ -7,8 +7,7 @@
 # Diamond Sutra: Introduction
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-
-Description: *Katagiri Roshi introduces a series of talks on the Diamond Sutra. And he answers the question, “If we are sitting in order to help ourselves, should we stop sitting?”*
+#### Description: Katagiri Roshi introduces a series of talks on the Diamond Sutra. And he answers the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/05-1979" target="_blank">Listen to the original recording</a>
 

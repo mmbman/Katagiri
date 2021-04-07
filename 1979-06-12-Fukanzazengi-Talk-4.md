@@ -7,6 +7,7 @@
 # Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4
 ## June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
+#### Description: Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Listen to the original recording</a>
 
@@ -15,7 +16,7 @@
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+##### start of recording
 
 Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn [this]:
 
