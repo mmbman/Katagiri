@@ -8,6 +8,8 @@
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
 
+*Description: Why shouldn’t we be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi explains the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of provisional being, and how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.*
+
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Listen to the original recording</a>
 
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-provisional-being/" target="_blank">Listen to the transcript read by Kikan</a>
@@ -201,7 +203,9 @@ Do you understand provisional being?
 
 **Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people weren’t real. If somebody comes up to you and starts chopping at you... *[Laughter.]*
 
-**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because someone chops your neck and your hands; if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
+**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because someone chops your neck and your hands; if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* 
+
+No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
 
 So, if you believe all sentient beings as just provisional beings, intellectually – well, someone can come and chop your neck, [and you say,] “Okay, you’re a provisional being.” It’s ridiculous! *[Laughter.]* 
 
