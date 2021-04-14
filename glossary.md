@@ -992,6 +992,8 @@ External links:
 - [Wikipedia: Sāvakabuddha](https://en.wikipedia.org/wiki/Sāvakabuddha)
 
 ---
+## Satori
+
 ## Seppō
 
 See [Seppō Gison](#seppō-gison)
