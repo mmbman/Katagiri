@@ -41,11 +41,11 @@ The second is satori. Satori is a little deeper than the experience of awareness
 
 In your daily living, maybe your attitude gradually becomes very gentle, compassionate to everybody. But still this satori is not good enough, because it is still something which is going on at the conscious level. Sometimes you handle this satori at the conscious level, sometimes you can get out of the conscious level, but still, sometimes it goes back and forth. So it’s still very difficult for us to experience perfect stability in our daily living. 
 
-That is satori. Usually people understand [this] then cultivate the experience of satori. [Zen practice](glossary#zen-practice ) gives [us] a chance to experience satori, and then that is the final goal we are aiming at. But this is not the final goal, because the experience of satori is still tinged with something intellectual, which is going on at the subconscious level. 
+That is satori. Usually people understand Zen [as] cultivating the experience of satori. [Zen practice](glossary#zen-practice ) gives [us] a chance to experience satori, and then that is the final goal we are aiming at. But this is not the final goal, because the experience of satori is still tinged with something intellectual, which is going on at the subconscious level. 
 
 ##### 11:27
 
-The final goal is that you must be free from the experience of satori. That is the third, the one which is called ‘sho’, which literally means ‘verification’. Verification which is called ‘sho’ is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
+The final goal is that you must be free from the experience of satori. That is the third, the one which is called ‘sho’, *[he spells it out,]* which literally means ‘verification’. Verification which is called ‘sho’ is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
 
 That is the third one, which is called ‘sho’, usually translated as realization. This third [enlightenment](glossary#enlightenment) is the highest spiritual level, [in] which you can be free from awareness and satori. So, there is no trace of satori, no trace of awareness. That is called sho, verification, because you are already one with the original nature of existence, even though you don’t realize it. You are already right in the middle of the nature of existence. 
 
@@ -61,7 +61,7 @@ So let’s see about this utmost, right, perfect [enlightenment](glossary#enligh
 
 The commentary by [Conze](glossary#edward-conze) says: 
 
-> “Mahayanists are fond of saying that [Buddha](glossary#buddha)’s enlightenment is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn’t be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in “The Version in 8,000 Lines” may throw light on it, and show the connection with the basic doctrines of (1) the marklessness of all things, (2) of their [emptiness](glossary#śūnyatā), and (3) of their Suchness.” (Transcriber’s Note: Katagiri Roshi phrases this last part as “the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness.”)
+> “Mahayanists are fond of saying that [Buddha](glossary#buddha)’s enlightenment is not real fact, and that likewise, the [Dharma](glossary#dharma) preached by the Buddha shouldn’t be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in “The Version in 8,000 Lines” may throw light on it, and show the connection with the basic doctrines of, first, the marklessness of all things, second, the marklessness of their emptiness, and third, the marklessness of their suchness.” (Transcriber’s Note: The current version of the book says, “(1) the marklessness of all things, (2) of their [emptiness](glossary#śūnyatā), and (3) of their Suchness.”)
 
 So let’s understand, let’s think, one by one.
 
@@ -73,7 +73,9 @@ So let’s understand, let’s think, one by one.
 
 This is the explanation of the first point, “the marklessness of all things”. That means all things are based on [emptiness](glossary#śūnyatā), exactly emptiness. 
 
-[Emptiness](glossary#śūnyatā) means, the original nature of existence is that which exists constantly without any reason. If you say “why do we exist,” you have to answer, “we exist to eat,” “we exist to work,” “we work to live” – whatever you say. But, this answer to the question “why” doesn’t hit the mark, what the original nature of existence is, because the original nature of existence is exactly emptiness. In [Buddhism](glossary#buddhism), I always tell you, emptiness doesn’t mean something in vain. Emptiness is total dynamic working. The original nature of existence is constantly, totally working in dynamism, without leaving any trace, without getting any ideas. You cannot catch it. That is original nature of existence. So, if you ask yourself why do you exist in this world as American, as Japanese, as a Buddhist, as a Christian – well, we don’t understand. Of course, you can answer this question “why” – but even though you get an answer to this question “why,” that answer is not good enough. Still there are lots of things you don’t understand. 
+[Emptiness](glossary#śūnyatā) means, the original nature of existence is that which exists constantly without any reason. If you say “why do we exist,” you have to answer, “we exist to eat,” “we exist to work,” “we work to live” – whatever you say. But, this answer to the question “why” doesn’t hit the mark, what the original nature of existence is, because the original nature of existence is exactly emptiness. 
+
+In [Buddhism](glossary#buddhism), I always tell you, emptiness doesn’t mean something in vain. Emptiness is total dynamic working. The original nature of existence is constantly, totally working in dynamism, without leaving any trace, without getting any ideas. You cannot catch it. That is original nature of existence. So, if you ask yourself why do you exist in this world as American, as Japanese, as a Buddhist, as a Christian – well, we don’t understand. Of course, you can answer this question “why” – but even though you get an answer to this question “why,” that answer is not good enough. Still there are lots of things you don’t understand. 
 
 Strictly speaking, whatever answer you get to the question “why” you exist in this world as American – before you answer this question, or before you make answer of why, you are already absolute being. You already exist. No reason. Before you make a question, you exist already. You have to get an answer to this reality, before you may question “why”. 
 
@@ -85,9 +87,9 @@ One of the German poets said, “A rose exists without any reason. A rose blooms
 
 (Transcriber’s Note: The quote is from Angelus Silesius (Johann Scheffler), German mystic, 1624-1677. “The rose is without ‘why’; it blooms simply because it blooms. It pays no attention to itself, nor does it ask whether anyone sees it.”)
 
-Rose exists without any reason. I think so: rose exists without any reason, why the rose blooms in the beautiful, big garden, or in a small garden, or wherever. Or you say to a rose, “How happy you are. Wonderful, happy rose, you are.” Whatever you say, this is coming from human speculation. 
+Rose exists without any reason. I think so: rose exists without any reason. Why the rose blooms in a beautiful, big garden, or in a small garden, or wherever. Or you say to a rose, “How happy you are. Wonderful, happy rose, you are.” Whatever you say, this is coming from human speculation. 
 
-Human speculation doesn’t hit the mark, existence itself – *the rose*. Before you say whatever it is, rose exists! Rose exists. Tiny flowers, poppy seeds, blooms in the heart of the mountain. You say, “Oh, poor, beautiful flowers.” But this is something ‘extra’. Whatever you say to a flower: “You are okay,” or “Let’s bloom there.” Or you say, “I don’t care.” Or you say, “Thank you very much, blooming flower in front of me, in the heart of the mountain.” Whatever you say, it doesn’t hit the mark, [the] bullseye. Before you say, “Little flowers bloom in the heart of the mountain,” already the beautiful flower’s own life force blooms. This is the life of the little flower itself. So, the tiny flower exists, without any reason. 
+Human speculation doesn’t hit the mark, existence itself, *the rose*. Before you say whatever it is, rose exists! Rose exists. Tiny flowers, poppy seeds, bloom in the heart of the mountain. You say, “Oh, poor, beautiful flowers.” But this is something ‘extra’. Whatever you say to a flower: “You are okay,” or “Let’s bloom there.” Or you say, “I don’t care.” Or you say, “Thank you very much, blooming flower in front of me, in the heart of the mountain.” Whatever you say, it doesn’t hit the mark, [the] bullseye. Before you say, “Little flowers bloom in the heart of the mountain,” already the beautiful flower’s own life force blooms. This is the life of the little flower itself. So, the tiny flower exists, without any reason. 
 
 This is [emptiness](glossary#śūnyatā). Emptiness means, no reason. With no reason, everything exists as it really is. And then, when your consciousness starts work, and consciousness catches your existence objectively, at that time, you create lots of things: toward, like, dislike, good, bad; whatever it is. Many things come up. 
 
@@ -95,11 +97,11 @@ The utmost, perfect, right [enlightenment](glossary#enlightenment) is the nature
 
 ##### 29:51
 
-And consciousness works only if you don’t feel satisfactory, if you want to *be* something – [for example,] a certain teacher, in a certain state of your life. If you don’t satisfy yourself. In other words, if you see this book and start to read the book, if you understand [it] pretty well, then each word jumps into your heart, every time when you read. At that time, no gap [exists] between the book and you. But if you don’t understand – immediately you don’t satisfy [yourself]. So if you don’t satisfy, there is a gap, which is called “psychic crack”, through which cold wind blows in. And then at that time, that is unsatisfaction. And then this psychic crack calls consciousness “book”. Do you understand? 
+And consciousness works only when you don’t feel satisfactory, if you want to *be* something – [for example,] a certain teacher, in a certain state of your life – if you don’t satisfy yourself. In other words, if you see this book and start to read the book, if you understand [it] pretty well, then each word jumps into your heart, every time when you read. At that time, [there is] no gap between the book and you. But if you don’t understand – immediately you don’t satisfy [yourself]. So if you don’t satisfy, there is a gap, which is called “psychic crack”, *[there is some laughter,]* through which cold wind blows in. And then at that time, that is unsatisfaction. And then this psychic crack calls consciousness “book”. Do you understand? 
 
 And then you say, “What’s that? What is this book?” And then you still encourage yourself to continue to read. “Come on, read. You want to be a good Buddhist. If you want to be a good Buddhist, let’s read.” So read, read, read; again and again, even though you don’t understand. So, your mind is continually busy. Busy, busy, busy. But when you understand *exactly*: nothing, no consciousness. Consciousness stops, exactly stops. 
 
-You experience this in your daily living. I sometimes [take a] trip to Omaha by airplane. When I am in the airplane, well, my consciousness doesn’t work, my consciousness completely stops. To know where I am, or what’s going on; I don’t know. Just be one with the airplane. But sometimes something happens, all of a sudden, when the airplane is in an air pocket: *Boom*. “What’s that?” Then at that time, I don’t feel satisfied. In that situation, immediately there is a gap between airplane and I. So that is “psychic crack”. And then cold wind blows into me: “Oh my, I don’t want to die!” *[Laughter.]* Or, if you see something through the window, immediately you can create a psychic crack, because you can see many things moving. So you see, “Oh, I am in an airplane.” But if you are completely one with the airplane, consciousness completely stops. That’s wonderful. But, consciousness doesn’t disappear. It’s there, but it stops. Consciousness doesn’t vanish. 
+You experience this in your daily living. I sometimes [take a] trip to Omaha by airplane. When I am in the airplane, well, my consciousness doesn’t work, my consciousness completely stops. To know where I am, or what’s going on; I don’t know. Just be one with the airplane. But sometimes something happens, all of a sudden, when the airplane is in an air pocket, and [then], *boom*. “What’s that?” Then at that time, I don’t feel satisfied. In that situation, immediately there is a gap between airplane and I. So that is “psychic crack”. And then cold wind blows into me: “Oh my, I don’t want to die!” *[Laughter.]* Or, if you see something through the window, immediately you can create a psychic crack, because you can see many things moving. So you see, “Oh, I am in an airplane.” But if you are completely one with the airplane, consciousness completely stops. That’s wonderful. But, consciousness doesn’t disappear. It’s there, but it stops. Consciousness doesn’t vanish. 
 
 The original nature of existence is just like oneness right in the middle of the airplane. That’s all. This is original nature of existence, in which you are present constantly. But when you don’t satisfy this, immediately you create a psychic crack, consciousness starts to work. And then consciousness continually works, on and on. Finally, we create what is called “Buddhist Psychology”. *[There are a couple soft laughs.]* A *Huge* system of Buddhist Psychology, which is called [Abhidharma](glossary#abhidharma). *[He chuckles.]* Abhidharma – *huge*. 
 
@@ -109,17 +111,17 @@ And then this is called “the marklessness of all things”. Completely emptine
 
 ##### 36:32
 
-That is [emptiness](glossary#śūnyatā). And the second is “the marklessness of their emptiness”. 
+That is [emptiness](glossary#śūnyatā). And the second is “the marklessness of their emptiness.” 
 
-If we say the original nature of existence is characterized by emptiness, immediately we don’t understand it. So, we create a psychic crack, and your consciousness works, and you think of it, analyze it, synthesize it – what emptiness is. That means, you are stuck in the realm of emptiness, in the realm of oneness. 
+If we say the original nature of existence is characterized by emptiness, immediately we don’t understand it. So, we create a psychic crack, and your consciousness works, and you think of it, analyze it, synthesize it: what emptiness is. That means, you are *stuck* in the realm of emptiness, in the realm of oneness. 
 
 If you’re stuck in the oneness, it is not oneness, it is already two. Oneness is just one only, not two. If we say “The universe is one,” we say, “Yes; I understand it.” But that is already two. Do you understand? *[He laughs, and some people laugh.]*
 
-We say, “Yes, I understand.” “Yes, I understand” is *part* of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say “I understand,” next moment, you don’t understand. Emptiness. “I studied for many many years about emptiness. I understand emptiness today.” Next day, someone asks me from a different angle about emptiness: “I don’t understand.” 
+We say, “Yes, I understand.” “Yes, I understand” is *part* of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say “I understand,” next moment, you don’t understand. [You say,] “I studied for many, many years about emptiness. I understand emptiness today.” Next day, someone asks you from a different angle about emptiness: “I don’t understand.” 
 
 We chant in Prajnaparamita, wisdom, and emptiness, or [impermanence](glossary#impermanence) – lots of terms, Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it’s not *broad*. If someone asks us about it from a different angle we have never seen, we don’t understand it. So, even though you say “I understand emptiness,” it is not good enough, because still emptiness does not work in your daily living. So you’re pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness. Emptiness is *something*. Already it’s not emptiness. [Emptiness](glossary#śūnyatā) is perfectly emptiness. Perfect emptiness is dynamical working. 
 
-That is “the marklessness of their emptiness”. You cannot believe any form of emptiness you have understood. Finally, “the marklessness of their emptiness” means, formlessness. That means, concretely speaking, openness. Openness ... to manifest the original nature of existence, [emptiness]. Openness to accommodate conditioned elements, conditioned situations; to work freely. Or, openness is *straightforwardness* toward the emptiness, toward the truth, constantly.
+That is “the marklessness of their emptiness”. You cannot believe any form of emptiness you have understood. Finally, “the marklessness of their emptiness” means, formlessness. That means, concretely speaking, openness. Openness ... to manifest the original nature of existence, [emptiness]. Openness to accommodate to conditioned elements, conditioned situations. To work freely. Or, openness is *straightforwardness* toward emptiness, toward the truth, constantly.
 
 ##### 41:45
 
@@ -127,13 +129,13 @@ In your daily living, if you read this book on [Diamond Sutra](glossary#diamond-
 
 But whatever kind of bubbles you can see, all you have to do is not to [leave] any form of a certain bubble, or [say], “I see *this* bubble,” or “I see *that* bubble.” You stop there. But, don’t stop there. Just see the bubbles. Basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#śūnyatā). 
 
-Stability in the realm of emptiness is a very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like – okay. Dislike – okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
+Stability in the realm of emptiness is a very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like: okay. Dislike: okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
 
 That is marklessness of emptiness. Formlessness. Openness. Continually, your heart and your mind must be open. [Open] to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
 
 ##### 45:03
 
-And third, “the marklessness of their suchness”. So finally, all you have to do is just continue to do it. That is which is called *obedience*: just to follow. Just to follow life.
+And third, “the marklessness of their suchness.” So finally, all you have to do is just continue to do it. That is what is called *obedience*: just to follow. Just to follow life.
 
 Everyone has karmic life. This karmic life is completely beyond good or bad, right and wrong. Whatever kind of karmic life, you should totally accept karmic life. If you totally accept karmic life, and really take care of your daily living – moving toward the future, planting a good seed toward the future – at that time, the karmic life which you have accumulated will disappear, very naturally. Because, you continue to plant good seeds for future life, day after day. So, the karmic life which you have accumulated will disappear.
 
@@ -143,12 +145,12 @@ Everyone has karmic life. This karmic life is completely beyond good or bad, rig
 
 ... But *if* it is necessary: *just accept*. If you cannot escape from it, just accept. 
 
-If you think, “I don’t like meditation,” or “I *like* meditation,” or “I don’t know,” or “I don’t know what meditation is, good or bad, right or wrong” – if you think so, your life is really unstable. So, if your life is really unstable, it’s pretty difficult for us to get the chance to plant a good seed from day to day toward the future. So if there is no escape from meditation, you should accept it totally. And then [an] important point [is], if you do it, you really feel relief. And then, if you feel really relieved, you can be one with your life, your real life. If you be one with your life, I told you before, there is no psychic crack. If you create a psychic crack – “I don’t like meditation,” or “I like meditation,” or “I don’t know whether it is good or bad” – this is already creation of a psychic crack. If it is necessary, *[unintelligible]*.
+If you think, “I don’t like meditation,” or “I *like* meditation,” or “I don’t know,” or “I don’t know what meditation is, good or bad, right or wrong” – if you think so, your life is really unstable. So, if your life is really unstable, it’s pretty difficult for us to get the chance to plant a good seed from day to day toward the future. So if there is no escape from meditation, you should accept it totally. And then [an] important point [is], if you do it, you really feel relief. And then, if you feel really relieved, you can be one with your life, your real life. If you be one with your life, I told you before, there is no psychic crack. If you create a psychic crack – “I don’t like meditation,” or “I like meditation,” or “I don’t know whether it is good or bad” – this is already creation of a psychic crack. If it is necessary, [accept it].
 
-Then, maybe meditation hurts your body and mind. Well, it is not alright – but it is not bad. Still there is a chance to take care of your life with your best. Yes there is. Right in the middle of meditation, still there is a chance to take care of your life with your best, planting a good seed toward the future. At that time, there is no chance to create a psychic crack. You become one with your life. If it is true, you feel *good*. You feel relief. 
+Then, maybe meditation hurts your body and mind. Well, it is not alright, it is not okay – but it is not bad. Still there is a chance to take care of your life with your best. Yes there is. Right in the middle of meditation, still there is a chance to take care of your life with your best, planting a good seed toward the future. At that time, there is no chance to create a psychic crack. You become one with your life. If it is true, you feel good. You feel relief. 
 
 That is the third one, “the marklessness of their suchness”. Here ‘suchness’ means 
-‘obedience’. Obedience means just to follow. Just to follow means, the rose blooms just to bloom. No reason. 
+‘obedience’. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
 
 ##### 50:11
 
@@ -180,13 +182,13 @@ So emptiness is very important for us. A more positive, affirmative term is, I t
 
 > “It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma.”
 
-Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no ‘mark’ of its own, no mark. That is [emptiness](glossary#śūnyatā). Truth cannot be described by a word. So you cannot describe truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something; it’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something ‘extra’. Emptiness is completely absent.
+Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no ‘mark’ of its own, no mark. That is [emptiness](glossary#śūnyatā). Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something. It’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something ‘extra’. Emptiness is completely absolute.
 
 Next, 
 
 > “And why? Because an absolute exalts the holy person.” 
 
-That is the absolute. The original nature of existence *exalts* your life. Under all circumstances, whatever you think, like or dislike, this absolute takes care of you. 
+Exalts: that is the absolute. The original nature of existence *exalts* your life. Under all circumstances, whatever you think, like or dislike, this absolute takes care of you. 
 
 The commentary by [Doctor Conze](glossary#edward-conze) says: (pp. 34) 
 
@@ -196,11 +198,9 @@ The absolute, or the truth, is the unconditioned. Well, the unconditioned means 
 
 > ... it means here that which cannot be discriminated. With an obvious and deliberate disregard for logic the Sutra claims that this unrelated Absolute can enter into a relation with certain persons. This is a difficult idea, and a difficult word is chosen to express it. **Exalts** – the word (prabhavita) contains a great wealth of meaning, and “exalts” is the best I can do. One could also say, “are glorified by,” “draw their strength from,” “owe their distinction to,” or “derive their dignity from.” The idea is that the holy persons have “arisen” from the Unconditioned, have been “produced” from it, are “brought forth” by it. 
 
-So, the absolute, the unconditioned, the original nature of existence [inherent] in all beings, exalts your life – basically. Giving encouragement to you, giving strength to you, giving dignity to you, constantly. This is [the] absolute. So, from this point, we are already right in the middle of this. All we have to do is just continually be present with this absolute. Absolute means, completely, under all circumstances, as much as possible, you should stand up straight, with stability and confidence. Your consciousness tells you whatever it is – “you are a good boy” or “bad boy”, whatever it is – anyway, you should be stable, stand up straight, and continue to take care of your life.
+So, the absolute, the unconditioned, the original nature of existence [inherent] in all beings, exalts your life – basically. Giving encouragement to you, giving strength to you, giving dignity to you, constantly. This is [the] absolute. So, from this point, we are already right in the middle of this. All we have to do is just continually be present with this absolute. Absolute means, completely, under all circumstances, as much as possible, you should stand up straight, with stability and confidence. Your consciousness tells you whatever it is – “you are a good boy” or “bad boy”, whatever it is – anyway, you should be stable, stand up straight, and continue to take care of your life. And then, finally, you can really experience what is called spiritual stability. 
 
-And then, finally, you can really experience what is called spiritual stability. 
-
-Do you have any questions? 
+Do you have any questions?
 
 ##### 1:06:00
 
