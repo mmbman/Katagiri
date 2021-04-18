@@ -97,7 +97,9 @@ The utmost, perfect, right [enlightenment](glossary#enlightenment) is the nature
 
 ##### 29:51
 
-And consciousness works only when you don’t feel satisfactory, if you want to *be* something – [for example,] a certain teacher, in a certain state of your life – if you don’t satisfy yourself. In other words, if you see this book and start to read the book, if you understand [it] pretty well, then each word jumps into your heart, every time when you read. At that time, [there is] no gap between the book and you. But if you don’t understand – immediately you don’t satisfy [yourself]. So if you don’t satisfy, there is a gap, which is called “psychic crack”, *[there is some laughter,]* through which cold wind blows in. And then at that time, that is unsatisfaction. And then this psychic crack calls consciousness “book”. Do you understand? 
+And consciousness works only when you don’t feel satisfactory, if you want to *be* something – [for example,] a certain teacher, in a certain state of your life – if you don’t satisfy yourself. 
+
+In other words, if you see this book and start to read the book, if you understand [it] pretty well, then each word jumps into your heart, every time when you read. At that time, [there is] no gap between the book and you. But if you don’t understand – immediately you don’t satisfy [yourself]. So if you don’t satisfy, there is a gap, which is called “psychic crack”, *[there is some laughter,]* through which cold wind blows in. And then at that time, that is unsatisfaction. And then this psychic crack calls consciousness “book”. Do you understand? 
 
 And then you say, “What’s that? What is this book?” And then you still encourage yourself to continue to read. “Come on, read. You want to be a good Buddhist. If you want to be a good Buddhist, let’s read.” So read, read, read; again and again, even though you don’t understand. So, your mind is continually busy. Busy, busy, busy. But when you understand *exactly*: nothing, no consciousness. Consciousness stops, exactly stops. 
 
@@ -125,9 +127,9 @@ That is “the marklessness of their emptiness”. You cannot believe any form o
 
 ##### 41:45
 
-In your daily living, if you read this book on [Diamond Sutra](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, [which] you have to take care of. Under all circumstances, whether you like or dislike [it], you have to take care [of it]. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, [like] “you have to read this”: that is your life. If it is true, you have to continue to read. Continue to read. And then, in the process of reading, there are lots of experiences: like or dislike, understand or not understand. Lots of bubbles come up, and pop. Next moment, different bubbles come up, and pop. Always there. 
+In your daily living, if you read this book on [Diamond Sutra](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, [which] you have to take care of. Under all circumstances, whether you like or dislike [it], you have to take care [of it]. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, [like] “you have to read this”: that is your life. If it is true, you have to continue to read. Continue to read. 
 
-But whatever kind of bubbles you can see, all you have to do is not to [leave] any form of a certain bubble, or [say], “I see *this* bubble,” or “I see *that* bubble.” You stop there. But, don’t stop there. Just see the bubbles. Basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#śūnyatā). 
+And then, in the process of reading, there are lots of experiences: like or dislike, understand or not understand. Lots of bubbles come up, and pop. Next moment, different bubbles come up, and pop. Always there. But whatever kind of bubbles you can see, all you have to do is not to [leave] any form of a certain bubble, or [say], “I see *this* bubble,” or “I see *that* bubble.” You stop there. But, don’t stop there. Just see the bubbles. Basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#śūnyatā). 
 
 Stability in the realm of emptiness is a very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like: okay. Dislike: okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
 
@@ -135,7 +137,9 @@ That is marklessness of emptiness. Formlessness. Openness. Continually, your hea
 
 ##### 45:03
 
-And third, “the marklessness of their suchness.” So finally, all you have to do is just continue to do it. That is what is called *obedience*: just to follow. Just to follow life.
+And third, “the marklessness of their suchness.” 
+
+So finally, all you have to do is just continue to do it. That is what is called *obedience*: just to follow. Just to follow life.
 
 Everyone has karmic life. This karmic life is completely beyond good or bad, right and wrong. Whatever kind of karmic life, you should totally accept karmic life. If you totally accept karmic life, and really take care of your daily living – moving toward the future, planting a good seed toward the future – at that time, the karmic life which you have accumulated will disappear, very naturally. Because, you continue to plant good seeds for future life, day after day. So, the karmic life which you have accumulated will disappear.
 
@@ -145,12 +149,11 @@ Everyone has karmic life. This karmic life is completely beyond good or bad, rig
 
 ... But *if* it is necessary: *just accept*. If you cannot escape from it, just accept. 
 
-If you think, “I don’t like meditation,” or “I *like* meditation,” or “I don’t know,” or “I don’t know what meditation is, good or bad, right or wrong” – if you think so, your life is really unstable. So, if your life is really unstable, it’s pretty difficult for us to get the chance to plant a good seed from day to day toward the future. So if there is no escape from meditation, you should accept it totally. And then [an] important point [is], if you do it, you really feel relief. And then, if you feel really relieved, you can be one with your life, your real life. If you be one with your life, I told you before, there is no psychic crack. If you create a psychic crack – “I don’t like meditation,” or “I like meditation,” or “I don’t know whether it is good or bad” – this is already creation of a psychic crack. If it is necessary, [accept it].
+If you think, “I don’t like meditation,” or “I *like* meditation,” or “I don’t know,” or “I don’t know what meditation is, good or bad, right or wrong” – if you think so, your life is really unstable. If your life is really unstable, it’s pretty difficult for us to get the chance to plant a good seed from day to day toward the future. So if there is no escape from meditation, you should accept it totally. And then [an] important point [is], if you do it, you really feel relief. If you feel really relieved, you can be one with your life, your real life. If you be one with your life, I told you before, there is no psychic crack. “I don’t like meditation,” or “I like meditation,” or “I don’t know whether it is good or bad” – this is already creation of a psychic crack. If it is necessary, [accept it].
 
 Then, maybe meditation hurts your body and mind. Well, it is not alright, it is not okay – but it is not bad. Still there is a chance to take care of your life with your best. Yes there is. Right in the middle of meditation, still there is a chance to take care of your life with your best, planting a good seed toward the future. At that time, there is no chance to create a psychic crack. You become one with your life. If it is true, you feel good. You feel relief. 
 
-That is the third one, “the marklessness of their suchness”. Here ‘suchness’ means 
-‘obedience’. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
+That is the third one, “the marklessness of their suchness”. Here ‘suchness’ means ‘obedience’. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
 
 ##### 50:11
 
@@ -243,7 +246,7 @@ That’s why you can [survive] for many years, and you should be appreciative. Y
 **Katagiri**: More questions?
 
 If you don’t have more questions, I want to tell you one thing. At Omaha Zen Center, they will have the opening ceremony of the new [zendo](glossary#zendo) on September 9th. So they need lots of help. I want to get some volunteers to help Omaha Zen Center before the opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don’t know when, it depends on the numbers of the volunteers.
-
+ 
 ##### 1:10:15 end of recording
 
 ---
