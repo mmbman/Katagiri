@@ -157,15 +157,15 @@ That is the third one, “the marklessness of their suchness”. Here ‘suchnes
 
 ##### 50:11
 
-Why do you exist in this world? I don’t know. “I don’t know” means not “I don’t know”; “I don’t know” means “I know” *and* “I don’t know,” [both]. “I don’t know” means, completely to accept the total picture of what you don’t know or what you know. 
+Why do you exist in this world? I don’t know. “I don’t know” does not mean “I don’t know”; “I don’t know” means “I know” *and* “I don’t know,” [both]. “I don’t know” means, completely to accept the total picture of what you don’t know or what you know. 
 
 And then, why do you exist? Why do you live in this world? You live to work? Or you work to live? Or you make money to live? Or you live to make money? Or you live to be happy? Whatever it is – it doesn’t hit the mark. That is just a part of the purpose of your life. The total purpose of your life is – no reason. Just to live. No reason. That’s why the truth to live is, just to live. Just to live.
 
 That’s why the German poet says, “the rose exists without any reason.” And finally, “the marklessness of their suchness” means you should throw away “without any reason”. And then finally, the rose blooms just to bloom. 
 
-If you say, “Katagiri exists without any reason,” this is still logical explanation, according to a philosophical understanding which is called [emptiness](glossary#śūnyatā). “The original nature of Katagiri is completely emptiness,” so “I exist [without] any reason”: this is still logical explanation. The second [marklessness], “marklessness of emptiness” – that means formlessness. Openness means throw away the term “without any reason”.
+If you say, “Katagiri exists without any reason,” this is still logical explanation, according to a philosophical understanding which is called [emptiness](glossary#śūnyatā). “The original nature of Katagiri is completely emptiness,” so “I exist [without] any reason”: this is still logical explanation. The second [marklessness], “marklessness of emptiness” – that means formlessness. Openness means throw away the term “without any reason”. At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. 
 
-At that time, [the] third [marklessness], you can just bloom. Just bloom, to bloom. This is emptiness. If you understand [Buddha](glossary#buddha) – Buddha experiences *this* [enlightenment](glossary#enlightenment). That’s why [Subhuti](glossary#subhuti) says, “The [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known or demonstrated, it cannot be grasped.” If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely the absolute. Absolute is one, just one. 
+This is emptiness. If you understand [Buddha](glossary#buddha) – Buddha experiences *this* [enlightenment](glossary#enlightenment). That’s why [Subhuti](glossary#subhuti) says, “The [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known or demonstrated, it cannot be grasped.” If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely the absolute. Absolute is one, just one. 
 
 One is not something you can think or you can grab. When you think, when you experience, when you “get it,” it is always two. That’s why religion, all religion, speaks about the truth. But [there are] many kinds of truth. We fight each other, according to many kinds of truth. “[Buddhism](glossary#buddhism) is right.” “Christianity is right; Buddhism is crazy.” But Buddhism and Christianity explain about the truth. The truth is exactly one. One means, nothing to get or to grasp. 
 
@@ -177,7 +177,7 @@ To talk is very important, because ... the activity *you talk* comes up from the
 
 “[Emptiness](glossary#śūnyatā)”: this is a word. But the activity I talk about, emptiness itself, is not a word, because words are already emptiness, and the subject I am talking about is also emptiness. So I am not talking about the emptiness I can see or get. That is a word. When I am talking about emptiness, I myself am emptiness always. And words also are emptiness, always. 
 
-So, emptiness – this is, I have to talk about emptiness. To talk is important, but not the word. Most people are completely cheated by the word. If I say emptiness: “Oh, I don’t like it, because emptiness is negative.” But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* do I exist? Why does the rose exist? Completely denied. That negation leads you to touch the exact core of existence of the rose itself. That is negation; that’s what emptiness is. 
+So, emptiness – this is, I have to talk about emptiness. To talk is important, but not the word. Most people are completely cheated by the word. If I say “emptiness”: “Oh, I don’t like it, because emptiness is negative.” But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* do I exist? Why does the rose exist? Completely denied. That negation leads you to touch the exact core of existence of the rose itself. That is negation; that’s what emptiness is. 
 
 So emptiness is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
 
@@ -198,6 +198,8 @@ The commentary by [Doctor Conze](glossary#edward-conze) says: (pp. 34)
 > **The Absolute** is literally “the Unconditioned,” and according to Vasubandhu, it means here that which cannot be discriminated....
 
 The absolute, or the truth, is the unconditioned. Well, the unconditioned means the truth; something which exists with no reason. That is something which always exists in perfect stability, constantly. That is the absolute: the unrelated, the unconditioned. 
+
+[To continue,]
 
 > ... it means here that which cannot be discriminated. With an obvious and deliberate disregard for logic the Sutra claims that this unrelated Absolute can enter into a relation with certain persons. This is a difficult idea, and a difficult word is chosen to express it. **Exalts** – the word (prabhavita) contains a great wealth of meaning, and “exalts” is the best I can do. One could also say, “are glorified by,” “draw their strength from,” “owe their distinction to,” or “derive their dignity from.” The idea is that the holy persons have “arisen” from the Unconditioned, have been “produced” from it, are “brought forth” by it. 
 
