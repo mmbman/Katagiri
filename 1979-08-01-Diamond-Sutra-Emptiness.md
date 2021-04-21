@@ -7,8 +7,11 @@
 # Diamond Sutra: Emptiness
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
+#### What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: kaku (awareness), satori, and sho (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Listen to the original recording</a>
+
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Listen to the transcript read by Kikan</a>
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
@@ -27,7 +30,7 @@ The Buddha asked [Subhuti](glossary#subhuti): “Is there any dharma which the [
 
 ##### 3:52
 
-In Japanese, enlightenment is described by three different characters. One is ‘kaku’ *[he spells it]*: awareness. The second is [satori](glossary#satori) - you are very familiar with this term, satori. The third is ‘sho’ *[he spells it]*: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. The original nature of existence is, truth. 
+In Japanese, enlightenment is described by three different characters. One is ‘kaku’ *[he spells it]*: awareness. The second is [satori](glossary#satori) – you are very familiar with this term, satori. The third is ‘sho’ *[he spells it]*: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. The original nature of existence is, truth. 
 
 According to the first term, kaku, awareness, this kind of [enlightenment](glossary#enlightenment) is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice [zazen](glossary#zazen) – or even though you don’t practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
 
@@ -103,9 +106,9 @@ In other words, if you see this book and start to read the book, if you understa
 
 And then you say, “What’s that? What is this book?” And then you still encourage yourself to continue to read. “Come on, read. You want to be a good Buddhist. If you want to be a good Buddhist, let’s read.” So read, read, read; again and again, even though you don’t understand. So, your mind is continually busy. Busy, busy, busy. But when you understand *exactly*: nothing, no consciousness. Consciousness stops, exactly stops. 
 
-You experience this in your daily living. I sometimes [take a] trip to Omaha by airplane. When I am in the airplane, well, my consciousness doesn’t work, my consciousness completely stops. To know where I am, or what’s going on; I don’t know. Just be one with the airplane. But sometimes something happens, all of a sudden, when the airplane is in an air pocket, and [then], *boom*. “What’s that?” Then at that time, I don’t feel satisfied. In that situation, immediately there is a gap between airplane and I. So that is “psychic crack”. And then cold wind blows into me: “Oh my, I don’t want to die!” *[Laughter.]* Or, if you see something through the window, immediately you can create a psychic crack, because you can see many things moving. So you see, “Oh, I am in an airplane.” But if you are completely one with the airplane, consciousness completely stops. That’s wonderful. But, consciousness doesn’t disappear. It’s there, but it stops. Consciousness doesn’t vanish. 
+You experience this in your daily living. I sometimes [take a] trip to Omaha by airplane. When I am in the airplane, well, my consciousness doesn’t work, my consciousness completely stops. To know where I am, or what’s going on; I don’t know. Just be one with the airplane. But sometimes something happens, all of a sudden, when the airplane is in an air pocket, and [then], *boom*. “What’s that??” Then at that time, I don’t feel satisfied. In that situation, immediately there is a gap between airplane and I. So that is “psychic crack”. And then cold wind blows into me: “Oh my, I don’t want to die!” *[Laughter.]* Or, if you see something through the window, immediately you can create a psychic crack, because you can see many things moving. So you see, “Oh, I am in an airplane.” But if you are completely one with the airplane, consciousness completely stops. That’s wonderful. But, consciousness doesn’t disappear. It’s there, but it stops. Consciousness doesn’t vanish. 
 
-The original nature of existence is just like oneness right in the middle of the airplane. That’s all. This is original nature of existence, in which you are present constantly. But when you don’t satisfy this, immediately you create a psychic crack, consciousness starts to work. And then consciousness continually works, on and on. Finally, we create what is called “Buddhist Psychology”. *[There are a couple soft laughs.]* A *Huge* system of Buddhist Psychology, which is called [Abhidharma](glossary#abhidharma). *[He chuckles.]* Abhidharma – *huge*. 
+The original nature of existence is just like oneness right in the middle of the airplane. That’s all. This is original nature of existence, in which you are present constantly. But when you don’t satisfy this, immediately you create a psychic crack, consciousness starts to work. And then consciousness continually works, on and on. Finally, we create what is called “Buddhist Psychology”. *[There are a couple soft laughs.]* A *huge* system of Buddhist Psychology, which is called [Abhidharma](glossary#abhidharma). *[He chuckles.]* Abhidharma – *huge*. 
 
 That’s wonderful. But this is still something you play with, constantly. This is important too, but the most important point is, be one with the nature of existence, because the nature of existence is [emptiness](glossary#śūnyatā). Emptiness means no gap between you and original nature of existence. No gap. So all you have to do is, you must be present with original nature of existence. Constantly, whatever happens, under all circumstances, day after day: stand up there, take care of it. And then at that time, you can experience perfect stability.
 
@@ -183,7 +186,9 @@ So emptiness is very important for us. A more positive, affirmative term is, I t
 
 > “It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma.”
 
-Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no ‘mark’ of its own, no mark. That is [emptiness](glossary#śūnyatā). Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something. It’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something ‘extra’. Emptiness is completely absolute.
+Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no ‘mark’ of its own, no mark. That is [emptiness](glossary#śūnyatā). 
+
+Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something. It’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something ‘extra’. Emptiness is completely absolute.
 
 Next, 
 
