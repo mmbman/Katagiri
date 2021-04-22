@@ -8,12 +8,6 @@
 
 <a class="nr-custom-trigger">Listen using NaturalReader</a>
 
-## Podcast Description
-
-Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to America. Audio recordings of his talks, recorded from 1979 to 1989, are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since he was a non-native speaker and the recording quality varied, he can be difficult to understand. Here these talks are carefully transcribed and read by second-generation student Kikan Michael Howard, with the intention of staying as true as possible to Katagiri Roshi's words, while smoothing out the grammar to make them easier to understand. New episodes will be posted regularly, going through the talks in order.
-
-[Katagiri Transcripts Podcast](https://katagiritranscripts.podbean.com)
-
 ## Website Introduction
 
 I’ve transcribed these talks from audio recordings in the online [Dainin Katagiri Audio Archive](http://www.mnzencenter.org/katagiri_talks.php). The talks are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in [the four books](resources#katagiri-books) that have been compiled from Dainin Katagiri’s teachings. You can read the transcripts on their own, or follow along while listening to the recordings, which are referenced at the top of each talk. 
@@ -25,6 +19,14 @@ Each talk requires many hours to carefully transcribe. That said, there may stil
 I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
 
   – Kikan Michael Howard
+
+## Podcast Description
+
+Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to America. Audio recordings of his talks, recorded from 1979 to 1989, are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since he was a non-native speaker and the recording quality varied, he can be difficult to understand. Here these talks are carefully transcribed and read by second-generation student Kikan Michael Howard, with the intention of staying as true as possible to Katagiri Roshi's words, while smoothing out the grammar to make them easier to understand. New episodes will be posted regularly, going through the talks in order.
+
+[Katagiri Transcripts Podcast](https://katagiritranscripts.podbean.com)
+
+## More
 
 For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
 
