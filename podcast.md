@@ -27,8 +27,8 @@ Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s un
 Katagiri Roshi reviews the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, samadhi (one-pointedness), egolessness, “no design on having a reward”, and shikantaza (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
 
 [Transcript](1979-06-10-Fukanzazengi-Talk-2#0) \|
-<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a>
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-2/" target="_blank">Podcast</a> \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Original</a> \| 
 
 ## Episode 4: “Fukanzazengi – Talk 3”
 
@@ -56,7 +56,7 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 
 ## Episode 7: “Fukanzazengi – Talk 6”
 
-Katagiri Roshi talks about “body and mind dropping off” from a different angle, from a psychological point of view. This talk focuses on samskara, which is usually translated as ‘impulses’, one of the five skandhas or ‘aggregates’. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to his knowledge and perceptions?” During a challenging discussion on the ‘forces’ of prāpti and aprāpti, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi talks about “body and mind dropping off” from a psychological point of view. This talk focuses on samskara, which is usually translated as ‘impulses’, one of the five skandhas or ‘aggregates’. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to his knowledge and perceptions?” During a challenging discussion on the ‘forces’ of prāpti and aprāpti, he tells a story about the 1948 Fukui earthquake in Japan.
 
 [Transcript](1979-06-14-Fukanzazengi-Talk-6#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-6/" target="_blank">Podcast</a> \| 
