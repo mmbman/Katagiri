@@ -228,9 +228,9 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 ##### 58:09 end of recording
 
 -----
-[Next Talk: Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1#0)
-
-[Home](index#diamond-sutra-introduction)
+[Previous](about#0) \| 
+[Home](index#diamond-sutra-introduction) \| 
+[Next](1979-06-09-Fukanzazengi-Talk-1#0)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>
