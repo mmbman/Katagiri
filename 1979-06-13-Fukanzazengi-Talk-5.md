@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](1979-06-12-Fukanzazengi-Talk-4#0) – 
-[Home](index#fukanzazengi-lecture-5) – 
+[Previous](1979-06-12-Fukanzazengi-Talk-4#0) \| 
+[Home](index#fukanzazengi-lecture-5) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6#0)
 
 ---
@@ -9,11 +9,10 @@
 ### Transcribed by Kikan Michael Howard
 #### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Genshi Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-5" target="_blank">Listen to the original recording</a>
-
-<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk5/" target="_blank">Listen to the transcript read by Kikan</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen:
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk5/" target="_blank">Podcast</a> \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-5" target="_blank">Original</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### start of recording

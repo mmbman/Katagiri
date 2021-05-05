@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](1979-07-25-Diamond-Sutra-Provisional-Being#0) – 
-[Home](index#diamond-sutra-emptiness) – 
+[Previous](1979-07-25-Diamond-Sutra-Provisional-Being#0) \| 
+[Home](index#diamond-sutra-emptiness) \| 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0)
 
 ---
