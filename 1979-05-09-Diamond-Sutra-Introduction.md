@@ -9,11 +9,7 @@
 ### Transcribed by Kikan Michael Howard
 #### Katagiri Roshi discusses the fundamental point that the Diamond Sutra teaches: “‘A’ is ‘A’, but ‘A’ is not ‘A’, this means ‘A’ is really ‘A’.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/05-1979" target="_blank">Listen to the original recording</a>
-
-<a href="https://katagiritranscripts.podbean.com/e/1979-05-09-diamond-sutra-introduction/" target="_blank">Listen to the transcript read by Kikan</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: <a href="https://katagiritranscripts.podbean.com/e/1979-05-09-diamond-sutra-introduction/" target="_blank">Podcast</a> | <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/05-1979" target="_blank">Original recording</a> | <a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -24,7 +20,7 @@ During the first and the second centuries, most of the Mahayana Buddhist scriptu
 
 The first period ... is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150 to 270 [CE].
 
-The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210 to 400. 
+The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, and a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210 to 400. 
 
 The third is the period in which a group of [Yogachara](glossary#yogachara) sutras and a group of esoteric sutras were all compiled, after 480. 
 
@@ -106,7 +102,7 @@ This philosophy is not a matter of the ‘A’ itself, or the buffalo or cow its
 
 The important point is the existential reality. What is the existential reality? If you say [Katagiri](glossary#katagiri), [it is] what his existential fact or reality is. That is a point. But usually we don’t believe that, we don’t say that, we don’t understand it in that way. If you see Katagiri, immediately you say “Katagiri.” This is very understandable – but it’s a very shallow understanding. 
 
-Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say? Nothing to say. Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say? Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
 In the very basic nature of existence, Katagiri really is interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why, first of all, we have to deny your understanding. But, to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
@@ -138,7 +134,7 @@ How? Practice. Continue to write, beyond like or dislike, until your writing is 
 
 That’s why we have to practice. We have to [do] fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life, as a poet, or painter, or musician, you have to practice. Not for a certain period of time – for *long*. From the beginning to end, you have to do it. 
 
-And then, at that time, you can say, “I am a guitar player, I am a musician.” Even though you don’t think so, people call you. You are a guitar player. And then, people don’t tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that’s pretty good. 
+And then, at that time, you can say, “I am a guitar player, I am a musician.” Even if you don’t think so, people call you. You are a guitar player. And then, people don’t tell you, but very naturally, people hire you. And people ask you to play guitar in public, very naturally, before they put a certain name on you. So, that’s pretty good. 
 
 Sometimes you don’t know when you became a writer, or when you are a great musician – you don’t know. But it’s not necessary. People ask you to play the guitar, to write something. That is a great chance for you to practice, to continue to do it. 
 
@@ -148,7 +144,7 @@ This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. T
 
 We don’t understand exactly. “‘A’ is ‘A’” – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already, because we originally are completely vastness, no confusion. But we are always [saying], “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say, you don’t like, or you like: what is life? What are you? You are still you, and your life is existent. How can you judge? 
 
-So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or, sometimes, vastness. 
+So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
 And sometimes, vastness is personalized, and it’s called [Buddha](glossary#buddha). We realize the vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
@@ -176,7 +172,7 @@ Obviously we have to think like this. This is a beautiful, beautiful aspect of h
 
 ##### 49:42
 
-But finally, the final practice is very simple: ‘A’ is just ‘A.’ Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything; nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
+But finally, the final practice is very simple: ‘A’ is just ‘A.’ Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything. Nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
 
 That’s why a [Zen Master](glossary#zen-master) said, “When you feel hungry, eat. When you feel [sleepy], sleep.” But this is the third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand the Zen saying, “When you feel hungry, eat. When you feel sleepy, sleep.” This is not the first stage, the first level of understanding; this is the very profound, highest level of understanding. 
 
