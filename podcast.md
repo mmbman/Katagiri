@@ -26,7 +26,7 @@ Katagiri Roshi begins this series of talks on Fukanzazengi, Zen Master Dogen’s
 
 Katagiri Roshi reviews the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, samadhi (one-pointedness), egolessness, “no design on having a reward”, and shikantaza (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
 
-[Transcripts](1979-06-10-Fukanzazengi-Talk-2#0) \|
+[Transcript](1979-06-10-Fukanzazengi-Talk-2#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a>
 
@@ -37,6 +37,16 @@ Katagiri Roshi examines the meaning of the line “from the first, dullness and 
 [Transcript](1979-06-11-Fukanzazengi-Talk-3#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-3/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Original</a>
+
+## Episode 5: “Fukanzazengi – Talk 4”
+
+Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
+
+[Transcript](1979-06-12-Fukanzazengi-Talk-4#0)
+\| <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-4/" target="_blank">Podcast</a> 
+\| <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Original</a> 
+
+
 
 ## Episode 10: “Diamond Sutra: Emptiness”
 
