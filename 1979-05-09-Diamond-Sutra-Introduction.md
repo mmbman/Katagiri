@@ -11,8 +11,8 @@
 
 Listen: 
 <a href="https://katagiritranscripts.podbean.com/e/1979-05-09-diamond-sutra-introduction/" target="_blank">Podcast</a> 
-–  <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/05-1979" target="_blank">Original</a> 
-–  <a class="nr-custom-trigger">NaturalReader</a>
+\|  <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/05-1979" target="_blank">Original</a> 
+\I  <a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
