@@ -15,7 +15,6 @@ Katagiri Roshi discusses the fundamental point that the Diamond Sutra teaches: �
 <a href="https://katagiritranscripts.podbean.com/e/1979-05-09-diamond-sutra-introduction/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">Original</a>
 
----
 ## Episode 2: “Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1”
 
 Katagiri Roshi begins this series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
@@ -24,7 +23,14 @@ Katagiri Roshi begins this series of talks on Fukanzazengi, Zen Master Dogen’s
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-dogens-universal-recommendation-for-zazen-–-talk-1/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Original</a>
 
----
+## Episode 3: “Fukanzazengi – Talk 2”
+
+Katagiri Roshi reviews the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, samadhi (one-pointedness), egolessness, “no design on having a reward”, and shikantaza (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
+
+[Transcripts](1979-06-10-Fukanzazengi-Talk-2#0) \|
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a>
+
 ## Episode 10: “Diamond Sutra: Emptiness”
 
 What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: kaku (awareness), satori, and sho (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.

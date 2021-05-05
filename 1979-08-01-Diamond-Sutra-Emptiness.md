@@ -9,11 +9,10 @@
 ### Transcribed by Kikan Michael Howard
 #### What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: kaku (awareness), satori, and sho (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Listen to the original recording</a>
-
-<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Listen to the transcript read by Kikan</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: 
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a> \|
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording 
