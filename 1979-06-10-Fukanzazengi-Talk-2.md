@@ -4,7 +4,7 @@
 [Next](1979-06-11-Fukanzazengi-Talk-3#0)
 
 ---
-# Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2
+# Fukanzazengi – Talk 2
 ## June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
 #### Katagiri Roshi reviews the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, samadhi (one-pointedness), egolessness, “no design on having a reward”, and shikantaza (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
