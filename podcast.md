@@ -6,7 +6,6 @@
 -----
 # Podcast Index
 
----
 ## Episode 1: “Diamond Sutra: Introduction”
 
 Katagiri Roshi discusses the fundamental point that the Diamond Sutra teaches: “‘A’ is ‘A’, but ‘A’ is not ‘A’, this means ‘A’ is really ‘A’.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
@@ -30,6 +29,14 @@ Katagiri Roshi reviews the six-component system for understanding zazen that he 
 [Transcripts](1979-06-10-Fukanzazengi-Talk-2#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a>
+
+## Episode 4: “Fukanzazengi – Talk 3”
+
+Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
+
+[Transcript](1979-06-11-Fukanzazengi-Talk-3#0) \|
+<a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-3/" target="_blank">Podcast</a> \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Original</a>
 
 ## Episode 10: “Diamond Sutra: Emptiness”
 
