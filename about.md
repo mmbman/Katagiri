@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](index) – 
-[Home](index) – 
+[Previous](index) \| 
+[Home](index) \| 
 [Next](podcast#0)
 
 ---
