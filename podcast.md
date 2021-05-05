@@ -1,4 +1,9 @@
----
+<a name="0"></a>
+[Previous](about#0) \| 
+[Home](index) \| 
+[Next](1979-05-09-Diamond-Sutra-Introduction#0)
+
+-----
 
 # Podcast Index
 
@@ -17,3 +22,7 @@ What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes th
 [Transcript](1979-08-01-Diamond-Sutra-Emptiness#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a>
+
+-----
+
+[Next: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)

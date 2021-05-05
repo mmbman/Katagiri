@@ -1,7 +1,7 @@
 <a name="0"></a>
 [Previous](index) – 
 [Home](index) – 
-[Next](1979-05-09-Diamond-Sutra-Introduction#0)
+[Next](podcast#0)
 
 ---
 # About This Website
@@ -33,7 +33,7 @@ For updates, you can follow [Katagiri Transcripts on Facebook](https://www.faceb
 If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
 
 ---
-[First Talk: Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
+[Next: Podcast Index](podcast#0)
 
 [Home](index#0)
 
