@@ -7,6 +7,7 @@
 # Diamond Sutra: Giving and Non-Covetousness
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
+#### Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face” and in conflict, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his experience attending Hiroshima Day in Omaha, Nebraska.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Listen to the original recording</a>
 
@@ -212,7 +213,7 @@ In our daily living, the vastness of space is something that basically we don’
 
 But anyway, in Omaha we demonstrated for five miles, and had a religious service conducted by a Catholic priest, and I attended that. And last, the ceremony [of floating] the lantern boats. You know the lantern boats? In Japan, in the Obon ceremony – you know the Obon ceremony in Japan? It’s one of the biggest Buddhist ceremonies in Japan, inviting the spirits of your grandparents and ancestors, on August 12 or July 12. And *[unintelligible]*, and then decorate the family altar, offering the food, inviting the priest and performing a Buddhist service, in each family. On August 16, we try to send spirits of the family ancestors to their own home, by boat. That is a lantern boat, a little lantern. Make a little boat, and put the candle on it, and float that lantern boat on the river. Then the lantern boat is going away, forever. That’s the ceremony. 
 
-And then we did it in Omaha, on the Missouri River. But American people didn’t know what’s going on there. *[Some laughter.]* So motor boats, and, ***vrrrmmm***! *[Laughter.]* Lantern boats turn over. *[Laughter.]* 
+And then we did it in Omaha, on the Missouri River. But American people didn’t know what’s going on there. *[Some laughter.]* So motor boats, and, ***vrrrmmm***! *[Laughter.]* Lantern boats turn over.
 
 There was one boat on which a middle-age man and one girl, several times their motor boat ran wild around the lanterns. And then most of the lanterns turned over. And finally, right in the middle of the lanterns, the girl reaches down like this, and picks up the lanterns one by one. Then we said, “What are you doing?” They said, “Don’t pollute the river!” *[Laughter.]* 
 
