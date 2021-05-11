@@ -1,17 +1,18 @@
 <a name="0"></a>
-[Previous](1979-08-01-Diamond-Sutra-Emptiness#0) – 
-[Home](index#diamond-sutra-giving-and-non-covetousness) – 
+[Previous](1979-08-01-Diamond-Sutra-Emptiness#0) \| 
+[Home](index#diamond-sutra-giving-and-non-covetousness) \| 
 [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
 ---
 # Diamond Sutra: Giving and Non-Covetousness
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-#### Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face” and in conflict, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his experience attending Hiroshima Day in Omaha, Nebraska.
+#### Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his experience attending Hiroshima Day in Omaha, Nebraska.
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: 
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Original</a> \|
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -42,11 +43,11 @@ That’s why [Dogen Zenji](glossary#dogen) says the practice of giving is not to
 > and has its death always behind it and God before it,   
 > and when it walks it goes toward eternity,   
 > as springs flow. Never, not for a single day  
-> do we have pure space before us in which the flowers 
+> do we have pure space before us in which the flowers  
 > are always unfolded (unfolding). It’s forever world  
 > and (never) nowhere without not  
 > (the pure and unwatched-over air we breath,  
-> *know* infinitely and do not want.) 
+> *know* infinitely and do not want.)  
 > ...   
 > That’s what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
