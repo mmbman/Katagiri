@@ -86,5 +86,13 @@ What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes th
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a>
 
+## Episode 11: “Diamond Sutra: Giving and Non-Covetousness”
+
+Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
+
+[Transcript](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) \|
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-giving-and-non-covetousness/" target="_blank">Podcast</a> \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Original</a>
+
 ---
 [Next: “Diamond Sutra: Introduction”](1979-05-09-Diamond-Sutra-Introduction#0)

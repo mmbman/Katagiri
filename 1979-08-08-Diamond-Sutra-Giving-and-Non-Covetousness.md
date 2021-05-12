@@ -7,10 +7,10 @@
 # Diamond Sutra: Giving and Non-Covetousness
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-#### Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his experience attending Hiroshima Day in Omaha, Nebraska.
+#### Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
 
 Listen: 
-<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-giving-and-non-covetousness/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Original</a> \|
 <a class="nr-custom-trigger">NaturalReader</a>
 
@@ -104,7 +104,7 @@ Only human beings can see death. We can see death in many ways, from many angles
 
 So that’s why, “God before it”. ‘God’ means, in this case, the vastness of space. He never sees the death in front of him; [he is] always going ahead toward the vastness of space, eternity; that means “God before it”. That’s why he said, “when it walks it goes toward eternity.” Completely eternity. He doesn’t know [that] in a moment there is some destiny he doesn’t see. Just go, just go ahead. And then only when he sees something dangerous, he is scared. But he doesn’t see the death. So death is completely one with beast, always. 
 
-That’s why he said, “When it walks it goes toward eternity, as springs flow.” Just as springs always flow. Springs flow from the ground, always coming up. No [suffering](glossary#suffering). So from this point, beast never suffers, from life or death. But they have subjective feeling, according to their instinct. So they fear death or something dangerous only when they see something dangerous right in from of them. But they never think [of] death, they never think [there is] something dangerous in a second. So whatever happens, they always walk toward eternity – no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
+That’s why he said, “When it walks it goes toward eternity, as springs flow.” Just as springs always flow. Springs flow from the ground, always coming up. No [suffering](glossary#suffering). So from this point, beast never suffers, from life or death. But they have subjective feeling, according to their instinct. So they fear death or something dangerous only when they see something dangerous right in front of them. But they never think [of] death, they never think [there is] something dangerous in a second. So whatever happens, they always walk toward eternity – no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
 
 ##### 18:16
 
