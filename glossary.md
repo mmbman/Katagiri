@@ -814,6 +814,9 @@ External links:
 ## Pali Cannon
 
 ---
+## Paramita
+
+---
 ## Patriarch
 
 See [Ancestor](glossary#ancestor)
