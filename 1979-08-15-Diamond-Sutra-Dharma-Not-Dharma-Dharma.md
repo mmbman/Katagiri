@@ -1,17 +1,18 @@
 <a name="0"></a>
-[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) – 
-[Home](index#diamond-sutra-dharma-not-dharma-dharma) – 
+[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) \| 
+[Home](index#diamond-sutra-dharma-not-dharma-dharma) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
 
 ---
 # Diamond Sutra: Dharma / Not Dharma / Dharma
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-#### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. He says, “Real merit is completely no-merit. No-merit is real merit. If you completely throw it away, give it to somebody, if your individual experience is given to the truth or universe again, at that time you can get real merit.” (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would perhaps do well to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
+#### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: 
+<a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-dharma-not-dharma-dharma/" target="_blank">Podcast</a> \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Original</a> \|
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -34,7 +35,7 @@ One is “giving with eyes”. This is to come in contact with people with a ten
 
 The second is “giving with face”. It means to come in contact with people with a soft, gentle, joyous expression on one’s face. This is the second. 
 
-This is very important: it’s not necessary to always smile. To smile always – it’s not necessary to do that. But if you have a very gentle, soft, magnanimous, joyous mind, your face speaks of your mind. How joyous it is, how gentle it is, even though you don’t smile. But if your mind is always angry, or always expressing complaints, et cetera, your face is always something miserable, ugly – even though you smile. Do you understand? So, the second is giving with face.
+[But] this is very important: it’s not necessary to always smile. To smile always – it’s not necessary to do that. If you have a very gentle, soft, magnanimous, joyous mind, your face speaks of your mind, how joyous it is, how gentle it is, even though you don’t smile. But if your mind is always angry, or always expressing complaints, et cetera, your face is always something miserable, ugly – even though you smile. Do you understand? So, the second is giving with face.
 
 The third: “giving with words”. It means to use peaceful words when one comes in contact with people. 
 
@@ -56,7 +57,7 @@ Most people think something with their head, saying, “I want to help the peopl
 
 On the other hand, you cannot do it with your body alone. So next, “giving with mind”. 
 
-You have to do something with body, but also mind must be present with body. Because we are human. If you’re a [cat](glossary#cat) or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with the mind. So first you have to have breakfast with body – but you are not cat, you are not dog, so you have to have breakfast with mind. That means, why don’t you use a fork; why don’t you sit down on the chair. Why don’t you keep silent; why don’t you appreciate the food given to you. Why don’t you appreciate your existence; why don’t you appreciate your parents, teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, giving.
+You have to do something with body, but also mind must be present with body. Because we are human. If you’re a [cat](glossary#cat) or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with the mind. So first you have to have breakfast with body – but you are not cat, you are not dog, so you have to have breakfast with mind. That means, why don’t you use a fork; why don’t you sit down on the chair. Why don’t you keep silent; why don’t you appreciate the food given to you. Why don’t you appreciate your existence; why don’t you appreciate your parents and teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, giving.
 
 Sixth: ... The gift of making room for a person, and offering a blanket to people. 
 
@@ -92,13 +93,13 @@ The third, Sambhogakaya Buddha, that is [where] we can reach at the stage of the
 
 So, Dharmakaya Buddha – [dharma](glossary#dharma) itself, or the essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That’s why the no-dharmas [are those] through which [Shakyamuni Buddha](glossary#shakyamuni-buddha ) has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as a human tries to teach dharma itself, but that dharma explained by Shakyamuni Buddha as a human is no-dharma. It’s not real dharma, because dharma is completely beyond human speculation. 
 
-But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [Diamond Sutra](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, where this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from [the] real truth. 
+But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [Diamond Sutra](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, with this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from [the] real truth. 
 
 ##### 28:55
 
 But if it is true, is there no way to teach? Shouldn’t we teach the [dharma](glossary#dharma)? We have to teach, because there is Sambhogakaya Buddha, which means you can reach at the stage of Buddha by your own virtuous quality, which you have accumulated in the past. You have planted good seeds in the past; this is your body and mind which exists now as a result. This is your existence. That’s why your existence is very valuable. 
 
-So, [we use] this virtuous quality and practice, which we can understand using our head: *knowledge*. Get some knowledge, and then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means [that] real dharma, explained by the human body, is completely no-dharma, not real dharma. There is already a contradictory structure [here]. But *through* no-dharma, there is dharma you can explain. The verbal explanation of dharma is no-dharma, not real dharma, but through the verbal explanation of dharma, you can reach real dharma. That’s why the verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That’s why words are important. 
+So, [we use] this virtuous quality and practice, which we can understand using our head: *knowledge*. Get some knowledge, and then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means [that] real dharma, explained by the human body, is completely no-dharma, not real dharma. There is already a contradictory structure [there]. But *through* no-dharma, there is dharma you can explain. The verbal explanation of dharma is no-dharma, not real dharma, but through the verbal explanation of dharma, you can reach real dharma. That’s why the verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That’s why words are important. 
 
 This is Sambhogakaya. So using your head, knowledge, you have to study, one by one. That is Buddhist philosophy, Buddhist psychology as a background – behind the little switch of a TV set. In our daily living, we have to always turn on a ‘switch’. Get up in the morning, turn on switch. *[Click.]* If you go to work: go to work, turn on switch. *[Click.]* Every moment, we have to turn on a switch. That’s all we have to do. 
 
@@ -108,7 +109,7 @@ And then we have to learn [things] one by one; this is philosophy, psychology as
 
 ##### 34:05
 
-From this point, the real [dharma](glossary#dharma) is something which you cannot touch, [yet] you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore it, you try not to study or practice. So very naturally, no hope will be found in your life. But it is not a good way; because we are right in the middle of the truth, or dharma, or [Buddha](glossary#buddha). Regardless of whether you don’t like it or you are conscious of it or not, we *are* there. Even though you try to ignore it, you cannot ignore it, because you are right in the middle of truth. So you have to realize where you are. 
+From this point, the real [dharma](glossary#dharma) is something which you cannot touch, [yet] you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore it, you try not to study or practice. So very naturally, no hope will be found in your life. But [that] is not a good way; because we are right in the middle of the truth, or dharma, or [Buddha](glossary#buddha). Regardless of whether you don’t like it or you are conscious of it or not, we *are* there. Even though you try to ignore it, you cannot ignore it, because you are right in the middle of truth. So you have to realize where you are. 
 
 And then, through the virtuous quality you have had, you can realize what the truth is. And then if you realize the truth, you can explain what the truth is. At that time, very naturally, we try to attach to the truth, explained by our human body and mind. But it is not real truth. 
 
@@ -118,7 +119,7 @@ And then, through this practice, sooner or later you will reach at the stage of 
 
 But through the individual experience of the truth you can explain what the truth is. So, you can explain. And by the explanation of the truth, you can lead the people to be fit to gain the core of human life. That’s why explanation is important, even though explanation of the dharma is not real dharma. But, it is dharma, because the dharma explained by you leads the people to be fit to gain the truth. 
 
-So, there is nothing to attach to; [not] to Sambhogakaya, to Nirmanakaya, to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to teach, just to preach. When the time comes to practice, just to practice. When the time comes to keep silent, just to keep silent. This is a simple practice.
+So, there is nothing to attach to; [not] to Sambhogakaya, [not] to Nirmanakaya, [not] to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to teach, just to preach. When the time comes to practice, just to practice. When the time comes to keep silent, just to keep silent. This is a simple practice.
 
 ##### 39:32
 
@@ -144,7 +145,7 @@ So sooner or later, you can touch the core of existence. And that is no-heap of 
 
 ##### 45:10
 
-Last Wednesday, I read a piece of a poem by Rilke, which occurs in the Duino Elegies. He’s in the later years of his life, [and] in this book, he really explains the oneness of life and death. Apparently, that poem seems to be a pessimistic view of human life, but actually it is not. 
+Last Wednesday, I read a piece of a poem by Rilke, which occurs in the Duino Elegies. He’s in the later years of his life, [and] in this book, he really explains the oneness of life and death. Apparently that poem seems to be a pessimistic view of human life, but actually it is not. 
 
 I read just a piece of the poem. He points out the attitude of human life, what we do usually. He says, “Never, not for a single day, do we have pure space in which the flowers are always unfolded.” Never, not for a single day: because, if you get the merit, we stay with the merit. This is the very usual state of human life, always staying with the small world created by the individual. At that time, very naturally, we can fight, we can create problems. So he says, “That is what destiny is, to be face to face.” 
 
