@@ -81,8 +81,6 @@ And then fourth, if you do zazen concentrating with the breath, the regulation o
 
 You have to... completely ... concentrate on taking care of your breath, becoming one with breath. And then simultaneously, by the regulation of the breath, you are closely related with total personality, very naturally, because physically this goes very well. 
 
-##### 15:27
-
 That's why, if you concentrate, which is called practicing [samadhi](glossary#samadhi) (one-pointedness) – through the regulation of the body, through the regulation of the breath, you can experience very naturally: calmness, tranquility. And then, you experience enlightenment, [the] highest [spirit] of life.
 
 This is in [Hinayana](glossary#hinayana) or [Mahayana](glossary#mahayana) [Buddhism]; everybody. All the \[kinds of] [Buddhism](glossary#buddhism), Hinayana and Mahayana, emphasize this kind of [zazen](glossary#zazen). 
@@ -94,8 +92,6 @@ The point is regulation of the mind; that is very important in [shikantaza](glos
 I told you yesterday, if you do [zazen](glossary#zazen), first you have to do zazen while making arrangement of circumstances, the sensory world, and your **body** and **breath**. *[He taps on the blackboard for emphasis on body and breath.]* And then very naturally, that's where life leads you to connect very powerfully to the *center* of life that is total personality. That's why if you do this, very naturally you can experience something. 
 
 But at that time, a point is, you have to do zazen with **mind**. That mind is characterized by attachment: attachment to one-sided, extreme ideas. If you experience something good, mind immediately attaches to it. If you don't experience anything, mind really wants to attach to a certain highness of spirit, which you will not yet experience. So, you're really greedy; that is also attachment. If you experience something wrong, you really want to escape from it; that is also attachment. So, mind is characterized by strong attachment. 
-
-##### 18:05
 
 That's why, yesterday I told you, there is a most important thing, which is called regulation of mind. You have to do [zazen](glossary#zazen) with body and also mind. That mind must be [egolessness](glossary#egolessness). [*He pronounces ego-less-ness phonetically and writes it on the board.*] Ego-less-ness.
 

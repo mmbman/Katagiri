@@ -85,11 +85,11 @@ Next is the brain-nerve system.
 
 And one more system: that is total personality. 
 
-Total personality is the exact center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing. There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
+Total personality is the exact center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing. 
 
-*My* personality is something *I* can create, after my birth. So that is kind of [like] ‘character’. If you say ‘personality,’ psychologically speaking this is a little bit broad. So my personality is something I can create after my birth; but there is another personality I can create. I have carried [that] personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. 
+There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
 
-So that is total personality, the *whole* personality. 
+*My* personality is something *I* can create, after my birth. So that is kind of [like] ‘character’. If you say ‘personality,’ psychologically speaking this is a little bit broad. So my personality is something I can create after my birth, but there is another personality I can create. I have carried [that] personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. So that is total personality, the *whole* personality. 
 
 ##### 23:23
 
@@ -101,15 +101,11 @@ But Katagiri’s ‘smell’ is a kind of a result that we have judged. From whe
 
 But trans-personality immediately smells: “I smell something.” “I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense.  In a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes a ‘stink’.
 
-##### 26:18
-
 So, whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from a ‘stink’, what is called total personality. 
 
 Because I don't know, what is my [karma](glossary#karma)? Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
 That is really ‘stink’... But where does that stink of Katagiri come from? No way. You have to really go back to the beginningless past, to the endless future. 
-
-##### 27:35
 
 So finally, that stink of Katagiri, which is called total personality, becomes trans-personality. That is the original nature of existence. That is the core of your daily living.
 
