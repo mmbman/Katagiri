@@ -7,7 +7,7 @@
 # Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1
 ## November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
-#### Katagiri Roshi introduces a long-running series of talks on The Blue Cliff Record, a renowned collection of one hundred koans (or “public cases”) in the Zen tradition. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2, Katagiri Roshi focuses on the pointer (or introduction) to the koan. To explain it, he tells some stories about his training as the Anja or Jisha (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is paying attention to everything and flowing with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is something ‘showy’ about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
+#### Katagiri Roshi introduces a long-running series of talks on The Blue Cliff Record, a renowned collection of one hundred koans (or “public cases”) in the Zen tradition. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the Anja or Jisha (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to every detail and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything ‘showy’ about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/11-1979" target="_blank">Listen to the original recording</a>
 
@@ -72,7 +72,7 @@ But I don’t think you should do [things] always just like an emergency. For in
 
 Or, for instance, if a fire comes up, what should you do? That is really an emergency. So maybe you should find some mops or the fire extinguisher, then you should put it out, but sometimes there is no time, so sometimes you have to take off your clothes and cover the fire. Maybe it is okay. 
 
-So in the emergency, there is something you have to do. There is no discussion of “it is right, it is wrong”; we have to do [it]. So that’s why the [Zen Master](glossary#zen-master) scolded me, “What are you doing?” He did it immediately. That’s wonderful. But according to common sense, it’s wrong. 
+So in the emergency, there is something you have to do. There is no discussion of “it is right, it is wrong”; we have to do [it]. So that’s why the [Zen Master](glossary#zen-master) scolded me, “What are you doing?” [The other monk] did it immediately. That’s wonderful. But according to common sense, it’s wrong. 
 
 That’s why in the introduction, [Engo Zen Master](glossary#engo-kokugon) says, “When you see smoke on the other side of the mountain, you already know there is a fire.” It’s very clear. When the Zen Master is leaving the temple, at that time I have to do something, even though he doesn’t ask me: put the shoes in order at the gate. 
 
@@ -84,9 +84,7 @@ Or, before he is leaving the temple to go out to the people to perform a Buddhis
 
 So that is the duty of an [anja](glossary#anja) and [jisha](glossary#jisha). That’s why in the introduction he said, “When you see horns on the other side of a fence, right away you know there is an ox there.”
 
-“To understand three when one is raised, to judge precisely at a glance...” Immediately you have to know, okay? We have to know.
-
-When you attend, when you have such a position for a certain period of time, you understand what he is feeling, what he is wanting next. I knew pretty well what my teacher was wanting next, so always before that, I did it – give, or offer, or help.
+“To understand three when one is raised, to judge precisely at a glance...” Immediately you have to know, okay? We have to know. When you attend, when you have such a position for a certain period of time, you understand what he is feeling, what he is wanting next. I knew pretty well what my teacher was wanting next, so always before that, I did it – give, or offer, or help.
 
 “To understand three when one is raised, to judge precisely at a glance. This is the everyday food and drink of a patch-robed monk.” This is really everyday the food and drink of a monk. This is not a particular behavior, not a particular attitude. 
 
@@ -94,9 +92,7 @@ If that’s the way of life, we shouldn’t be a ‘snob’. You shouldn’t be 
 
 So, when the teacher gets up in the morning, immediately we have to go to his room and put his bed into the closet. We used a different bed from the Western style, so every morning we had to put the bed into the closet. And next, we have to serve the tea. And before we serve the tea, we have to prepare for his washing his face; so hot water – not *too* hot, not lukewarm, not too cold; you have to adjust. And put the paste and the cup, and many things. Just like taking care of a baby. *[He chuckles.]* But he doesn’t say anything like “thank you”; just do. Always there is a stream of water: next, next, next. There is no chance to think. Even though he doesn’t say “I hate it,” why doesn’t he say “thank you”? There is no time to discuss about that. Always the teacher’s life is going on just like a stream of water, and the [anja](glossary#anja)’s life is going just like a stream of water. So very naturally there is something, a harmonious life, a wonderful life, blooming. I didn’t realize that at the time, but [I felt it]. Intellectually I didn’t know it, but feeling, I could know it. There is a wonderful ‘mood’, just like a flower blooming. And then through this, there is a big world, it is interconnected. So there is communication between the teacher and my life, and I can learn a lot from this situation. 
 
-But really, if you behave in even a slightly “showy” way, it’s not real [Zen practice](glossary#zen-practice ) – because there is an egoistic sense, so it doesn’t fit to the Zen practice. 
-
-So that’s why he said, “This is the everyday food and drink of a patch-robed monk.” 
+But really, if you behave in even a slightly “showy” way, it’s not real [Zen practice](glossary#zen-practice ) – because there is an egoistic sense, so it doesn’t fit to the Zen practice. So that’s why he said, “This is the everyday food and drink of a patch-robed monk.” 
 
 ##### 34:15
 
@@ -118,7 +114,7 @@ Anytime, anywhere, you can go west, you can go east. But according to common sen
 
 “He is free to arise in the east and sink in the west, to go against or to go with”: sometimes it’s against, it’s wrong. I am not recommending you to do something wrong. As much as possible, you should do something *right*. But sometimes there is no time to discuss whether it is right or it is wrong; just do it. We have to take care of reality. So to go against, or to go with, in any and all directions: we have to do [it]. Wherever you may go, whatever the teacher or the old monks do, you can catch it, and do it, helping.
 
-When I was at Tassajara, *[unintelligible]* [Roshi](glossary#roshi) talked about something like this. When the teacher is suffering from something, you should immediately help him; you shouldn’t look at him without doing anything. For instance, if the older monk is sweeping the yard, that is a very hard job. Then the young monks are standing around and looking at him, and saying, “Oh, he’s working hard.” That is not good, so he said, “Why don’t you do it, instead of looking at him?” 
+When I was at Tassajara, *[unintelligible]* [Roshi](glossary#roshi) talked about something like this. When the teacher is suffering from something, you should immediately help him; you shouldn’t look at him without doing anything. For instance, if the older monk is sweeping the yard, that is a very hard job. Then the young monks are standing around looking at him, and saying, “Oh, he’s working hard.” That is not good, so he said, “Why don’t you do it, instead of looking at him?” 
 
 And then one time, a student stood up and came to me – I was the translator, interpreter, sitting high on the platform. So immediately he stood up and came to me, stood up in front of me, and said, “Shall I help you?” Well, I didn’t understand what he wanted to help with. *[Laughter.]* He said, “I want to help you translating.” Oh, wonderful! But I knew, he could not speak any Japanese. *[Laughter.]* So I said, “Thank you. Please sit down.” *[Laughter.]* Do you understand? This is not... well, it is an emergency, it is helping somebody, but – you should know the situation, okay? *[More laughter.]* But, the feeling – I really appreciated his kind, gentle, compassionate mind; that’s why I said, “Thank you.” Anyway, “Please, sit down.” It is not helping the teachers and all the monks. 
 
@@ -132,7 +128,7 @@ For instance, somebody is immediately on the verge of life and death on the stre
 
 This is a Zen term, “at just such a time,” or sometimes, “at this very moment.” “At this very moment” means right in the middle of the unstructured activity, lively activity. “At that time,” that is, “at this very moment,” there is no chance to discuss [it] verbally or intellectually. Before you ‘feel’ something, you have to do. That is *emergent* – emergency? That is *reality*. Your body, your mind must fit to the reality, before the reality is dichotomized in two – ‘I’ and ‘someone’.
 
-“At just such a time” as this very moment, “whose actions are these?” Who acts? ‘I’ act? Or, “my action should be accepted by my teacher”? No way. There is no ‘I’. There is no “my object” which is called “my teacher”. All I have to do is, [with] your whole body and mind, just fit in, tune in to his mind, and always [be] just like a turning wheel, a spinning top. At that time you become one with somebody. This is “at this very moment”: before the reality is dichotomized in two. 
+“At just such a time” as this very moment, “whose actions are these?” Who acts? ‘I’ act? Or, “my action should be accepted by my teacher”? No way. There is no ‘I’. There is no “my object” which is called “my teacher”. All you have to do is, [with] your whole body and mind, just fit in, tune in to his mind, and always [be] just like a turning wheel, a spinning top. At that time you become one with somebody. This is “at this very moment”: before the reality is dichotomized in two. 
 
 Well, always we have the five [skandhas](glossary#skandha). We say... 
 
