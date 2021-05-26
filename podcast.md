@@ -102,5 +102,13 @@ If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni ha
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-dharma-not-dharma-dharma/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Original</a>
 
+## Episode 13: “Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1”
+
+Katagiri Roshi introduces a long-running series of talks on The Blue Cliff Record, a renowned collection of one hundred koans (or “public cases”) in the Zen tradition. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the Anja or Jisha (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything ‘showy’ about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
+
+[Transcript](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0) \|
+<a href="https://katagiritranscripts.podbean.com/e/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-–-talk-1/" target="_blank">Podcast</a> \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths" target="_blank">Original</a>
+
 ---
 [Next: “Diamond Sutra: Introduction”](1979-05-09-Diamond-Sutra-Introduction#0)
