@@ -106,9 +106,8 @@ You know I’ve told you before in my lectures, the inscription on Rilke’s tom
 
 > Rose. Oh!  
 > Pure contradiction.  
-> Under layers of ivy,  
-> there is peaceful sleep, 
-> with joy.  
+> Under layers of eyelids,  
+> there is peaceful sleep, with joy.  
 > No one touches.  
 
 This is the inscription on Rilke’s tombstone. *[He repeats it.]*
@@ -117,11 +116,11 @@ This is my translation; do you understand this?
 
 *[Someone says “no.” Laughter.]*
 
-(Transcriber’s Note: It took many listenings to get the words of the inscription, and the above still might not be 100% right. A typical translation online read, “Rose, oh pure contradiction, joy of being no one's sleep under so many lids.”)
+(Transcriber’s Note: It took many listenings to get the words of the inscription, and the above still might not be 100% right. A typical translation online reads, “Rose, oh pure contradiction, joy of being no one's sleep under so many lids.”)
 
 *[There is some discussion about the words.]*
 
-*[More laughter.]*
+*[Much more laughter.]*
 
 This is language, okay? *[Laughter.]* You don’t understand, but *I* understand. *[Laughter.]* So that is my individual understanding, okay? But I understand pretty well. *[Laughter.]* But using my pronunciation, you don’t understand. 
 
@@ -129,7 +128,7 @@ This is language, okay? *[Laughter.]* You don’t understand, but *I* understand
 
 **Katagiri**: I don’t want to explain this poem, okay? You should just take it as is.
 
-What I want to tell you is: it says “Rose” and next, “Oh!” And rose is really the being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just, “Rose.” But next, “Oh!” means completely no words – because the rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything – just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
+What I want to tell you is: it says “Rose” and next, “Oh!” The rose is really the being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just, “Rose.” But next, “Oh!” means completely no words – because the rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything – just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
 
 And then if you really want to explain this, you cannot stay there always, in the realm of material existence. Do you remember Vimalakirti? He kept silent, when the [Bodhisattva](glossary#bodhisattva) asked him, “What is the truth? Which is the one and undivided? What is it?” And then Vimalakirti kept silent. This silence is really the implication of glancing at the pure nature of existence, the beauty of existence. When language completely drops off, at that time, how can you say [it]? Just the sound, “Oh.” 
 
