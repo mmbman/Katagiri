@@ -20,9 +20,9 @@ I am transcribing these talks as a way of studying them myself. I've already fou
 
 ## Podcast Description
 
-Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to America. Audio recordings of his talks, recorded from 1979 to 1989, are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since he was a non-native speaker and the recording quality varied, he can be difficult to understand. Here these talks are carefully transcribed and read by second-generation student Kikan Michael Howard, with the intention of staying as true as possible to Katagiri Roshi's words, while smoothing out the grammar to make them easier to understand. New episodes will be posted regularly, going through the talks in order.
+Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to America. Audio recordings of his talks, recorded from 1979 to 1989, are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php), but since he was a non-native speaker and the recording quality varied, he can be difficult to understand. Here these talks are carefully transcribed and read by second-generation student Kikan Michael Howard, with the intention of staying as true as possible to Katagiri Roshi's words, while smoothing out the grammar to make them easier to understand. 
 
-[Podcast Index](podcast#0)
+New episodes of the podcast are on hold for now, while I focus on transcription.
 
 ## More
 
@@ -33,7 +33,7 @@ For updates, you can follow [Katagiri Transcripts on Facebook](https://www.faceb
 If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
 
 ---
-[Next: Podcast Index](podcast#0)
+[Next: Talk Summaries](summaries#0)
 
 [Home](index#0)
 

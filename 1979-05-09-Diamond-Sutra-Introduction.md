@@ -1,5 +1,5 @@
 <a name="0"></a>
-[Previous](podcast#0) \| 
+[Previous](summaries#0) \| 
 [Home](index#diamond-sutra-introduction) \| 
 [Next](1979-06-09-Fukanzazengi-Talk-1#0)
 
