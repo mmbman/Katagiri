@@ -7,9 +7,10 @@
 # Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2
 ## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
+#### Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains ‘tanpankan’ (a “board carrying fellow”), the tension between silence and speech, and the meaning of the inscription on Ranier Maria Rilke’s grave. He says that we may find the spirit of Zen by studying the Blue Cliff Record, and that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
 
 Listen: 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/11-1979" target="_blank">Original Recording</a> \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>

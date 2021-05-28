@@ -4,7 +4,7 @@
 [Next](1979-05-09-Diamond-Sutra-Introduction#0)
 
 -----
-# Podcast Index
+# Talk Summaries
 
 ## Episode 1: “Diamond Sutra: Introduction”
 
@@ -109,6 +109,13 @@ Katagiri Roshi introduces a long-running series of talks on The Blue Cliff Recor
 [Transcript](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-–-talk-1/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths" target="_blank">Original</a>
+
+## 14. Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2
+
+Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains ‘tanpankan’ (a “board carrying fellow”), the tension between silence and speech, and the meaning of the inscription on Ranier Maria Rilke’s grave. He says that we may find the spirit of Zen by studying the Blue Cliff Record, and that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
+
+[Transcript](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0) \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Original Recording</a>
 
 ---
 [Next: “Diamond Sutra: Introduction”](1979-05-09-Diamond-Sutra-Introduction#0)
