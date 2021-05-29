@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0) – 
-[Home](index#blue-cliff-record-case-2-lecture-2) – 
+[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0) \| 
+[Home](index#blue-cliff-record-case-2-lecture-2) \| 
 [Next](1980-03-15-Save-All-Sentient-Beings#0)
 
 ---
@@ -10,9 +10,9 @@
 
 **This transcript is still in rough draft form.**
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/01-1980" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-2-lecture-2" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording

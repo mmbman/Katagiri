@@ -10,7 +10,12 @@
 
 **This transcript is still in rough draft form.**
 
-##### 0:00 start of recording
+Listen: 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
+
+<a name="000"></a>
+##### start of recording
 
 ... twenty-fifth case of the Blue Cliff Record.
 
@@ -90,17 +95,6 @@ Well, it’s not neccessary to be paralyzed. Let see modern civilization, modern
 
 Well at that time, you want to scream. Because to be paralyzed, your life is, paralyzed is not something you can think. You understand paralyzed in your body. But it’s not such a matter of understanding, discussion. Not ... understanding, it is real thing you have to experience directly. When you become paralyzed, right in the bed every day. What do you do? Can you accept your life, saying “this is my karma”? Words are beautiful. But behind the karma, still we are screaming. Burning. Mind, emotions – lots of burning. 
 
-
-
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
-
-<a name="000"></a>
-##### start of recording
-
-
-Case [Twenty] of Blue Cliff Record
 
 
 
