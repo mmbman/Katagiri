@@ -165,25 +165,19 @@ Look at the Chinese Zen histories. If [Buddhism](glossary#buddhism) were complet
 
 There is a very interesting story of one of the famous Japanese scholars – he was a scholar and also he was a communist. [For a time] he practiced under the guidance of [Gempo Yamamoto](glossary#gempo-yamamoto), who was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa), *[unintelligible]*. This gentleman worked in the kitchen as a clerk. 
 
-One day, [Gempo Roshi](glossary#gempo-yamamoto) passed through the kitchen and saw this gentleman. He asked him, “What for do you practice Zen?” [The man] said, “I am practicing Zen to save all sentient beings.” Then Gempo Roshi said, “Oh, is that so.” Then he left. 
+One day, [Gempo Roshi](glossary#gempo-yamamoto) passed through the kitchen and saw this gentleman. He asked him, “What do you practice Zen for?” [The man] said, “I am practicing Zen to save all sentient beings.” Then Gempo Roshi said, “Oh, is that so.” Then he left. 
 
-In a few days, when he passed through the kitchen, and he saw him making rice on the stove, he asked, “What for do you practice [zazen](glossary#zazen)?” [The man] said, “I want to save all sentient beings.” [Gempo Roshi] said, “Oh.” He left.
+In a few days, when he passed through the kitchen, and he saw him making rice on the stove, he asked, “What do you practice [zazen](glossary#zazen) for?” [The man] said, “I want to save all sentient beings.” [Gempo Roshi] said, “Oh.” He left.
 
 The third time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” So immediately, [Gempo Roshi](glossary#gempo-yamamoto) screamed, “*Stupid*!” *[He laughs.]* “That practice is just for *you*!”
 
 *[Tape change.]*
 
-... “because my practice is evaluated in a great way, so you should be patient, please take care of me.”
+“... because my practice is evaluated in a great way, so you should be patient. Please, take care of me.” If you have a family: “I want to go to zazen, so you should stay here and take care [of things].” This is off; don’t you think so? It’s really a cause of fighting. It’s really true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) ‘crashed’ that idea: “Stupid! Your practice is just for you.” 
 
-Well, if you have a family, “I want to go to zazen, so you should stay here and take care [of things]” – this is off. Don’t you think so? It’s really a cause of fighting. It’s really true. That’s why [Gempo Roshi](glossary#gempo-yamamoto) crashed that idea: “Stupid! Your practice is just for you.” 
+I don’t think practice is just for you – but don’t touch it, okay? Don’t get one ‘setting’ for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 
-I don’t think practice is just for you – but don’t touch it, okay? Don’t get one “setting” for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
-
-##### 47:58
-
-Anyway, what for do you practice? Do you practice for the good of all sentient beings? It is still one-sided; because your practice is limited by this. 
-
-Or on the other hand if you say, “I practice for myself” – this is also, your practice is limited by certain ideas. So, “release, forget yourself, and throw yourself into [zazen](glossary#zazen),” means, “What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself. They are just ideas; practice must be alive. At that time ... you simply cannot perceive that practice, but it is really universal. 
+Anyway, what do you practice for? Do you practice for the good of all sentient beings? It is still one-sided, because your practice is *limited* by this. Or on the other hand if you say, “I practice for myself” – [in this case] also, your practice is limited by certain ideas. So, “release, forget yourself, and throw yourself into [zazen](glossary#zazen),” means, “What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself? They are just ideas. Practice must be alive. At that time, you simply cannot perceive that practice, but it is really universal. 
 
 That is called *[unintelligible]* practice. That is, throw yourself into the [Buddha](glossary#buddha)’s home.
 
