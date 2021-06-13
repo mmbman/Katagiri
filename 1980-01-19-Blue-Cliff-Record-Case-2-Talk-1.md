@@ -177,7 +177,7 @@ The third time, he came and asked the same question. And still this gentleman sa
 
 I don’t think practice is just for you – but don’t touch it, okay? Don’t get one ‘setting’ for ideas. Practice is not just for you, practice is not just for all sentient beings; whatever you say, it doesn’t hit the mark.
 
-Anyway, what do you practice for? Do you practice for the good of all sentient beings? It is still one-sided, because your practice is *limited* by this. Or on the other hand if you say, “I practice for myself” – [in this case] also, your practice is limited by certain ideas. So, “release, forget yourself, and throw yourself into [zazen](glossary#zazen),” means, “What is that? This is perfect practice; practice beyond saving all sentient beings, or for saving yourself? They are just ideas. Practice must be alive. At that time, you simply cannot perceive that practice, but it is really universal. 
+Anyway, what do you practice for? Do you practice for the good of all sentient beings? It is still one-sided, because your practice is *limited* by this. Or on the other hand if you say, “I practice for myself” – [in this case] also, your practice is limited by certain ideas. So, “release, forget yourself, and throw yourself into [zazen](glossary#zazen),” means – what is that? This is perfect practice, practice beyond saving all sentient beings? Or for saving yourself? They are just ideas. Practice must be alive. At that time, you simply cannot perceive that practice. But it is really universal. 
 
 That is called *[unintelligible]* practice. That is, throw yourself into the [Buddha](glossary#buddha)’s home.
 
