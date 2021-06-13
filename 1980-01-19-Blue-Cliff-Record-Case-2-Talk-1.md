@@ -1,5 +1,5 @@
 <a name="0"></a>
-[Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0) \|  
+[Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0) \| 
 [Home](index#blue-cliff-record-case-2-lecture-1) \| 
 [Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)
 
