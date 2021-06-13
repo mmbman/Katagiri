@@ -169,7 +169,7 @@ One day, [Gempo Roshi](glossary#gempo-yamamoto) passed through the kitchen and s
 
 In a few days, when he passed through the kitchen, and he saw him making rice on the stove, he asked, “What do you practice [zazen](glossary#zazen) for?” [The man] said, “I want to save all sentient beings.” [Gempo Roshi] said, “Oh.” He left.
 
-The third time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” So immediately, [Gempo Roshi](glossary#gempo-yamamoto) screamed, “*Stupid*!” *[He laughs.]* “That practice is just for *you*!”
+The third time, he came and asked the same question. And still this gentleman said, “I want to practice to save all sentient beings.” So immediately, [Gempo Roshi](glossary#gempo-yamamoto) screamed, “*Stupid!*” *[He laughs.]* “That practice is just for *you!*”
 
 *[Tape change.]*
 
@@ -187,39 +187,37 @@ That is called *[unintelligible]* practice. That is, throw yourself into the [Bu
 
 So, even the clear eyed patchrobed monks cannot save themselves completely. “When you get here, how will you ask for more instruction?” 
 
-When you get there, when you get the real truth – how will you ask for more instruction? Do you want to get some more instruction from me? Do you understand? How can you get instruction? Because you are there already. 
+When you get there, when you get the real truth – how will you ask for more instruction? Do you want to get some more instruction from [me]? *[He chuckles.]* Do you understand? How can you get instruction? Because you are *there* already. 
 
-If you get some information or instruction from there, it is already something particular; objectively you can see it. At that time, it is not truth. You should be right on the vehicle. It is very pure Zen. 
+If you get some information or instruction from there, it is already something particular; objectively you can see it. At that time, it is not truth. Truth is – you should be right on the vehicle. It is really [truth then]. 
 
-At that time only, the [zazen](glossary#zazen) blooms. How can zazen touch the tip of the zazen by itself? No way. But if you see, even slightly, something *else* around zazen, it is something seen objectively, for you to touch. “You can touch” means, to get instruction or information from; zazen, chanting, gassho, whatever.
+At that time only, the [zazen](glossary#zazen) blooms. How can zazen touch [the tip of zazen by itself]? No way. If you see, even slightly, something *else* around zazen, it is something seen objectively, so you can touch it. “You can touch” means to get instruction or information from zazen, [or] chanting, gassho, whatever.
 
 So [Engo Zen Master](glossary#engo-kokugon) says, “When you get here, how will you ask for more instruction?” No way, no way. Nothing to get, any instruction. That means, you simply cannot continue, where you are, what you are doing. 
 
-But – it’s really work. If you don’t know, you feel restless. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life, so don’t worry; don’t be obsessed with restlessness. All you have to do is, just continue to do it. But finally, your life works pretty well.
+But – it’s really work. If you don’t know, you feel *restless*. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life; so don’t worry, don’t be obsessed with restlessness. All you have to do is, just continue to do it. But finally, your life works pretty well.
 
 ##### 52:05
 
-And, “When you get here, how will you ask for more instruction?” – [Engo Zenji](glossary#engo-kokugon) says, “To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
+“When you get here, how will you ask for more instruction?” – [Engo Zenji](glossary#engo-kokugon) says, “To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
 
-Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine sewer rat in sewer, and then cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are dragged, you drag yourself in mud, all over you’re mud, you become mud, covered with mud and dripping water. Anyway completely you are wet, you get wet, with bad(?) water. Sort of covered with mud, so that means gargle yourself with water. 
+Originally it says, sort of, “to drag yourself in mud and gargle yourself with water.” Can you imagine this? It looks like a sewer rat chased by the [cat](glossary#cat). Do you understand? Can you imagine? Let’s imagine a rat in the sewer, and then the cat comes in and tries to chase us. What’s happening? Can you imagine? Completely you are *dragged*, you drag yourself in mud. All over you’re mud; you become mud, covered with mud and dripping water. Anyway, completely you get wet with [that] water. Sort of covered with mud, so that means to gargle yourself with water. 
 
-But even to say the word “Buddha,” immediately you are covered with mud, just like a sewer rat. And then you enjoy it very much: “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
+Even to say the word ‘Buddha,’ immediately you are covered with mud, just like a sewer rat. And then you enjoy it very much: “Yes, I understand Buddha.” But where is the Buddha? You don’t know. 
 
-So, to say the word “Buddha” is trailing mud and dripping water, “to say the word ‘Ch’an’” - that means Zen; to say the word Zen or Ch’an – “is a face full of shame.” Even though you say “Zen,” it’s really full of shame. Zen is based in this world… *[unintelligible]*… Completely based on words? Forget it. 
+So, to say the word “Buddha” is trailing mud and dripping water, “to say the word ‘Ch’an’” – that means Zen, to say the word Zen or Ch’an – “is a face full of shame.” Even though you say ‘Zen’, it’s really full of shame. ‘Zen’ is based in this world. It’s really shame ... *[Unintelligible.]* Completely based on words? Forget it. 
 
-If people say anything stupid, that’s okay. In Nichiren [Buddhism] – do you know [Nichiren](glossary#nichiren), founder of [the Nichiren] Buddhist school? He criticized Zen: “Zen is [something created by a] devil.” I don’t think so. [Created by] a devil?
+People say Zen is stupid; that’s okay. In Nichiren [Buddhism] – do you know [Nichiren](glossary#nichiren), founder of [the Nichiren] Buddhist school? He criticized Zen: “Zen is [something created by a] devil.” I [don’t] think so. [Created by] a devil? (Transcriber’s Note: It’s actually hard to discern whether he’s disagreeing with this.)
 
-Somebody [else] says, Zen is pretty intellectual, Zen is pretty idealistic … lots of criticism, don’t you think? *(unintelligible)* “Zen is ridiculous.” Lots of criticism, because Zen is freedom, free. Freedom is… do you know freedom? Freedom is a free state of being, which appears in many ways, in many situations, but it doesn’t bother us, only appears. It is never contaminated by a certain condition. It always appears under certain conditions, but it’s never contaminated by ideas. That is what is called freedom. That’s why … if you use a particular term, “Zen,” it’s very shameful, because immediately you can see that idea of denomination. That’s why [Engo Zenji](glossary#engo-kokugon) says, “to say the Ch’an is a face full of shame.”
+Somebody [else] says, “Zen is pretty intellectual, Zen is pretty idealistic.” Lots of criticism, don’t you think? *(Unintelligible.)* “Zen is ridiculous.” *Lots* of criticism, because Zen is freedom, free. Freedom is… do you know freedom? Freedom is a free state of being, which appears in many ways, in many situations – but it doesn’t bother us, [only] appears. It is never contaminated by a certain condition. It always appears under certain conditions, but it’s never contaminated by ideas. That is what is called freedom. That’s why … if you use a particular term, “Zen,” it’s very *shameful*, because immediately you can see that idea of denomination. That’s why [Engo Zenji](glossary#engo-kokugon) says, “to say the word Ch’an is a face full of shame.”
 
 ##### 57:02
 
-“Superior people who have studied for a long time do not wait for it to be said;” – well he doesn’t explain, because from moment to moment his life must be alive. So even though he doesn’t say it, his life is really zen. 
+“Superior people who have studied for a long time do not wait for it to be said;” – well he doesn’t explain, because from moment to moment his life must be alive. So even though he doesn’t say it, his life is really Zen. 
 
 Well, if you want to perform gymnastics, you should jump into it, right now actually, throw away yourself into it. This is the point. You cannot wait for the chance to be *[unintelligible]*. 
 
-##### 58:00
-
-“latecoming beginners simply must investigate and apprehend it.” Well, if you are a beginner, how should you do it? This is a very important point.
+“... latecoming beginners simply must investigate and apprehend it.” Well, if you are a beginner, how should you do it? This is a very important point.
 
 That is the pointer. And then, the main case: ...
 
