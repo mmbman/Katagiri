@@ -23,17 +23,13 @@ Listen:
 >
 > [Jōshū](glossary#jōshū-jūshin) replied, “I don’t know either.”
 >
-> The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
+> The monk said, “Since you do not know, Teacher, why do you nevertheless say that you do not abide within clarity?”
 > 
 > [Jōshū](glossary#jōshū-jūshin) said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
 >
-> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR). '[Jōshū](glossary#jōshū-jūshin)' is substitued for 'Chao Chou', since Katagiri uses the Japanese names.)
-
-##### 1:20
+> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR). '[Jōshū](glossary#jōshū-jūshin)' is substitued for 'Chao Chou', since Katagiri Roshi uses the Japanese names.)
 
 [Jōshū](glossary#jōshū-jūshin) was one of the greatest Zen teachers in China, in the 8th century. They say that he became a monk at 60 years old, and until his death, he practiced again and again. [Dogen](glossary#dogen) really admired this Jōshū [Zen Master](glossary#zen-master); in [Shobogenzo](dogen#shobogenzo) he mentioned Jōshū very often. And also, Jōshū was a great Zen Master who belonged to the [Rinzai](glossary#rinzai-zen ) line, but he never used the shouting and the stick, hitting the monks. He used very common words; he lived in a usual way. But each statement was very sharp, to pierce all the monks’ heart. That’s why everyone admired him very much. [Jōshū](glossary#jōshū-jūshin) is the name of the place, which was location of his temple named Kannon-in (Chinese: Guānyīnyuàn). 
-
-##### 3:42
 
 So one day, Jōshū, teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’” 
 
@@ -41,9 +37,9 @@ This comes from the Third Patriarch’s statement, which occurs in the “Belief
 
 ##### 5:03
 
-The Ultimate Path means – Yesterday I told you, the task is the same as the path of the fundamental vehicle of transcendence. Usually truth is regarded as something which exists far from us, which no one can touch. But I don’t think [Buddhism](glossary#buddhism) understands it in that way. The truth is always with us.
+The Ultimate Path means – Yesterday I told you, the [path] is the same as the task of the fundamental vehicle of transcendence. Usually truth is regarded as something which exists far from us, which no one can touch. But I don’t think [Buddhism](glossary#buddhism) understands it in that way. The truth is always with us.
 
-So, the characteristic of truth is completely something transcendent, which means beyond human speculation – good or bad, right or wrong. It makes all beings live in peace and harmony; that is characteristic of truth or universe: unifying all things, beyond human judgement, good or bad, right or wrong. So from this point, how can we approach truth, how can we reach this truth? That’s why we have to manifest ourselves in the state of transcendence. Transcendence means the state of a person who is never tossed away by judgement, good or bad, right or wrong. 
+So, the characteristic of truth is completely something transcendent, which means beyond human speculation – good or bad, right or wrong. It makes all beings live in peace and harmony. That is characteristic of the truth or universe: unifying all things, beyond human judgement, good or bad, right or wrong. So from this point, how can we approach truth, how can we reach this truth? That’s why we have to manifest ourselves in the state of transcendence. Transcendence means the state of a person who is never tossed away by judgement, good or bad, right or wrong. 
 
 That’s why in [zazen](glossary#zazen) we shouldn’t judge ourselves, good or bad, right or wrong. Anyway right now, right here, all you have to do is to let the flower of your life force bloom. At that time, good or bad, right or wrong appears and disappears very naturally. But … if you meddle with those … judgements, evaluations… simultaneously, the many kinds of afflictive preferences appears. That is a problem for us, which leaves human beings in confusion and bewilderment.
 
