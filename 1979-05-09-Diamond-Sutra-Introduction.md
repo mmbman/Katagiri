@@ -29,11 +29,11 @@ The third is the period in which a group of [Yogachara](glossary#yogachara) sutr
 
 During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. The third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. [The fourth was] [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
 
-In the first period, when a group of [Prajnaparamita Sutras](glossary#prajnaparamita-sutra) were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra) and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are *huge* Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose; this is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajna and [emptiness](glossary#śūnyatā). 
+In the first period, when a group of [Prajnaparamita Sutras](glossary#prajnaparamita-sutra) were compiled, at that time a group of Prajnaparamita sutras consisted of, for example, [Vimalakirti Sutra](glossary#vimalakirti-sutra) and [Mahaprajnaparamita](glossary#Mahaprajnaparamita) sutra. These are *huge* Buddhist scriptures. Mahaprajnaparamita sutra consists of 600 fascicles, 200,000 gathas in verse, and an equivalent number of syllables in prose; this is a collection of 16 sutras, the short and long [versions], which set forth the doctrine of prajñā and [emptiness](glossary#śūnyatā). 
 
 So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossary#diamond-sutra). It’s full name is the Vajracchedikā Prajñāpāramitā Sūtra.
 
-This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajna](glossary#prajna). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism). 
+This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajñā](glossary#prajñā). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism). 
 
 ##### 8:30
 

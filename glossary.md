@@ -822,7 +822,7 @@ External links:
 See [Ancestor](glossary#ancestor)
 
 ---
-## Prajna
+## Prajñā
 
 [Sanskrit](glossary#sanskrit): prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
 
