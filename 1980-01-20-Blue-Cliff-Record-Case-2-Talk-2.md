@@ -182,7 +182,7 @@ The tenth note, for “[Jōshū](glossary#jōshū-jūshin) said, ‘It is enough
 
 ##### 1:02:00
 
-When you discuss human life and human world, philosophical, psychologically... well, it drives you [into] the corner, where there is no choice to escape. That means, you are completely on the top of 100-feet high pole. [The] intellect cannot reach. And simultaneously that is reality, in which your life is present. It is reality, too. So, in whatever way you try to understand human life, intellectually or practically, you reach the same situation: being on the top of a 100-feet high pole where you cannot move an inch. But, you *have* to. You cannot stay there. You have to do something; because in this reality, many things [are] moving and changing. That reality is something which is moving and changing constantly. You cannot stay always without doing anything. So you have to move ahead from the top of the 100-foot high pole. This is daily living. 
+When you discuss human life and human world, philosophical, psychologically... well, it drives you [into] the corner, where there is no choice to escape. That means, you are completely on the top of 100-feet high pole. [The] intellect cannot reach. And simultaneously that is reality, in which your life is present; it is reality, too. So, in whatever way you try to understand human life, intellectually or practically, you reach the same situation: being on the top of a 100-feet high pole where you cannot move an inch. But, you *have* to. You cannot stay there. You have to do something; because in this reality, many things [are] moving and changing. This reality is something which is moving and changing constantly. You cannot stay always without doing anything. So you have to move ahead from the top of the 100-foot high pole. This is daily living. 
 
 Intellectually, if you move from the top of the 100-foot high [pole], you appear to die. But, you cannot stay there. If you stay, you are falling. If you go, you will burn out. Whatever you think, it doesn’t make sense. Finally, what shall I do? Your reality is exactly on the verge of life and death. And then finally, what you’ll do [is], release, and forget yourself, and throw yourself away, into [Buddha](glossary#buddha)’s home. That means completely full concentration, with wholeheartedness. We have to deal with [the book] as it really is, before you pick and choose with your afflictive preferences. This is our practice, daily practice. Continually we have to do this. 
 
@@ -192,7 +192,7 @@ So, our reality is exactly no choice. No escape; no getting into. Just like bein
 
 But this having breakfast is not something seen at the first stage, through perception. This is having breakfast seen from the third stage, deep understanding. And then at that time, you can really handle the breakfast with careful, compassionate, generous attention. That is release, and forget yourself, and throw away yourself into [Buddha](glossary#buddha)’s home. At that time, something comes from, not from you, from Buddha’s world, truth. There’s no need [for] effort. Something helps you. At that time, many things work pretty well, even though you don’t realize [it]. That is the best way to do it. 
 
-This koan also teaches in that way. And also [Engo Zen Master](glossary#engo-kokugon) really commented on this koan like this, particularly in the last two notes: “Look, where is he going? He’s chasing him up a tree”; “Lucky thing he has this move, the old thief.” Very important for us. 
+This koan also teaches in that way. And also [Engo Zen Master](glossary#engo-kokugon) really commented on the koan like this, particularly in the last two notes: “Look, where is he going? He’s chasing him up a tree”; “Lucky thing he has this move, the old thief.” Very important for us. 
 
 What you do is very simple: practice, which is called shikantaza. But this simple is not simple [as] we usually understand [it]. This simplicity is to do something on the verge of life and death: there is no choice, to escape [or] to get into. This is what’s called ‘shikan’. It’s not just a simple way without using your consciousness, without awareness. With true awareness, understanding past, present, and future, nonetheless you are not completely tossed away by past, present, and future, and [you] just continue to be present right now. From this presence, broad vastness, a vast world comes up, extending to your past, present, and future. This is what is called spiritual stability. In whatever situation you may be in – you are poor, you are rich, you are clever, you are not clever – you really stand up straight there.
 
@@ -200,25 +200,25 @@ Do you have some questions?
 
 ##### 1:10:55
 
-**Question**: *[unintelligible]*
+**Question**: *[Unintelligible.]*
 
-**Katagiri**: But that is ... love and hate ... for a lot of people that is different... many emotional stuff. But we have all the love and hate and.. many emotional stuff. We don’t ignore this. We can’t throw them away. Why? From where that term comes, “avoid love and hate”: because we love already... we have already means, we have to take care. That means we shouldn’t obsess(?) with them, and, well, not confused. We must be finally free from them. In other words, what is the true love? You cannot say. While you can explain what love is... that is not real love. Don’t you think so?
+**Katagiri**: But that is that, love and hate, for a lot of people those are afflictive preferences, [much] emotional stuff. But we have [already] love and hate and [much] emotional stuff. We don’t ignore it. We cannot throw them away, okay? [So] from where that [phrase] come, “avoid love and hate”? Because we love already. “We have already” means, we have to take care. That means we shouldn’t obsess with them, and, well, [we shouldn’t be] confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
 
-**Question**: What I was wondering was do we have a choice... to hate or not to hate.
+**Question**: What I was wondering was do we have a choice, to hate or not to hate.
 
-**Katagiri**: Of course. We should choose. But you cannot always hanging on.. sooner or later, you must be free. Even though love is good, but you cannot all the time hanging on.
+**Katagiri**: Of course, we should choose. But you cannot always [be] hanging on. Sooner or later, you must be free. Even though love is good, you cannot always [be] hanging on.
 
-**Question**: (?)
+**Question**: We get to choose not to love or not to hate?
 
-**Katagiri**: First choose, but we must be free from, finally. That means we should understand what real love is, real hate is. Do you understand? 
+**Katagiri**: First choose, but we must be free from [it], finally. That means we should understand what real love is, real hate is. Do you understand? 
 
 **Question**: Meh. 
 
-**Katagiri**: Well anyway, you have to reach the third stage. *[He laughs.]* But you should choose. That’s why you have to choose, you have to pick - by what? By you. But ... we have to be careful... choosing and picking every day. But it is your understanding, your life. So, first, it is not perfect, that’s why... if you realize this, simultaneously you get into the second stage, “mountains are not mountains.” And then you can research, one by one: why? That is our practice. And finally, we can come back again to “mountains are mountains”; this is the third stage. At that time, we can really understand what real love is, what real hate is. What is real meaning of afflictive preferences that human beings possess? But, no words. Completely, words drop off. That means, you can handle afflictive preferences day-to-day. Anywhere, in which you are ... free from this. This is our practice. 
+**Katagiri**: Well anyway, you have to reach the third stage. *[He laughs.]* But you should choose. That’s why *you* have to choose, you have to pick. By what? By you. By yourself, but we have to be careful of choosing and picking every day. 
 
-##### 1:15:00
+It is your understanding, your life. So, first, it is not perfect. If you realize this, simultaneously you get into the second stage, “mountains are not mountains.” And then you can research, one by one: *why*? That is our practice. And finally, we can come back again to “mountains are mountains”; this is the third stage. At that time, we can really understand what real love is, what real hate is. What is the real meaning of the afflictive preferences that human beings possess? But, no words. Completely, words drop off. That means, you can handle afflictive preferences from day-to-day, in [a way] in which you are still free from this. This is our practice. 
 
-[Engo](glossary#engo-kokugon)’s commentary is pretty nice. So, if you have time to read the commentary to this case, [you should]. I don’t have enough time to study with you the verses, the poem and commentary to the poem.
+[Engo](glossary#engo-kokugon)’s commentary is pretty nice. So, if you have time to read the commentary to this case, [you should]. I don’t have enough time to study with you the verses, the poem, and the commentary to the poem.
 
 Okay.
 
