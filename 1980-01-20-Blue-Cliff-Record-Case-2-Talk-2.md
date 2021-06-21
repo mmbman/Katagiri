@@ -205,7 +205,7 @@ Do you have some questions?
 
 **Question**: *[Unintelligible.]*
 
-**Katagiri**: Well that is that love and hate, for all those people, those are afflictive preferences, [much] emotional stuff. But we already have love and hate and [much] emotional stuff. We don’t ignore it. We cannot throw them away, okay? [So] from where that [phrase] come, “avoid love and hate”? Because we love already. “We have already” means [that] we have to take care. That means we shouldn’t obsess with them, and, well, [we shouldn’t be] confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
+**Katagiri**: Well that is that love and hate, for all those people, those are afflictive preferences, [much] emotional stuff. But we already have love and hate and [much] emotional stuff. We don’t ignore it. We cannot throw them away, okay? [So] where does that [phrase come from], “avoid love and hate”? Because we love already. “We have already” means [that] we have to take care. That means we shouldn’t obsess with them, and, well, [we shouldn’t be] confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
 
 **Question**: What I was wondering was do we have a choice, to hate or not to hate.
 
