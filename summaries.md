@@ -117,5 +117,20 @@ Why is there “no merit”? Katagiri Roshi covers one of the most famous storie
 [Transcript](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0) \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Original Recording</a>
 
+## 15. Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1
+
+[Transcript](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Original Recording</a>
+
+## 16. Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2
+
+Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by thoughts and ideas, “picking and choosing.” A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom – which might also be called emotion or feeling, intellect, and deep understanding. The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, he says, what we do is very simple: practice, which is called shikantaza. But this ‘simple’ is not simple as we usually understand it; this simplicity is to do something with no choice, on the verge of life and death.
+
+
+
+[Transcript](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-2-lecture-2" target="_blank">Original Recording</a>
+
+
 ---
 [Next: “Diamond Sutra: Introduction”](1979-05-09-Diamond-Sutra-Introduction#0)
