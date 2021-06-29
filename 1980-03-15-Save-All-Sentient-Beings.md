@@ -15,13 +15,13 @@
 <a name="000"></a>
 ##### 0:00 start of recording
 
-Probably you may notice that there are many English terms in Buddhism using “all,” or “all sentient beings,” or “all [dharmas](glossary#dharma).” In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] “all dharmas,” “all sentient beings.” That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “all is impermanent”: what is “all”? This morning I would like to learn these terms with you. 
+Probably you may notice that there are many English terms in Buddhism using “all,” or “all sentient beings,” or “all [dharmas](glossary#dharma).” In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] “all dharmas,” “all sentient beings.” That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “all is impermanent.” What is “all”? This morning I would like to learn these terms with you. 
 
 In [Buddha](glossary#Buddha)’s time, Buddha always analyzed the human world and human beings as five [skandhas](glossary#skandha): form, feeling, perceptions, impulses, and consciousness. And also, sometimes, when the five skandhas are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects, and six consciousnesses. 
 
 Six sense organs, six objects, and six consciousness are the world we are involved in. So from this point, the five skandhas are exactly the implication of the term ‘all’, or ‘all sentient beings’, or ‘all [dharmas](glossary#dharma)’.
 
-[Professor Abe](glossary#masao-abe) translated it sometimes as ‘everything without exception’. At any rate, if we translate it, we say “all”. But this “all,” according to Buddha’s teaching, is described as five skandhas, or six sense organs and six objects. 
+[Professor Abe](glossary#masao-abe) translated it sometimes as “everything without exception.” At any rate, if we translate it, we say “all”. But this “all,” according to Buddha’s teaching, is described as five skandhas, or six sense organs and six objects. 
 
 ##### 4:26
 
@@ -43,7 +43,7 @@ Next is perception. With perception, you can receive something through the consc
 
 So that is the third. Is that clear? Second one, feeling, is before your consciousness works; that is feeling or reception. Without this we cannot experience the function of perception. 
 
-And fourth, impulses: Later I will explain this ... Sometimes we call it ‘volition’, or ‘will’. It’s a very complicated term; it’s very difficult to find an appropriate term. But Conze says that is the “together-maker”. Basically, there is something to make something together. I don’t know what it is. *[He laughs.]* That is called samskara. Anyway, later I will explain.
+And fourth, impulses: Later I will explain this ... Sometimes we call it ‘volition’, or ‘will’. It’s a very complicated term; it’s very difficult to find an appropriate [translation]. But Conze says it is the “together-maker”. Basically, there is something to make something together. I don’t know what it is. *[He laughs.]* That is called samskara. Anyway, later I will explain.
 
 That is impulses, and then consciousness. If you perceive something, then on the bottom of your consciousness, on the bottom of your life, there are some powers, energies, to collect and make something, form your experience through the perception and feeling. Then immediately ... that is consciousness. 
 
@@ -51,15 +51,15 @@ So ‘impulses’ is sort of the basic nature of consciousness.
 
 ##### 12:39
 
-So this is the implication of ‘all [dharmas](glossary#dharma)’ or ‘all’. But in Buddhism – you should remember this point – the ‘all’ is not something which exists separately from you. In other words, ‘all’ is not something which you can “set out,” [‘all’ is not] something existent in advance.
+So this is the implication of ‘all [dharmas](glossary#dharma)’ or ‘all’. But in Buddhism – you should remember this point – the ‘all’ is not something which exists separately from you. In other words, ‘all’ is not something which you can “set out”. [‘All’ is not] something existent in advance.
 
-For instance, if you look at the floor, immediately we believe that before I see the floor, the floor exists. Immediately we believe the floor is something which exists in advance. So already there is some function of consciousness, setting up something which is existent in advance. 
+For instance, if you look at the floor, immediately we believe that before I see the floor, the floor exists. Immediately we believe the floor is something which exists in advance. So already there is some function of consciousness, setting up something which is existent in advance. Is that clear? 
 
-Is that clear? That is not ‘all’. 
+That is not ‘all’. 
 
 ‘All’ in Buddhism is ... the whole [of the] factors of which an individual being is structured. The ‘all’ is not something existent separate from the individual life – my, Katagiri’s [life] – ‘I’. So ‘all’ comes into existence when ‘I’ involve form. At that time, the floor becomes one with all dharmas. From this point [of view], *my* being, the ‘all’ is the ‘all’ for *my* being. It is not something which I can set up a certain idea of something existent in advance, before I experience the floor; that is not ‘all’. The ‘all’ is the factors of which *my* being is structured. It means, floor and I are connected.
 
-So, only when *my* beings are observed – floor – and [made] in question. In other words, floor becomes called in question by my observation of floor. At that time, floor appears in this world, as all beings, as all dharmas. Is that clear?
+So, only when *my* beings are observed – floor – and [made] in question. In other words, floor becomes called in question by my observation of floor. At that time, floor appears in this world, as all beings, as all dharmas.
 
 If you cannot observe and you cannot call it in question – for instance, a tiny insect in the Amazon. Well, I don’t know. I [cannot] observe [it] now, and the tiny insect is completely not called into question. It is completely out of my question. So at that time, it doesn’t become ‘all [dharmas](glossary#dharma)’. 
 
@@ -133,21 +133,21 @@ According to samskara, everything is impermanent. It is really true. The origina
 
 ##### 39:16
 
-From this point, we should understand all beings through individual experience. That is the five skandhas, and six consciousnesses, six sense organs, six objects. At that time, unfortunately, cognition always appears in a different way, because the basic nature of human being is always working constantly, nothing to stop. 
+From this point, we should understand all beings through individual experience. That is the five skandhas, and six consciousnesses, six sense organs, six objects. But at that time, unfortunately, cognition always appears in a different way, because the basic nature of human being is always working constantly, nothing to stop. 
 
-From where does that cognition come? That cognition comes from the basic nature of action, which is called samskara. That’s why finally, you have to throw it away. You have to polish your individual understanding until it becomes universal, until you can touch the core of existence. At that time, it really becomes all [dharmas](glossary#dharma); we call it all sentient beings.
+From where does that cognition come? That cognition comes from the basic nature of action, which is called samskara. That’s why finally, you have to throw it away. You have to polish your individual understanding until it becomes universal, until you can touch the core of existence. At that time, it really becomes all dharmas; we call it all sentient beings.
 
 So if you want to save all sentient beings, first you have to experience many things from your individual experience. So you, carrying your karmas, your heredity, your knowledge – you have to experience [many things]. But it is not good enough. You have to sink into the depths of the ocean, until you can touch the core of existence. At that time, it becomes really dharma, all dharmas. 
 
-If you want to save all sentient beings, first handle the human beings, or any beings, around you. Anyway, help. Experience, think carefully, and help – mutually help – in order to live in peace and harmony. 
+If you want to save all sentient beings, first handle the beings, the human beings or any beings, around you. Anyway, help. Experience, think carefully, and mutually help, in order to live in peace and harmony. 
 
-But still there is a question, problems. That’s why individually, we have to practice on a daily basis, in order to touch the core of existence. 
+But still there are questions, problems. That’s why individually, we have to practice on a daily basis, in order to touch the core of existence. 
 
 ##### 42:00
 
-To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original nature of action which is called samskaras.
+To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called samskaras.
 
-From this point, well – you just accept. “Just accept” means not trying to get, not trying to learn. Before you try to learn, you are *learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
+From this point, well, you just accept. “Just accept” means not trying to get, not trying to learn. Before you try to learn, you are *learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
 
 For instance, if I ask you to talk: first you try to study something. This is very important. Through your effort of studying a certain subject, you can learn something. But this is not good enough. So secondly, when you finish the preparation – *just talk*. “Just talk” means not an object you can experience individually. Completely you are supported by ‘talk’, already. In other words, you are *talked* by talk. Not “you teach,” okay? This is very true, don’t you think so? 
 
@@ -155,7 +155,7 @@ If you talk, there’s two ways. Always we have to research, because all [dharma
 
 ##### 45:45
 
-When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your [dharmas](glossary#dharma), all dharmas. And next, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life. And Lake Calhoun’s waters helps you life. And immediately your body moves, simultaneously. And then you learn: “Oh, this is the point. I can swim.” Yes it is. 
+When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your [dharmas](glossary#dharma), all dharmas. And next, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life, and Lake Calhoun’s waters helps you life. And immediately your body moves, simultaneously. And then you learn: “Oh, this is the point. I can swim.” Yes it is. 
 
 If you think always all dharmas objectively, individually, it sometimes scares you. With your effort, you should learn it. But when the time comes, you just *dive*.
 
