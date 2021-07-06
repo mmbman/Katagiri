@@ -145,37 +145,35 @@ But still there are questions, problems. That’s why individually, we have to p
 
 ##### 42:00
 
-To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called samskaras.
+To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called samskara.
 
 From this point, well, you just accept. “Just accept” means not trying to get, not trying to learn. Before you try to learn, you are *learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
 
-For instance, if I ask you to talk: first you try to study something. This is very important. Through your effort of studying a certain subject, you can learn something. But this is not good enough. So secondly, when you finish the preparation – *just talk*. “Just talk” means not an object you can experience individually. Completely you are supported by ‘talk’, already. In other words, you are *talked* by talk. Not “you teach,” okay? This is very true, don’t you think so? 
+For instance, if I ask you to [give a] talk: first you try to study something. This is very important. Through your effort of studying a certain subject, you can learn something. But this is not good enough. So secondly, when you finish the preparation – *just talk*. “Just talk” means not an object you can experience individually. Completely you are supported by ‘talk’, already. In other words, you are *talked* by talk. [It’s] not “you teach,” okay? This is very true, don’t you think so? 
 
-If you talk, there’s two ways. Always we have to research, because all [dharmas](glossary#dharma) must be individual connections. At that time, everything becomes all dharmas. But simultaneously, “you have to touch the core of being” means, just be one with. Because “just be one” means touch the core of existence, which is called *actions*. Basically everything is moving, constantly. If it is true, impermanence is not something you can see objectively, because your body and mind are already impermanent. So be one with it. Whether you understand it or not, your body is already impermanence, always. So what is that? You should learn first, individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
+If you talk, there’s two ways. Always we have to research, because all [dharmas](glossary#dharma) must be individual connections. At that time, everything becomes all dharmas. But simultaneously, “you have to touch the core of being” means, just be one with. Because “just be one” means touch the core of existence, which is called *actions*. Basically everything is moving, constantly. If it is true, impermanence is not something you can see objectively, because your body and mind are already impermanent. So be one with it. Whether you understand it or not, your body is already impermanence, always. So what is that? You should learn first. Individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
 
 ##### 45:45
 
-When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your [dharmas](glossary#dharma), all dharmas. And next, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life, and Lake Calhoun’s waters helps you life. And immediately your body moves, simultaneously. And then you learn: “Oh, this is the point. I can swim.” Yes it is. 
+When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your [dharmas](glossary#dharma), all dharmas. And next, well, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life, and Lake Calhoun’s waters helps you life. And immediately your body moves, simultaneously. And then you learn. “Oh, this is the point. I can swim.” [This is] how to swim. Yes it is.
 
-If you think always all dharmas objectively, individually, it sometimes scares you. With your effort, you should learn it. But when the time comes, you just *dive*.
+If you always think [of] all dharmas objectively, individually, it sometimes scares you. With your effort, you should learn it. But when the time comes, you just *dive*.
 
 *[Tape change.]*
 
-... when you can get something from the ocean, at that time, that is a point, how to swim. This point doesn’t come from your intentional understanding, or individual understanding – from where, I don’t know. It’s just oneness with the ocean, and your body and mind. And then you say, “Ah, this is a way how to swim!” You cannot explain how. If you want to teach how to swim, you should explain it; but finally you say, “Jump in. Go to Lake Calhoun. Swim!” That’s all.
+... when you can get something from the ocean, at that time, that is the point, how to swim. This point doesn’t come from your intellectual understanding or individual understanding. From where, I don’t know. It’s just oneness with the ocean, and your body and mind. And then you say, “Ah, this is the way how to swim!” You cannot explain how. If you want to teach how to swim, you should explain it; [but] finally you say, “Jump in. Go to Lake Calhoun. Swim!” That’s all.
 
-That is the second point of ‘all dharmas’. You should experience all dharmas individually. At that time, everything becomes all dharmas connected with you. But it’s not good enough, because there is always an egoistic sense, so, we should touch the core of all dharmas. That means, *forget it* – just jump into it, be one. 
-
-##### 48:29
+That is the second point of “all dharmas.” You should experience all dharmas individually. At that time, everything becomes all dharmas connected with you. But it’s not good enough, because there is always an egoistic sense, so, we should touch the core of all dharmas. That means, *forget it* – just jump into it, be one. 
 
 The same applies to [zazen](glossary#zazen). Learn zazen: what is zazen? Well, philosophically, psychologically, you can learn this. But it’s not good enough! So just jump in, jump into zazen. So finally, zazen teaches you, zazen takes care of you. 
 
-Then you get, “Oh, zazen is pretty good!” Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don’t know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. Samskara is impermanence, constantly working. That’s why this is the conflict (confluence?) of all [dharmas](glossary#dharma) in Buddhism. 
+Then you get it. “Oh, zazen is pretty good!” Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don’t know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. Samskara is impermanence, constantly working. That’s why this is the [content] of “all dharmas” in Buddhism. 
 
 ##### 49:32
 
-‘All [dharmas](glossary#dharma)’ is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don’t think so; because it is completely beyond individual experience. It’s pretty hard to understand... That’s why [Buddha](glossary#buddha) kept silent about this problem. 
+“All [dharmas](glossary#dharma)” is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don’t think so; because it is completely beyond individual experience. It’s pretty hard to [understand]... That’s why [Buddha](glossary#buddha) kept silent about this problem. 
 
-So, all dharmas must be something, which becomes an individual experience. And then next, we should touch the depths of existence, which is called samskara. That means practically, jump into it. And then very naturally, you can learn something more than your effort. This is samskara, ‘together maker’, or original nature of action. 
+So, all dharmas must be something which becomes an individual experience. And then next, we should touch the depths of existence, which is called samskara. That means practically, jump into it. And then very naturally, you can learn something more than your effort. This is samskara, ‘together maker’, or original nature of action. 
 
 Whatever you do, this is a very important way of life. Not only in [zazen](glossary#zazen); without this, you cannot learn anything.
 
@@ -189,11 +187,11 @@ Do you have some questions?
 
 If you feel some pessimism from impermanence, et cetera, as a teaching, that is the impermanence you can observe objectively. While you observe it objectively, it makes you pensive, and sometimes egoistic. This is because this is individual experience. 
 
-If you read the Japanese literature, always there are stories based on impermanence. The Japanese literature gives you a certain... not pessimistic exactly, sort of pensive, sad feeling. But this is individual experience. For Buddhism it’s not good enough. Of course you should individually experience, but impermanence must be [Buddha](glossary#buddha). That’s why we have to understand the basic nature of existence. 
+If you read the Japanese literature, always there are stories based on impermanence. All the Japanese literature gives you a certain... not pessimistic exactly, sort of pensive, sad feeling. But this is individual experience. For Buddhism it’s not good enough. Of course you should individually experience, but impermanence must be [Buddha](glossary#buddha). That’s why we have to understand the basic nature of existence. 
 
-Completely speaking, if you feel your life from the teaching of Buddha, which is called impermanence, you don’t believe it, and you try to keep away from it, because you don’t like it. But actually, reality is impermanence, always changing constantly. It is reality. If you see it objectively, it’s immediately giving something *[unintelligible]*. But on the other hand, it is reality. So the important point is, where are you? You are in the middle of reality. In other words, right in the middle of impermanence. 
+Completely speaking, if you feel your life from a certain teaching of Buddha which is called impermanence, you don’t believe it, and also you try to keep away from it, because you don’t like it. But actually, reality is impermanence, always changing constantly. It is reality. If you see it objectively, it’s immediately giving something bitter. But on the other hand, it is reality. So the important point is, where are you? You are right in the middle of reality. In other words, right in the middle of impermanence. 
 
-Whatever you feel individually, that’s understanding. Let’s touch the core of existence, which is called real impermanence. Real impermanence is something you should be one with. That’s why basically, I always tell you, just take care of your life. 
+Whatever you feel individually, that’s understanding. Let’s touch the core of existence, which is called *real* impermanence. Real impermanence is something you should be one with. That’s why basically, I always tell you, just take care of your life. 
 
 Whatever you feel, good or bad, right or wrong: stand up straight, do your best to handle your obligation, your duties and your task – anyway, just do it. That is what puts you right in the middle of impermanence. So very naturally you can learn, just like diving into the ocean. Whatever you feel, like or dislike, just jump into the ocean. And very naturally, you can learn something. What it is to swim; how to swim. What is the ocean; what is the human body and mind. Very naturally, you can learn. 
 
@@ -203,19 +201,19 @@ Does that answer your question?
 
 **Same person**: Do you mean that depending on the depth of your understanding, your feeling of the ‘I’ is more or less there?
 
-**Katagiri**: Something more than that. More than six consciousness, eyes, ears, nose, et cetera. But without six consciousness, you cannot experience, you cannot understand the original nature of existence. That’s why we have to experience individually. But it is not good enough; still we have to understand the basic nature of individual experience; what is individual experience?
+**Katagiri**: Something more than that, yes. More than six consciousness, eyes, ears, nose, et cetera. But without the six consciousness, you cannot experience, you cannot understand the original nature of existence. That’s why we have to experience individually. But it is not good enough; still we have to understand the basic nature of individual experience, what is individual experience.
 
 **Same person**: That’s not what I mean. I mean, what does the feeling of ‘I’ come from? It doesn’t come from the six consciousnesses.
 
-**Katagiri**: Well, of course, six consciousnesses, and also it comes from ignorance according to twelvefold chain of causation. Plainly speaking, it comes from the function of consciousness. Consciousness already immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
+**Katagiri**: Well, of course, six consciousnesses, and also it comes from ignorance according to the twelvefold chain of causation. Plainly speaking, it comes from the function of consciousness. Consciousness immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
 
-So that’s why everything becomes observed and called in question, whatever it is. The science fiction is anyway being, all [dharmas](glossary#dharma) – even though you don’t believe it; because you can think it, you can observe it. That’s why many years ago, someone wrote science fiction, and maybe recently, one by one, it comes to be true. You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it’s possible. 
+So that’s why everything becomes observed and called in question, whatever it is. Science fiction is anyway being, all [dharmas](glossary#dharma), even though you don’t believe it, because you can think it, you can observe it. That’s why many years ago, someone wrote science fiction, and maybe recently, one by one, it comes to be true. You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it’s possible.
 
 ##### 58:43
 
-**Question**: Roshi? I’m not sure what you mean when you say “call in question.” 
+**Question**: Roshi? I’m not sure what you mean when you say “called in question”. 
 
-**Katagiri**: Called in question means it becomes in question. Thinking, what it is. If you see this [tatami](glossary#tatami): the tatami becomes something existent, which you can ... see as object. Thinking and acting, what is it? That is the ‘calls in question’. Is that okay?
+**Katagiri**: Called in question means it becomes in question. Thinking, what it is. If you see this [tatami](glossary#tatami): the tatami becomes something existent, which you can see as an object. Thinking and acting, what is it? That is “calls in question”. Is that okay?
 
 ##### 58:24
 
@@ -223,17 +221,17 @@ So that’s why everything becomes observed and called in question, whatever it 
 
 **Katagiri**: That is exactly the same as ‘all’. 
 
-**Same person**: Is it necessary? From your explanation, it sounded like you were trying to save all beings. And the word ‘sentient’ seems unnecessary.
+**Same person**: Is it necessary? From your explanation, it sounded like you were trying to save *all* beings. And the word ‘sentient’ seems unnecessary.
 
-**Katagiri**: When you say ‘all’, when you use ‘all’, it is limited not by all living beings. It is including animate or inanimate beings. Temporarily we say all sentient beings, but in the Chinese term, it is not limited by all living beings. ‘All beings’.
+**Katagiri**: When you say ‘all’, when you use ‘all’, it is not limited by all living beings. It is including animate or inanimate beings. Temporarily we say all sentient beings, but in the Chinese term, it is not limited by all living beings. “All beings”.
 
-**Same person**: Is that kind of a translation *[unintelligible]*
+**Same person**: So is that kind of a translation *[unintelligible]*
 
 **Katagiri**: I don’t know.
 
 *[Some chuckles.]*
 
-**Same person**: My understanding of the word sentient refers to living beings. And so when I hear that phrase ‘sentient beings’, it wouldn’t occur to me to think of my hair, or my coat, or the floor. Can you explain ‘all sentient beings’ when you use those examples? It seems to me that the word ‘sentient’ doesn’t include them; that’s why I’m just asking for a better understanding. 
+**Same person**: My understanding of the word sentient refers to living beings. And so when I hear that phrase “sentient beings”, it wouldn’t occur to me to think of my hair, or my coat, or the floor. Can you explain “all sentient beings” when you use those examples? It seems to me that the word ‘sentient’ doesn’t include them; that’s why I’m just asking for a better understanding. 
 
 **Another person**: I think the Buddhist interpretation of living and sentient is different than the American one. Like, to us, a rock isn’t a living being, but to Buddhist point of view, a rock is a living being and is sentient being. Is that right?
 
@@ -251,11 +249,7 @@ So that’s why everything becomes observed and called in question, whatever it 
 
 **Other person**: *[unintelligible]*
 
-**Katagiri**: No, everything is alive, that’s why we have to take care of it. But in a sense, in other words, the thinking, the image, you can think. This is also a sort of funny being; I don’t know how to call it. Living beings or not living beings – but anyway living beings, because you can think. When you save ‘living’, a being becomes connected with you. At that time it becomes living. But if you see it objectively, whatever it is, it becomes dead.
-
-*[There is a pause, then laughter.]*
-
-It’s not ‘all beings’. In order to accept all beings, it must be something involved. At that time, everything becomes living. 
+**Katagiri**: No, everything is alive, that’s why we have to take care of it. But in a sense, in other words, the thinking, the image, you can think. This is also a sort of funny being; I don’t know how to call it. Living beings or not living beings – but anyway living beings, because you can think. When you save ‘living’, a being becomes connected with you. At that time it becomes living. But if you see it objectively, whatever it is, it becomes dead. *[There is a pause, then laughter.]* It’s not ‘all beings’. In order to accept all beings, it must be something involved. At that time, everything becomes living. 
 
 Is that okay?
 
@@ -267,19 +261,19 @@ Any others?
 
 *Question*: Hojo, when you say that truth is the same as one of the [dharmas](glossary#dharma), is it the same as saying that truth has to be experienced individually?
 
-**Katagiri**: Mmm-hmm. While you are thinking of the truth, it is nothing but all beings, which is impermanence. But truth is one – when you say truth is one, truth is something which exists, completely beyond human speculation. That means truth is original state of being. 
+**Katagiri**: Mmm-hmm. While you are thinking of the truth, it is nothing but all beings, which is impermanence. But when you say truth is one, truth is something which exists completely beyond human speculation. That means truth is [in the] spirit of original state of being. 
 
-So, it must be something we should experience, that is the truth. But real truth is not individual experience. Still something, real meaning of truth, we have to understand.
+So, it must be something we should experience, that is the truth. But real truth is not individual experience. [There is] still something, [some] real meaning of truth, we have to understand.
 
 ##### 1:04:30
 
-**Question**: Roshi? Would you please explain the statement by the \[Sixth] [Patriarch](glossary#patriarch), who said that distinguishing mind is permanent *[unintelligible]*
+**Question**: Roshi? Would you please explain the statement by the \[Sixth] [Patriarch](glossary#patriarch), who said that distinguishing mind is permanent, and [enlightenment] is impermanent?
 
 **Katagiri**: Distinguishing mind is impermanent?
 
 **Same person**: Permanent.
 
-**Katagiri**: Permanent? Oh. 
+**Katagiri**: Permanent? Oh. *[He laughs.]*
 
 Distinguishing mind is permanent. Oh. Let me think about that. *[Laughter.]*
 
@@ -299,23 +293,21 @@ You understand, okay?
 
 *[The laughter eventually dies down.]*
 
-Well, distinguished mind: without distinguished mind, you cannot experience the truth, or Buddha Nature, whatever it is. From this point, it is very important for us. So, open your eyes, to take care of [distinguishing] with the mind as something permanent. You cannot destroy it.
+Well, without distinguishing mind, you cannot experience the truth, or Buddha Nature, whatever it is. From this point, it is very important for us. So, open your eyes, to take care of distinguishing mind as something permanent. You cannot destroy it.
 
-On the other hand, if you touch it... If you are completely involved too much, it becomes some trouble. 
+On the other hand, if you touch it, if you are involved too much, it becomes some trouble. 
 
 **Question**: [Person], would you repeat that statement please?
 
-**Person**: The distinguishing mind is permanent, and [enlightenment](glossary#enlightenment) isn’t.
+**Person**: The distinguishing mind is permanent, and [enlightenment](glossary#enlightenment) is impermanent.
  
-**Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that’s why you want to practice. But that is individual understanding, when you see [dharma](glossary#dharma) [from an] individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That’s why he said ‘opposite’. 
+**Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that’s why you want to practice. But that is the individual understanding, when you see [dharma](glossary#dharma) [from an] individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That’s why he said [the] opposite.
 
-For instance, Zen always says, the first koan Rinzai Zen master gives you is ‘nothing’. Well, nothing is completely something you are amazed by, because we don’t believe in that way. Everything exists, everything is real. But zen says: nothing; think this. That is a really big shock. 
+For instance, the first koan a Rinzai Zen master gives you is “nothing”. Well, nothing is completely something you are amazed by, because we don’t believe in that way. [We believe] everything exists, everything is real. But zen says “nothing”; think this. That is a really big shock. That’s all.
 
-The big shock is very important. It isn’t important whether you understand it or not; Zen teacher doesn’t expect you in that way. Just to give you big shock, like this. You cannot destroy the question; question becomes *[unintelligible]* nothing. That big shock is rooted in your mind. That’s very nice. 
+The big shock is very important. It isn’t important whether you understand it or not. The Zen teacher doesn’t expect you [to understand] in that way; [it’s] just to give you a big shock, like this. You cannot destroy the question; question becomes *[unintelligible]* nothing. That big shock is rooted in your mind. That’s very nice. 
 
-**Another Person**: But first, get it.
-
-**Katagiri**: That’s why *[unintelligible]* expressed in that way ...
+But first, get it. That’s why the Sixth Patriarch said it in that way.
 
 ##### 1:09:29 end of recording
 
