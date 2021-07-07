@@ -57,7 +57,7 @@ For instance, if you look at the floor, immediately we believe that before I see
 
 That is not ‘all’. 
 
-‘All’ in Buddhism is ... the whole [of the] factors of which an individual being is structured. The ‘all’ is not something existent separate from the individual life – my, Katagiri’s [life] – ‘I’. So ‘all’ comes into existence when ‘I’ involve form. At that time, the floor becomes one with all dharmas. From this point [of view], *my* being, the ‘all’ is the ‘all’ for *my* being. It is not something which I can set up a certain idea of something existent in advance, before I experience the floor; that is not ‘all’. The ‘all’ is the factors of which *my* being is structured. It means, floor and I are connected.
+‘All’ in Buddhism is ... the whole [of the] factors of which an individual being is structured. The ‘all’ is not something existent separate from the individual life – my, Katagiri’s [life] – ‘I’. So ‘all’ comes into existence when ‘I’ involve form. At that time, the floor becomes one with all dharmas. From this point, *my* being, the ‘all’ is the ‘all’ for *my* being. It is not something which I can set up a certain idea of something existent in advance, before I experience the floor; that is not ‘all’. The ‘all’ is the factors of which *my* being is structured. It means, floor and I are connected.
 
 So, only when *my* beings are observed – floor – and [made] in question. In other words, floor becomes called in question by my observation of floor. At that time, floor appears in this world, as all beings, as all dharmas.
 
@@ -69,17 +69,13 @@ From this point, we can think, through the six consciousnesses. Even though you 
 
 At that time, not only the insect, and the birds and pebbles, trees, but still past, present and future, also are ‘all dharmas’, ‘all sentient beings’; because you can observe them as your object, and also you can make [them in] question, what [they are]. 
 
-So science fiction, or the unusual beings on Mars or on other planets – as long as you can think of it, whatever it is – all are sentient beings. 
-
-Only when you can observe it and make it a question – at that time, the creatures in Mars, on other planets, are ‘all beings’. But when they are not observed and not called into question, at that time they are completely out of question, [so] it’s not ‘all beings’. 
+So science fiction, or the unusual beings on Mars or on other planets – as long as you can think of it, whatever it is, all are sentient beings. Only when you can observe it and make it a question – at that time, the creatures in Mars, on other planets, are ‘all beings’. But when they are not observed and not called into question, at that time they are completely out of question, [so] it’s not ‘all beings’. 
 
 Do you understand? This is ‘all beings’.
 
 So if you say “I save all sentient beings,” that “all sentient beings” is what? It is not the heavens, okay? *[He chuckles.]* [It is not] the human beings after death. “All sentient beings” are something related with you and [your] thinking, observing and researching what it is. At that time, that is “all sentient beings”.
 
-So from this point, “I save all sentient beings” is – what? Well, look around your life. How many beings exist? 
-
-Around you there are cushions, floor; you can see them. For those beings, we can help [them], one by one. We can handle your boots, and sandals, and your hair, and clothes. We can take care of them pretty well. This is exactly to save all sentient beings: because sandals, your boots, your clothes, are *beings*, ‘all [dharmas](glossary#dharma)’, which are observed, which are called into question. 
+So from this point, “I save all sentient beings” is – what? Well, look around your life. How many beings exist? Around you there are cushions, floor; you can see them. For those beings, we can help [them], one by one. We can handle your boots, and sandals, and your hair, and clothes. We can take care of them pretty well. This is exactly to save all sentient beings: because sandals, your boots, your clothes, are *beings*, ‘all [dharmas](glossary#dharma)’, which are observed, which are called into question. 
 
 So, we should do it. At that time, it’s not necessary to think of something else, which is not observed and which is not called in question. From moment to moment, always there are some beings which appear. 
 
@@ -87,13 +83,11 @@ That is the first point.
 
 ##### 23:32
 
-The second point is: if ‘all beings’ are something which we should connect with, we should involve [with], [and] at that time, that is called ‘all beings’ or ‘all [dharmas](glossary#dharma)’ – if it is true, we say, ‘truth’. What is the truth? If ‘truth’ is one of the dharmas, one of the human world – at that time, what is a dharma? Dharma is ‘all dharmas’ which are observed and are called in question. 
-
-So that ‘truth’ is all beings just for you. Because you have to involve. 
+The second point is: if ‘all beings’ are something which we should connect with, we should involve [with], [and] at that time, that is called ‘all beings’ or ‘all [dharmas](glossary#dharma)’ – if it is true, we say, ‘truth’. What is the truth? If ‘truth’ is one of the dharmas, one of the human world – at that time, what is a dharma? Dharma is ‘all dharmas’ which are observed and are called in question. So that ‘truth’ is all beings just for you. Because you have to involve. 
 
 So when you involve with truth, truth becomes dharma. That means, truth is something which you can experience individually. Without individual experience, truth is never ‘all dharmas’. Truth must be something you ... experience individually. At that time, this is called ‘all dharmas’.
 
-That’s why there is a problem. The [problem] is, the truth is one, but individually if you experience a truth, the truth appears in a different way. Don’t you think so? And finally, we fight each other. “Your understanding of truth is *wrong*.” Or, “My understanding of truth is right, so you should believe me.” You should believe this religion, et cetera: we fight, always.
+That’s why there is a problem. The [problem] is, the truth is one, but individually if you experience a truth, the truth appears in a different way. Don’t you think so? And finally, we fight each other. “Your understanding of truth is *wrong*.” Or, “My understanding of truth is right, so you should believe me.” “You should believe this religion,” et cetera: we fight, always.
 
 So, the second point is, what is the limitation of the [dhātu](glossary#dhātu) – dhātu means the ‘world’ – which we can reach? What is the limitation of the world? In other words: how far can ‘all [dharmas](glossary#dharma)’ extend? From where, to where?
 
@@ -103,7 +97,7 @@ But recognition doesn’t appear always in the same pattern; from moment to mome
 
 How cognition appears in a different way: when you see this zendo, the first experience is that this zendo becomes ‘all dharmas’ only when it is observed and is called in question. At that time, it becomes ‘all dharmas’, called zendo, related with you. But that is *your* understanding, your individual experience. If you always handle zendo according to this point, it is not the best way to exist in peace and harmony, because everyone creates different dharmas. 
 
-So the point is, how far do the ‘all dharmas’ extend? Dharmas shouldn’t extend only to an individual, but to *everyone*. And also, not to understanding on the surface, but to understanding deeply, [to the] depth of beings. The dharma should penetrate to this. 
+So the point is, how far do the “all dharmas” extend? Dharmas shouldn’t extend only to an individual, but to *everyone*. And also, not to understanding on the surface, but to understanding deeply, [to the] depth of beings. The dharma should penetrate to this. 
 
 ##### 30:31
 
@@ -111,11 +105,11 @@ So from this point, if you see this zendo, first the zendo becomes [dharma](glos
 
 The zendo is not the zendo *you* understand. [That] zendo is just a being. 
 
-What is ‘just a being’? Just a being is what is called samskara in Sanskrit. Samskara means “original nature of action”. The [Buddha](glossary#buddha) says, all are impermanent. In Japanese, in Sanskrit, what we say is not “all”; literally the translation is, “all samskaras”. Samskara means original nature of action, working. 
+What is “just a being”? Just a being is what is called samskara in Sanskrit. Samskara means “original nature of action”. The [Buddha](glossary#buddha) says, “all are impermanent.” In Japanese, in Sanskrit, what we say is not “all”; literally the translation is, “all samskaras”. Samskaras means original nature of action, working. 
 
 The original nature of action is impermanence. Impermanence means “not perpetual”. At any time, in whatever situation you may be, everything is not perpetual, everything is not constant. 
 
-But, if you say everything is not perpetual, not permanent, you say what that everything is [that is] not permanent is something real, which exists, always. Don’t you think so? If you want to get something existent *always*, without change, that is called impermanence – not something perpetual. But at that time, this idea is not impermanent. Buddhism says, truth is the reality [that] everything is impermanent – if you say that, immediately we get some idea of “what everything is impermanent” is true, which exists always, in all the times. But this “always, in all the times,” is not perpetual, is not something [permanent]. It is a certain state of being at any time, in whatever situation you may be: my situation, your situation. 
+But, if you say everything is not perpetual, not permanent, you say what that everything is [that is] not permanent is something real, which exists always. Don’t you think so? If you want to get something existent *always*, without change, that is called impermanence – not something perpetual. But at that time, this idea is not impermanent. Buddhism says, truth is the reality [that] everything is impermanent – if you say that, immediately we get some idea [that] “everything is impermanent” is true, which exists always, in all the times. But this “always, in all the times,” is not perpetual, is not something [permanent]. It is a certain state of being at any time, in whatever situation you may be: my situation, your situation. 
 
 For instance, if I see this zendo, this is *my* situation. If I see [zazen](glossary#zazen), this is *my* situation. At any time, anywhere, if you see zazen, this is ‘all beings’, which is always there. But this zazen is always not perpetual, always changing. 
 
@@ -147,11 +141,13 @@ But still there are questions, problems. That’s why individually, we have to p
 
 To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called samskara.
 
-From this point, well, you just accept. “Just accept” means not trying to get, not trying to learn. Before you try to learn, you are *learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
+From this point, well, you just accept. “Just accept” means not trying to get, not trying to learn. Before you try to learn, you *are learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
 
 For instance, if I ask you to [give a] talk: first you try to study something. This is very important. Through your effort of studying a certain subject, you can learn something. But this is not good enough. So secondly, when you finish the preparation – *just talk*. “Just talk” means not an object you can experience individually. Completely you are supported by ‘talk’, already. In other words, you are *talked* by talk. [It’s] not “you teach,” okay? This is very true, don’t you think so? 
 
-If you talk, there’s two ways. Always we have to research, because all [dharmas](glossary#dharma) must be individual connections. At that time, everything becomes all dharmas. But simultaneously, “you have to touch the core of being” means, just be one with. Because “just be one” means touch the core of existence, which is called *actions*. Basically everything is moving, constantly. If it is true, impermanence is not something you can see objectively, because your body and mind are already impermanent. So be one with it. Whether you understand it or not, your body is already impermanence, always. So what is that? You should learn first. Individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
+If you talk, there’s two ways. Always we have to research, because all [dharmas](glossary#dharma) must be individual connections. At that time, everything becomes all dharmas. But simultaneously, “you have to touch the core of being” means, just be one with. Because “just be one” means touch the core of existence, which is called *actions*. Basically everything is moving, constantly. If it is true, impermanence is not something you can see objectively, because your body and mind are already impermanent. So be one with it. Whether you understand it or not, your body is already impermanence, always. 
+
+So what is that? You should learn first. Individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
 
 ##### 45:45
 
@@ -247,7 +243,7 @@ So that’s why everything becomes observed and called in question, whatever it 
 
 **Katagiri**: Not-living beings means, according to human consciousness, it doesn’t have a brains and thinking, consciousness, that’s why we temporarily analyze, distinguish that it is not ‘all living beings’. But actually it is living.
 
-**Other person**: *[unintelligible]*
+**Other person**: *[Unintelligible.]*
 
 **Katagiri**: No, everything is alive, that’s why we have to take care of it. But in a sense, in other words, the thinking, the image, you can think. This is also a sort of funny being; I don’t know how to call it. Living beings or not living beings – but anyway living beings, because you can think. When you save ‘living’, a being becomes connected with you. At that time it becomes living. But if you see it objectively, whatever it is, it becomes dead. *[There is a pause, then laughter.]* It’s not ‘all beings’. In order to accept all beings, it must be something involved. At that time, everything becomes living. 
 
@@ -263,7 +259,7 @@ Any others?
 
 **Katagiri**: Mmm-hmm. While you are thinking of the truth, it is nothing but all beings, which is impermanence. But when you say truth is one, truth is something which exists completely beyond human speculation. That means truth is [in the] spirit of original state of being. 
 
-So, it must be something we should experience, that is the truth. But real truth is not individual experience. [There is] still something, [some] real meaning of truth, we have to understand.
+So, it must be something we should experience, that is the truth. But real truth is not individual experience. [There is] still something, [the] real meaning of truth, we have to understand.
 
 ##### 1:04:30
 
@@ -283,7 +279,7 @@ Zen is not honest! *[Laughter.]*
 
 Zen is always teaching you human life in a crooked way. *[Laughter.]*
 
-[In one] aspect of the truth, distinguishing mind is something wrong, *perverted*. The other aspect, distinguished mind is truth. *[He chuckles.]*
+[In one] aspect of the truth, distinguishing mind is something wrong, *perverted*. The other aspect, distinguishing mind is truth. *[He chuckles.]*
 
 Well... never mind. 
 
@@ -303,7 +299,7 @@ On the other hand, if you touch it, if you are involved too much, it becomes som
  
 **Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that’s why you want to practice. But that is the individual understanding, when you see [dharma](glossary#dharma) [from an] individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That’s why he said [the] opposite.
 
-For instance, the first koan a Rinzai Zen master gives you is “nothing”. Well, nothing is completely something you are amazed by, because we don’t believe in that way. [We believe] everything exists, everything is real. But zen says “nothing”; think this. That is a really big shock. That’s all.
+For instance, the first koan a Rinzai Zen master gives you is “nothing”. Well, nothing is completely something you are amazed by, because we don’t believe in that way. [We believe] everything exists, everything is real. But Zen says “nothing”: think this. That is a really big shock. That’s all.
 
 The big shock is very important. It isn’t important whether you understand it or not. The Zen teacher doesn’t expect you [to understand] in that way; [it’s] just to give you a big shock, like this. You cannot destroy the question; question becomes *[unintelligible]* nothing. That big shock is rooted in your mind. That’s very nice. 
 
