@@ -8,9 +8,8 @@
 ## April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/04-1980" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
