@@ -288,7 +288,7 @@ That’s why our practice is continuous. Dogen says, “Just continuous practice
 
 So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha.” What is Sun Face Buddha, Moon Face Budha? What would be right? Shall I depend on Sun Face Buddha, living for eternity, seeking for the Buddha’s face? What is peace? What is bliss, real bliss? Always [there are] questions there.
 
-But if you see sort of a face that you can depend on, that face is really [a trick]. It’s not the real face. Through the face you can see the real face. But that face always leaves you with a question: “What is your face,” constantly. *[Unintelligible.]*
+But if you see sort of a face that you can depend on, that face is really [a trick]. It’s not the real face. Through the face you can see the real face. But that face always leaves you with a question, “What is your face,” constantly. *[Unintelligible.]*
 
 ##### 1:19:37 end of recording
 
