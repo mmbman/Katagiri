@@ -564,7 +564,7 @@ That's why that is number six: total personality. Let's be there.
 ##### 1:30:30 end of recording
 
 ---
-[Next Talk: Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Talk-3#0)
+[Next Talk: “Fukanzazengi – Talk 3”](1979-06-11-Fukanzazengi-Talk-3#0)
 
 [Home](index#fukanzazengi-lecture-2)
 

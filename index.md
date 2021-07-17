@@ -32,7 +32,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
 1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
 
-1. Blue Cliff Record, Case 4 – Talk 1
+1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
 1. Blue Cliff Record, Case 4 – Talk 2
 
 1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)

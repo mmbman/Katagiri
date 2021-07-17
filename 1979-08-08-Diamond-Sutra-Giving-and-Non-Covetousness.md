@@ -229,7 +229,7 @@ It is okay to pick up a lantern. But I really regret that people didn’t ask us
 ##### 1:07:09 end of recording
 
 ---
-[Next Talk: Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
+[Next Talk: “Diamond Sutra: Dharma / Not Dharma / Dharma”](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
 
 [Home](index#diamond-sutra-giving-and-non-covetousness)
 

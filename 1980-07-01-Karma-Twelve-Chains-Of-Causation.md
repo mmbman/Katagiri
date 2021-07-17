@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](unfinished-1980-1#0) – 
-[Home](index#karma-twelve-chains-of-causation) – 
+[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0) \|  
+[Home](index#karma-twelve-chains-of-causation) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates#0)
 
 ---
@@ -10,9 +10,9 @@
 
 **This transcript is still in rough draft form.**
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 (The online audio of this first talk is only about five minutes long: apparently the first side of the tape was blank. Very unfortunate. However, the talk from the following day appears after this one.)
 
@@ -27,7 +27,7 @@ So what is agreement? Oh yes, it is a form of a circle. This is nothing but the 
 So before time and space is completely normal sense of ignorance. This is birth of the Buddhas. That is the truth, regardless of the Buddha … in this world, or he describes the forms, or not. Anyway, this is before time and space arises. Okay.
 
 ---
-[Next Talk: Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
+[Next Talk: “Karma: Where Karma Originates”](1980-07-02-Karma-Where-Karma-Originates#0)
 
 [Home](index#karma-twelve-chains-of-causation)
 

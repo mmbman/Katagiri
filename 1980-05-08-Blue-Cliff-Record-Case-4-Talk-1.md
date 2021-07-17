@@ -1,7 +1,7 @@
 <a name="0"></a>
-[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0) – 
-[Home](index#1980) – 
-[Next](unfinished-1980-1#0)
+[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0) \| 
+[Home](index#1980) \| 
+[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
 
 ---
 # Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1
@@ -10,11 +10,11 @@
 
 **This transcript is still in rough draft form.**
 
-(Note: On the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 came before Talk 2, I have switched the dates accordingly.)
+(Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
+Listen: 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -39,9 +39,7 @@ Let me first read the case:
 >
 > (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
 
-That is the whole story.
-
-Let me first talk simply about this story, and then I would like to read the pointer. 
+That is the whole story. Let me first talk simply about this story, and then I would like to read the pointer. 
 
 ##### 4:26
 
@@ -254,7 +252,7 @@ Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very in
 ##### 56:08 end of recording
 
 ---
-[Next: Not Yet Transcribed: 1980 Part 1](unfinished-1980-1#0)
+[Next Talk: “Karma: Twelve Chains of Causation”](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
 
 [Home](index#1980)
 

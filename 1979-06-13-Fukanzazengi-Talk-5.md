@@ -538,7 +538,7 @@ That is from the first.
 ##### 1:35:31 end of recording
 
 ---
-[Next Talk: Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6#0)
+[Next Talk: “Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6#0)
 
 [Home](index#fukanzazengi-lecture-5)
 

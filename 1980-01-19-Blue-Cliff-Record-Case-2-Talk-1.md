@@ -220,7 +220,7 @@ That is the pointer. And then, the main case: ...
 ##### 58:33 end of recording 
 
 ---
-[Next Talk: Blue Cliff Record, Case 2 – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)
+[Next Talk: “Blue Cliff Record, Case 2 – Talk 2”](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)
 
 [Home](index#blue-cliff-record-case-2-lecture-1)
 

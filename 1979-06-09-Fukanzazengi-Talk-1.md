@@ -280,7 +280,7 @@ By the zazen, if you believe “I should be happy,” or “I want to do somethi
 ##### 1:07:20 end of recording
 
 ---
-[Next Talk: Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2#0)
+[Next Talk: “Fukanzazengi – Talk 2”](1979-06-10-Fukanzazengi-Talk-2#0)
 
 [Home](index#fukanzazengi-lecture-1)
 

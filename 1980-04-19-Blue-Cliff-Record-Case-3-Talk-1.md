@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](1980-03-15-Save-All-Sentient-Beings#0) – 
-[Home](index#1980) – 
+[Previous](1980-03-15-Save-All-Sentient-Beings#0) \| 
+[Home](index#1980) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
 
 ---
@@ -293,7 +293,7 @@ But if you see sort of a face that you can depend on, that face is really [a tri
 ##### 1:19:37 end of recording
 
 ---
-[Next: Blue Cliff Record, Case 3 – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
+[Next Talk: “Blue Cliff Record, Case 3 – Talk 2”](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
 
 [Home](index#1980)
 

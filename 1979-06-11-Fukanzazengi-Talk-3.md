@@ -456,7 +456,7 @@ Such [delusions](glossary#delusion) come up, always. This is really flickering. 
 ##### 1:51:05 end of recording
 
 ---
-[Next Talk: Fukanzazengi – Talk 4](1979-06-12-Fukanzazengi-Talk-4#0)
+[Next Talk: “Fukanzazengi – Talk 4”](1979-06-12-Fukanzazengi-Talk-4#0)
 
 [Home](index#fukanzazengi-lecture-3)
 

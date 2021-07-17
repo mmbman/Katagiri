@@ -190,7 +190,7 @@ So you must be free from the enlightenment that you have experienced – and the
 ##### 58:56 end of recording
 
 ---
-[Next Talk: Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
+[Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma)
 

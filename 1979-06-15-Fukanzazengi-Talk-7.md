@@ -178,7 +178,7 @@ Remember that story. That’s a beautiful story, isn’t it?
 ##### 51:04 end of recording
 
 ---
-[Next Talk: Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
+[Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being#0)
 
 [Home](index#fukanzazengi-lecture-7)
 

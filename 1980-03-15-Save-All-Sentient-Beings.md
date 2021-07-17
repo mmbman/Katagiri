@@ -1,6 +1,6 @@
 <a name="0"></a>
-[Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0) – 
-[Home](index#1980) – 
+[Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0) \| 
+[Home](index#1980) \| 
 [Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
 
 ---
@@ -308,7 +308,7 @@ But first, get it. That’s why the Sixth Patriarch said it in that way.
 ##### 1:09:29 end of recording
 
 ---
-[Next: Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
+[Next Talk: “Blue Cliff Record, Case 3 – Talk 1”](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
 
 [Home](index#1980)
 

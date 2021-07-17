@@ -226,7 +226,7 @@ Okay.
 ##### 1:16:06 end of recording
 
 ---
-[Next: Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings#0)
+[Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings#0)
 
 [Home](index#blue-cliff-record-case-2-lecture-2)
 
