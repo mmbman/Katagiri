@@ -90,29 +90,25 @@ So, that’s why Engo Zen Master says, “This fellow has broken down quite a bi
 >
 >> Four hundred and four diseases break out all at once. They will be lucky if they’re not seeing off a dead monk in three days. (This question) is in the course of humanity and righteousness.
 
-“Four hundred and four diseases break out all at once.” *[Laughter.]* That means, all the suffering comes up. When you sit down, if you look around at the human world, immediately four hundred and forty things comes up. Don’t care about the numbers: more than four hundred, thousands of diseases come up, all of your suffering comes up. 
+“Four hundred and four diseases break out all at once.” *[Laughter.]* That means, all the suffering comes up. When you sit down, if you look around at the human world, immediately four hundred and forty things comes up. Don’t care about the numbers: more than four hundred. Thousands of diseases come up; all of your suffering comes up. 
 
-You see just one disease: “Why is practice like this?” But this is not [just] one; this is coming from ignorance. Do you remember ignorance? Ignorance has a thousand diseases, a thousand thousand. You don’t know what it is. 
+You see just one disease: “Why is practice [like] this?” But this is not [just] one; this is coming from ignorance. Do you remember ignorance? Ignorance has a thousand diseases, a thousand thousand. You don’t know what it is. 
 
-The moment when this superintendent first asks him, “How have you been?” – this is already a disease, the question. For Baso Zen Master, when the time comes to die, just to die. No way; so, he doesn’t care. 
+The moment when this intendent first asks him, “How have you been?” – this is already a disease, [the] question. For Baso Zen Master, when the time comes to die, just to die. No way, so, he doesn’t care. 
 
-The same applies to your practice: when you have to do [zazen](glossary#zazen), just sit down to do zazen. When someone comes and asks, “What are you doing? Are you happy to do this?” This question is really ignorant, don’t you think so? It is. It makes you sick.
+The same applies to your practice: when you have to do [zazen](glossary#zazen), just sit down to do zazen. When someone comes [and asks], “What are you doing? Are you happy to do this?” This question is really ignorant, don’t you think so? It is. It makes you sick.
  
-But, no way. When you have to sit, just sit. If you don’t like it: get up, go out; you can do that. But even though you can go out, or you can come in, come back, or you can go out, again and again – there is no basic solution for a human being. The basic solution for a human being is very simple: when the time comes to sit, just sit down. When the time comes to live: to live under all circumstances. This is the basic solution.
-
-##### 25:07
+So, no way. When you have to sit, just sit. If you don’t like it, [then] get up, go out; you can do that. But even though you can go out, or you can come back, or you can go out, again and again – there is no basic solution for a human being. The basic solution for a human being is very simple: when the time comes to sit, just sit down. When the time comes to live, to live under all circumstances. This is the basic solution.
 
 “Four hundred and four diseases break out all at once. They will be lucky if they are not seeing off a dead monk in three days.”
 
-... Partly, you are a lucky person if you don’t crash during [zazen](glossary#zazen). And then, if you have a question how ridiculous it is – you can’t stand up in such zazen, don’t you think so? It’s completely crashed. So it’s pretty easy to get out; that is really a dead monk. You perform a service for the dead monk. *[He laughs.]* If still you can sit down there, you’re lucky, you are a lucky person. That’s why Engo says, “They will be lucky if they’re not seeing off a dead monk in three days.” Not three days; the number is dangerous, the number doesn’t matter. *Right now*; this is the question. Right now.
-
-##### 26:35
+You are a lucky person if you don’t crash during [zazen](glossary#zazen). If you have a question how ridiculous it is, you can’t stand up in such zazen, so it’s completely crashed. So it’s pretty easy to get out; that is really a dead monk. You perform a funeral service for the dead monk. *[He laughs.]* If still you can sit down there, you’re lucky, you are a lucky person. That’s why Engo says, “They will be lucky if they’re not seeing off a dead monk in three days.” Not three days; the number is dangerous, the number doesn’t matter. *Right now* – this is the question. Right now.
 
 “(This question) is in the course of humanity and righteousness.”
 
-Baso Zen Master doesn’t care whatever you say when he has to die. If that is true, why did this intendent ask him, “How have you been?” It’s not necessary to say “how have you been”; let him go! But Engo says, “This is in the course of humanity and righteousness.” It’s just like a “good morning” – “Hello, how are you? Good morning.” 
+Baso Zen Master doesn’t care whatever you say when he has to die. If that is true, why did this intendent ask him, “How have you been?” It’s not necessary to say “how have you been”; let him go! But Engo says, “This is in the course of humanity and righteousness.” It’s just like a “good morning”. “Hello, how are you? Good morning.” 
 
-You cannot ignore this. “Hello, how are you?” “Good morning,” “Good afternoon,” “Good night” – this is really humanity. And also this is righteousness, in a sense. 
+You cannot ignore this. “Hello, how are you?” “Good morning.” “Good afternoon.” “Good night.” T This is really humanity. And also this is righteousness, in a sense. 
 
 ##### 27:40
 
@@ -122,23 +118,19 @@ The note says:
 
 >> How fresh and new! 
 
-Sun Face Buddha, Moon Face Buddha is “how fresh and new,” because ... it’s pretty rare to hear “Sun Face Buddha, Moon Face Buddha.” There are lots of Buddhas, but he has never heard of “Sun Face Buddha” or “Moon Face Buddha”; that’s why Engo says, “how fresh and new!”
+Sun Face Buddha, Moon Face Buddha is “fresh and new” because it’s pretty rare to hear “Sun Face Buddha, Moon Face Buddha.” There are lots of Buddhas, but he has never heard of “Sun Face Buddha” or “Moon Face Buddha”; that’s why Engo says, “how fresh and new!”
 
-But it is not necessarily a name. He said “Sun Face Buddha” or “Moon Face Buddha”; that means whether his life is long or his life it short, it doesn’t matter – just a Buddha. He can live long, or he has to die. If he has to die now, does his body disappear completely, no life anymore? Or can he still dwell in [nirvana](glossary#nirvana), eternity? Whatever you say, it doesn’t hit the mark. 
+But it’s not necessary [to] name [them]. He said “Sun Face Buddha, Moon Face Buddha”; that means whether his life is long or his life it short, it doesn’t matter, just a Buddha. He can live long, or he has to die. If he has to die now, does his body disappear completely, no life anymore? Or can he still dwell in [nirvana](glossary#nirvana), eternity? Whatever you say, it doesn’t hit the mark. 
 
 If it is true, where can he live? That is Buddha.
 
-##### 29:09
-
 >> Sustenance for his fledgeling.
 
-Sun Face Buddha, Moon Face Buddha: if this is just to take care of young birds in order to fly in the sky, well, Sun Face Buddha, Moon Face Buddha is a really gentle, soft suggestion how to live, how to affect life and death. But we do this [Sun Face Buddha, Moon Face Buddha]. It’s not always [stuck] in gentleness; there is a very strict, sharp suggestion there too.
+Sun Face Buddha, Moon Face Buddha: if this is just to take care of young birds in order to fly in the sky, well, Sun Face Buddha, Moon Face Buddha is a really gentle, soft suggestion how to live, how to affect life and death. But we do this. It’s not always [stuck] in gentleness; there is a very strict, sharp suggestion there too.
 
 ##### 30:10
 
-The Verse:
-
-\[This is\] [Setchō Zen Master](glossary#setchō-jūken)’s verse for the koan, and also [Engo Zen Master](engo-kokugon) ’s comment on each verse. 
+The Verse. \[This is\] [Setchō Zen Master](glossary#setchō-jūken)’s verse for the koan, and also [Engo Zen Master](engo-kokugon)’s comment on each verse. 
 
 **Transcriber’s Note:** Here is Setchō Zen Master’s complete verse, without the comments:
 
@@ -161,11 +153,11 @@ This is the first verse. The comment says:
 
 *[Some laughter.]*
 
-Well, you have to see guts, anyway! If you open your mouth, you have to see guts.  Between Setchō Zen Master and Baso Zen Master, there is no gap. The moment Baso Zen Master says, “Sun Face Buddha, Moon Face Buddha,” immediately Setchō Zen Master can see Baso’s guts. In other words, he understands completely what is death, what is life, through his words.
+Well, you have to see guts, anyway! If you open your mouth, you have to see guts. Between Setchō Zen Master and Baso Zen Master, there is no gap. The moment Baso Zen Master says, “Sun Face Buddha, Moon Face Buddha,” immediately Setchō Zen Master can see Baso’s guts. In other words, he understands completely what is death, what is life, through his words.
 
 >> Baso Zen Master and Setchō are like two facing mirrors; in between there is no image or reflection.
 
-There is no image, just like a mirror. But if you see the mirror, immediately [between the] mirror and you, the dualistic world comes up. [If there is] exactly no image and no reflection in the mirror – that means, yesterday I told you, dive into the ocean. Simultaneously, ocean and you, all your guts, work simultaneously. There is no mirror, no image, no reflection. Immediately it’s working. 
+There is no image, just like a mirror. If you see the mirror, immediately [between the] mirror and you, the dualistic world comes up. But [if there is] exactly no image and no reflection in the mirror – that means, yesterday I told you, dive into the ocean. Simultaneously, the world and you, the ocean and you, all your guts, work simultaneously. There is no mirror, no image, no reflection. Immediately it’s working. 
 
 That is “Sun Face Buddha, Moon Face Buddha.” Engo Zen Master says it that way. The moment when you dive into the ocean, you can see the ocean’s guts, and the guts of interdependent co-origination, simultaneously. 
 
@@ -175,13 +167,11 @@ The second verse says,
 
 > What kind of people were the Ancient Emperors?
 
-That means, what kind of people were the Ancient Emperors before Baso (Setchō?) Zen Master. And [Buddhas](glossary#buddha) and patriarchs, and all beings, and [enlightenment](glossary#enlightenment) and delusion, and life and death – what are they?
+That means, what kind of people were the Ancient Emperors before Baso (Setchō?) Zen Master. And [Buddhas](glossary#buddha) and patriarchs, and all beings, and [enlightenment](glossary#enlightenment) and delusion, and life and death – what are [they]?
 
 What are *you* for? Whatever you say – “paradise,” and “health,” and “enlightenment, [nirvana](glossary#nirvana),” whatever you say – for Baso who was about to die, what is useful?
 
 That is the meaning of this verse, “What kind of people were the Ancient Emperors?”
-
-##### 34:02
 
 >> Too lofty. 
 
@@ -189,9 +179,7 @@ Engo says, “Too lofty.” That means, “Uh-oh, Setchō, you’re proud of you
 
 >> Don’t belittle them. They can be valued high or low.
 
-That means, Engo Zen Master says to Setchō, do not be proud of Baso Zen Master. It is not desirable to insult Baso Zen Master. 
-
-“What kind of people were the Ancient Emperors” means Setchō Zen Master understands immediately Baso’s feeling about his life and death. That’s why he said, whatever person, whatever they are, life and death, delusion and [enlightenment](glossary#enlightenment), [nirvana](glossary#nirvana), paradise, the world after death – whatever you say – I don’t care. What is useful? All I have to do is to die, when the time comes. That is Setchō Zen Master’s feeling or understanding. That’s why Engo says, “too lofty.” But it’s not criticism. 
+Engo Zen Master says to Setchō, do not be proud of Baso Zen Master. [Also] it is not desirable to insult Baso Zen Master. “What kind of people were the Ancient Emperors” means Setchō Zen Master understands immediately Baso’s feeling about his life and death; that’s why he said, “I don’t care.” Whatever person, whatever [it is] – life and death, delusion and [enlightenment](glossary#enlightenment), [nirvana](glossary#nirvana), paradise, the world after death, whatever you say – I don’t care. What is useful? All I have to do is to die, when the time comes. That is Setchō Zen Master’s feeling or understanding. That’s why Engo says, “Uh-oh, too lofty.” So it’s not criticism. 
 
 ##### 35:41
 
@@ -199,19 +187,15 @@ In the third verse, Setchō Zen Master explained his life:
 
 > For twenty years I have suffered bitterly;
 
-This is ... Setchō’s history: “For twenty years I have suffered bitterly.” He has practiced for twenty years, and experienced lots of things.
-
-Engo says,
+This is Setchō’s history: “For twenty years I have suffered bitterly.” He has practiced for twenty years, and experienced lots of things. Engo says,
 
 >> This is your own fall into the weeds – it’s none of my business. Here’s a mute eating a bitter melon.
 
-Engo Zen Master says, “This is your own fall into the weeds.” That means in the basic nature of the human world, there is no extra world: [nirvana](glossary#nirvana), [enlightenment](glossary#enlightenment), paradise or not paradise, et cetera. Finally, the original nature of existence, all we have to do is be quiet, just do it. That’s all we have to do. 
+Engo Zen Master says, “This is your own fall into the weeds.” That means in the basic nature of the human world there is no extra word: [nirvana](glossary#nirvana), [enlightenment](glossary#enlightenment), paradise or not paradise, et cetera. Finally, [in] the original nature of existence, all we have to do is be quiet, just do it. That’s all we have to do. If you practice for 20 years and experience bitterness – that is your fault, you did that. Engo says, “That is none of my business; you did it.” Basically, the human world is no-suffering.
 
-But, if you practice for 20 years and experience the bitterness; that is your fault, you did that. Engo says, “That is none of my business; you did it.” Basically, the human world is no-suffering.
+“Here is a mute eating a bitter melon.” We know pretty well, if we practice, there is the original nature of existence, embracing all sentient beings. There is no suffering, no pleasures – a completely peaceful, perfect world. We know it pretty well. If it is true, why don’t we always stay there? We cannot stay there; so we experience lots of bitterness. But if you experience bitterness, you cannot say anything about how awful bitterness is, how wonderful bitterness is. If you experience real bitterness, you become a mute: nothing to say. 
 
-So, “Here is a mute eating a bitter melon.” We know pretty well, if we practice, that there is the original nature of existence, embracing all sentient beings; there is no suffering, no pleasures – a completely peaceful, perfect world. We know it pretty well; if it is true, why don’t we always stay there? But we cannot stay there; so we experience lots of bitterness. But if you experience bitterness, you cannot say anything about how awful bitterness is, how wonderful bitterness is. So if you experience real bitterness, you become a mute: nothing to say. 
-
-But this mute has lots of words, because you know how bitterness is. In order to live in the vastness of the human world, life and death, delusion and enlightenment come in and out – we have to experience bitterness. If you experience bitterness, you become a sort of mute. That ‘mute’ means completely beyond good or bad, right and wrong; nothing to say. So finally, as old memories, you can talk about bitterness. At that time, bitterness is not bitterness; you can talk about bitterness with a smile. 
+But this mute has lots of words, because you know how bitter it is. In order to live in the vastness of the human world, life and death, delusion and enlightenment come in and out. We have to experience bitterness. If you experience bitterness, you become sort of mute. That ‘mute’ means completely beyond good or bad, right and wrong; nothing to say. So finally, as old memories, you can talk about bitterness. At that time, bitterness is not bitterness; you can talk about bitterness with a smile. 
 
 That’s why Engo Zen Master *teased* Setchō: “This is none of my business; *you* did it. But on the other hand, your bitterness is just like a mute, nothing to say. How wonderful it is!”
 
@@ -221,13 +205,11 @@ The next verse says,
 
 > How many times I have gone down into the Blue Dragon’s cave for you!
 
-This ‘you’ is the attitude [where] Baso calmly and [simply] enters into death without saying anything; just “Sun Face Buddha, Moon Face Buddha.” That is ‘you’. But in order to get to this point, “how many times I have gone down into the Blue Dragon’s cave for you!” How many times we have to go into the Blue Dragon’s cave. That means bitterness, and lots of strictness, hard practice, and lots of things there. 
+This “you” is the attitude [where] Baso calmly and [simply] enters into death without saying anything; just “Sun Face Buddha, Moon Face Buddha.” That is “you.” But in order to get to this point, “how many times I have gone down into the Blue Dragon’s cave for you!” How many times we have to get into the Blue Dragon’s cave. That means bitterness, lots of strictness, hard practice, and lots of things there. 
 
-It is said that a Dragon possesses a jewel in his jaw. So in order to get the jewel from the dragon, you have to go to the cave where the dragon lives. Without going to that cave, you cannot get it. But that going to the cave and getting the jewel is very hard practice. Risking your life to go there, to get the jewel – this is really practice for us. 
+It is said that a Dragon possesses a jewel in his jaw. So in order to get the jewel from the dragon, you have to go to the cave where the dragon lives. Without going to that cave, you cannot get it. But going to the cave and getting the jewel is very hard practice. Risking your life to go there, to get the jewel – this is really practice for us. 
 
-So, “How many times I have gone down into the Blue Dragon’s cave for you!” We cannot count, or you cannot envision how many times we should go there. We should experience the hard practice how often, how many times? And then we can get the jewel? We don’t know. 
-
-##### 42:50
+So, “How many times I have gone down into the Blue Dragon’s cave for you!” We cannot count, or we cannot envision how many times we should go there. We should experience the hard practice how often, how many times? And then we can get the jewel? We don’t know. 
 
 Setchō says, 
 
@@ -237,35 +219,31 @@ Setchō says,
 
 *[Tape change.]*
 
-... But Setchō says, “don’t say there isn’t anything extraordinary here.” If you want to do that, just do it! Because you want to, just do it; none of my business. But on the other hand, he says, don’t say there isn’t anything extraordinary here – this is Sun Face Buddha, Moon Face Buddha. It’s sort of nothing to say, nothing to comment to this. But this is coming from how many times? Many, many times of going into the Blue Dragon’s cave. 
+... But Setchō says, “don’t say there isn’t anything extraordinary here.” If you want to do that, just do it! Because you want to, just do it; none of my business. But on the other hand, he says, don’t say there isn’t anything extraordinary here. This is Sun Face Buddha, Moon Face Buddha. It’s sort of nothing to say, nothing to comment [on] this. So this is coming from how many times? Many, many times of going into the Blue Dragon’s cave. But now, what you can see is “Sun Face Buddha, Moon Face Budda.” Nothing to [comment] about this. Is there some particular extraordinary thing, or excitement, there in Baso Zen Master? Nothing. 
 
-But now, what you can see is, “Sun Face Buddha, Moon Face Budda.” Nothing too [complicated] about this. And is there some particular extraordinary thing, or excitement, there in Baso Zen Master? Nothing. 
-
-If it is true, “just to die when the time comes” means just a simple practice: just to die when the time comes. But Engo says, “No, no – it’s not. Watch out! Because it comes from many, many thousand times of going to get the jewel from the Blue Dragon’s cave.” 
-
-But behind this is Sun Face Buddha, Moon Face Buddha. There is lots of background: practically, philosophically, psychologically. This is the human world. 
-
-Next, 
+If it is true, “just to die when the time comes” means just a simple practice: just to die when the time comes. But Engo says, “No, no – it’s not. Watch out! Because it comes from many, many thousand times of going to get the jewel from the Blue Dragon’s cave.” But behind this is Sun Face Buddha, Moon Face Buddha. There is lots of background, practically, philosophically, psychologically. This is the human world. 
 
 ##### 45:17
 
+Next, 
+
 > This distress is worth recounting;
 
-... How long has Setchō been practicing? It’s really distress, it’s really hard practice. But Engo says,
+How long has Setchō been practicing? It’s really distress; it’s really hard practice. But Engo says,
 
 >> He saddens people to death. Sad man, don’t speak to sad people.
 
-You know pretty well, if you practiced in the past, *hard* practice, if you suffer so much – then you can speak about the suffering you had in the past, but it is spoken as a good memory for you. So, you really want to talk about your suffering to somebody. But it saddens people. 
+You know pretty well, if you practiced in the past, *hard* practice, if you suffer so much, then you can speak about the suffering you had in the past, but it is spoken as a good memory for you. So, you really want to talk about your suffering to somebody. But it saddens people. 
 
-So Engo says, “I understand, Setchō, I see your practice. Yes, yes; I understand how distressful it is, because I know pretty well; practice for many, many years. But if you say so, you sadden the people to death.” 
+So Engo says, “I understand, Setchō, I see your practice. Yes, yes; I understand how distressful it is. I know pretty well, you practiced for many, many years. But if you say so, you sadden the people to death.” 
 
-Engo says, “Sad man, don’t speak to sad people.” You are a sad man; don’t speak to sad people. Maybe ‘sad people’ means, if you want to talk to the sad people who experience same thing as Setchō, then ... you really agree with Setchō, and then you cry with him. At that time, you really shake hands with him, and you understand Setchō, and Setchō understands you. But, it is nothing but staying in a den. 
+Engo says, “Sad man, don’t speak to sad people.” You are a sad man; don’t speak to sad people. Maybe “sad people” means, if you want to talk to the sad people who experience the same thing as Setchō, then ... you really agree with Setchō, and you cry with him. At that time, you really shake hands with him, and you understand Setchō; and Setchō understands you. But, it is nothing but staying in a den. 
 
 >> To whom would you speak of it? If you speak of it to sad people, you will sadden them to death.
 
-To whom do you want to speak – to a sad man, or not to a sad man? If you speak about your hard practice to a man who is not sad, he doesn’t understand. If you go to human society and talk about your practice to some people who are not interested in it – well, nobody understands your practice, saying, “You are crazy.” Have you experienced this? *[Some laughter.]*
+To whom would you want to speak, to a sad man, or not to a sad man? If you speak about your hard practice to a man who is not sad, he doesn’t understand. If you go to human society and talk about your practice to some people who are not interested in it – well, nobody understands your practice. [They say,] “You are crazy.” Have you experienced this? *[Some laughter.]*
 
-Then if you explain your practice to the people who are called ‘sad man’, who practice [and know] how terrible, how awful sesshin is – well, people cry with you, “Yes, I understand you.” *[Laughter.]* 
+Then if you explain your practice to the people who are called “sad man,” who practice [and know] how terrible, how awful sesshin is: well, people cry with you. “Yes, I understand you.” *[Laughter.]* 
 
 So that’s why Engo says, “To whom would you speak of it? If you speak of it to sad people, you will sadden them to death.” *[Laughter.]* Because you can cry pretty easily, and shake hands.
 
@@ -275,49 +253,37 @@ The next verse says:
 
 > Clear-eyed patchrobed monks shouldn’t take it lightly.
 
-... According to Engo Zen Master, hard practice, human suffering, is unsentimental. It’s just something you should deal with as something sentimental. So if you talk about your practice to a sad man, well you can cry with each other, you can shake hands – but this is nothing but sentiment. Patchrobed monks should have clear eyes. Sun Face Buddha, Moon Face Buddha: that’s just simple manifestation, revealing Baso Zen Master himself as a whole. Behind this, there are many, many thousand times of hard practice; but it doesn’t show. 
+According to Engo Zen Master, hard practice, human suffering, is unsentimental, not something you should deal with as sentimental. If you talk about your practice to a sad man, well you can cry with each other, you can shake hands – but this is nothing but the sentimental. Patchrobed monks should have clear eyes. Sun Face Buddha, Moon Face Buddha: that’s just simple manifestation, revealing himself, Baso Zen Master, as a whole. Behind this, there are many, many thousand times of hard practice, but it doesn’t show. 
 
-How can Baso speak of this? To whom? Sad people? Well, maybe they’d understand. But even if somebody understands “Sun Face Buddha, Moon Face Buddha” – who dies? Baso Zen Master dies, not the person who understands “Sun Face Buddha, Moon Face Buddha.” So that’s why, “To whom would you speak of this?”
+How can Baso speak of this? To whom? Sad people? Well, maybe they’d understand. But even if somebody understands “Sun Face Buddha, Moon Face Buddha” – who dies? Baso Zen Master dies, not the person who understands “Sun Face Buddha, Moon Face Buddha”. So that’s why [Engo Zen Master asks], “to whom would you speak of this?” Finally what you have to do is, you should have clear eyes. *Who* dies? 
 
-So finally what you have to do is, you should have clear eyes. Who dies? 
+Sometimes I feel in the United States, Buddhism is still staying in the realm of [Śrāvakabuddha](glossary#śrāvakabuddha). Do you know śrāvakabuddha? Śrāvakabuddha means a [buddha](glossary#buddha) who attains enlightenment through listening to the Buddha’s teaching. Lots of people are interested in listening to Buddha’s teaching, and in enlightenment. It’s not good enough, because it doesn’t work in your daily living. Of course you can attain enlightenment intellectually by listening to Buddha. But, why is it that a Bodhisattva has to practice a thousand years continually? *Why*? Because it’s not simple to practice your enlightenment in daily living. It’s not so simple. 
 
-##### 51:26
+Even though you understand Sun Face Buddha, Moon Face Buddha through your practice – who dies? *You* die. When the time comes, *you* have to die. You’re really confused: “I am talking about my understanding of Sun Face Buddha, Moon Face Buddha.” Of course, but there is no proof. “Katagiri, can *you* die as a Sun Face Buddha, Moon Face Buddha?” There is no proof. I can say, “Yes, I can die,” or “No.” Yes or no, [there is] nothing to say. Finally, we have to learn death exactly from death directly. 
 
-[Enlightenment](glossary#enlightenment), in the United States mostly – sometimes I feel in the United States, Buddhism is still staying in the realm of [Sāvakabuddha](glossary#sāvakabuddha). Do you know Sāvakabuddha? Sāvakabuddha means a [buddha](glossary#buddha) who attains enlightenment through listening to the Buddha’s teaching. 
+That’s why yesterday I told you, “all beings” are all beings connected with each of us individually. If there is something else apart from you, it cannot be called “all beings.” Whatever it is, “all beings” are really something closely connected with you; that is what is called “all beings”. But simultaneously, it’s not real “all beings,” because they are beings seen from each of us individually. It’s not all beings. Finally, we have to learn all beings through all beings themselves; that means, through your individual understanding of all beings, connected with you.
 
-Lots of people are interested in listening to Buddha’s teaching, and in enlightenment. It’s not good enough, because it doesn’t work in your daily living. Of course you can attain enlightenment intellectually by listening to Buddha. But, why is it that a Bodhisattva has to practice a thousand years continually – *why*? Because it’s not simple to practice your enlightenment in daily living. It’s not so simple. 
+In other words, I told you yesterday: when you have to talk, talk is one of the “all beings,” nothing but “all beings.” This [talk] is something connected with you. So you have to study, completely [study]; at that time, this talk becomes all beings connected with you. And then, is this enough? You [just] have to learn about the talk? No way. Next, forget it. All you have to do is sit down and talk. When you talk, you can exactly learn a talk from the talk directly. You cannot speak of the talk to you. This is really important for us. 
 
-Even though you understand Sun Face Buddha, Moon Face Buddha through your practice – who dies? *You* die. When the time comes, *you* have to die. You’re really confused: “I am talking about my understanding of Sun Face Buddha, Moon Face Buddha.” Of course, but there is no proof. “Katagiri, can *you* die as a Sun Face Buddha, Moon Face Buddha?” There is no proof. I can say, “Yes, I can die” – or “No.” Yes or no, there is nothing to say. Finally, we have to learn death exactly from death directly. 
+Even though you attain enlightenment, it is not enough, because it must be something *alive* in each of us, individually. At that time, it is called enlightenment. So enlightenment is what? Enlightenment is really your life, which is alive day after day. It’s really [close]. That is enlightenment. 
 
-That’s why yesterday I told you, ‘all beings’ are all beings connected with each of us individually. If there is something else apart from you, it cannot be called ‘all beings’. Whatever it is, ‘all beings’ are really something closely connected with you; that is what is called ‘all beings’. But simultaneously, it’s not real ‘all beings’, because they are beings seen from each of us individually. It’s not all beings. Finally, we have to learn ‘all beings’ through ‘all beings’ themselves; that means, through your individual understanding of ‘all beings’ connected with you.
-
-In other words, I told you yesterday: when you have to talk, talk is one of the ‘all beings’; nothing but ‘all beings’. This talk is something connected with you. So completely speaking, you have to study; at that time, this talk becomes ‘all beings’ connected with you. And then, is this enough? You [just] have to learn about the talk? No way. Next: forget it. All you have to do is sit down and talk. When you talk, exactly you can learn a talk directly from the talk. You cannot talk [of the] talk; [you cannot] speak of the talk to you. This is really important for us. 
-
-... Even though you attain enlightenment, it is not enough, because it must be something *alive* in each of us, individually. At that time, it is called enlightenment. So enlightenment is what? Enlightenment is really your life, which is alive day after day. It’s really [close]. That is enlightenment. 
-
-In order to do this, we have to have clear eyes. Dogen really emphasizes that point. 
+In order to [see] this, we have to have clear eyes. Dogen really emphasizes that point. 
 
 ##### 56:30
 
-After “clear eyed patch-robed monks shouldn’t take it lightly”, this is the last verse [comment], which in English says:
+After “clear eyed patch-robed monks shouldn’t take it lightly,” this is the last [comment on the verse], which in English says:
 
 >> You must be even more thoroughgoing. Bah! 
 
 *[There is some crosstalk about ‘bah’ as an exclamation.]*
 
-“You must be even more thoroughgoing.” That means, Setchō Zen Master says, you should have clear eyes. Whatever you experience – [enlightenment](glossary#enlightenment), delusion, whatever – it doesn’t make sense, so finally you should have clear eyes in order to make it alive in your daily living. And then, Engo says, you must be even more thoroughgoing. Watch out! What is that? Nothing to say. “Bah!” Forget it. 
+“You must be even more thoroughgoing.” Setchō Zen Master says, you should have clear eyes. Whatever you experience – [enlightenment](glossary#enlightenment), delusion, whatever – it doesn’t make sense, so finally you should have clear eyes in order to make it alive in your daily living. And then Engo says, “You must be even more thoroughgoing. Watch out, Setchō!” What is that? Nothing to say. “Bah!” Forget it. All you have to do is: Sun Face Buddha, Moon Face Buddha. When the time comes to die, just to die. No extra excitement, no extra sadness or pleasure. Nothing; just *there*. That is “Bah!”
 
-All you have to do is: Sun Face Buddha, Moon Face Buddha. When the time comes to die, just to die. No extra excitement, no extra sadness or pleasure – nothing; just *there*. That is ‘Bah’. Do you understand?
-
-Because Engo cannot say, “What do you mean by, ‘You must be even more thoroughgoing’?” If you have clear eyes, after attaining enlightenment, after understanding Sun Face Buddha, Moon Face Buddha – what do you mean? Nothing to say. 
-
-Well, according to my words, “keep your mouth shut and just do your best.”
-
-##### 59:12
+Because Engo cannot say, “What do you mean by, ‘You must be even more thoroughgoing’?” If you have clear eyes, after attaining enlightenment, after understanding Sun Face Buddha, Moon Face Buddha – what do you mean? Nothing to say. Well, according to my words, “Keep your mouth shut and just do your best.”
 
 >> Fall back three thousand miles.
 
-This is more than simply “keep your mouth shut, just do your best with wholeheartedness and compassion”; this is really going back three thousand miles. That means it’s very hard to reach. The words are simple: keep your mouth shut, and just do your best with compassion and wholeheartedness. Simple words. But for us, it’s really going back 3,000 miles: it’s far away.
+This is more than simply “keep your mouth shut, just do your best with wholeheartedness and compassion”; this is really going back three thousand miles. That means it’s very hard to reach. The words are simple: keep your mouth shut, and just do your best with compassion and wholeheartedness. Simple words. But for us, it’s really going back 3,000 miles. It’s far away. 
 
 That’s why we have to practice, we have to go to the Blue Dragon’s cave to get the jewel. How many times? We don’t know how many times.
 

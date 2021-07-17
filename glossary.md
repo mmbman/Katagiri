@@ -984,7 +984,7 @@ External links:
 - [Wikipedia: Sanskrit](https://en.wikipedia.org/wiki/Sanskrit)
 
 ---
-## Sāvakabuddha
+## Śrāvakabuddha
 
 A buddha who attains enlightenment through listening the Buddha’s teaching. (Basically, an [arhat](glossary#arhat).)
 
