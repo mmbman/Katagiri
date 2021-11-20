@@ -545,11 +545,6 @@ The Sixth Ancestor of Chan Buddhism; a semi-legendary figure. The one who won th
 # I
 
 ---
-## Ino
-
-zendo (meditation hall ) manager 
-
----
 ## Igi
 
 Japanese: igi 威儀 (pronounced "ee-jee", more or less). 
@@ -573,6 +568,18 @@ Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
 ## Impulses
  
 See [samskara](glossary#samskara).
+
+---
+## Ino
+
+Zendo (meditation hall ) manager.
+
+---
+## Intimacy
+
+‘Intimacy’ refers to how the the ultimate nature of existence – emptiness – and your life work together very closely.
+
+- [Introduction to Buddhism (4:50)](1985-06-22-Introduction-to-Buddhism#450)
 
 ---
 ## Isan Reiyū
