@@ -1,15 +1,13 @@
 <a name="0"></a>
-[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0) \| 
-[Home](index#1980) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
+[Previous](1981-08-26-Blue-Cliff-Record-Case-25-Talk-1#0) \| 
+[Home](index#1985) \| 
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
 
 ---
 # Introduction to Buddhism
 ## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 ### Transcribed by Kikan Michael Howard
 #### An alternative title for this talk might have been, “What Is Buddhist Faith?” What does ‘faith’ mean in Buddhism, where the central philosophy is emptiness? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
-
-**This transcript is still in rough draft form.**
 
 Listen: 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Original Recording</a> \| 
@@ -189,7 +187,7 @@ So, I think the human intellect is very [interesting], but on the other hand, yo
 
 Thank you very much.
 
-[Next Talk: “Karma: Twelve Chains of Causation”](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
+[Next: “Shobogenzo: Genjokoan – Talk 1, Part 1”](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
 
 [Home](index#1980)
 
