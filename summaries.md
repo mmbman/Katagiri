@@ -48,7 +48,7 @@ Katagiri Roshi discusses the meaning of the line, “In surveying the past, we f
 
 ## 6. Fukanzazengi – Talk 5
 
-Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Genshi Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
+Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
 
 [Transcript](1979-06-13-Fukanzazengi-Talk-5#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk5/" target="_blank">Podcast</a> \| 
@@ -88,7 +88,7 @@ What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes th
 
 ## 11. Diamond Sutra: Giving and Non-Covetousness
 
-Why is the the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
+Why is the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
 
 [Transcript](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) \|
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-giving-and-non-covetousness/" target="_blank">Podcast</a> \| 
@@ -139,6 +139,7 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/03-1980" target="_blank">Original Recording</a>
 
 ## Introduction to Buddhism
+### June 22, 1985
 
 An alternative title for this talk might have been, “What Is Buddhist Faith?” What does ‘faith’ mean in Buddhism, where the central philosophy is emptiness? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
 
