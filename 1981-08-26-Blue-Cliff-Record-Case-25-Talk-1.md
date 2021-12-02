@@ -1,7 +1,7 @@
 <a name="0"></a>
 [Previous](unfinished-1981-1#0) – 
 [Home](index#blue-cliff-record-case-18) – 
-[Next](unfinished-1981-2#0)
+[Next](1985-06-22-Introduction-to-Buddhism#0)
 
 ---
 # Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds up His Staff – Talk 1
@@ -102,7 +102,7 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 ##### end of recording
 
 ---
-[Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2#0)
+[Next: “Introduction to Buddhism” (June 22, 1985)](1985-06-22-Introduction-to-Buddhism#0)
 
 [Home](index#blue-cliff-record-case-18)
 

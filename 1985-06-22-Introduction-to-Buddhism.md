@@ -187,7 +187,7 @@ So, I think the human intellect is very [interesting], but on the other hand, yo
 
 Thank you very much.
 
-[Next: “Shobogenzo: Genjokoan – Talk 1, Part 1”](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
+[Next: “Shobogenzo: Genjokoan – Talk 1, Part 1” (June 6, 1987)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
 
 [Home](index#1980)
 
