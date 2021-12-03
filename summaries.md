@@ -133,7 +133,7 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 
 ## 17. Save All Sentient Beings
 
-Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what ‘all’ means. It may not mean what we usually think. (‘Samskaras’ comes up again.) Ultimately, we have to dive into the ocean.
+Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what ‘all’ means. It may not mean what we usually think. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
 
 [Transcript](1980-03-15-Save-All-Sentient-Beings#0) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/03-1980" target="_blank">Original Recording</a>

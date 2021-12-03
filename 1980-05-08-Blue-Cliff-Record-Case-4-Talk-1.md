@@ -6,7 +6,7 @@
 ---
 # Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1
 ## May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
-### Transcribed by Kikan Michael Howard
+#### Transcribed by Kikan Michael Howard
 
 **This transcript is still in rough draft form.**
 

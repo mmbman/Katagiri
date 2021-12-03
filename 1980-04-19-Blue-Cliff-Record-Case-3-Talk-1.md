@@ -6,7 +6,7 @@
 ---
 # Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
 ## April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
-### Transcribed by Kikan Michael Howard
+#### Transcribed by Kikan Michael Howard
 
 Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>

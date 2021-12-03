@@ -6,7 +6,7 @@
 ---
 # Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds up His Staff – Talk 1
 ## November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
-### Transcribed by Kikan Michael Howard
+#### Transcribed by Kikan Michael Howard
 
 **This transcript is still in rough draft form.**
 
@@ -17,17 +17,17 @@ Listen:
 <a name="000"></a>
 ##### start of recording
 
-... twenty-fifth case of the Blue Cliff Record.
+... [The] twenty-fifth case of the Blue Cliff Record:
 
 > The hermit of Lotus Flower Peak held up his staff and showed it to the assembly saying, “When the ancients got here, why didn’t they consent to stay here?”
 > 
 > There was no answer from the assembly, so he himself answered for them, “Because they did not gain strength on the road.”
 >
-> Again he said, “In the end, how is it?” And again he himself answered in their place, “With my staff across my shoulder, I pay no heed to people—I go straight into the myriad peaks.”
+> Again he said, “In the end, how is it?” And again he himself answered in their place, “With my staff across my shoulder, I pay no heed to people — I go straight into the myriad peaks.”
 >
 > (Excerpt From: Thomas Cleary & J.C. Cleary. “The Blue Cliff Record.” Apple Books.) 
 
-The hermit of Lotus Flower Peak, according to commentary, the Zen Master lived on the top of the mountain, Lotus Flower Peak. He got his own hut on the top of the Lotus Flower Peak. And also he constantly showed his teaching, holding up his staff, and saying, “When the ancients” -- ancients means the Buddhas and patriarchs – “when the ancients got here, why didn’t they consent to stay here?” Staff implies, in this case, what is real life, what is the real thing of life. Well, we say “truth”. What is ultimate, real thing of human life? There is a staff, anyway. Staff means this kind of long stick, which is used for the monks or for Zen priests when they walk. Long one or short one, whatever it is, anyway that is a staff. 
+The hermit of Lotus Flower Peak: according to commentary, this Zen Master lived on the top of the mountain, Lotus Flower Peak. He got his own hut on top of the Lotus Flower Peak. And also he constantly showed his teaching, holding up his staff, and saying, “When the ancients” – ancients means the Buddhas and patriarchs – “When the ancients got here, why didn’t they consent to stay here?” The staff implies, in this case – well, what is real life, what is the real thing of life. Well, we say “truth”. What is the ultimate, real thing of human life? There is a staff, anyway. Staff means this kind of stick, or a long stick, which is used for the monks or for Zen priests when they walk. Long one or short one, whatever it is, anyway that is a staff. 
 
 And in his whole life, he just answered to any kind of questions, doing like this. Just like a good ... master... a good master always shows one finger, whenever people asked him, without saying anything. Just showed one finger. Or, another Zen Master, ****, always sat in zazen facing the wall, whenever whoever visted him to discuss on some aspect of Zen Buddhism, he didn’t say anything, immediately he sat in zazen facing the wall. That way was carried in his whole life, without change. That’s fascinating. It’s pretty hard to do that, because human beings are pretty noisy, you know? If you always show one thing, whatever you ask, you say you put a certain label on him, “He’s crazy.” Don’ you think so?
 

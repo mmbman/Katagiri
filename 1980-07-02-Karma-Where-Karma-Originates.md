@@ -6,7 +6,7 @@
 ---
 # Karma: Where Karma Originates
 ## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
-### Transcribed by Kikan Michael Howard
+#### Transcribed by Kikan Michael Howard
 
 **This transcript is still in rough draft form.**
 
