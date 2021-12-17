@@ -1,7 +1,9 @@
 <a name="0"></a>
 
+<div>Search test:
 <script async src="https://cse.google.com/cse.js?cx=2232cceef1ab492af"></script>
 <div class="gcse-search"></div>
+</div>
 
 # Table of Contents
 
