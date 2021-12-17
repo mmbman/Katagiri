@@ -8,7 +8,7 @@ description:
 [Next](summaries) \| 
 <a class="nr-custom-trigger">NaturalReader</a>
   
-####
+<p></p>
 
 Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to America. Audio recordings of his talks from 1979 to 1989 are made available by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php). But since Katagiri Roshi was a non-native speaker, and the original recordings (on cassette tape!) vary in quality, and the MP3 audio files are over-compressed – he can be difficult to understand. So on this website I carefully transcribe these talks, with the intention of staying as true as possible to Katagiri Roshi's words, while smoothing out the grammar to make them easier to understand. You can read the transcripts on their own, or follow along while listening to the recordings, which are referenced at the top of each talk. 
 
