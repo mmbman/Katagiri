@@ -1,6 +1,6 @@
 ---
 title: Search
-description: Search the Katagiri Transcripts Website
+description: 
 ---
 
 Search the Katagiri Transcripts site using the Google search engine:
