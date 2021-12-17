@@ -3,8 +3,8 @@ title: Dogen Index
 description:
 ---
 
-[Previous](glossary) – 
-[Home](index#dogen) – 
+[Home](index#appendices) \| 
+[Previous](glossary) \| 
 [Next](BCR)
 
 This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. 

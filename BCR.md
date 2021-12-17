@@ -3,8 +3,8 @@ title: Blue Cliff Record Index
 description:
 ---
 
-[Previous](dogen) – 
-[Home](index#BCR) – 
+[Home](index#appendices) \| 
+[Previous](dogen) \| 
 [Next](books)
 
 This is an index to where koans from [The Blue Cliff Record](glossary#blue-cliff-record) appear in [Katagiri Roshi's](glossary#katagiri) talks. 

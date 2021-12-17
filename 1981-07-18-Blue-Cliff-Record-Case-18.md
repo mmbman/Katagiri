@@ -3,11 +3,10 @@ title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
 description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
+[Home](index#1981) \| 
 [Previous](unfinished-1981-1) \| 
-[Home](index#blue-cliff-record-case-18) \| 
-[Next](unfinished-1981-2)
-
-Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> \| 
+[Next](unfinished-1981-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
 ---

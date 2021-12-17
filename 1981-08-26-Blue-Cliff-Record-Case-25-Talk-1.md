@@ -3,15 +3,13 @@ title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds up His
 description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](unfinished-1981-1) \|
-[Home](index#blue-cliff-record-case-18) \|
-[Next](1985-06-22-Introduction-to-Buddhism)
-
-**This transcript is still in rough draft form.**
-
-Listen: 
+[Home](index#1981) \| 
+[Previous](unfinished-1981-1) \| 
+[Next](1985-06-22-Introduction-to-Buddhism) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
+
+**This transcript is still in rough draft form.**
 
 ---
 <a name="000"></a>

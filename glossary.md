@@ -3,8 +3,8 @@ title: Glossary
 description: 
 ---
 
-[Previous](unfinished-1988) – 
-[Home](index#glossary) – 
+[Home](index#appendices) \| 
+[Previous](unfinished-1988) \| 
 [Next](dogen)
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.

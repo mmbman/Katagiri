@@ -3,8 +3,8 @@ title: Resources
 description: 
 ---
 
-[Previous](books) | 
-[Home](index#resources)
+[Home](index#appendices) \| 
+[Previous](books)
 
 These are miscellaneous links that I don’t have another place for yet.
 
