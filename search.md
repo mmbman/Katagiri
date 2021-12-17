@@ -1,6 +1,7 @@
-<a name="0"></a>
-
-# Search
+\---
+title: Search
+description: Search the Katagiri Transcripts Website
+\---
 
 Search the Katagiri Transcripts site using the Google search engine:
 <div>
@@ -8,6 +9,4 @@ Search the Katagiri Transcripts site using the Google search engine:
 <div class="gcse-search"></div>
 </div>
 
----
-
-[Home](index#0)
+[Home](index)
