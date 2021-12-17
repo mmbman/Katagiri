@@ -4,7 +4,7 @@ description: July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1980) \| 
-[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \|  
+[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
