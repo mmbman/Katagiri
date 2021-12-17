@@ -3,8 +3,6 @@ title: "Fukanzazengi – Talk 5"
 description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-#### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
-
 [Home](index#1979) \| 
 [Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6) \| 
@@ -12,9 +10,11 @@ description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk5/" target="_blank">Podcast</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+#### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
+
 ---
 <a name="000"></a>
-##### start of recording
+##### 0:00 start of recording
 
 There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to 908. He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [Shobogenzo](dogen#shobogenzo) \[in the fascicle] ["The One Bright Pearl"](dogen#one-bright-pearl); you can find this story there.
 

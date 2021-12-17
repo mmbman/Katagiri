@@ -3,8 +3,6 @@ title: "Fukanzazengi – Talk 4"
 description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-#### Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
-
 [Home](index#1979) \| 
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Next](1979-06-13-Fukanzazengi-Talk-5) \| 
@@ -12,9 +10,11 @@ description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-4/" target="_blank">Podcast</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+#### Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
+
 ---
 <a name="000"></a>
-##### start of recording
+##### 0:00 start of recording
 
 Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn [this]:
 

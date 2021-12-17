@@ -3,8 +3,6 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-#### Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
-
 [Home](index#1979) \| 
 [Previous](1979-05-09-Diamond-Sutra-Introduction) \| 
 [Next](1979-06-10-Fukanzazengi-Talk-2) \| 
@@ -12,9 +10,11 @@ description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-dogens-universal-recommendation-for-zazen-–-talk-1/" target="_blank">Podcast</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+#### Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
+
 ---
 <a name="000"></a>
-##### start of recording
+##### 0:00 start of recording
 
 The last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says, “For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” *[He repeats the quote.]* 
 

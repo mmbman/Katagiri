@@ -3,8 +3,6 @@ title: "Fukanzazengi – Talk 3"
 description: June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-#### Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
-
 [Home](index#1979) \| 
 [Previous](1979-06-10-Fukanzazengi-Talk-2) \| 
 [Next](1979-06-12-Fukanzazengi-Talk-4) \| 
@@ -12,9 +10,11 @@ description: June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-3/" target="_blank">Podcast</a> \|
 <a class="nr-custom-trigger">NaturalReader</a>
 
+#### Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
+
 ---
 <a name="000"></a>
-##### start of recording
+##### 0:00 start of recording
 
 [I want to] say something a little bit more about the subject I talked about yesterday. The subject was, "You must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside." I would like to explain a little more about the same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called [shikantaza](glossary#shikantaza).
 
