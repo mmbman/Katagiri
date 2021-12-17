@@ -4,7 +4,7 @@ description:
 ---
 
 [Home](index#appendices) \| 
-[Previous](unfinished-1988) \| 
+[Previous](1987-06-27-A-B-and-C-Worlds) \| 
 [Next](dogen)
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.

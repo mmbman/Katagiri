@@ -5,7 +5,7 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1981) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](unfinished-1981-2) \| 
+[Next](1985-06-22-Introduction-to-Buddhism) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
@@ -393,7 +393,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2)
+[Next: “Introduction to Buddhism”](1985-06-22-Introduction-to-Buddhism)
 
 [Home](index#1981)
 
