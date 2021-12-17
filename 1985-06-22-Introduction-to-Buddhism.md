@@ -9,7 +9,7 @@ description: June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### An alternative title for this talk might have been, “What Is Buddhist Faith?” What does ‘faith’ mean in Buddhism, where the central philosophy is emptiness? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
+### An alternative title for this talk might have been, “What Is Buddhist Faith?” What does ‘faith’ mean in Buddhism, where the central philosophy is emptiness? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
 
 <a name="000"></a>
 ##### 0:00 start of recording
