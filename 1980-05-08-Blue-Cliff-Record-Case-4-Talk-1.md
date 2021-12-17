@@ -13,7 +13,6 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 (Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
 
----
 <a name="000"></a>
 ##### 0:00 start of recording
 

@@ -9,7 +9,6 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
----
 <a name="000"></a>
 ##### start of recording
 

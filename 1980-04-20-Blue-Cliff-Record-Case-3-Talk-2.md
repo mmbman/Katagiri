@@ -9,7 +9,6 @@ description: April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
----
 <a name="000"></a>
 ##### 0:00 start of recording
 

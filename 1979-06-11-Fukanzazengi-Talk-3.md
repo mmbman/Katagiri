@@ -12,7 +12,6 @@ description: June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 #### Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
 
----
 <a name="000"></a>
 ##### 0:00 start of recording
 

@@ -11,7 +11,6 @@ description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is still in rough draft form.**
 
----
 <a name="000"></a>
 ##### 0:00 start of recording
 
