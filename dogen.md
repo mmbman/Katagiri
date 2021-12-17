@@ -7,6 +7,8 @@ description:
 [Previous](glossary) \| 
 [Next](BCR)
 
+---
+
 This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 
 **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
