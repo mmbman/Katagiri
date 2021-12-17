@@ -121,7 +121,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next: Not Yet Transcribed: 1987 Part 2](unfinished-1987-2)
 
-[Home](index#a-b-and-c-worlds)
+[Home](index#1987)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

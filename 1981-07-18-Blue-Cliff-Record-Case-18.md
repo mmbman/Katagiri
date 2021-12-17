@@ -4,7 +4,7 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1981) \| 
-[Previous](unfinished-1981-1) \| 
+[Previous](1980-07-03-Karma-Unmanifested) \| 
 [Next](unfinished-1981-2) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
@@ -395,7 +395,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2)
 
-[Home](index#blue-cliff-record-case-18)
+[Home](index#1981)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

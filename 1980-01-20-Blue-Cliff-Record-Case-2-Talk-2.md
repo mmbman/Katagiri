@@ -228,7 +228,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings)
 
-[Home](index#blue-cliff-record-case-2-lecture-2)
+[Home](index#1980)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

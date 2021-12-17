@@ -436,7 +436,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Fukanzazengi – Talk 7”](1979-06-15-Fukanzazengi-Talk-7)
 
-[Home](index#fukanzazengi-lecture-6)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

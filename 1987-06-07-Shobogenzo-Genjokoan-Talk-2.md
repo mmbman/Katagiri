@@ -385,7 +385,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
-[Home](index#genjokoan-lecture-2)
+[Home](index#1987)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

@@ -28,7 +28,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Karma: Where Karma Originates”](1980-07-02-Karma-Where-Karma-Originates)
 
-[Home](index#karma-twelve-chains-of-causation)
+[Home](index#1980)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

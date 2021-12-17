@@ -5,7 +5,7 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1980) \| 
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-[Next](unfinished-1980-2) \| 
+[Next](1980-07-03-Karma-Unmanifested) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
@@ -267,9 +267,9 @@ Okay? Do you understand?
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next: Not Yet Transcribed: 1980 Part 2](unfinished-1980-2)
+[Next: “Karma: Unmanifested”](1980-07-03-Karma-Unmanifested)
 
-[Home](index#karma-where-karma-originates)
+[Home](index#1980)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

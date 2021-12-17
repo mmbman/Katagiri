@@ -192,7 +192,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
-[Home](index#diamond-sutra-dharma-not-dharma-dharma)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

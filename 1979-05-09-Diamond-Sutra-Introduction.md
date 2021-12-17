@@ -231,7 +231,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Fukanzazengi – Talk 1”](1979-06-09-Fukanzazengi-Talk-1)
 
-[Home](index#diamond-sutra-introduction)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

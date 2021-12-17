@@ -190,7 +190,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next: “Shobogenzo: Genjokoan – Talk 1, Part 1” (June 6, 1987)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
-[Home](index#1980)
+[Home](index#1985)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

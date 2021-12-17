@@ -231,7 +231,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Diamond Sutra: Dharma / Not Dharma / Dharma”](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
-[Home](index#diamond-sutra-giving-and-non-covetousness)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

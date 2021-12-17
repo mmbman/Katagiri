@@ -234,7 +234,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Diamond Sutra: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness)
 
-[Home](index#diamond-sutra-provisional-being)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

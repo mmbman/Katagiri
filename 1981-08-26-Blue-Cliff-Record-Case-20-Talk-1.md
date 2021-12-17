@@ -27,7 +27,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2)
 
-[Home](index#blue-cliff-record-case-18)
+[Home](index#1981)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

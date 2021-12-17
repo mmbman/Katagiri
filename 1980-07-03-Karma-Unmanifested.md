@@ -226,7 +226,7 @@ For instance, maybe a few days ago if a person died when he walked on the bridge
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Home](index#karma-unmanifested)
+[Home](index#1980)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

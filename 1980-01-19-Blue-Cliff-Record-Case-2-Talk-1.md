@@ -223,7 +223,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Blue Cliff Record, Case 2 – Talk 2”](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 
-[Home](index#blue-cliff-record-case-2-lecture-1)
+[Home](index#1980)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

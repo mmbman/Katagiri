@@ -180,7 +180,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being)
 
-[Home](index#fukanzazengi-lecture-7)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

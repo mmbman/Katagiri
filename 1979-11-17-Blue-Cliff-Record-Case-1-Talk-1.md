@@ -158,7 +158,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Blue Cliff Record, Case 1 – Talk 2”](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
-[Home](index#blue-cliff-record-case-1-lecture-1)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

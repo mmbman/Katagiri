@@ -263,7 +263,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
-[Home](index#genjokoan-lecture-1-part-2)
+[Home](index#1987)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

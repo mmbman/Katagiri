@@ -256,7 +256,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next Talk: “Diamond Sutra: Giving and Non-Covetousness”](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
-[Home](index#diamond-sutra-emptiness)
+[Home](index#1979)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

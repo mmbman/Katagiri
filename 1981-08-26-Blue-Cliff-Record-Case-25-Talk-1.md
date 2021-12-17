@@ -103,7 +103,7 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Next: “Introduction to Buddhism” (June 22, 1985)](1985-06-22-Introduction-to-Buddhism)
 
-[Home](index#blue-cliff-record-case-18)
+[Home](index#1981)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>
