@@ -1,19 +1,20 @@
+---
+title: "Diamond Sutra: Provisional Being"
+description: July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
 [Home](index#diamond-sutra-provisional-being) \| 
 [Next](1979-08-01-Diamond-Sutra-Emptiness)
 
----
-# Diamond Sutra: Provisional Being
-## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
-### Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of provisional being, and how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.
-#### Transcribed by Kikan Michael Howard
+#### Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of provisional being, and how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.
 
 Listen: 
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-provisional-being/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Original</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### start of recording
 
@@ -232,6 +233,8 @@ Finally, self is broad, but what is that? I cannot explain. But, it’s there. I
 ##### 1:05:11 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Diamond Sutra: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness)
 
 [Home](index#diamond-sutra-provisional-being)

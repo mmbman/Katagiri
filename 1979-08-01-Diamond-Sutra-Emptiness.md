@@ -1,19 +1,20 @@
+---
+title: "Diamond Sutra: Emptiness"
+description: August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
 [Home](index#diamond-sutra-emptiness) \| 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
----
-# Diamond Sutra: Emptiness
-## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
-### What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: kaku (awareness), satori, and sho (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
-#### Transcribed by Kikan Michael Howard
+#### What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: kaku (awareness), satori, and sho (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
 Listen: 
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-emptiness/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original</a> \|
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording 
 
@@ -254,6 +255,8 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 ##### 1:10:15 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Diamond Sutra: Giving and Non-Covetousness”](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
 [Home](index#diamond-sutra-emptiness)

@@ -1,19 +1,20 @@
+---
+title: "Fukanzazengi – Talk 7"
+description: June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
 [Home](index#fukanzazengi-lecture-7) \| 
 [Next](1979-07-25-Diamond-Sutra-Provisional-Being)
 
----
-# Fukanzazengi – Talk 7
-## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
-### The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
-#### Transcribed by Kikan Michael Howard
+#### The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
 Listen: 
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk-7/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-7" target="_blank">Original</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### start of recording 
 
@@ -178,6 +179,8 @@ Remember that story. That’s a beautiful story, isn’t it?
 ##### 51:04 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being)
 
 [Home](index#fukanzazengi-lecture-7)

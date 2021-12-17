@@ -1,18 +1,19 @@
+---
+title: "Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2"
+description: January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| 
 [Home](index#blue-cliff-record-case-2-lecture-2) \| 
 [Next](1980-03-15-Save-All-Sentient-Beings)
 
----
-# Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2
-## January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
-### Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called shikantaza. But this ‘simple’ is not simple as we usually understand it: this simplicity is to do something with no choice, on the verge of life and death.
-#### Transcribed by Kikan Michael Howard
+#### Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called shikantaza. But this ‘simple’ is not simple as we usually understand it: this simplicity is to do something with no choice, on the verge of life and death.
 
 Listen: 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-2-lecture-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -226,6 +227,8 @@ Okay.
 ##### 1:16:06 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings)
 
 [Home](index#blue-cliff-record-case-2-lecture-2)

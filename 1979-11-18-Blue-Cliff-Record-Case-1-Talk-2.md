@@ -1,18 +1,19 @@
+---
+title: "Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2"
+description: November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
 [Home](index#blue-cliff-record-case-1-lecture-2) \| 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
----
-# Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2
-## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
-### Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains ‘tanpankan’ (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the Blue Cliff Record. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
-#### Transcribed by Kikan Michael Howard
+#### Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains ‘tanpankan’ (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the Blue Cliff Record. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
 
 Listen: 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -377,6 +378,8 @@ The commentary is very helpful for you, so if you have time, read the commentary
 ##### 1:18:32 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Blue Cliff Record, Case 2 – Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
 [Home](index#blue-cliff-record-case-1-lecture-2)

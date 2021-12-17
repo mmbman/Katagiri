@@ -1,17 +1,16 @@
+---
+title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument"
+description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](unfinished-1981-1) – 
 [Home](index#blue-cliff-record-case-18) – 
 [Next](unfinished-1981-2)
 
+Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> | 
+<a class="nr-custom-trigger">NaturalReader</a>
+
 ---
-# Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
-## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
-#### Transcribed by Kikan Michael Howard
-
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Listen to the original recording</a>
-
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
-
 <a name="000"></a>
 ##### start of recording
 
@@ -394,6 +393,8 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 ##### 1:12:32 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2)
 
 [Home](index#blue-cliff-record-case-18)

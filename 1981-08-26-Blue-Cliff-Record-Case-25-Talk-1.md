@@ -1,12 +1,11 @@
+---
+title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds up His Staff – Talk 1"
+description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](unfinished-1981-1) – 
 [Home](index#blue-cliff-record-case-18) – 
 [Next](1985-06-22-Introduction-to-Buddhism)
-
----
-# Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds up His Staff – Talk 1
-## November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
-#### Transcribed by Kikan Michael Howard
 
 **This transcript is still in rough draft form.**
 
@@ -14,6 +13,7 @@ Listen:
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### start of recording
 
@@ -102,6 +102,8 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 ##### end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next: “Introduction to Buddhism” (June 22, 1985)](1985-06-22-Introduction-to-Buddhism)
 
 [Home](index#blue-cliff-record-case-18)

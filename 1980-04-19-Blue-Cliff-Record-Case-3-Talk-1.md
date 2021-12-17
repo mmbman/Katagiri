@@ -1,16 +1,16 @@
+---
+title: "Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1"
+description: April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Home](index#1980) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
----
-# Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
-## April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
-#### Transcribed by Kikan Michael Howard
-
 Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -293,6 +293,8 @@ But if you see sort of a face that you can depend on, that face is really [a tri
 ##### 1:19:37 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Blue Cliff Record, Case 3 – Talk 2”](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 [Home](index#1980)

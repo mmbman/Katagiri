@@ -1,13 +1,14 @@
+---
+title: "Fukanzazengi – Talk 5"
+description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Home](index#fukanzazengi-lecture-5) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6)
 
 ---
-# Fukanzazengi – Talk 5
-## June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
-### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
-#### Transcribed by Kikan Michael Howard
+#### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the ‘vomit’ of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
 
 Listen:
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-–-talk5/" target="_blank">Podcast</a> \| 
@@ -538,6 +539,8 @@ That is from the first.
 ##### 1:35:31 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6)
 
 [Home](index#fukanzazengi-lecture-5)

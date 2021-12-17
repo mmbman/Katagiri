@@ -1,19 +1,20 @@
+---
+title: "Diamond Sutra: Dharma / Not Dharma / Dharma"
+description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
----
-# Diamond Sutra: Dharma / Not Dharma / Dharma
-## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
-### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
-#### Transcribed by Kikan Michael Howard
+#### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
 Listen: 
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-dharma-not-dharma-dharma/" target="_blank">Podcast</a> \|
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Original</a> \|
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -190,6 +191,8 @@ So you must be free from the enlightenment that you have experienced – and the
 ##### 58:56 end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma)

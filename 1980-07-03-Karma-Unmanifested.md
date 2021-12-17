@@ -1,10 +1,9 @@
+---
+title: "Karma: Unmanifested"
+description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Home](index#karma-unmanifested)
-
----
-# Karma: Unmanifested
-## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
-#### Transcribed by Kikan Michael Howard
 
 **This transcript is still in rough draft form.**
 
@@ -12,6 +11,7 @@ Listen:
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -225,6 +225,9 @@ For instance, maybe a few days ago if a person died when he walked on the bridge
 **Katagiri**: That’s why toward the future we have to store unmanifested karma, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves impression to your life, and we can carry on, toward the future. At that time, we can carry this good karma as unmanifested karma. So very naturally, you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage. And then, good karma is stored in your life, for the future. The moment when you store good karma, at that time unmanifested karma, but this completely turns into neutral nature. So, nothing to fix. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good. Then the karma appears. 
 
 ##### 1:15:03 end of recording
+
+---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Home](index#karma-unmanifested)
 

@@ -1,19 +1,18 @@
+---
+title: "Shobogenzo: Genjokoan – Talk 1, Part 2"
+description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1) – 
 [Home](index#genjokoan-lecture-1-part-2) – 
 [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
----
-# Shobogenzo: Genjokoan – Talk 1, Part 2
-## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
-#### Transcribed by Kikan Michael Howard
-
 **This transcript is still in rough draft form.**
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Listen to the original recording</a>
+Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Original Recording</a> | 
+<a class="nr-custom-trigger">NaturalReader</a>
 
-<a class="nr-custom-trigger">Listen using NaturalReader</a>
-
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -262,6 +261,8 @@ So, always connected. Something like that.
 ##### end of recording
 
 ---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
 [Next Talk: Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
 [Home](index#genjokoan-lecture-1-part-2)

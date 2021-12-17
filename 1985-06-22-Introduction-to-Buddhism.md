@@ -1,18 +1,19 @@
+---
+title: "Introduction to Buddhism"
+description: June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
+---
 
 [Previous](1981-08-26-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Home](index#1985) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
----
-# Introduction to Buddhism
-## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
-### An alternative title for this talk might have been, “What Is Buddhist Faith?” What does ‘faith’ mean in Buddhism, where the central philosophy is emptiness? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
-#### Transcribed by Kikan Michael Howard
+#### An alternative title for this talk might have been, “What Is Buddhist Faith?” What does ‘faith’ mean in Buddhism, where the central philosophy is emptiness? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
 
 Listen: 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### 0:00 start of recording
 
@@ -186,6 +187,9 @@ When I was in Los Angeles, the first time I drove on the freeway I was not scare
 So, I think the human intellect is very [interesting], but on the other hand, you have to deal with the intellect – how? You have to cut it off, sometimes. That’s pretty good for you. That’s why sitting is pretty good for us. I’m not talking about *ignoring* the human intellect, okay? You have to continue to think; that’s fine. But sometimes, keep your mouth shut and just sit. That’s pretty good for you. 
 
 Thank you very much.
+
+---
+This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Shobogenzo: Genjokoan – Talk 1, Part 1” (June 6, 1987)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
