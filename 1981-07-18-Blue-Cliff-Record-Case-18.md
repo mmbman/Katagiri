@@ -10,7 +10,7 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 <a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
-##### start of recording
+##### 0:00 start of recording
 
 Case 18 of Blue Cliff Record:
 

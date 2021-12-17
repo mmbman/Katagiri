@@ -12,7 +12,7 @@ description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 **This transcript is still in rough draft form.**
 
 <a name="000"></a>
-##### start of recording
+##### 0:00 start of recording
 
 
 Case [Twenty] of Blue Cliff Record
