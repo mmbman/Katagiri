@@ -1,14 +1,10 @@
 <a name="0"></a>
 
-<div>
-<script async src="https://cse.google.com/cse.js?cx=2232cceef1ab492af"></script>
-<div class="gcse-search"></div>
-</div>
-
 # Table of Contents
 
 - [About This Website](about#0)
 - [Talk Summaries](summaries#0)
+- [Search](search#0)
 
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988-89) [Appendices](#end)
 
