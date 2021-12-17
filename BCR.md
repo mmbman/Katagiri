@@ -1,6 +1,6 @@
 ---
 title: Blue Cliff Record Index
-description:
+description: ""
 ---
 
 [Previous](dogen#0) – 

@@ -1,6 +1,6 @@
 ---
 title: Dogen Index
-description:
+description: ""
 ---
 
 [Previous](glossary#0) – 
