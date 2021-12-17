@@ -1,10 +1,11 @@
-<a name="0"></a>
+---
+title: Glossary
+description:
+---
+
 [Previous](unfinished-1988#0) – 
 [Home](index#glossary) – 
 [Next](dogen#0)
-
----
-# Glossary
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 

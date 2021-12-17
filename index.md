@@ -1,4 +1,7 @@
-<a name="0"></a>
+---
+title: Katagiri Transcripts
+description: Zen Dharma Talks by Dainin Katagiri Roshi
+---
 
 # Table of Contents
 

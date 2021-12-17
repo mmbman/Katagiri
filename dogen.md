@@ -1,10 +1,11 @@
-<a name="0"></a>
+---
+title: Dogen Index
+description:
+---
+
 [Previous](glossary#0) – 
 [Home](index#dogen) – 
 [Next](BCR#0)
-
----
-# Dogen Index
 
 This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 

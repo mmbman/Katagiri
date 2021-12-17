@@ -1,10 +1,11 @@
-<a name="0"></a>
+---
+title: Books
+description:
+---
+
 [Previous](BCR#0) – 
 [Home](index#books) – 
 [Next](resources#0)
-
----
-# Books
 
 This is a list of books or other publications that are referenced in Katagiri Roshi's talks, or which I've added to the transcripts as additional sources. This list will be built up as I transcribe more talks.
 
