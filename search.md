@@ -18,6 +18,5 @@ Search the Katagiri Transcripts site using the Google search engine:
 </div>
 
 ---
-[Next: Resources](resources#0)
 
-[Home](index#resources)
+[Home](index#0)
