@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1985-06-22-Introduction-to-Buddhism#0) – 
+
+[Previous](1985-06-22-Introduction-to-Buddhism) – 
 [Home](index#genjokoan-lecture-1-part-1) – 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2#0)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 
 ---
 # Shobogenzo: Genjokoan – Talk 1, Part 1
@@ -230,7 +230,7 @@ That is compassion. So, where is the compassion? Something more than the idea of
 Is that okay? Do you have any other questions? We will have discussion (later?)... 
 
 ---
-[Next Talk Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2#0)
+[Next Talk Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 
 [Home](index#genjokoan-lecture-1-part-1)
 

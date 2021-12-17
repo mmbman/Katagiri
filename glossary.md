@@ -1,11 +1,11 @@
 ---
 title: Glossary
-description: ""
+description: 
 ---
 
-[Previous](unfinished-1988#0) – 
+[Previous](unfinished-1988) – 
 [Home](index#glossary) – 
-[Next](dogen#0)
+[Next](dogen)
 
 **Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
 
@@ -428,7 +428,7 @@ Japanese: Engo Kokugon,<br>
 Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glossary#blue-cliff-record).
 
 - [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)
-- [Blue Cliff Record Index](BCR#0)
+- [Blue Cliff Record Index](BCR)
 
 ---
 ## Enlightenment
@@ -502,7 +502,7 @@ also "Mendicant Pei"<br>
 
 Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
-- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5#0)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 
 ---
 ## Green Gulch
@@ -590,7 +590,7 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐
 771-853 CE
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
-- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
+- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 External links:
 
@@ -638,8 +638,8 @@ External links:
 ---
 ## Karma
 
-- [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
-- [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
+- [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+- [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 
 - [Fukanzazengi – Talk 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Talk-3#3012)
 
@@ -1016,7 +1016,7 @@ Japanese: Seppō Gison<br>
 Chinese: Xuefeng Yicun (Hsueh-feng I-ts'un) 雪峰义存<br>
 also Seppō Shinkaku
 
-- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5#0)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 
 External links:
 
@@ -1038,7 +1038,7 @@ Japanese: Setchō Jūken
 Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record), and wrote the verses.
 
 - [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)
-- [Blue Cliff Record Index](BCR#0)
+- [Blue Cliff Record Index](BCR)
 
 ---
 ## Shakyamuni Buddha
@@ -1217,7 +1217,7 @@ Japanese: Tokusan Senkan
 
 Originally a scholar of the Diamond Sutra, he was defeated in Zen combat by an old woman in a dumpling shop. After that, he studied under [Ryōtan Sūshin](glossary#ryōtan-sūshin), and became a Zen Master in the Rinzai line. He was noted for his strict and rough training of the monks.
 
-- [Blue-Cliff-Record-Case-4-Talk-1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
+- [Blue-Cliff-Record-Case-4-Talk-1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 ---
 ## Tōrō
@@ -1271,7 +1271,7 @@ External links:
 
 Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate way, and carried under the sleeve of the robes when not in use. The zagu and okesa are supposed to stay together. 
 
-- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
+- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 ## Zazen
 
@@ -1302,6 +1302,6 @@ Meditation hall
 Japanese word meaning "Zen Master ". E.g., [Dogen Zenji](#dogen).
 
 ---
-[Next: Dogen Index](dogen#0)
+[Next: Dogen Index](dogen)
 
 [Home](index#glossary)

@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1981-08-26-Blue-Cliff-Record-Case-25-Talk-1#0) \| 
+
+[Previous](1981-08-26-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Home](index#1985) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
 ---
 # Introduction to Buddhism
@@ -187,7 +187,7 @@ So, I think the human intellect is very [interesting], but on the other hand, yo
 
 Thank you very much.
 
-[Next: “Shobogenzo: Genjokoan – Talk 1, Part 1” (June 6, 1987)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
+[Next: “Shobogenzo: Genjokoan – Talk 1, Part 1” (June 6, 1987)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
 [Home](index#1980)
 

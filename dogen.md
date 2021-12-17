@@ -1,11 +1,11 @@
 ---
 title: Dogen Index
-description: ""
+description:
 ---
 
-[Previous](glossary#0) – 
+[Previous](glossary) – 
 [Home](index#dogen) – 
-[Next](BCR#0)
+[Next](BCR)
 
 This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 
@@ -16,13 +16,13 @@ This is an index to where references to [Dogen](glossary#dogen)’s works appear
 
 Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
-- [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1#0)
-- [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2#0)
-- [Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Talk-3#0)
-- [Fukanzazengi – Talk 4](1979-06-12-Fukanzazengi-Talk-4#0)
-- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5#0)
-- [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6#0)
-- [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7#0)
+- [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
+- [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
+- [Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
+- [Fukanzazengi – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+- [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+- [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 
 - [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
@@ -38,9 +38,9 @@ Fascicles from Shobogenzo referenced in Katagiri’s talks are listed below.
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
-- [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
-- [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2#0)
-- [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2#0)
+- [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+- [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
+- [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
@@ -60,7 +60,7 @@ Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and 
 
 Japanese: Ikka myōju – 顆明珠
 
-- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5#0)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 
 ---
 ## Life and Death
@@ -111,6 +111,6 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 - [Fukanzazengi – Talk 7 (6:15-)](1979-06-15-Fukanzazengi-Talk-7#615)
 
 ---
-[Next: Blue Cliff Record Index](BCR#0)
+[Next: Blue Cliff Record Index](BCR)
 
 [Home](index#dogen)

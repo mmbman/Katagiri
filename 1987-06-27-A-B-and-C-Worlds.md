@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1987-06-20-Manas#0) – 
+
+[Previous](1987-06-20-Manas) – 
 [Home](index#a-b-and-c-worlds) – 
-[Next](unfinished-1987-2#0)
+[Next](unfinished-1987-2)
 
 ---
 # A, B, and C Worlds
@@ -120,7 +120,7 @@ But practically speaking, for instance, if you want to master downhill skiing, a
 ##### end of recording
 
 ---
-[Next: Not Yet Transcribed: 1987 Part 2](unfinished-1987-2#0)
+[Next: Not Yet Transcribed: 1987 Part 2](unfinished-1987-2)
 
 [Home](index#a-b-and-c-worlds)
 

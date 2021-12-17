@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-08-01-Diamond-Sutra-Emptiness#0) \| 
+
+[Previous](1979-08-01-Diamond-Sutra-Emptiness) \| 
 [Home](index#diamond-sutra-giving-and-non-covetousness) \| 
-[Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
+[Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 ---
 # Diamond Sutra: Giving and Non-Covetousness
@@ -229,7 +229,7 @@ It is okay to pick up a lantern. But I really regret that people didn’t ask us
 ##### 1:07:09 end of recording
 
 ---
-[Next Talk: “Diamond Sutra: Dharma / Not Dharma / Dharma”](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
+[Next Talk: “Diamond Sutra: Dharma / Not Dharma / Dharma”](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 [Home](index#diamond-sutra-giving-and-non-covetousness)
 

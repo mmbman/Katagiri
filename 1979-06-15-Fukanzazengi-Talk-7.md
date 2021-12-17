@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-06-14-Fukanzazengi-Talk-6#0) \| 
+
+[Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
 [Home](index#fukanzazengi-lecture-7) \| 
-[Next](1979-07-25-Diamond-Sutra-Provisional-Being#0)
+[Next](1979-07-25-Diamond-Sutra-Provisional-Being)
 
 ---
 # Fukanzazengi – Talk 7
@@ -178,7 +178,7 @@ Remember that story. That’s a beautiful story, isn’t it?
 ##### 51:04 end of recording
 
 ---
-[Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being#0)
+[Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being)
 
 [Home](index#fukanzazengi-lecture-7)
 

@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0) \| 
+
+[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
 [Home](index#1980) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
+[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 
 ---
 # Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1
@@ -252,7 +252,7 @@ Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very in
 ##### 56:08 end of recording
 
 ---
-[Next Talk: “Karma: Twelve Chains of Causation”](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
+[Next Talk: “Karma: Twelve Chains of Causation”](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 
 [Home](index#1980)
 

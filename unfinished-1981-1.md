@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1980-2#0) – 
+
+[Previous](unfinished-1980-2) – 
 [Home](index#1981) – 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18#0)
+[Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
 ---
 # Not Yet Transcribed: 1981 Part 1
@@ -18,6 +18,6 @@
 1. 04/25/1981	Blue Cliff Record, Case 15
 
 ---
-[Next: Blue Cliff Record, Case 18](1981-07-18-Blue-Cliff-Record-Case-18#0)
+[Next: Blue Cliff Record, Case 18](1981-07-18-Blue-Cliff-Record-Case-18)
 
 [Home](index#1981)

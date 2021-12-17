@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1980-03-15-Save-All-Sentient-Beings#0) \| 
+
+[Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Home](index#1980) \| 
-[Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
+[Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 ---
 # Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
@@ -293,7 +293,7 @@ But if you see sort of a face that you can depend on, that face is really [a tri
 ##### 1:19:37 end of recording
 
 ---
-[Next Talk: “Blue Cliff Record, Case 3 – Talk 2”](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
+[Next Talk: “Blue Cliff Record, Case 3 – Talk 2”](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 [Home](index#1980)
 

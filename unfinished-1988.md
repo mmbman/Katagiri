@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1987-2#0) – 
+
+[Previous](unfinished-1987-2) – 
 [Home](index#1988) – 
-[Next](glossary#0)
+[Next](glossary)
 
 ---
 # Not Yet Transcribed: 1988
@@ -35,6 +35,6 @@
 1. 01/07/1989	Dealing With Death, Dealing With Life
 
 ---
-[Next: Glossary](glossary#0)
+[Next: Glossary](glossary)
 
 [Home](index#1988)

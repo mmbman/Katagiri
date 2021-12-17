@@ -1,12 +1,11 @@
-\---
+---
 title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
-\---
+---
 
-<a name="0"></a>
-[Previous](1979-05-09-Diamond-Sutra-Introduction#0) | 
+[Previous](1979-05-09-Diamond-Sutra-Introduction) | 
 [Home](index#fukanzazengi-lecture-1) \| 
-[Next](1979-06-10-Fukanzazengi-Talk-2#0)
+[Next](1979-06-10-Fukanzazengi-Talk-2)
 
 ---
 
@@ -284,7 +283,7 @@ By the zazen, if you believe “I should be happy,” or “I want to do somethi
 ##### 1:07:20 end of recording
 
 ---
-[Next Talk: “Fukanzazengi – Talk 2”](1979-06-10-Fukanzazengi-Talk-2#0)
+[Next Talk: “Fukanzazengi – Talk 2”](1979-06-10-Fukanzazengi-Talk-2)
 
 [Home](index#fukanzazengi-lecture-1)
 

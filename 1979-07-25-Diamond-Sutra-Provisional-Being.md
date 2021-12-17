@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-06-15-Fukanzazengi-Talk-7#0) \| 
+
+[Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
 [Home](index#diamond-sutra-provisional-being) \| 
-[Next](1979-08-01-Diamond-Sutra-Emptiness#0)
+[Next](1979-08-01-Diamond-Sutra-Emptiness)
 
 ---
 # Diamond Sutra: Provisional Being
@@ -232,7 +232,7 @@ Finally, self is broad, but what is that? I cannot explain. But, it’s there. I
 ##### 1:05:11 end of recording
 
 ---
-[Next Talk: “Diamond Sutra: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness#0)
+[Next Talk: “Diamond Sutra: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness)
 
 [Home](index#diamond-sutra-provisional-being)
 

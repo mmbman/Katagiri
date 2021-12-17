@@ -1,11 +1,11 @@
 ---
 title: Books
-description:
+description: 
 ---
 
-[Previous](BCR#0) – 
+[Previous](BCR) – 
 [Home](index#books) – 
-[Next](resources#0)
+[Next](resources)
 
 This is a list of books or other publications that are referenced in Katagiri Roshi's talks, or which I've added to the transcripts as additional sources. This list will be built up as I transcribe more talks.
 
@@ -15,7 +15,7 @@ This is a list of books or other publications that are referenced in Katagiri Ro
 
 Quotes from the Blue Cliff Record in the talks usually refer to Cleary's translation. ([Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)).
 
-- [Blue Cliff Record Index](BCR#0).
+- [Blue Cliff Record Index](BCR).
 
 ---
 <a name="eihei-koroku"></a>
@@ -30,10 +30,10 @@ This translation did not exist when Katagiri gave his talks, but now it is an es
 ### "Buddhist Wisdom: The Diamond Sutra and the Heart Sutra" by [Edward Conze](glossary#edward-conze)
 
 - [Diamond Sutra: Introduction (17:40)](1979-05-09-Diamond-Sutra-Introduction#1740)
-- [Diamond Sutra: Provisional-Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
-- [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
-- [Diamond Sutra: Giving and Non Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness.md#0)
-- [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
+- [Diamond Sutra: Provisional-Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+- [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+- [Diamond Sutra: Giving and Non Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness.md)
+- [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 ---
 <a name="central-conception"></a>
@@ -52,6 +52,6 @@ By [D. T. Suzuki](glossary#d-t-suzuki)
 - [Blue Cliff Record, Case 3 – Talk 2 (10:59)](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#1059)
 
 ---
-[Next: Resources](resources#0)
+[Next: Resources](resources)
 
 [Home](index#resources)

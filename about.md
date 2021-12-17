@@ -29,7 +29,7 @@ If you have comments or questions, you can [email me](mailto:michaelhoward@mac.c
 ---
 [Next: Talk Summaries](summaries)
 
-[Home](index#0)
+[Home](index)
 
 <script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
 <script>

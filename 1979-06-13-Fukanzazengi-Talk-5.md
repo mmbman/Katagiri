@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-06-12-Fukanzazengi-Talk-4#0) \| 
+
+[Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Home](index#fukanzazengi-lecture-5) \| 
-[Next](1979-06-14-Fukanzazengi-Talk-6#0)
+[Next](1979-06-14-Fukanzazengi-Talk-6)
 
 ---
 # Fukanzazengi – Talk 5
@@ -538,7 +538,7 @@ That is from the first.
 ##### 1:35:31 end of recording
 
 ---
-[Next Talk: “Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6#0)
+[Next Talk: “Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6)
 
 [Home](index#fukanzazengi-lecture-5)
 

@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1987-06-27-A-B-and-C-Worlds#0) – 
+
+[Previous](1987-06-27-A-B-and-C-Worlds) – 
 [Home](index#1987) – 
-[Next](unfinished-1988#0)
+[Next](unfinished-1988)
 
 ---
 # Not Yet Transcribed: 1987 Part 2
@@ -23,6 +23,6 @@
 1. 12/19/1987	Disporting with the Buddhas: Transformation through Play	
 
 ---
-[Next: Not Yet Transcribed: 1988](unfinished-1988#0)
+[Next: Not Yet Transcribed: 1988](unfinished-1988)
 
 [Home](index#1987)

@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0) \| 
+
+[Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
 [Home](index#blue-cliff-record-case-1-lecture-2) \| 
-[Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
+[Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
 ---
 # Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2
@@ -377,7 +377,7 @@ The commentary is very helpful for you, so if you have time, read the commentary
 ##### 1:18:32 end of recording
 
 ---
-[Next Talk: “Blue Cliff Record, Case 2 – Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
+[Next Talk: “Blue Cliff Record, Case 2 – Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
 [Home](index#blue-cliff-record-case-1-lecture-2)
 

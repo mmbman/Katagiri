@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0) \| 
+
+[Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
 [Home](index#blue-cliff-record-case-1-lecture-1) \| 
-[Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
+[Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 ---
 # Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1
@@ -156,7 +156,7 @@ Sometimes with trailing vines, there is something interrupted, so sometimes tree
 ##### 53:44 end of recording
 
 ---
-[Next Talk: “Blue Cliff Record, Case 1 – Talk 2”](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
+[Next Talk: “Blue Cliff Record, Case 1 – Talk 2”](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 [Home](index#blue-cliff-record-case-1-lecture-1)
 

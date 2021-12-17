@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1981-1#0) – 
+
+[Previous](unfinished-1981-1) – 
 [Home](index#blue-cliff-record-case-18) – 
-[Next](unfinished-1981-2#0)
+[Next](unfinished-1981-2)
 
 ---
 # Blue Cliff Record, Case 20: Lung Ya’s Meaning of the Coming from the West – Talk 1
@@ -26,7 +26,7 @@ Case [Twenty] of Blue Cliff Record
 ##### end of recording
 
 ---
-[Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2#0)
+[Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2)
 
 [Home](index#blue-cliff-record-case-18)
 

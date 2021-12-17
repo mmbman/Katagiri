@@ -5,42 +5,42 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 # Table of Contents
 
-- [About This Website](about#0)
-- [Talk Summaries](summaries#0)
-- [Search](search#0)
+- [About This Website](about)
+- [Talk Summaries](summaries)
+- [Search](search)
 
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988-89) [Appendices](#end)
 
 ### 1979
 
-1. <a name="diamond-sutra-introduction"></a>[Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction#0)
-1. <a name="fukanzazengi-lecture-1"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1#0)
-1. <a name="fukanzazengi-lecture-2"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2#0)
-1. <a name="fukanzazengi-lecture-3"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#0)
-1. <a name="fukanzazengi-lecture-4"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4#0)
-1. <a name="fukanzazengi-lecture-5"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5#0)
-1. <a name="fukanzazengi-lecture-6"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6#0)
-1. <a name="fukanzazengi-lecture-7"></a>[Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7#0)
-1. <a name="diamond-sutra-provisional-being"></a>[Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being#0)
-1. <a name="diamond-sutra-emptiness"></a>[Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness#0)
-1. <a name="diamond-sutra-giving-and-non-covetousness"></a>[Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0)
-1. <a name="diamond-sutra-dharma-not-dharma-dharma"></a>[Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma#0)
-1. <a name="blue-cliff-record-case-1-lecture-1"></a>[Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
-1. <a name="blue-cliff-record-case-1-lecture-2"></a>[Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#0)
+1. [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
+1. [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+1. [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+1. [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+1. [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+1. [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+1. [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 ### 1980
 
-1. <a name="blue-cliff-record-case-2-lecture-1"></a>[Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0)
-1. <a name="blue-cliff-record-case-2-lecture-2"></a>[Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#0)
-1. [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings#0)
-1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#0)
-1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#0)
-1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0)
+1. [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+1. [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+1. [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
+1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 1. Blue Cliff Record, Case 4 – Talk 2
 
-1. <a name="karma-twelve-chains-of-causation"></a>[Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation#0)
-1. <a name="karma-where-karma-originates"></a>[Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates#0)
+1. [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+1. [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 
 1. Karma: Unmanifested
 1. Karma: Taking Care of Karma
@@ -68,7 +68,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 14
 1. Blue Cliff Record, Case 15
 
-1. <a name="blue-cliff-record-case-18"></a>[Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18#0)
+1. [Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
 
 1. Blue Cliff Record, Case 20 – Talk 1
 1. Blue Cliff Record, Case 20 – Talk 2
@@ -214,7 +214,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. The Simple Practice
 1. Blue Cliff Record, Case 67
 1. Blue Cliff Record, Case 68 – Talk 1
-1. [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism#0)
+1. [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
 1. Blue Cliff Record, Case 68 – Talk 2
 1. Blue Cliff Record, Case 69 – Talk 1
 1. Buddha Dharma: Big Sky Does not Bother with the Function of a Small Cloud
@@ -338,11 +338,11 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Karma in Buddhism – Part 1
 1. Karma in Buddhism – Part 2
 
-1. <a name="genjokoan-lecture-1-part-1"></a>[Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
-1. <a name="genjokoan-lecture-1-part-2"></a>[Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2#0)
-1. <a name="genjokoan-lecture-2"></a>[Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2#0)
-1. <a name="manas"></a>[Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas#0)
-1. <a name="a-b-and-c-worlds"></a>[A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds#0)
+1. [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+1. [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
+1. [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
+1. [Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
+1. [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
 1. Obon Memorial – Part 1
 1. Obon Memorial – Part 2
@@ -392,17 +392,17 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 ### Appendices
 
-- <a name="glossary"></a>[Glossary](glossary#0)
+- [Glossary](glossary)
 
-- <a name="dogen"></a>[Dogen Index](dogen#0)
+- [Dogen Index](dogen)
 
-- <a name="BCR"></a>[Blue Cliff Record Index](BCR#0)
+- [Blue Cliff Record Index](BCR)
 
-- <a name="books"></a>[Books](books#0)
+- [Books](books)
 
-- <a name="resources"></a>[Resources](resources#0)
+- [Resources](resources)
 
-- <a name="technical"></a>[Technical](technical#0)
+- [Technical](technical)
 
 <a name="end">
 

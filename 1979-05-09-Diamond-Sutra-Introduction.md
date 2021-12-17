@@ -1,12 +1,14 @@
-<a name="0"></a>
-[Previous](summaries#0) \| 
+---
+title: "Diamond Sutra: Introduction"
+description: May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
+---
+
+[Previous](summaries) \| 
 [Home](index#diamond-sutra-introduction) \| 
-[Next](1979-06-09-Fukanzazengi-Talk-1#0)
+[Next](1979-06-09-Fukanzazengi-Talk-1)
 
 -----
-# Diamond Sutra: Introduction
-## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
-### Katagiri Roshi begins a series of talks on the Diamond Sutra by discussing the fundamental point that the Diamond Sutra teaches: “‘A’ is ‘A’, but ‘A’ is not ‘A’, this means ‘A’ is really ‘A’.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
+#### Katagiri Roshi begins a series of talks on the Diamond Sutra by discussing the fundamental point that the Diamond Sutra teaches: “‘A’ is ‘A’, but ‘A’ is not ‘A’, this means ‘A’ is really ‘A’.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 #### Transcribed by Kikan Michael Howard
 
 Listen: 
@@ -228,7 +230,7 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 ##### 58:09 end of recording
 
 -----
-[Next Talk: “Fukanzazengi – Talk 1”](1979-06-09-Fukanzazengi-Talk-1#0)
+[Next Talk: “Fukanzazengi – Talk 1”](1979-06-09-Fukanzazengi-Talk-1)
 
 [Home](index#diamond-sutra-introduction)
 

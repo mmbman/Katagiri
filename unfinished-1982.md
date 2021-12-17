@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1981-2#0) – 
+
+[Previous](unfinished-1981-2) – 
 [Home](index#1982) – 
-[Next](unfinished-1983#0)
+[Next](unfinished-1983)
 
 ---
 # Not Yet Transcribed: 1982
@@ -20,6 +20,6 @@
 1. 12/22/1982	Blue Cliff Record, Case 38 – Talk 1	
 
 ---
-[Next: Not Yet Transcribed: 1983](unfinished-1983#0)
+[Next: Not Yet Transcribed: 1983](unfinished-1983)
 
 [Home](index#1982)

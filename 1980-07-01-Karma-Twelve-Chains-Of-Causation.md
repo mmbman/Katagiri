@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1#0) \|  
+
+[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \|  
 [Home](index#karma-twelve-chains-of-causation) \| 
-[Next](1980-07-02-Karma-Where-Karma-Originates#0)
+[Next](1980-07-02-Karma-Where-Karma-Originates)
 
 ---
 # Karma: Twelve Chains of Causation
@@ -27,7 +27,7 @@ So what is agreement? Oh yes, it is a form of a circle. This is nothing but the 
 So before time and space is completely normal sense of ignorance. This is birth of the Buddhas. That is the truth, regardless of the Buddha … in this world, or he describes the forms, or not. Anyway, this is before time and space arises. Okay.
 
 ---
-[Next Talk: “Karma: Where Karma Originates”](1980-07-02-Karma-Where-Karma-Originates#0)
+[Next Talk: “Karma: Where Karma Originates”](1980-07-02-Karma-Where-Karma-Originates)
 
 [Home](index#karma-twelve-chains-of-causation)
 

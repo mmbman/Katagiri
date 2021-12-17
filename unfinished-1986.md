@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1985#0) – 
+
+[Previous](unfinished-1985) – 
 [Home](index#1986) – 
-[Next](unfinished-1987-1#0)
+[Next](unfinished-1987-1)
 
 ---
 # Not Yet Transcribed: 1986
@@ -75,6 +75,6 @@
 1. 12/27/1986	Obedience
 
 ---
-[Next: Not Yet Transcribed: 1987 Part 1](unfinished-1987-1#0)
+[Next: Not Yet Transcribed: 1987 Part 1](unfinished-1987-1)
 
 [Home](index#1986)

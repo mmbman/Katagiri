@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1980-07-02-Karma-Where-Karma-Originates#0) – 
+
+[Previous](1980-07-02-Karma-Where-Karma-Originates) – 
 [Home](index#1980) – 
-[Next](unfinished-1981-1#0)
+[Next](unfinished-1981-1)
 
 ---
 # Not Yet Transcribed: 1980 Part 2
@@ -20,6 +20,6 @@
 1. 11/16/1980	Blue Cliff Record, Case 7 – Talk 2
 
 ---
-[Next: Not Yet Transcribed: 1981](unfinished-1981#0)
+[Next: Not Yet Transcribed: 1981](unfinished-1981)
 
 [Home](index#1980)

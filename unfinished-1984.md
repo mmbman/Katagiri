@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1983#0) – 
+
+[Previous](unfinished-1983) – 
 [Home](index#1984) – 
-[Next](unfinished-1985#0)
+[Next](unfinished-1985)
 
 ---
 # Not Yet Transcribed: 1984
@@ -74,6 +74,6 @@
 1. 12/26/1984	Blue Cliff Record, Case 64: Case 64
 
 ---
-[Next: Not Yet Transcribed: 1985](unfinished-1985#0)
+[Next: Not Yet Transcribed: 1985](unfinished-1985)
 
 [Home](index#1984)

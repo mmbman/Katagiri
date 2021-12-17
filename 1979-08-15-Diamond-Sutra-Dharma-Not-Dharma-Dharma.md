@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#0) \| 
+
+[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma) \| 
-[Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
+[Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
 ---
 # Diamond Sutra: Dharma / Not Dharma / Dharma
@@ -190,7 +190,7 @@ So you must be free from the enlightenment that you have experienced – and the
 ##### 58:56 end of recording
 
 ---
-[Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#0)
+[Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
 [Home](index#diamond-sutra-dharma-not-dharma-dharma)
 

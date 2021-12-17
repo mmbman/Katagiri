@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation#0) – 
+
+[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) – 
 [Home](index#karma-where-karma-originates) – 
-[Next](unfinished-1980-2#0)
+[Next](unfinished-1980-2)
 
 ---
 # Karma: Where Karma Originates
@@ -268,7 +268,7 @@ Okay? Do you understand?
 ##### end of recording
 
 ---
-[Next: Not Yet Transcribed: 1980 Part 2](unfinished-1980-2#0)
+[Next: Not Yet Transcribed: 1980 Part 2](unfinished-1980-2)
 
 [Home](index#karma-where-karma-originates)
 

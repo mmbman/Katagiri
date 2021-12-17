@@ -1,5 +1,5 @@
-<a name="0"></a>
-[Previous](books#0) – 
+
+[Previous](books) – 
 [Home](index#resources)
 
 ---

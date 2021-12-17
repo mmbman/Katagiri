@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0) \| 
+
+[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| 
 [Home](index#blue-cliff-record-case-2-lecture-2) \| 
-[Next](1980-03-15-Save-All-Sentient-Beings#0)
+[Next](1980-03-15-Save-All-Sentient-Beings)
 
 ---
 # Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2
@@ -226,7 +226,7 @@ Okay.
 ##### 1:16:06 end of recording
 
 ---
-[Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings#0)
+[Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings)
 
 [Home](index#blue-cliff-record-case-2-lecture-2)
 

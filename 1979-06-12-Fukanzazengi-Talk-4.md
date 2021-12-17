@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](1979-06-11-Fukanzazengi-Talk-3#0) \| 
+
+[Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Home](index#fukanzazengi-lecture-4) \| 
-[Next](1979-06-13-Fukanzazengi-Talk-5#0)
+[Next](1979-06-13-Fukanzazengi-Talk-5)
 
 ---
 # Fukanzazengi – Talk 4
@@ -276,7 +276,7 @@ And then all you have to do is, be one with death when death comes. That is shik
 ##### 1:10:30 end of recording
 
 ---
-[Next Talk: “Fukanzazengi – Talk 5”](1979-06-13-Fukanzazengi-Talk-5#0)
+[Next Talk: “Fukanzazengi – Talk 5”](1979-06-13-Fukanzazengi-Talk-5)
 
 [Home](index#fukanzazengi-lecture-4)
 

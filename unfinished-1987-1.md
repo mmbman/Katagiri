@@ -1,7 +1,7 @@
-<a name="0"></a>
-[Previous](unfinished-1986#0) – 
+
+[Previous](unfinished-1986) – 
 [Home](index#1987) – 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
 ---
 # Not Yet Transcribed: 1987 Part 1
@@ -35,6 +35,6 @@
 1. 05/23/1987	Karma in Buddhism – part 2
 
 ---
-[Next Talk: Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1#0)
+[Next Talk: Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
 [Home](index#1987)
