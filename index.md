@@ -1,5 +1,5 @@
 ---
-title: Katagiri Transcripts: Index
+title: Katagiri Transcripts – Index
 ---
 <a name="0"></a>
 
