@@ -3,13 +3,13 @@ title: "Blue Cliff Record, Case 20: Lung Ya’s Meaning of the Coming from the W
 description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](unfinished-1981-1) – 
-[Home](index#blue-cliff-record-case-18) – 
+[Previous](unfinished-1981-1) \| 
+[Home](index#blue-cliff-record-case-18) \| 
 [Next](unfinished-1981-2)
 
 **This transcript is still in rough draft form.**
 
-Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Original Recording</a> | 
+Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Original Recording</a> \|
 <a class="nr-custom-trigger">NaturalReader</a>
 
 ---

@@ -3,13 +3,13 @@ title: "A, B, and C Worlds"
 description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](1987-06-20-Manas) | 
-[Home](index#a-b-and-c-worlds) | 
+[Previous](1987-06-20-Manas) \| 
+[Home](index#a-b-and-c-worlds) \| 
 [Next](unfinished-1987-2)
 
 **This transcript is still in rough draft form.**
 
-Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Original Recording</a> | 
+Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
 ---

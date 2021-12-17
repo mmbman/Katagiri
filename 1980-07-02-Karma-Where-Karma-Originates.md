@@ -3,8 +3,8 @@ title: "Karma: Where Karma Originates"
 description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) – 
-[Home](index#karma-where-karma-originates) – 
+[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
+[Home](index#karma-where-karma-originates) \| 
 [Next](unfinished-1980-2)
 
 **This transcript is still in rough draft form.**

@@ -3,13 +3,13 @@ title: "Shobogenzo: Genjokoan – Talk 1, Part 2"
 description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1) – 
-[Home](index#genjokoan-lecture-1-part-2) – 
+[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1) \| 
+[Home](index#genjokoan-lecture-1-part-2) \| 
 [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
 **This transcript is still in rough draft form.**
 
-Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Original Recording</a> | 
+Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
 ---
