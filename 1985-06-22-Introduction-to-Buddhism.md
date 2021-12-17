@@ -4,7 +4,7 @@ description: June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1985) \| 
-[Previous](1981-08-26-Blue-Cliff-Record-Case-25-Talk-1) \| 
+[Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
