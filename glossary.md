@@ -7,7 +7,7 @@ description:
 [Previous](1987-06-27-A-B-and-C-Worlds) \| 
 [Next](dogen)
 
-**Note**: This is a work in progress! Please don't rely on this as definitive or complete, or even entirely accurate, for the moment.
+**Note**: This glossary is a work in progress! Please don't rely on this being complete, definitive, or even entirely accurate, for the moment.
 
 [A](#a) - [B](#b) - [C](#c) - [D](#d) - [E](#e) - [F](#f) - [G](#g) - [H](#h) - [I](#i) - [J](#j) - [K](#k) - [L](#l) - [M](#m) - [N](#n) - [O](#o) - [P](#p) - [Q](#q) - [R](#r) - [S](#s) - [T](#t) - [U](#u) - [V](#v) - [W](#w) - [X](#x) - [Y](#y) - [Z](#z)
 
@@ -141,9 +141,9 @@ External links:
 
 - [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
----
-
 # B
+
+---
 
 ## Baso Dōitsu
 Chinese: Mazu Daoyi (Ma-tsu Tao-yi), 馬祖道一  
@@ -156,44 +156,37 @@ External links:
 
 - [Wikipedia: Mazu Daoyi](https://en.wikipedia.org/wiki/Mazu_Daoyi)
 
----
 ## Blue Cliff Record
 
 Japanese: Hekiganroku
 
 - [Blue Cliff Record Index](BCR)
 
----
 ## Bodhidharma
 
 The First [Ancestor](glossary#ancestor) of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
 - [Fukanzazengi – Talk 4 (0:00)](1979-06-12-Fukanzazengi-Talk-4#000)
 
----
 ## Bodhisattva
 
 ([Sanskrit](glossary#sanskrit)) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
 
 - [Fukanzazengi – Talk 3 (1:36:06)](1979-06-11-Fukanzazengi-Talk-3#13606)
 
----
 ## Book of Equanimity
 Japanese: Shōyōroku
 
 Another collection of koans, similar to [Blue Cliff Record](glossary#blue-cliff-record).
 
----
 ## Bowing
 
 - [Fukanzazengi – Talk 1 (8:39)](1979-06-09-Fukanzazengi-Talk-1#839)
 
----
 ## Brahmanism
 
 - [Fukanzazengi – Talk 7 (4:14)](1979-06-15-Fukanzazengi-Talk-7#414)
 
----
 ## Buddha
 
 ([Sanskrit](glossary#sanskrit)) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the [Tathāgata](glossary#tathāgata)". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
@@ -202,18 +195,14 @@ External links:
 
 - [Wikipedia: Buddhahood](https://en.wikipedia.org/wiki/Buddhahood)
 
----
 ## Buddha Dharma
 
----
 ## Buddha Hall
 
 The room used for teaching (giving talks) in a traditional Zen monastery.
 
----
 ## Buddha Land
 
----
 ## Buddha Nature
 
 The original nature of existence, perfect and all pervading. Interconnection.
@@ -225,18 +214,14 @@ External links:
 
 [Wikipedia: Buddha nature](https://en.wikipedia.org/wiki/Buddha-nature)
 
----
 ## Buddha Way
 
----
 ## Buddhism
 
----
 ## Buddhist Psychology
 
 - [Fukanzazengi – Talk 6 35:32](1979-06-14-Fukanzazengi-Talk-6#3532)
 
----
 ## Buddhistic
 
 "Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism" without implying that "Buddhism" is a fixed object or concept.
@@ -244,10 +229,10 @@ External links:
 - [Fukanzazengi – Talk 2 (1:10:26)](1979-06-10-Fukanzazengi-Talk-2#11026)
 - [Fukanzazengi – Talk 5 (5:14)](1979-06-13-Fukanzazengi-Talk-5#514)
 
----
 # C
 
 ---
+
 ## Calligraphy
 
 A traditional art practiced by Zen priests and monks.
@@ -258,7 +243,6 @@ External links:
 
 - [Wikipedia: Hitsuzendō](https://en.wikipedia.org/wiki/Hitsuzendō)
 
----
 ## Cat
 
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
@@ -268,26 +252,23 @@ An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 - [Blue Cliff Record, Case 3 – Talk 1 (13:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#1344)
 - [Blue Cliff Record, Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
 
----
 ## Chan
 Also: **Ch'an**
 
 A Chinese word meaning the same as "Zen" in Japanese. Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
 
----
 ## Chan Buddhism
 
 Chan Buddhism usually refers to Zen Buddhism in China. Zen is the Japanese word for "Chan". Both words derive from the [Sanskrit](glossary#sanskrit) *dyana*.
 
----
 # D
 
 ---
+
 ## Dainin
 
 Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagiri).
 
----
 ## Delusion
 
 Mistaking a perception for an independent object or fact.
@@ -295,10 +276,8 @@ Mistaking a perception for an independent object or fact.
 - [Blue Cliff Record, Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
 - etc.
 
----
 ## Demon
 
----
 ## Denkoroku
 
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
@@ -307,10 +286,8 @@ External links:
 
 - [Wikipedia: Denkoroku](https://en.wikipedia.org/wiki/Denkoroku)
 
----
 ## Dependent Origination
 
----
 ## Dharma
 
 Truth; the teachings; universal law; original nature of existence; phenomena.
@@ -319,20 +296,17 @@ Truth; the teachings; universal law; original nature of existence; phenomena.
 
 - e.g. [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
----
 ## Dharma Vehicle
 
 Dharma as action, activity.
 
 - [Blue Cliff Record, Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
 
----
 ## Dhātu
 
 - [Save All Sentient Beings (26:00)](1980-03-15-Save-All-Sentient-Beings#2600)
 - [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
----
 ## Diamond Sutra
 
 Vajracchedikā Prajñāpāramitā Sūtra
@@ -340,12 +314,10 @@ Vajracchedikā Prajñāpāramitā Sūtra
 - [Diamond Sutra Introduction](1979-05-09-Diamond-Sutra-Introduction), etc.
 - [Blue Cliff Record, Case 3 – Talk 1 (27:19)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2719)
 
----
 ## Distraction
 
 - [Fukanzazengi – Talk 1 (47:29)](1979-06-09-Fukanzazengi-Talk-1#4729)
 
----
 ## Dogen
 
 Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](dogen#shobogenzo). 
@@ -358,40 +330,33 @@ External links:
 
 - [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
 
----
 ## Dualism
 
----
 ## Dullness
 
 - [Fukanzazengi – Talk 1 (47:29)](1979-06-09-Fukanzazengi-Talk-1#4729)
 
----
 # E
 
 ---
+
 ## Edward Conze
 
----
 ## Ego Consciousness
 
 
----
 ## Egolessness
 
 - [Fukanzazengi – Talk 1 (49:49)](1979-06-09-Fukanzazengi-Talk-1#4949)
 
----
 ## Eightfold Path
 
 - [Blue Cliff Record, Case 3 – Talk 1 (1:10:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#11044)
 
----
 ## Eihei Dogen 
 
 See [Dogen](#dogen)
 
----
 ## Eiheiji
 
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
@@ -399,12 +364,10 @@ Monastery founded by Eihei Dogen. Considered one of the primary Zen training tem
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
 - [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:09:51)](1979-06-11-Fukanzazengi-Talk-3#10951)
 
----
 ## Emptiness
 
 See [śūnyatā](glossary#śūnyatā).
 
----
 ## Engo Kokugon
 
 Chinese: Yuanwu Keqin (Yuan Wu K’e Ch’in), 圓悟克勤,<br>
@@ -416,7 +379,6 @@ Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glo
 - [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)
 - [Blue Cliff Record Index](BCR)
 
----
 ## Enlightenment
 
 Awakening from [delusion](glossary#delusion).
@@ -424,10 +386,10 @@ Awakening from [delusion](glossary#delusion).
 - [Blue Cliff Record, Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
 - etc.
 
----
 # F
 
 ---
+
 ## Four Dharma Seals
 
 The Four Dharma Seals are:
@@ -445,14 +407,12 @@ External links:
 
 - [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
----
 ## Fukanzazengi
 
 [Dogen](glossary#dogen)'s “Universal Recommendation for Zazen”
 
 See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
 
----
 ## Fukutoku
 
 Also: **kudoku**
@@ -465,22 +425,20 @@ External links:
 
 - [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
 
----
 # G
 
 ---
+
 ## Gempo Yamamoto
 
 Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa).
 
 - [Blue Cliff Record, Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
 
----
 ## Genjokoan
 
 See [Dogen Index: Genjokoan](dogen#genjokoan)
 
----
 ## Gensha Shibi 
 Japanese: Gensha Shibi,<br>
 Chinese: Xuansha Shibei (Hsuan-sha Shih-pei) 玄沙師備,<br>
@@ -490,23 +448,21 @@ Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
 - [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 
----
 ## Green Gulch
 
 Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#soto-zen ) practice centers established by [Suzuki Roshi](#suzuki-roshi).
 
 - [Fukanzazengi – Talk 3 (59:40)](1979-06-11-Fukanzazengi-Talk-3#5940)
 
----
 # H
 
 ---
+
 ## Han
 
 “Han: In Zen monasteries, a wooden board that is struck with a mallet to summon monastics to the zendo or other practice hall, as well as serving as a time-keeping signal during the monastic day. The pattern of strikes often includes three “roll downs”, a series of strikes gradually becoming accelerando and crescendo.”
 - from [hszc.org: Zen Terminology](https://hszc.org/about/zen-terminology/)
 
----
 ## Hashimoto Roshi
 
 Eko Hashimoto, abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there as a monk. Katagiri's second teacher. 
@@ -514,13 +470,10 @@ Eko Hashimoto, abbot of [Eiheiji](#eiheiji) when Dainin Katagiri practiced there
 - [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
 - [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:09:51)](1979-06-11-Fukanzazengi-Talk-3#10951)
 
----
 ## Heart Sutra
 
----
 ## Hinayana
 
----
 ## Huineng
 Chinese: **Dajian Huineng**, 大鑒惠能  
 Japanese: **Daikan Enō**  
@@ -528,10 +481,10 @@ Japanese: **Daikan Enō**
 
 The Sixth Ancestor of Chan Buddhism; a semi-legendary figure. The one who won the poetry contest.
 
----
 # I
 
 ---
+
 ## Igi
 
 Japanese: igi 威儀 (pronounced "ee-jee", more or less). 
@@ -544,31 +497,26 @@ External links:
 
 - [wordhippo: igi](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html)
 
----
 ## Impermanence
 
 Constant change. One of the [Four Dharma Seals](#four-dharma-seals).
 
 - [Fukanzazengi – Talk 6 (5:12)](1979-06-14-Fukanzazengi-Talk-6#512)
 
----
 ## Impulses
  
 See [samskara](glossary#samskara).
 
----
 ## Ino
 
 Zendo (meditation hall ) manager.
 
----
 ## Intimacy
 
 ‘Intimacy’ refers to how the the ultimate nature of existence – emptiness – and your life work together very closely.
 
 - [Introduction to Buddhism (4:50)](1985-06-22-Introduction-to-Buddhism#450)
 
----
 ## Isan Reiyū
 
 Japanese: Isan Reiyū  
@@ -582,17 +530,16 @@ External links:
 
 - [Wikipedia: Guishan Lingyou](https://en.wikipedia.org/wiki/Guishan_Lingyou)
 
----
 # J
 
 ---
+
 ## Jisha
 
 Ceremonial attendant. See also [anja](glossary#anja).
 
 - [Blue Cliff Record: Case1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#1036)
 
----
 ## Jōshū Jūshin
 
 Chinese: Zhàozhōu Cōngshěn (Chao-chou Ts'ung-shen), 趙州從諗,<br>
@@ -607,9 +554,9 @@ External links:
 
 - [Wikipedia: Zhaozhou Congshen](https://en.wikipedia.org/wiki/Zhaozhou_Congshen)
 
----
 # K
 
+---
 
 ## Kaijo
 
@@ -621,7 +568,6 @@ External links:
 
 ## Kapleau Roshi
 
----
 ## Karma
 
 - [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
@@ -629,12 +575,10 @@ External links:
 
 - [Fukanzazengi – Talk 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Talk-3#3012)
 
----
 ## Katagiri
 
 Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen) Buddhism to America. His Buddhist name, Jikai Dainin, means "Compassion Ocean Great Patience". In these talks he is usually addressed as [Roshi](glossary#roshi) or Hojo-san, but he often refers to himself as "Katagiri". He sometimes refers to his younger self (e.g. in monastic training) as just [Dainin](glossary#dainin).
 
----
 ## Keitoku Dentō-roku
 
 Japanese: Keitoku Dentō-roku  
@@ -645,32 +589,30 @@ English: The Jingde Record of the Transmission of the Lamp
 
 ## Koan
 
----
 ## Kyosei
 
 Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](#seppō-gison). Famous for his discipline.
 
 - [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
 
----
 # L
 
 ---
+
 ## Lotus
 
 - [Fukanzazengi – Talk 3 (1:07:26)](1979-06-11-Fukanzazengi-Talk-3#10726)
 
----
 ## Lotus Sutra
 
 [Sanskrit](glossary#sanskrit): Saddharma Puṇḍarīka Sūtra, lit. 'Sūtra on the White Lotus of the True Dharma
 
----
 # M
+
+---
 
 ## Madhyamaka
 
----
 ## Mahākāśyapa
 
 One of the main disciples of Shakyamuni Buddha. 'Maha' means 'Great'.
@@ -681,7 +623,6 @@ External links:
 
 ## Mahaprajnaparamita
 
----
 ## Mahayana
 
 Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group of Buddhist traditions, texts, philosophies, and practices. Mahāyāna is considered one of the two main existing branches of Buddhism (the other being Theravada). Mahāyāna Buddhism developed in India (c. 1st century BCE onwards). It accepts the main scriptures and teachings of early Buddhism, but also adds various new doctrines and texts such as the Mahāyāna Sūtras.[1]
@@ -690,7 +631,6 @@ External links:
 
 - [Wikipedia: Mahayana](https://en.wikipedia.org/wiki/Mahayana)
 
----
 ## Manjushri
 
 The [Bodhisattva](glossary#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](glossary#zendo). 
@@ -699,7 +639,6 @@ External links:
 
 - [Wikipedia: Manjushri](https://en.wikipedia.org/wiki/Manjushri)
 
----
 ## Masao Abe
 
 pronounced "Ah-bay"
@@ -711,30 +650,26 @@ External links:
 - [Wikipedia: Masao Abe](https://en.wikipedia.org/wiki/Masao_Abe)
 - [terebess.hu: Translation of Fukanzazengi by Norman Waddell and Masao Abe](https://terebess.hu/zen/dogen/Fukanzazengi.pdf)
 
----
 ## Middle Way
 
----
 ## Minnesota Zen Meditation Center
 
----
 ## Mount Sumeru
 
 External links:
 
 - [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
 
----
 ## Mudra
 
 A symbolic pose of (usually) the hands, found in Hinduism, Jainism and Buddhism. In zazen (zen meditation), the “cosmic mudra” is used.
 
 - [Mudra on Wikipedia][https://en.wikipedia.org/wiki/Mudra]
 
----
 # N
 
 ---
+
 ## Nakagawa Roshi
 
 Probably Soen Nakagawa. 
@@ -770,26 +705,22 @@ External links:
 
 - [Wikipedia: Nikāya](https://en.wikipedia.org/wiki/Nikāya)
 
----
 ## Nirvana
 
 One of the [Four Dharma Seals](#four-dharma-seals).
 
----
 ## Nirvana Sutra
 
----
 ## No-Self
 
 One of the [Four Dharma Seals](#four-dharma-seals).
 
----
 ## Nondualism
 
----
 # O
 
 ---
+
 ## Ontology
 
 The branch of philosophy dealing with the nature of being.
@@ -798,24 +729,20 @@ External links:
 
 - [Wikipedia: ontology](https://en.wikipedia.org/wiki/Ontology)
 
----
 # P
 
 ---
+
 ## Pali
 
----
 ## Pali Cannon
 
----
 ## Paramita
 
----
 ## Patriarch
 
 See [Ancestor](glossary#ancestor)
 
----
 ## Prajñā
 
 [Sanskrit](glossary#sanskrit): prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
@@ -824,7 +751,6 @@ External links:
 
 - [Wikipedia: Prajñā (Buddhism](https://en.wikipedia.org/wiki/Prajñā_(Buddhism))
 
----
 ## Prajnaparamita
 
 "Wisdom beyond wisdom", or The Perfection of Wisdom.
@@ -837,12 +763,10 @@ External links:
 
 - [Wikipedia: Prajnaparamita](https://en.wikipedia.org/wiki/Prajnaparamita)
 
----
 ## Prajnaparamita Sutra
 
 See [Prajnaparamita](glossary#prajnaparamita) 
 
----
 ## Prāpti
 
 [Sanskrit](glossary#sanskrit): prāpti. "To get, to obtain." A 'force' between conditioned elements. See also: [aprāpti](glossary#aprāpti).
@@ -854,7 +778,6 @@ External links:
 
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
----
 ## Primitive Buddhism
 
 Katagiri Roshi sometimes uses them term "Primitive Buddhism" – possibly to refer to early Buddhist teachings, which were probably heavily influenced by [Brahmanism](glossary#brahmanism) in India. Or, it might refer to Pre-sectarian Buddhism, "Buddhism as theorized to have existed before the various subsects of Buddhism came into being"  – which is not exactly the same thing. Either way, it is something somewhat distinct from [Mahayana Buddhism](glossary#mahayana). However, the term is probably not meant to be perjorative; Katagiri often mentions that we need to understand our Zen practice in terms of general Buddhism, "mentioned by Buddha."
@@ -869,32 +792,29 @@ External links:
 
 - [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
----
 # Q
 
 ---
+
 # R
 
 ---
+
 ## Reb Anderson
 
 Tenshin Reb Anderson Roshi, of San Francisco Zen Center
 
----
-## religious zazen
+## Religious Zazen
 
 [Fukanzazengi – Talk 2 (25:09)](1979-06-10-Fukanzazengi-Talk-2#2509)
 [Fukanzazengi – Talk 5 (15:10-)](1979-06-13-Fukanzazengi-Talk-5#1510)
 
----
 ## Rinzai Zen
 
----
 ## Roshi
 
 A distinguished elder teacher.
 
----
 ## Ryōtan Sūshin
 
 Chinese: Longtan Chongxin (龍潭崇信)  
@@ -905,10 +825,10 @@ External links:
 
 - [terebess.hu: Longtan Chongxin](https://terebess.hu/zen/longtan.html)
 
----
 # S
 
 ---
+
 ## Saddharma Puṇḍarīka Sutra
 
 The Lotus Sutra. 
@@ -917,17 +837,14 @@ External links:
 
 - [Wikipedia: Lotus Sutra](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
----
 ## Samadhi
 
 One-pointedness. Often the kind achieved in meditation, but it can refer to complete absorption in any activity.
 
----
 ## Samsara
 
 (Sanskrit) Literally, “wandering in circles”: the “wandering in circles world” of the Six Realms of Existence. 
 
------
 ## Samskara
 
 [Sanskrit](glossary#sanskrit): saṃskāra संस्कार<br>
@@ -943,7 +860,6 @@ External links:
 
 - [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
----
 ## Saṃyukta Āgama
 
 "Connected Discourses". See [Āgama](glossary#āgama).
@@ -962,7 +878,6 @@ External links:
 
 - [Wikipedia: Sandhinirmocana Sutra](https://en.wikipedia.org/wiki/Sandhinirmocana_Sutra)
 
----
 ## San Francisco Zen Center
 
 The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with [Suzuki Roshi](glossary#suzuki-roshi) in the 60's. 
@@ -970,14 +885,12 @@ The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked
 - [Fukanzazengi – Talk 3 (1:40:15)](1979-06-11-Fukanzazengi-Talk-3#14015),
 - [Fukanzazengi – Talk 4 (54:16)](1979-06-12-Fukanzazengi-Talk-4#5416)
 
----
 ## Sanskrit
 
 External links:
 
 - [Wikipedia: Sanskrit](https://en.wikipedia.org/wiki/Sanskrit)
 
----
 ## Śrāvakabuddha
 
 A buddha who attains enlightenment through listening the Buddha’s teaching. (Basically, an [arhat](glossary#arhat).)
@@ -988,14 +901,12 @@ External links:
 
 - [Wikipedia: Sāvakabuddha](https://en.wikipedia.org/wiki/Sāvakabuddha)
 
----
 ## Satori
 
 ## Seppō
 
 See [Seppō Gison](#seppō-gison)
 
----
 ## Seppō Gison
 
 Japanese: Seppō Gison<br>
@@ -1009,12 +920,10 @@ External links:
 - [Wikipedia: Xuefeng Yicun](https://en.wikipedia.org/wiki/Xuefeng_Yicun)
 - [terebess.hu: Xuefeng Yicun](https://terebess.hu/zen/xuefeng.html)
 
----
 ## Sesshin
 
 (Japanese) An intensive meditation retreat in the style followed by Zen monasteries. Literally, “gathering the heart-mind”.
 
----
 ## Setchō Jūken
 
 Chinese: Xuedou Chongxian (Hsueh Tou Ch’ung Hsien), 雪竇重顯  
@@ -1026,12 +935,10 @@ Xuedou compiled the koans of the [Blue Cliff Record](glossary#blue-cliff-record)
 - [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)
 - [Blue Cliff Record Index](BCR)
 
----
 ## Shakyamuni Buddha
 
 The historical [Buddha](glossary#buddha), Siddhartha Gautama. Shakyamuni means “sage of the Shākyas,” the Shākyas being his tribe or clan.
 
----
 ## Shijo
 
 Shijo 止靜 (Japanese): Signal of the beginning of [zazen](glossary#zazen).
@@ -1046,7 +953,6 @@ The “*just*” from “just sitting”; see [shikantaza](glossary#shikantaza).
 
 - [Blue Cliff Record, Case 3 – Talk 1 (21:33)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2133)
 
----
 ## Shikantaza
 
 A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
@@ -1054,19 +960,16 @@ A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casu
 - [Fukanzazengi – Talk 2 (25:09)](1979-06-10-Fukanzazengi-Talk-2#2509)
 - [Fukanzazengi – Talk 3 (1:04:30)](1979-06-11-Fukanzazengi-Talk-3#10430), [(1:08:27)](1979-06-11-Fukanzazengi-Talk-3#10827)
 
----
 ## Shobogenzo
 
 "Treasury of the True Dharma Eye": the main collection of Dogen's works. 
 
 See [Dogen Index: Shobogenzo](dogen#shobogenzo)
 
----
 ## Sitting
 
 "Sitting" is often short for "doing [zazen](#zazen)", "seated meditation", or even [shikantaza](#shikantaza).
 
----
 ## Six Realms of Existence
 
 - [Fukanzazengi – Talk 3 (19:15)](1979-06-11-Fukanzazengi-Talk-3#1915)
@@ -1075,22 +978,18 @@ External links:
 
 - [Wheel of Life Infographic by Kikan](Wheel-of-Life-Infographic.pdf) (20MB PDF File)
 
----
 ## Skandha
 
 - [Save All Sentient Beings (1:54)](1980-03-15-Save-All-Sentient-Beings#154)
 
----
 ## Sōen Nakagawa
 
 External links:
 
 - [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 
----
 ## Soto Zen
 
----
 ## Śrīmālādevī Siṃhanāda Sutra
 
 Śrīmālādevī Siṃhanāda - [Sanskrit](glossary#sanskrit)
@@ -1099,20 +998,16 @@ External links:
 
 - [Wikipedia: Śrīmālādevī Siṃhanāda Sūtra](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
 
----
 ## Styāna
 
 ([Sanskrit](glossary#sanskrit)) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
 
----
 ## Subhuti
 
----
 ## Suffering
 
 One of the [Four Dharma Seals](#four-dharma-seals).
 
----
 ## Śūnyatā
 
 [Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".<br>
@@ -1124,7 +1019,6 @@ External links:
 
 - [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
 
----
 ## D. T. Suzuki
 
 “Daisetsu Teitaro Suzuki was a Japanese author of books and essays on Buddhism, Zen and Shin that were instrumental in spreading interest in both Zen and Shin to the West. Suzuki was also a prolific translator of Chinese, Japanese, and Sanskrit literature.”
@@ -1133,12 +1027,10 @@ External links:
 
 - [Wikipedia: D. T. Suzuki](https://en.wikipedia.org/wiki/D._T._Suzuki)
 
----
 ## Suzuki Roshi
 
 - [Fukanzazengi – Talk 3 (1:40:15)](1979-06-11-Fukanzazengi-Talk-3#14015),
 
----
 ## Sukhāvatīvyūha Sutra
 
 Sukhāvatīvyūha: Infinite Life Sutra; Pure Land. 
@@ -1147,7 +1039,6 @@ External links:
 
 - [Wikipedia: Longer Sukhāvatīvyūha Sūtra](https://en.wikipedia.org/wiki/Longer_Sukhāvatīvyūha_Sūtra)
 
----
 ## Suki
 
 suki (Japanese): gap; space.
@@ -1158,13 +1049,12 @@ External links:
 
 - [jisho.org: suki]([](https://jisho.org/search/suki))
 
----
 ## Sutra
 
----
 # T
 
----
+----
+
 ## Tatami
 
 (Japanese) Floor mat.
@@ -1179,22 +1069,18 @@ External links:
 
 - [Wikipedia: Tathāgata](https://en.wikipedia.org/wiki/Tathāgata)
 
----
 ## Tathāgatagarbha
 
 External links:
 
 - [Wikipedia: Tathāgatagarbha thought](https://en.wikipedia.org/wiki/Eight_Consciousnesses#Tathagata-garbha_thought)
 
----
 ## Three Times
 
 The three times: past, present, and future.
 
----
 ## Tibetan Buddhism
 
----
 ## Tokusan Senkan
 
 Chinese: Deshan Xuanjian (Te-shan Hsuan-chien), 德山宣鑒  
@@ -1205,42 +1091,42 @@ Originally a scholar of the Diamond Sutra, he was defeated in Zen combat by an o
 
 - [Blue-Cliff-Record-Case-4-Talk-1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
----
 ## Tōrō
 
 Lantern.
 
 From [Wikipedia: Tōrō](https://en.wikipedia.org/wiki/Tōrō): In Japan, a tōrō (灯籠 or 灯篭, 灯楼, light basket, light tower)[note 1] is a traditional lantern made of stone, wood, or metal. Like many other elements of Japanese traditional architecture, it originated in China; where they can still be found in Buddhist temples and Chinese gardens. 
 
----
 # U
 
 ---
+
 # V
 
 ---
+
 ## Vasubandhu
 
 External links:
 
 - [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
 
----
 ## Vimalakirti
 
----
 ## Vimalakirti Sutra
 
----
 # W
 
 ---
+
 # X
 
 ---
+
 # Y
 
 ---
+
 ## Yogachara
 
 Yogācāra; literally "yoga practice" is an influential tradition of Buddhist philosophy and psychology emphasizing the study of cognition, perception, and consciousness through the interior lens of meditative and yogic practices.
@@ -1249,10 +1135,10 @@ External links:
 
 [Wikipedia: Yogachara](https://en.wikipedia.org/wiki/Yogachara)
 
----
 # Z
 
 ---
+
 ## Zagu
 
 Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate way, and carried under the sleeve of the robes when not in use. The zagu and okesa are supposed to stay together. 
@@ -1265,29 +1151,24 @@ Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate w
 
 For detailed guidance on how to practice zazen, see [Dogen Index: Fukanzazengi](dogen#fukanzazengi).
 
----
 ## Zen
 
----
 ## Zen Buddhism
 
----
 ## Zen Master
 
----
 ## Zen Practice
 
----
 ## Zendo
 
 Meditation hall
 
----
 ## Zenji
 
 Japanese word meaning "Zen Master ". E.g., [Dogen Zenji](#dogen).
 
 ---
+
 [Next: Dogen Index](dogen)
 
 [Home](index#glossary)
