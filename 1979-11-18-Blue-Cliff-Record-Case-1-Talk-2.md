@@ -9,10 +9,10 @@ description: November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains ‘tanpankan’ (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the Blue Cliff Record. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
+### Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains ‘tanpankan’ (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the Blue Cliff Record. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 The main subject of Case 1, I read already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism ), so I think most of you know it pretty well. 
 
@@ -30,7 +30,7 @@ Anyway, [Bodhidharma](glossary#bodhidharma) went to China in about 520, and met 
 
 While this is a very natural question, his natural question has a lot of meaning. It’s natural, but it’s a deep question. If you practice [zazen](glossary#zazen), most of you expect something particular: merit, or reward, or progress in practice. This is very natural. But what if [Bodhidharma](glossary#bodhidharma) says, “no merit”? Why was Bodhidharma a ‘liar’? Because if you practice zazen, some of you can find merit or progress in practice. If it is true, you cannot say there is “no merit.” There is merit; so why does Bodhidharma say “no merit”? That’s the question [Engo Zen Master](glossary#engo-kokugon) in his commentary asks: why?
 
-##### 6:13
+#### 6:13
 
 In not only [Zen Buddhism](glossary#zen-buddhism ), but in general [Buddhism](glossary#buddhism), the most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not the *most* important. If you have individual questions and understanding or experience, the most important [point] in Buddhism is how you must be free from this individual experience and individual understanding. You have to break through the barrier of individual, personal understanding. That is a [Buddhistic](glossary#buddhistic ) way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even if you believe you experience a religious state of what is divinity, or [Buddha](glossary#buddha), or [Avalokiteshvara](glossary#avalokiteshvara), through [zazen](glossary#zazen) – whatever you say, well that is [just] that. That is not important. The most important point is, you have to break through this barrier of personal, individual experience or understanding.
 
@@ -38,7 +38,7 @@ Because, there is always a language by which a world is established and understo
 
 From this point, what is your understanding? What is your experience? The individual experience, individual understanding, individual outlook on the human world, human life, is based on language, words. But the meaning that the language maintains is nothing but temporal promises and the conventional prepossessions and [images]. (Prepossession means a preconceived opinion, a prejudice.) That’s all. That is language.
 
-##### 9:38
+#### 9:38
 
 I told you maybe before, that our individual experience is what? Experience is going through maybe two or three stages. First, you can experience something through intuition. And then next, judgement and imagination, and you can form the human world, human life. Then finally, we can create words, language; and by the words we understand something. 
 
@@ -56,7 +56,7 @@ According to the law of causation, if you do something, probably there is someth
 
 So, anyway, whatever you do in the human world, there is language. Without language, you cannot do anything.
 
-##### 14:15
+#### 14:15
 
 Emperor Wu asks, “What is the merit?” Because he built lots of temples, educated monks; what is the merit? 
 
@@ -78,7 +78,7 @@ Well, I told you before: without language, we cannot exist; we cannot understand
 
 Finally, language disappears. Completely disappears. If you look at the reality, there’s nothing to say. I am young, I am old; you cannot put a certain label on yourself, “I am young, who can live long.” No, you cannot say. This is reality. 
 
-##### 21:30
+#### 21:30
 
 If you believe you’re young and live long, such a person is what is called *tanpankan* in Japanese. Tan means to carry. Pan means board, long board. Kan means fellow, man. Tanpankan means a fellow who carries a board on his shoulder. If you carry the board on your shoulder, you cannot see the board: you can see just one side, but you cannot see the back. That is *prejudice*. It is this very narrow understanding. That is called tanpankan. 
 
@@ -98,7 +98,7 @@ That’s why you have to say to somebody, “I am bad boy, I am bad boy” – b
 
 So finally, you cannot say anything. If you really believe you are “bad boy,” you have nothing to say, nothing. Reality makes everything an ask, a question mark. Just, wonderful.
 
-##### 28:32
+#### 28:32
 
 You know I’ve told you before in my lectures, the inscription on Rilke’s tombstone says: 
 
@@ -140,7 +140,7 @@ That’s why when [Bodhidharma](glossary#bodhidharma) first met Emperor Wu, the 
 
 That’s why \[[Bodhidharma](glossary#bodhidharma)] said “No merit.” But [the Emperor] didn’t understand.
 
-##### 36:29
+#### 36:29
 
 And then [after that] the main subject starts, from this question:
 
@@ -156,7 +156,7 @@ That note by [Engo Zen Master](glossary#engo-kokugon) is [really picking on him]
 
 So when “Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma),” the commenter says, “This dull fellow speaks up.”
 
-##### 38:42
+#### 38:42
 
 And, “What is the highest meaning of the holy truths?” The note says, “What a donkey-tethering stake this is.” *[He laughs along with the group.]* 
 
@@ -186,7 +186,7 @@ And then, the note says, “The arrow has flown past Korea.” This is a very co
 
 So, [Engo Zenji](glossary#engo-kokugon)’s note says, “Hey, anyway the ancient [Bodhidharma](glossary#bodhidharma) shot the arrow. Where? We don’t know where it goes.” It’s a straight arrow.
 
-##### 43:28
+#### 43:28
 
 And then, still Emperor Wu didn’t understand, so he asked, “Who is facing me?” 
 
@@ -206,7 +206,7 @@ Ah, too bad. Anyway, too bad. *[Laughter.]*
 
 “After this [Bodhidharma](glossary#bodhidharma) crossed the Yangtse River and came to the kingdom of Wei.”
 
-##### 45:55
+#### 45:55
 
 “Later the Emperor brought this up to Master Chih and asked him about it.” Still he didn’t understand, so he brought up this question again to another [Zen Master](glossary#zen-master). 
 
@@ -222,7 +222,7 @@ So this “I don’t know” seems to be the same answer [Bodhidharma](glossary#
 
 So [Bodhidharma](glossary#bodhidharma)’s “I don’t know” is completely beyond “I don’t know” or “I know”. This is Bodhidharma’s way. 
 
-##### 47:52
+#### 47:52
 
 Well, [Bodhidharma](glossary#bodhidharma) says “I don’t know” when he was asked who you are, but he is not ‘spooky’, he is not a ghost. He exists; he has a body and a mind. He knows pretty well, “I am existing, right now, right here.”
 
@@ -234,7 +234,7 @@ Why he comes to China to teach [Buddhism](glossary#buddhism) – at that time, t
 
 [For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 15 years. I don’t know how many people I have given instruction. But remind me, how many people come back after that? Clearly, one or two. 
 
-##### 50:17
+#### 50:17
 
 So, “Master Chih asks, ‘Does your majesty know who this man is?’ The Emperor says, “I don’t know.” Master Chih said, ‘He is the Mahasattva Avalokitesvara, transmitting the Buddha Mind Seal.’” 
 
@@ -252,7 +252,7 @@ Because, the [Zen Master](glossary#zen-master) knows pretty well, that is Empero
 
 So that’s why the [Zen Master](glossary#zen-master) said, “[Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is [Avalokiteshvara](glossary#avalokiteshvara)!” [The Emperor] was very surprised: “Oh, I missed it!” So he immediately tried to send someone to get him back. But the Zen Master said, “Don’t do that. Don’t do that.” Because if you do this, you are looking for the truth *outside*. The truth never comes back; never goes away. Even though you say, “I don’t want the truth.” 
 
-##### 54:18
+#### 54:18
 
 When I became a monk, for a while I felt good as a monk, because everyone offered food, and respected me, and it was wonderful. The more I was in the middle of the monks, and everyone looked at me as a monk, the more I realized a lot of criticism, and the more I found [the custom of the] Buddhist temples in Japan. And I had to see the death of people, and performing funeral services; I really hated that. And also my master didn’t teach me anything, and my master said, “You should do this, you should do that.” Many things: you have to be a good speaker, you have to be a good calligrapher, you have to be a good listener, you have to be a good understanding person. Lots of things. Well, how can I know all things? So I thought, I made a big mistake. I really wanted to give up [being a] monk.
 
@@ -264,7 +264,7 @@ So, that’s why the [Zen Master](glossary#zen-master) says, “Your majesty, do
 
 Well, truth is always shining under our own feet, always. But we don’t understand. That’s why even though Emperor Wu really wanted to get [Bodhidharma](glossary#bodhidharma) back again, the [Zen Master](glossary#zen-master) has to say, “No, don’t do that.” That is a very big blow.
 
-##### 57:10
+#### 57:10
 
 If you study the [Blue Cliff Record](glossary#blue-cliff-record), you understand the Zen spirit ... pointing directly beyond the human words, language. I told you before, that everyone should experience the world which is completely dropped off. You have to go out from the language, from the words; otherwise you can’t communicate. But that is not all that you have to do. Next, your language must completely drop off; nothing to say. And then, if you experience this, you cannot keep silent always, because without balance, there is no way to communicate. So from the silence, you have to say something. Even though you want to keep silent, you cannot keep silent. Reality pushes you to say something. 
 
@@ -284,7 +284,7 @@ So, again, you have to keep silent. Then, just do it. “Just do it” is also e
 
 There are, I told you, three things. Speech: this is to manifest yourself in words. But, if you [just] manifest yourself in words, it doesn’t make sense. No one is impressed by your speech, because your speech is completely apart from your physical actions, mental actions, psychological actions – no relation. If there is no mind with your speech, it doesn’t make sense. To manifest yourself in words must be your life itself; your actions, and also the verification of the truth. It must be something coming from the truth. So three things: speech, *[unintelligible]* (impression? action?), and verification of the truth.
 
-##### 1:03:09
+#### 1:03:09
 
 So, finally, we have to just do. [Dogen](glossary#dogen) says in Zuimonki, in “Nansen Kills The Cat,” finally he said, “Give a word of Zen; I let the [cat](glossary#cat) go.” 
 
@@ -302,7 +302,7 @@ If you study the [Blue Cliff Record](glossary#blue-cliff-record), maybe you can 
 
 Questions? 
 
-##### 1:08:03
+#### 1:08:03
 
 **Question**: [Roshi](glossary#roshi)? The commentator was saying that the [Zen Master](glossary#zen-master) who was talking to Emperor Wu deserved 30 blows. Did he mean that he deserved thirty blows because he didn’t point out to Emperor Wu that the truth is always shining under our feet?
 
@@ -332,7 +332,7 @@ And he doesn’t know that the great illumination shines forth from under his ow
 
 **Katagiri**: Yes. *[He laughs.]* Because he says, “Ridiculous. You cannot get him back, get [Bodhidharma](glossary#bodhidharma) back again.” But if we go there and ask Bodhidharma, “Please come back again” – maybe so, don’t you think so? But he says, don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But after that, it is really great. Do you understand? 
 
-##### 1:12:38
+#### 1:12:38
 
 **Question**: What you’re saying... Why didn’t [Bodhidharma](glossary#bodhidharma) in the first place, you know, explain to Emperor Wu what he was saying, if the Emperor didn’t understand, wouldn’t that have benefited ...
 
@@ -354,13 +354,13 @@ It’s because the explanation is [Bodhidharma](glossary#bodhidharma)’s explan
 
 Is that okay?
 
-##### 1:15:19
+#### 1:15:19
 
 **Question**: When you tell the story about picking up the teacher, was that the story from your house, was that your experience? 
 
 **Katagiri**: Well [it’s] a Zen story, such a case happened in the world.
 
-##### 1:15:50
+#### 1:15:50
 
 **Question**: Why is it wonderful that Master Chih deserved thirty blows?
 
@@ -372,7 +372,7 @@ Is that okay?
 
 The commentary is very helpful for you, so if you have time, read the commentary. From now on, if I have time, I would like to explain the [Blue Cliff Record](glossary#blue-cliff-record) cases one by one.
 
-##### 1:18:32 end of recording
+#### 1:18:32 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

@@ -10,10 +10,10 @@ description: May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://katagiritranscripts.podbean.com/e/1979-05-09-diamond-sutra-introduction/" target="_blank">Podcast</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### Katagiri Roshi begins a series of talks on the Diamond Sutra by discussing the fundamental point that the Diamond Sutra teaches: “‘A’ is ‘A’, but ‘A’ is not ‘A’, this means ‘A’ is really ‘A’.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
+### Katagiri Roshi begins a series of talks on the Diamond Sutra by discussing the fundamental point that the Diamond Sutra teaches: “‘A’ is ‘A’, but ‘A’ is not ‘A’, this means ‘A’ is really ‘A’.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [Diamond Sutra](glossary#diamond-sutra). This is quite different from [Vimalakirti Sutra](glossary#vimalakirti-sutra) we studied that was compiled almost in the same century. 
 
@@ -33,7 +33,7 @@ So, the number nine sutra, among those 16 sutras, is the [Diamond Sutra](glossar
 
 This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajñā](glossary#prajñā). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in [Zen Buddhism](glossary#zen-buddhism). 
 
-##### 8:30
+#### 8:30
 
 We don’t know who wrote this [Diamond Sutra](glossary#diamond-sutra). We know in [Buddhism](glossary#buddhism ), strictly speaking, no Buddhist scriptures are mentioned directly by [Buddha Shakyamuni](glossary#shakyamuni-buddha). All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor). So absolutely no direct [Buddha's](glossary#buddha) teachings are mentioned, even the [āgamas](glossary#āgama), or [Nikāyas](glossary#nikāya).
 
@@ -45,7 +45,7 @@ The [āgamas](glossary#āgama) were based on [Buddha's](glossary#shakyamuni-budd
 
 So in the [āgama](glossary#āgama) sutras, those [Four Dharma Seals](glossary#four-dharma-seals) were described. And then within the development of [Buddhism](glossary#buddhism), you know pretty well, there is a famous Buddhist psychology [text] named [Abhidharmakosha](glossary#abhidharmakosha). Abhidharmakosha focused on analyzing and synthesizing what the āgama sutras mentioned or taught us, psychologically, philosophically. So, the monks really analyzed the āgama sutras. That is the philosophical, Buddhist psychological scripture that is called Abhidharmakosha. 
 
-##### 13:51
+#### 13:51
 
 But during the first and the second centuries, lots of the [Mahayana](glossary#mahayana) Buddhist scriptures were compiled by – no one knows. By someone. But those people were not usual persons, but unusual persons, sort of genuine religious persons, who understood [Buddha’s](glossary#shakyamuni-buddha) teachings perfectly, and who understood perfectly the stream of Buddhist thought, the religious thought of those days. They were really concerned about the Buddha’s teaching, how they should compile Buddha’s teaching, how they should transmit Buddha’s teaching. So they were required, by tendency of very public religious thought, to compile Buddha’s teachings based on the original Buddhist teachings, based on [impermanence](impermanence), [suffering](glossary#suffering), [no-self](glossary#no-self), and [nirvana](glossary#nirvana). 
 
@@ -55,7 +55,7 @@ Even the [Vimalakirti Sutra](glossary#vimalakirti-sutra), we don’t know who wr
 
 So those authors were really genuine religious persons, who understood the religious spirit mentioned by [Buddha](glossary#shakyamuni-buddha), and also the tendency of the religious and philosophical thought of those days. 
 
-##### 17:40
+#### 17:40
 
 I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? [There is] only one point I want to tell you. 
 
@@ -77,7 +77,7 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain, but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything is conceptual. That is why they use lots of terms, beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
-##### 22:51
+#### 22:51
 
 But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] a little bit practical. Buddhism becomes ‘practical’ in order to explain [Prajnaparamita](glossary#prajnaparamita) not conceptually, but very practically. 
 
@@ -95,7 +95,7 @@ Or, for instance, everything is [Buddha](glossary#buddha): human beings are budd
 
 (Transcriber's note: He might be saying “Dainin” not “Dan”, but it doesn’t sound like it.)
 
-##### 26:46
+#### 26:46
 
 That’s sort of a [Zen](glossary#zen) puzzle, but this is really based on Buddhist philosophy: ‘A’ is ‘A’, but ‘A’ is not ‘A’, but ‘A’ is really ‘A’.
 
@@ -107,7 +107,7 @@ Existential fact is vast, very vast, which is never limited by a certain thing c
 
 In the very basic nature of existence, Katagiri really is interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why, first of all, we have to deny your understanding. But, to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
-##### 31:11 
+#### 31:11 
 
 For instance, here is a paper, white paper. At that time you immediately say, “This is white paper.” But, we don’t say “white paper.” If we say “this is white paper,” you understand only white paper. [Buddhism](glossary#buddhism ) immediately says, “This is not white.” “Not white” means to bring the other colors into your mind. “Not white” doesn’t mean to destroy white; “not white” means to bring other colors into your mind. So, black, or yellow, and red – immediately. That means white color doesn’t exist alone. White color exists with the rest of the colors: black, yellow, red, and all the colors. 
 
@@ -121,7 +121,7 @@ Actually, eyes function or try to communicate with nose, mouth, ears – practic
 
 If you understand eyes are eyes, this is the first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – everything. And then at that time, eyes really work, pretty well. 
 
-##### 35:44
+#### 35:44
 
 I told you always: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
@@ -139,7 +139,7 @@ And then, at that time, you can say, “I am a guitar player, I am a musician.�
 
 Sometimes you don’t know when you became a writer, or when you are a great musician – you don’t know. But it’s not necessary. People ask you to play the guitar, to write something. That is a great chance for you to practice, to continue to do it. 
 
-##### 40:46
+#### 40:46
 
 This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that’s why we say ‘A’ is ‘A’.” 
 
@@ -151,7 +151,7 @@ And sometimes, vastness is personalized, and it’s called [Buddha](glossary#bud
 
 So, who makes you confused? We ourselves make ourselves confused, that’s all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is the intellectual understanding of human existence. Immediately we analyze an existential fact. If we analyze the existential fact, we are at two contradictory [aspects]. ‘A’ is ‘A,’ but ‘A’ is not ‘A.’ [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must [work], must be alive with Zen Center. It is true, Katagiri is not Katagiri. And then ... I understand myself in all [features].
 
-##### 45:23
+#### 45:23
 
 This is very important. That’s why we have to explain [ourselves] – because consciousness already analyzes existential fact. Existential fact itself is nothing: no waves, very calm. [Katagiri](glossary#katagiri) is just Katagiri; that’s all. That’s enough. If I say Katagiri is just Katagiri, that Katagiri is the broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
@@ -171,7 +171,7 @@ You should enjoy your life, of course. Let’s enjoy our life, as you like. Of c
 
 Obviously we have to think like this. This is a beautiful, beautiful aspect of human life. Because you are human – not dog, not bird. That’s why you can realize a universe in a broad [region], and ... understand people. We can figure out ways to live in peace and harmony with people. Not only under certain circumstances, under *all* circumstances we can live, because we think always like this. That’s why we have to think like this.
 
-##### 49:42
+#### 49:42
 
 But finally, the final practice is very simple: ‘A’ is just ‘A.’ Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything. Nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
 
@@ -185,7 +185,7 @@ He also [added] his commentary [to the translations]. Those commentaries will be
 
 Okay, do you have any questions? 
 
-##### 53:00
+#### 53:00
 
 **Question**: [Roshi](glossary#roshi)? When you gave the year when the sutras were written, do those years correspond with the Christian years that we use ... or are they Buddhist years? 
 
@@ -195,7 +195,7 @@ Okay, do you have any questions?
 
 **Katagiri**: Oh, oh, yes – of course. I am talking about that, yes.
 
-##### 54:13
+#### 54:13
 
 **Question**: [Roshi](glossary#roshi), two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. This came up while you were gone this week, and we talked about it a little bit. It seems that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
@@ -223,7 +223,7 @@ But before, it takes time. It takes time, returning to home and settling in the 
 
 That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* But you are a lucky man, anyway. You are a lucky person. 
 
-##### 58:09 end of recording
+#### 58:09 end of recording
 
 -----
 

@@ -10,10 +10,10 @@ description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://katagiritranscripts.podbean.com/e/diamond-sutra-dharma-not-dharma-dharma/" target="_blank">Podcast</a> \|
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
+### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 > (Chapter 8) The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the “heap of merit” as a non-heap. That is how the Tathāgata speaks of “heap of merit”. – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says “illustrate”) it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathāgatas, Arhats, Fully Enlightened Ones, and from it have issued the [Buddhas](glossary#buddha), the Lords. And why? For the Tathāgata has taught that the dharmas special to the Buddhas are just not a Buddha’s special dharmas. That is why they are called “the dharmas special to the Buddhas.”
 >
@@ -23,7 +23,7 @@ I think you remember, the [Buddha](glossary#buddha) asked [Subhuti](glossary#sub
 
 If it is true, how does the Buddha experience and preach the dharma? Chapter 8 is the answer to this question, according to the practice of the perfection of giving, one of the six [paramitas](glossary#paramita).
 
-##### 4:45
+#### 4:45
 
 In [Buddhism](glossary#buddhism) usually there are three kinds of giving [in] the perfection of giving. One is material gifts. The second is [dharma](glossary#dharma) gifts. The third is the giving of fearlessness. 
 
@@ -39,7 +39,7 @@ The third: “giving with words”. It means to use peaceful words when one come
 
 Peaceful words are very important. But peaceful words are not always gentle, not always soft. Sometimes even though the words are very pithy or very strong, it is also peaceful words when it is helpful for the person to turn over his own new life. 
 
-##### 8:54
+#### 8:54
 
 But even though it’s not necessary to scold or to scream always, there is a very interesting story. One of the famous Japanese novelists ... had one of his sons who wasted lots of money. This novelist was also one of the great painters. So he painted, and the larger pictures were in his room. Sometimes he could sell them, but usually he didn’t sell them. But his son sold most of them without saying anything, in order to spend his life at the bar – *[mild laughter]* – drinking beer, wine, whisky always. Unfortunately, he got an ulcer. So he went to the hospital to recover, but unfortunately, after he recovered he still continued to spend lots of money to drink brandy. And finally, he got cancer. [All the way] until his death, his father didn’t scold him at all; he didn’t say *anything*. But his brothers and sisters were really angry with the father because he didn’t say anything to him – just watched him. 
 
@@ -47,7 +47,7 @@ This novelist was one of the very enthusiastic Buddhists, believing the teaching
 
 So, it’s not always scolding, using [harsh] words, but it’s not always to use soft words or gentle words. It really depends on the situation. Basically, anyway, we have to practice giving with words. 
 
-##### 12:56
+#### 12:56
 
 The fourth: “giving with the body”. That means to help people with [the] body first. 
 
@@ -65,7 +65,7 @@ Seventh: the gift of sharing a room with people. Sometimes you can share a room 
 
 Those seven practices are the perfection of giving for a person who doesn’t have any material gifts or [dharma](glossary#dharma) gifts. 
 
-##### 18:06
+#### 18:06
 
 But strictly speaking, material gifts and [dharma](glossary#dharma) gifts are all on the same footing. For example, if material gifts are given to a person of a preacher’s fiber, one can help him to study and practice the teachings and become a preacher. Material gifts of this kind are on an equal footing with dharma gifts, because in the future he will be a preacher to give the [Buddha](glossary#buddha)’s teachings to people. Or, by dharma gifts one can regain one’s footing from difficulties in one’s life, and feel grateful for one’s life, without wasting any kinds of materials. Dharma gifts of this sort are of the same value as material gifts. Even though one is very poor, even though one has just [enough] materials to live to the minimum, he can find happiness in such a situation, because he can listen to dharma teaching, teaching given by preachers and people. 
 
@@ -79,7 +79,7 @@ But in Chapter 7 the sutra discriminates between material gifts and dharma gifts
 
 That means the dharma gifts are the direct cause of leading people to reach spiritual welfare and stature – so-called [enlightenment](glossary#enlightenment), or dharma body. So in terms of givers and gifts themselves, there is no discrimination between the material gifts and dharma gifts, but in terms of the recipients, there is discrimination between the two. 
 
-##### 23:25
+#### 23:25
 
 The dharma gifts are, I told you, the direct cause of leading people to reach spiritual welfare [or] stature, so-called enlightenment or “dharma body”. In [Buddhism](glossary#buddhism), Buddha body is divided into three. One is [dharma](glossary#dharma) body. The second is Nirmanakaya: nirmana body. The third is Sambhogakaya. Nirmanakaya Buddha, Sambhogakaya Buddha, and Dharmakaya Buddha.
 
@@ -93,7 +93,7 @@ So, Dharmakaya Buddha – [dharma](glossary#dharma) itself, or the essential nat
 
 But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [Diamond Sutra](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, with this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from [the] real truth. 
 
-##### 28:55
+#### 28:55
 
 But if it is true, is there no way to teach? Shouldn’t we teach the [dharma](glossary#dharma)? We have to teach, because there is Sambhogakaya Buddha, which means you can reach at the stage of Buddha by your own virtuous quality, which you have accumulated in the past. You have planted good seeds in the past; this is your body and mind which exists now as a result. This is your existence. That’s why your existence is very valuable. 
 
@@ -105,7 +105,7 @@ On the other hand, even though you understand human life through this continuous
 
 And then we have to learn [things] one by one; this is philosophy, psychology as a background. And then through this understandable way, [we go] to the total picture of the truth. According to philosophical and psychological explanation, we can reach at the stage of the [Buddha](glossary#buddha) as a result. That is Sambhogakaya Buddha. 
 
-##### 34:05
+#### 34:05
 
 From this point, the real [dharma](glossary#dharma) is something which you cannot touch, [yet] you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore it, you try not to study or practice. So very naturally, no hope will be found in your life. But [that] is not a good way; because we are right in the middle of the truth, or dharma, or [Buddha](glossary#buddha). Regardless of whether you don’t like it or you are conscious of it or not, we *are* there. Even though you try to ignore it, you cannot ignore it, because you are right in the middle of truth. So you have to realize where you are. 
 
@@ -119,7 +119,7 @@ But through the individual experience of the truth you can explain what the trut
 
 So, there is nothing to attach to; [not] to Sambhogakaya, [not] to Nirmanakaya, [not] to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to teach, just to preach. When the time comes to practice, just to practice. When the time comes to keep silent, just to keep silent. This is a simple practice.
 
-##### 39:32
+#### 39:32
 
 Finally in Chapter 8: “the [Tathāgata](glossary#tathāgata) has taught that the [dharmas](glossary#dharma) special to the [Buddhas](glossary#buddha) are just not the Buddha’s special dharmas. That is why they are called ‘the dharmas special to the Buddhas.’” 
 
@@ -127,7 +127,7 @@ That means the buddhadharma mentioned by human body, human speculation, is no bu
 
 So, you have to open your eyes to see the dharma truth constantly, under all circumstances. Neither touch nor ignore, always. Just the practice: open your eyes, open your heart toward it. How? Through the practice, through the individual vituous quality you have planted in the past. So, [plant a] good seed in the past. 
 
-##### 41:15
+#### 41:15
 
 So, no-buddhadharma is real buddhadharma. Or, before this, Chapter 8 says: no-heap of merit is real merit. In other words, no-merit is real merit. 
 
@@ -141,7 +141,7 @@ So, no merit. Always putting aside individual experience, whatever it is, and th
 
 So sooner or later, you can touch the core of existence. And that is no-heap of merit. So according to [Dogen](glossary#dogen)’s term, giving is not to covet.
 
-##### 45:10
+#### 45:10
 
 Last Wednesday, I read a piece of a poem by Rilke, which occurs in the Duino Elegies. He’s in the later years of his life, [and] in this book, he really explains the oneness of life and death. Apparently that poem seems to be a pessimistic view of human life, but actually it is not. 
 
@@ -163,7 +163,7 @@ Well, lots of complaints, argument. But no matter how long you argue with any pr
 
 That’s why Rilke said to us what we do usually: “never not for a single day, [do we] have pure space in which the flowers are always unfolded,” but we are always face to face, fighting each other, arguing always. And this is a very usual attitude of human life. But you cannot do it in that way – because we are human beings. So, sometimes, sooner or later, you have to be in pure space, in which the flowers are always unfolded – even though you don’t like it. Because we are there always. Sooner or later, we have to realize [it]. 
 
-##### 52:54
+#### 52:54
 
 So, that is the explanation of the buddhadharma, or merit, in the negative sense in the [Diamond Sutra](glossary#diamond-sutra). The negative sense, no-merit or no-buddhadharma, doesn’t mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma, is [no] attachment to individual merit, individual buddhadharma we experienced. This is a suggestion or hint [Buddhism](glossary#buddhism) always does, always criticizing human life like this – because we don’t realize it, usually. 
 
@@ -175,7 +175,7 @@ That’s why in order to – not destroy – in order to *realize* stubbornness 
 
 Okay. Do you have some questions? 
 
-##### 56:00
+#### 56:00
 
 **Question**: Roshi? In one of D.T. Suzuki’s books, he says that [enlightenment](glossary#enlightenment) is forgetfulness. Is that true?
 
@@ -185,7 +185,7 @@ If you say enlightenment, what you think is the individual experience of enlight
 
 So you must be free from the enlightenment that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay with the Ph.D. without working with the people. You have to forget the degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[The group laughs.]* See the peoples’ bodies, and anyway, examine, day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually – not only enlightenment, but also whatever you do. Painter, or photographer, mountaineer, or dancer – whatever you want to do, this is the final goal you have to do. If you want to be a real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
 
-##### 58:56 end of recording
+#### 58:56 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

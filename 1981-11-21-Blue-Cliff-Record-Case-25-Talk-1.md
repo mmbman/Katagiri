@@ -12,7 +12,7 @@ description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 **This transcript is still in rough draft form.**
 
 <a name="000"></a>
-##### start of recording
+#### start of recording
 
 ... [The] twenty-fifth case of the Blue Cliff Record:
 
@@ -70,7 +70,7 @@ And then when you forget, and then you start to live in your own way. But for ma
 
 But when you think this, the real picture of life, and create many things – myths, physics, psychology, religions ... countlessly, endlessly you can create many kinds of myths, you can create. So far, we have created. From now on, we could craete more myths. The more human civilization is developed, pretty much, anyway. Constantly. 
 
-#####
+####
 
 You know, one of the Zen Teachers in Japan lived on his way, practicing zazan and studying buddhism, and finally he got the degree, Ph.D., and he got the position of ... professor the university, and finally he became dean, and finally he became president of the university, and also finally he came to the united states and became an archbishop in the soto zen. And then finally he went back to Japan, invited by many people in Japan, and put him in the abbot of Eiheiji monastery. So his life is going very well. But... finally, his life, his body was completely ... numb. Dead? Paralyzed. Half of his body was completely paralyzed. So he couldn’t get up, so was always in the bed. And he said, “This is my karma.” This my karma. Well, he can say so, because he was a buddhist teacher, zen taecher, and also he was already abbot of eiheiji monastery, so he couldn’t scream anyway. But let’s imagine – this is a very good example. I always think that way. Whatever kind of position you have, whtever kind of knowledge you have, if you go to school so you can get lots of knowledge, and then you head is big, and then the people respect you. You know lots, freat. How did you learn? Many, many years you go to school, and then I got knowledge. But his life, your life is what? This real life there are lots of mess. [chuckle]
 
@@ -96,7 +96,7 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 
 
 
-##### end of recording
+#### end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

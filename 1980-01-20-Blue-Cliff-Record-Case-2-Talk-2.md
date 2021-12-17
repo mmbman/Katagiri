@@ -9,10 +9,10 @@ description: January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-2-lecture-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called shikantaza. But this ‘simple’ is not simple as we usually understand it: this simplicity is to do something with no choice, on the verge of life and death.
+### Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called shikantaza. But this ‘simple’ is not simple as we usually understand it: this simplicity is to do something with no choice, on the verge of life and death.
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 > [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
@@ -40,7 +40,7 @@ So in order to be one with the truth, we have to manifest ourselves in the state
 
 That is the task of the fundamental vehicle of transcendence, which is called the Ultimate Path. That is really the [great vehicle](glossary#dharma-vehicle) which you are right on. Truth is not something which we can think, we can envision, we can believe, but it is something that you have to be right on. That is the Ultimate Path. At that time, it is without difficulty. It’s really just to be right on the vehicle, which is absolutely transcendent of human evaluation.
  
-##### 10:12
+#### 10:12
 
 I told you [earlier], there are three ways to know, to understand something.
 
@@ -60,7 +60,7 @@ With wisdom, we can understand the mountains which are [intact], which are [inte
 
 In the world, this is the ultimate path. Everyone – human beings, all beings – should go through this path. At that time, that path becomes the Great Vehicle, and all we have to do is just be right on it. At that time, it is without difficulty. It carries you to the ultimate path. 
 
-##### 19:25
+#### 19:25
 
 > Just avoid picking and choosing.
 
@@ -76,7 +76,7 @@ And “this is picking and choosing,’ ‘this is clarity’.” So the microph
 
 So, we have to understand – we have to awaken to our understanding, *how* we understand. That is, that the microphone picked and chosen by your consciousness is nothing but [delusion](glossary#delusion). When you realize this, simultaneously you can enter the gate of the second stage, which is called “mountains are not mountains”; this is called [enlightenment](glossary#enlightenment). That is where it next says, “this is clarity.” So you can see a very clear vision of the microphone in the universe.
 
-##### 23:56
+#### 23:56
 
 > This old monk does not abide within clarity; do you still preserve anything or not?
 
@@ -88,7 +88,7 @@ That’s why the old monk [Jōshū](glossary#jōshū-jūshin) says, “I don’t
 
 So [Jōshū](glossary#jōshū-jūshin) says, “I don’t abide within clarity; do you still preserve anything or not?” *Actually* there is nothing to preserve there. What you call [enlightenment](glossary#enlightenment), what you call [delusion](glossary#delusion), what you call something between: nothing to preserve. Just there. But Jōshū says, “do you still preserve anything or not?” That is really checking with the monk, to see how he understands the Ultimate Path.
 
-##### 28:35
+#### 28:35
 
 > At that time a certain monk asked, ‘Since you do not abide within clarity, what do you preserve?’
 
@@ -106,7 +106,7 @@ This is a great answer, too. Usually in a Zen monastery, the monk’s first bow 
 
 So that is Jōshū’s answer. It is enough to ask about the matter, for no matter how long you discuss [using] your head, it just goes endlessly; ridiculous. What for? You don’t know. Why [don’t] you know that? It’s ridiculous. Because the intellectual sense cannot help us; between the truth and [delusion](glossary#delusion), truth and the [dualistic](glossary#dualistic) world, always there is a gap. How can you stop up this gap? By intellect? No way, no way. If you try to stop up this gap with intellect, the more you create, the more the gap is getting bigger. So, sooner or later, you have to stop it. That’s why Jōshū said, “It’s enough to ask about the matter; please bow and go away.”
 
-##### 36:00
+#### 36:00
 
 Let’s read [Engo Zen Master](glossary#engo-kokugon)’s notes. 
 
@@ -116,7 +116,7 @@ Of course. If the truth is just like mountains are mountains, flowers are flower
 
 For century after century, [Buddhas](glossary#buddha) and [patriarchs](glossary#ancestor) give human beings trouble; for 2500 years. But that is important for us; otherwise, we don’t know. We don’t know the river is green, the flower is red. Trouble is [not] complication; it is very good for us. Because complication doesn’t come from something else; complication comes from [fact]. We are already complicated. We as humans are already complicated. Who creates complications? We create them. Mountains are just *mountains*, that’s enough. But we don’t understand in that way. Why? So, we have to understand what is intuition, what is judgement, what is inference, what is a word. Then philosophically, psychologically, we analyze and synthesize. It’s really complicated. What is [our affliction]; why do we suffer? Why do we laugh? Those things come up very well, because human beings already complicated, and humans always [make that upon ourselves]. That’s why there are feelings of pleasure, suffering, pain, and also we can [have] understanding. So [Engo Zen Master](glossary#engo-kokugon) says, “What is the old fellow doing? Don’t create complications.”
 
-##### 39:51
+#### 39:51
 
 The note for “The Ultimate Path is without difficulty” is: “not hard, not easy.” 
 
@@ -132,7 +132,7 @@ In other words, the same applies to when [Bodhidharma](glossary#bodhidharma) [re
 
 So [Engo Zen Master](glossary#engo-kokugon) tells [Jōshū](glossary#jōshū-jūshin) Zen Master, “You are just like the Third Patriarch, who [is] alive now.” He looks like the Third Patriarch. That means Engo Zen Master teased him.
 
-##### 45:57
+#### 45:57
 
 The fourth note, for “As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity,’” says: “Two heads, three faces. A little boasting. When a fish swims through, the water is muddied; when a bird flies by, feathers fall.” 
 
@@ -154,7 +154,7 @@ If you say so, why do you say, “avoid picking and choosing?” So, “Two head
 
 Complete concentration is no word of concentration – [this] is also still explanation. Real concentration, which is called no word of concentration, is is *alive* from moment to moment, without leaving any trace. Truth is really something which is realized from moment to moment. It’s not the intellectual sense, it’s not intellectual understanding, it is not emotional stuff, it’s not, well, spiritual ‘stuff’. Nothing to say; I can’t explain it. But [then] you can; you have to say something. That’s why, in many ways, [we need] to explain it.
 
-##### 53:37
+#### 53:37
 
 The fifth note, for “This old monk doesn’t abide within clarity,” says,
 “His thieving intent already shows; where is the old fellow going?” *[He chuckles slightly.]* His thieving intent already shows because [the moment] you use a word, you are picking and choosing. Don’t use a word. 
@@ -165,7 +165,7 @@ Then the older monk says, “I don’t abide within clarity.” That means, I al
 
 I told you before, someone was asked by somebody on the street car, “Where are you heading for?” He said, “I don’t know where I am heading for. Ask my feet.” [That is] really confusion. *[Unintelligible.]*
 
-##### 56:08
+#### 56:08
 
 The sixth note says, “He’s defeated. Still there is something, or a half.” It is a note for, “Do you still preserve anything or not?” It’s really [Jōshū](glossary#jōshū-jūshin) trying to pick up somebody, trying to find somebody who is *[unintelligible]* this question. That’s why [Engo](glossary#engo-kokugon) says, “He’s defeated. Still there is something, or a half.” Is there anyone who is against, who has some doubt. 
 
@@ -179,7 +179,7 @@ The ninth note, for “The monk said, ‘Since you don’t know, Teacher, why do
 
 The tenth note, for “[Jōshū](glossary#jōshū-jūshin) said, ‘It is enough to ask about the matter; [bow](glossary#bowing) and withdraw’,” says, “Lucky thing he has this move; the old thief!” That’s great [action]. Jōshū did it. Very [naturally], he did it.
 
-##### 1:02:00
+#### 1:02:00
 
 When you discuss human life and the human world, philosophical, psychologically... well, it drives you [into] the corner, where there is no [chance] to escape. That means, you are completely on the top of 100-feet high pole. [The] intellect cannot reach. And simultaneously that is reality, in which your life is present. It is reality, too. So, in whatever way you try to understand human life, intellectually or practically, you reach the same situation: being on the top of a 100-feet high pole where you cannot move an inch. 
 
@@ -199,7 +199,7 @@ What we do is very simple: practice, which is called shikantaza. But this ‘sim
 
 Do you have some questions? 
 
-##### 1:10:55
+#### 1:10:55
 
 **Question**: *[Unintelligible.]*
 
@@ -221,7 +221,7 @@ But it is your understanding, your life. So, first, it is not perfect. If you re
 
 Okay.
 
-##### 1:16:06 end of recording
+#### 1:16:06 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

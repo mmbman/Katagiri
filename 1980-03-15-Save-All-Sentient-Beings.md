@@ -9,10 +9,10 @@ description: March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/03-1980" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what ‘all’ means. It may not mean what we usually think. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
+### Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what ‘all’ means. It may not mean what we usually think. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 Probably you may notice that there are many English terms in Buddhism using “all,” or “all sentient beings,” or “all [dharmas](glossary#dharma).” In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms [including] “all dharmas,” “all sentient beings.” That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “all is impermanent.” What is “all”? This morning I would like to learn these terms with you. 
 
@@ -22,7 +22,7 @@ Six sense organs, six objects, and six consciousness are the world we are involv
 
 [Professor Abe](glossary#masao-abe) translated it sometimes as “everything without exception.” At any rate, if we translate it, we say “all”. But this “all,” according to Buddha’s teaching, is described as five skandhas, or six sense organs and six objects. 
 
-##### 4:26
+#### 4:26
 
 You know them pretty well, so I don’t want to explain the five skandhas now, but let me say just the five things. 
 
@@ -48,7 +48,7 @@ That is impulses, and then consciousness. If you perceive something, then on the
 
 So ‘impulses’ is sort of the basic nature of consciousness. 
 
-##### 12:39
+#### 12:39
 
 So this is the implication of ‘all [dharmas](glossary#dharma)’ or ‘all’. But in Buddhism – you should remember this point – the ‘all’ is not something which exists separately from you. In other words, ‘all’ is not something which you can “set out”. [‘All’ is not] something existent in advance.
 
@@ -80,7 +80,7 @@ So, we should do it. At that time, it’s not necessary to think of something el
 
 That is the first point.
 
-##### 23:32
+#### 23:32
 
 The second point is: if ‘all beings’ are something which we should connect with, we should involve [with], [and] at that time, that is called ‘all beings’ or ‘all [dharmas](glossary#dharma)’ – if it is true, we say, ‘truth’. What is the truth? If ‘truth’ is one of the dharmas, one of the human world – at that time, what is a dharma? Dharma is ‘all dharmas’ which are observed and are called in question. So that ‘truth’ is all beings just for you. Because you have to involve. 
 
@@ -98,7 +98,7 @@ How cognition appears in a different way: when you see this zendo, the first exp
 
 So the point is, how far do the “all dharmas” extend? Dharmas shouldn’t extend only to an individual, but to *everyone*. And also, not to understanding on the surface, but to understanding deeply, [to the] depth of beings. The dharma should penetrate to this. 
 
-##### 30:31
+#### 30:31
 
 So from this point, if you see this zendo, first the zendo becomes [dharma](glossary#dharma) through your connection. At that time it becomes dharma. But this zendo is not the usual zendo which you have understood; this zendo must be dharma which is universal, extending to the depth of beings. From this point, this dharma, what is the original nature of beings called zendo? That means: what is the zendo?
 
@@ -116,7 +116,7 @@ But zazen which is not perpetual is something real which exists, you believe. Bu
 
 So, in your individual case, whatever you experience, whatever you see, these things become ‘all dharmas’, and these ‘all dharmas’ are always changing, impermanent. 
 
-##### 37:17
+#### 37:17
 
 So, the second point, briefly speaking: We have to understand deeply the original nature of being. That’s why [Buddha](glossary#buddha) says, “all is impermanent”. This ‘all’ is all samskaras. Samskara is original nature of action, which everything is structured by. Constant action; working. 
 
@@ -124,7 +124,7 @@ At that time, if you understand the zendo individually, this is not good enough.
 
 According to samskara, everything is impermanent. It is really true. The original nature of action is nothing but action. Nothing to hold on to. If you put a certain label on action, called ‘action’ – it is already an idea. Action is always *action*. [There is] nothing to stop. 
 
-##### 39:16
+#### 39:16
 
 From this point, we should understand all beings through individual experience. That is the five skandhas, and six consciousnesses, six sense organs, six objects. But at that time, unfortunately, cognition always appears in a different way, because the basic nature of human being is always working constantly, nothing to stop. 
 
@@ -136,7 +136,7 @@ If you want to save all sentient beings, first handle the beings, the human bein
 
 But still there are questions, problems. That’s why individually, we have to practice on a daily basis, in order to touch the core of existence. 
 
-##### 42:00
+#### 42:00
 
 To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called samskara.
 
@@ -148,7 +148,7 @@ If you talk, there’s two ways. Always we have to research, because all [dharma
 
 So what is that? You should learn first. Individually, simultaneously, just take care of your life. Then, something makes you learn what human life is. In other words, be one with impermanence. 
 
-##### 45:45
+#### 45:45
 
 When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your [dharmas](glossary#dharma), all dharmas. And next, well, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life, and Lake Calhoun’s waters helps you life. And immediately your body moves, simultaneously. And then you learn. “Oh, this is the point. I can swim.” [This is] how to swim. Yes it is.
 
@@ -164,7 +164,7 @@ The same applies to [zazen](glossary#zazen). Learn zazen: what is zazen? Well, p
 
 Then you get it. “Oh, zazen is pretty good!” Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don’t know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. Samskara is impermanence, constantly working. That’s why this is the [content] of “all dharmas” in Buddhism. 
 
-##### 49:32
+#### 49:32
 
 “All [dharmas](glossary#dharma)” is not the world after death, which is completely transcending individual experience. Of course, when it is observed and is called in question, it becomes dharma; even the world after death becomes dharma. But I don’t think so; because it is completely beyond individual experience. It’s pretty hard to [understand]... That’s why [Buddha](glossary#buddha) kept silent about this problem. 
 
@@ -174,7 +174,7 @@ Whatever you do, this is a very important way of life. Not only in [zazen](gloss
 
 Do you have some questions?
 
-##### 51:38
+#### 51:38
 
 **Question**: Roshi? Isn’t it disturbing, though, that even though one has the realization of impermanence, one keeps having the feeling of ‘I’?
 
@@ -192,7 +192,7 @@ Whatever you feel, good or bad, right or wrong: stand up straight, do your best 
 
 Does that answer your question?
 
-##### 55:42
+#### 55:42
 
 **Same person**: Do you mean that depending on the depth of your understanding, your feeling of the ‘I’ is more or less there?
 
@@ -204,13 +204,13 @@ Does that answer your question?
 
 So that’s why everything becomes observed and called in question, whatever it is. Science fiction is anyway being, all [dharmas](glossary#dharma), even though you don’t believe it, because you can think it, you can observe it. That’s why many years ago, someone wrote science fiction, and maybe recently, one by one, it comes to be true. You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it’s possible.
 
-##### 58:43
+#### 58:43
 
 **Question**: Roshi? I’m not sure what you mean when you say “called in question”. 
 
 **Katagiri**: Called in question means it becomes in question. Thinking, what it is. If you see this [tatami](glossary#tatami): the tatami becomes something existent, which you can see as an object. Thinking and acting, what is it? That is “calls in question”. Is that okay?
 
-##### 58:24
+#### 58:24
 
 **Question**: Roshi? Is the word sentient in the phrase “save all sentient beings”?
 
@@ -252,7 +252,7 @@ Is that okay?
 
 Any others?
 
-##### 1:03:15
+#### 1:03:15
 
 *Question*: Hojo, when you say that truth is the same as one of the [dharmas](glossary#dharma), is it the same as saying that truth has to be experienced individually?
 
@@ -260,7 +260,7 @@ Any others?
 
 So, it must be something we should experience, that is the truth. But real truth is not individual experience. [There is] still something, [the] real meaning of truth, we have to understand.
 
-##### 1:04:30
+#### 1:04:30
 
 **Question**: Roshi? Would you please explain the statement by the \[Sixth] [Patriarch](glossary#patriarch), who said that distinguishing mind is permanent, and [enlightenment] is impermanent?
 
@@ -304,7 +304,7 @@ The big shock is very important. It isn’t important whether you understand it 
 
 But first, get it. That’s why the Sixth Patriarch said it in that way.
 
-##### 1:09:29 end of recording
+#### 1:09:29 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

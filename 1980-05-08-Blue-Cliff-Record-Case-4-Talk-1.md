@@ -14,7 +14,7 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 (Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 Case Four of Blue Cliff Record. The title is, “Te Shan Carrying His Bundle”. 
 
@@ -38,7 +38,7 @@ Let me first read the case:
 
 That is the whole story. Let me first talk simply about this story, and then I would like to read the pointer. 
 
-##### 4:26
+#### 4:26
 
 “When [Te Shan](glossary#tokusan-senkan) arrived at [Kuei Shan](glossary#isan-reiyū)”: Te Shan is one of the famous Zen Masters. 
 
@@ -70,7 +70,7 @@ So he immediately went to that monastery and practiced, instead of debating with
 
 That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master in China, in the line of Rinzai. Tokusan was pretty noted for the strict and rough training of the monks. 
 
-##### 11:42
+#### 11:42
 
 Anyway, “When [Te Shan](glossary#tokusan-senkan) arrived at arrived at [Kuei Shan](glossary#isan-reiyū)”:  Isan or Kuei Shan was the founder of one of the Zen schools in China. In those days, there were the five schools ... of Zen. So, Te Shan arrived at Kuei Shan; probably Te Shan tried to check out who Kuei Shan was. It’s just like visiting the old, famous temples before, in order to debate with the Zen Masters on the Zen teachings, “Mind itself is [Buddha](glossary#buddha).” 
 
@@ -96,7 +96,7 @@ So he re-entered, he went back again. He re-entered the teaching hall with full 
 
 Immediately, Kuei Shan started to move toward the whisk. The whisk is one of the Zen [things], ceremonial [stuff]. Have you ever seen this? It’s a beautiful one. Now, in the modern age, we use a very beautiful one; sometimes we use hair from a horse’s tail. I don’t know; very beautiful anyway. In ancient times, it is said that it was used for keeping away mosquitoes and flies. So now we use it for ceremony, keeping away devils – *[he laughs]* –  and purifying all over, wherever it is, and also people. And also, the whisk is a manifestation of suchness, truth. But originally, still in China, maybe it was used for keeping away mosquitoes and flies. 
 
-##### 18:40
+#### 18:40
 
 So immediately,
 
@@ -112,7 +112,7 @@ And then, immediately after Te Shan saw Kuei Shan sitting there, that is really 
 
 But when Te Shan said “Teacher!”, already Kuei Shan knows his mind, because Kuei Shan could read Te Shan’s mind through the word “Teacher.” A very holy air there. But Kuei Shan didn’t say anything, because it is completely beyond discussion: no matter how long you discuss about that, you cannot correct it, or you cannot accept it, or you cannot handle it. So immediately, he tried to take the whisk. 
 
-##### 23:28
+#### 23:28
 
 The ‘whisk’ means daily routine, human daily life. Without daily living, you cannot exist. Even [enlightenment](glossary#enlightenment): how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way. So enlightenment is just like scenery you can see on the way during travel; I tell you this very often. It’s not something extra, something unusual, which makes you exciting; it is a pretty usual case. When you take a trip, very naturally you can attain enlightenment, you can see the scenery. 
 
@@ -124,7 +124,7 @@ Te Shan shouted and shook out his sleeves and left. Still there is a holy air, v
 
 And [Setchō](glossary#setchō-jūken) added the comment, “Completely exposed.”
 
-##### 26:20
+#### 26:20
 
 > [Te Shan](glossary#tokusan-senkan) turned his back on the teaching hall, put on his straw sandals, and departed.
 
@@ -138,7 +138,7 @@ That means, in a sense, Kuei Shan really respected his practice; but on the othe
 
 Finally, [Setchō](glossary#setchō-jūken) added to the comment in the last part of this case: “He adds frost to snow.” Whatever you say, finally, there is nothing to say; because Te Shan’s practice is pretty good, but still there is a haughty air. A haughty air for him is not something ‘wrong’ or bad, but he has to check himself constantly. 
 
-##### 29:15
+#### 29:15
 
 What is [Buddha](glossary#buddha)’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ which Buddha has, which are called [enlightenment](glossary#enlightenment), or your wonderful face, or your attitude; Buddha can’t be seen by these salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[He laughs.]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, the destination is Buddha.
 
@@ -150,7 +150,7 @@ And then you judge yourself. Judge yourself by what? The experience you get; sor
 
 That is something you cannot ignore, but you cannot evaluate yourself by that which you have done. That [isn’t] (or is?) something you have to carry on your back forever. Day by day, you have to be alive, beyond this. So, *it is* Buddha. 
 
-##### 32:34
+#### 32:34
 
 If you can judge by your feeling, or the character, or the result which you have done, at that time it is not Buddhism – because whatever you do, you can deepen your life. Through working in the company, through working in the office, through painting, through music – whatever you do, you can deepen yourself and your life. 
 
@@ -160,7 +160,7 @@ At that time, people judge or evaluate you by what? Your achievement. “Good Da
 
 But Buddhism is not something like this. Buddhism always focuses on the *whole* of life, even in daily routine. Even right in the middle of evaluation and judgement, good or bad, right and wrong – still there is stillness. You can handle yourself, being alive. 
 
-##### 35:00 
+#### 35:00 
 
 So finally, the comment, “He adds frost to the snow.” Finally all you have to do is, be alive, [reception] for yourself. 
 
@@ -172,7 +172,7 @@ If you do something, immediately there is experience. That experience is nothing
 
 That is the final goal we have to do, practically. 
 
-##### 38:14
+#### 38:14
 
 I always tell you about [shikantaza](glossary#shikantaza): just turn on the switch. This is a very simple practice. It is too simple to understand, [really]. But this is an urgent need we have to do. 
 
@@ -182,7 +182,7 @@ Sometimes you can solve questions immediately, but sometimes not. So this ... tu
 
 Our practice is is something which really you should do, from moment to moment. In the practice, your life must be alive; that’s enough. 
 
-##### 40:42
+#### 40:42
 
 So that is [Setchō](glossary#setchō-jūken)’s comment. In the Pointer, Setchō says:
 
@@ -190,7 +190,7 @@ So that is [Setchō](glossary#setchō-jūken)’s comment. In the Pointer, Setch
 
 This pointer is divided into three sections: “Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore;” – that is one point. “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” That is the second point. “But tell me, is it better to let go, or is it better to hold still? To test, I cite this: look!” [That is the third.]
 
-##### 42:12
+#### 42:12
 
 > Under the blue sky, in the bright sunlight, you don’t have to point out this and that anymore;
 
@@ -200,7 +200,7 @@ This pointer is divided into three sections: “Under the blue sky, in the brigh
 
 When you get up, just get up, and do this. “Just to get up” is really the manifestation of yourself as blue sky, sunlight. Immediately there is something with consciousness: “Why do I have to get up? Is it useful? Is [zazen](glossary#zazen) useful or not?” Lots of consciousness comes up. But whatever you think, the basis of your life is exactly blue sky and bright sunlight. So, you don’t have to point out this and that anymore. 
 
-##### 44:08
+#### 44:08
 
 “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” But where do we live? The place where we live is not blue sky, not bright sunlight. We live in the human world. In the human world, we distinguish ... between trees and birds, humans and trees. 
 
@@ -214,7 +214,7 @@ But the ocean is constantly open to anything. So, Katagiri should go to the ocea
 
 In order to be one with the ocean, each of all beings individually manifest itself as it really is, as a fish, as a boat, as a Katagiri. As a beginner swimmer, as an advanced student of swimming, as a teacher of swimmers. 
 
-##### 48:47
+#### 48:47
 
 From this point, ocean is always blue sky, bright sunlight. But according to time and occasion – time and occasion means, time always makes something different. Katagiri becomes Katagiri, tree becomes tree, floor becomes floor. This is time: all beings which exist in the time process. In the time process, you cannot combine everything. Even though car is same [as you], you cannot combine. Car is same, but still there is a difference. So, book is book, floor is floor, table is table.
 
@@ -228,7 +228,7 @@ And then, finally, what should you do? Finally what you have to do is be one wit
 
 That’s why here it says, “... but the causal conditions of time and season still require you to give the medicine in accordance with the disease.” Disease means, there are different degrees, different characters: different personalities, different heredity, different [karma], different types of consciousness, *[unintelligible]*. So even though you’ve studied how to swim, still everyone manifests themself as [they are]; there is a different manifestation. So, you cannot just dive into the ocean without doing. You need the teacher, giving the medicine; you have to learn how to swim. Then finally, you have to dive into the ocean. At that time, you can really understand blue sky and bright sunlight. 
 
-##### 52:39
+#### 52:39
 
 “But tell me, is it better to let go, or is it better to hold still?”
 
@@ -246,7 +246,7 @@ This is an urgent need of your daily living. It’s really urgent.
 
 Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very interesting commentary.
 
-##### 56:08 end of recording
+#### 56:08 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
