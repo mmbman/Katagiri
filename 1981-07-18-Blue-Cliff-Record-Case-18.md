@@ -35,7 +35,7 @@ Case 18 of Blue Cliff Record:
 > Beneath the shadowless tree, the community ferryboat;  
 > Within the crystal palace, there is no one who knows.  
 
-(Now, here is the poem with Hseuh Tou’s comments, as Katagiri Roshi read it.)
+(Here is the poem with Hseuh Tou’s comments included, as Katagiri Roshi read it.)
 
 > South of Hsiang, north of T’an;  
 >> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
