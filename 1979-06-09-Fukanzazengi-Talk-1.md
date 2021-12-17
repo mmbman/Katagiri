@@ -9,13 +9,12 @@ description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#fukanzazengi-lecture-1) \| 
 [Next](1979-06-10-Fukanzazengi-Talk-2)
 
----
-
 Listen: 
 <a href="https://katagiritranscripts.podbean.com/e/fukanzazengi-dogens-universal-recommendation-for-zazen-–-talk-1/" target="_blank">Podcast</a> \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Original</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
+---
 <a name="000"></a>
 ##### start of recording
 
