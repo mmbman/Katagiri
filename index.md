@@ -1,7 +1,3 @@
----
-title: Katagiri Transcripts Index
----
-
 <a name="0"></a>
 
 # Table of Contents
