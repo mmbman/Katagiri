@@ -2,7 +2,14 @@
 
 # Search
 
-Search the Katagiri Transcripts site:
+Search the Katagiri Transcripts site using DuckDuckGo:
+
+<form method="get" id="search" action="https://duckduckgo.com/">
+<input type="hidden" name="sites" value="mentalpivot.com"/>
+<input class="search" type="text" name="q" maxlength="300" placeholder="Search"/>
+<input type="submit" value="Search" style="visibility: hidden;" /></form>
+
+Search the Katagiri Transcripts site using the Google search engine:
 <div>
 <script async src="https://cse.google.com/cse.js?cx=2232cceef1ab492af"></script>
 <div class="gcse-search"></div>
