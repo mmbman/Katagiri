@@ -1,6 +1,6 @@
 ---
 title: Glossary
-description:
+description: ""
 ---
 
 [Previous](unfinished-1988#0) – 
