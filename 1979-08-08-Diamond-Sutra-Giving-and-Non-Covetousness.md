@@ -13,7 +13,7 @@ description: August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Why is the perfection of generosity the most important quality in Mahayana Buddhism, and what is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the Duino Elegies by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to ‘get’ something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
 
 <a name="000"></a>
-#### 0:00 start of recording
+##### 0:00 start of recording
 
 (The recording begins toward the end of Katagiri quoting the passage below. He then repeats it.)
 
@@ -29,7 +29,7 @@ In [Mahayana Buddhism](glossary#mahayana), the practice of perfection of giving 
 
 If you read Mahayana Buddhist scriptures, very often they say, “give offerings decorated with seven precious treasures to [Tathāgatas](glossary#tathāgata), to [Arhats](glossary#arhat), to noble enlightened men.” Very often [they speak] in that way. So according to modern sense, it doesn’t make sense whether to give. Why don’t you give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand the practice of giving in that way, it’s pretty difficult to understand the real spirit of [Mahayana Buddhism](glossary#mahayana). That’s why [Conze](glossary#edward-conze) says, “Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.” I would like to talk about this point of view tonight. 
 
-#### 7:44
+##### 7:44
 
 [Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always. Try to get more; not giving something to others, but trying to get something from others, always. This is covetousness. 
 
@@ -94,7 +94,7 @@ This is just a piece of chapter eight of Duino Elegies, composed by Rilke in the
 
 [I want to explain the most important two points about this poem.] One is: “That’s what Destiny is: to be face to face and nothing but that and always opposite.” And also a second point is: “Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It’s forever world, nowhere without not.”
 
-#### 13:43
+##### 13:43
 
 [But] first, I would like to explain the first part of this poem: “Only we see death; but the beast is free and has its death always behind it and God before it, and when it walks it goes toward eternity, as springs flow.” 
 
@@ -104,7 +104,7 @@ So that’s why, “God before it”. ‘God’ means, in this case, the vastnes
 
 That’s why he said, “When it walks it goes toward eternity, as springs flow.” Just as springs always flow. Springs flow from the ground, always coming up. No [suffering](glossary#suffering). So from this point, beast never suffers, from life or death. But they have subjective feeling, according to their instinct. So they fear death or something dangerous only when they see something dangerous right in front of them. But they never think [of] death, they never think [there is] something dangerous in a second. So whatever happens, they always walk toward eternity – no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
 
-#### 18:16
+##### 18:16
 
 And then next: “Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It’s forever world and nowhere without not. That’s what Destiny is: to be face to face and nothing but that and always opposite.”
 
@@ -134,7 +134,7 @@ When you live with more than one being – even though you love them, or even th
 
 Well you always hate the parent, but parents are *your* parents. If you’re always present with the parent face to face, that’s pretty hard, very hard. You should respect parent’s existence, because *you* are existent. Owing to your parents existence, you are existent, so you should appreciate. For this, sometimes, why don’t you go behind them, or why don’t you sit side by side with each other, and why don’t you hold your parents’ shoulders with compassion? That’s pretty good practice for us.
 
-#### 28:00
+##### 28:00
 
 And then that’s why next, Rilke said, “Never, not for a single day do we have pure space before us in which the flowers are always unfolded.” 
 
@@ -146,7 +146,7 @@ So, “[Never] do we have a pure space before us in which the flowers are always
 
 (Transcriber’s note: For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness”. The poem (in German) actually says something like “*never* nowhere without not,” or “never the nowhere minus the no”. In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)
 
-#### 32:17
+##### 32:17
 
 But in order to experience the vastness of space which is called [emptiness](glossary#śūnyatā), unfortunately, we have to experience a big shock. A big shock. Because, we are stubbornness of ego. Stubbornness of ego means a state of human life, the state of human consciousness which allows you to be covetous. Trying to get something, not giving something to others. 
 
@@ -154,7 +154,7 @@ If you try to get something from others always, we have to be present face to fa
 
 If you try to give something to others, sometimes you can give something material, but sometimes a material gift doesn’t make sense. So, you have to give not only material things, but also spiritual things. In order to give spiritual giving, you have to be present in the vastness of space that is emptiness, without being covetous. That is really the meaning of giving. 
 
-#### 36:00
+##### 36:00
 
 That’s why, “The Lord asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds” – this world system of 1,000 million worlds means the whole universe – “with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”
 
@@ -164,7 +164,7 @@ For instance, if you become a Buddhist, or even though you are not Buddhist – 
 
 So, if you’re always face to face, it’s pretty difficult to teach something, or to be in peace and harmony with people. That’s why Rilke feels that human life is always face to face, always opposite. That’s pretty hard. So have you ever experienced pure space? Flowers just always unfolded. That is [emptiness](glossary#śūnyatā), which is vast, which is unfathomable – you don’t know what it is. But when it doesn’t exist, *you* cannot exist. And if it doesn’t exist, human life is very cold, miserable. This is vastness of space, or emptiness.
 
-#### 40:56
+##### 40:56
 
 “Then give it” – the precious things – “as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones.” These are not a particular person, because all are [Buddha](glossary#buddha). We have to give these precious things to everybody – to the trees, to the birds, to all sentient beings – like this. 
 
@@ -174,7 +174,7 @@ And then: “And why? Because the [Tathāgata](glossary#tathāgata) spoke of the
 
 If you are always face to face, you really want to give something consciously, idealistically or psychologically. And then, if people don’t accept your teaching, well you really get angry. Don’t you think so? That is a religious problem, in the human world. Even though [Buddhism](glossary#buddhism) is beautiful, if people accept the Buddhism and try to teach it, they create a problem. [Where is the] *real* Buddhism? Christianity is beautiful, but if you accept Christianity and try to give Christianity to the people, you create the problem – idealism. Because consciously, we are present face to face. That means we are really stubborn with ego, which allows you to be always face to face. That means always we are based on covetousness, trying to get something from others ... without giving something from you to others. That is a miserable life. It’s very miserable.
 
-#### 45:20
+##### 45:20
 
 In Japan, particularly after the Second World War... you know that Japan has a family system. So if you have children, parents expect the oldest son would take care of his parents; living in the same house, et cetera. But after the Second World War, the Japanese wife is more Americanized and Westernized. They want to enjoy their life, separating from parents and grandparents et cetera. So their “motto” was keeping away three things. Three things. *[Pause.]* I forgot the three things. *[Laughter.]* 
 
@@ -194,7 +194,7 @@ And then that’s why [Subhuti](glossary#subhuti) replied, “Great would that h
 
 So, give and take, face to face: that’s pretty hard, in a sense. That’s why Buddha’s merit through begetting is no-heap of merit. That means, nothing to attach to merit from giving. That means, anyway, just like the beautiful poem.
 
-#### 54:07
+##### 54:07
 
 Maybe I told you before, I gave a series of lectures on [Buddhism](glossary#buddhism) for eight weeks this winter at the Minnetonka Center for Arts and Education. One of the students asked me, “I realize how compassionate Buddhism is. Why did the Japanese attack Pearl Harbor?” [Another] thing is, the other day I went to Omaha to attend Hiroshima Day. 
 
@@ -208,7 +208,7 @@ But in order to enter into that vastness of space, I told you before, we need a 
 
 In our daily living, the vastness of space is something that basically we don’t understand, but practically, we can do. We can do. That means, sit down, anyway. Sit down in the [zendo](glossary#zendo), even though you don’t know what problem you have, or you don’t know why you sit here. Just open wide and sit down with it, in peace and harmony. Why don’t you have breakfast, in peace and harmony? This is very important for us. 
 
-#### 1:00:00
+##### 1:00:00
 
 But anyway, in Omaha we demonstrated for five miles, and had a religious service conducted by a Catholic priest, and I attended that. And last, the ceremony [of floating] the lantern boats. You know the lantern boats? In Japan, in the Obon ceremony – you know the Obon ceremony in Japan? It’s one of the biggest Buddhist ceremonies in Japan, inviting the spirits of your grandparents and ancestors, on August 12 or July 12. And *[unintelligible]*, and then decorate the family altar, offering the food, inviting the priest and performing a Buddhist service, in each family. On August 16, we try to send spirits of the family ancestors to their own home, by boat. That is a lantern boat, a little lantern. Make a little boat, and put the candle on it, and float that lantern boat on the river. Then the lantern boat is going away, forever. That’s the ceremony. 
 
@@ -224,7 +224,7 @@ I went to the convent in South Dakota. And from the convent I can see the Missou
 
 It is okay to pick up a lantern. But I really regret that people didn’t ask us; people didn’t sit side by side with us, even for a moment; listen to us, what we are doing, and why we do this. That is so important. But they didn’t; just picked up. That is really a miserable lifestyle, facing the face.
 
-#### 1:07:09 end of recording
+##### 1:07:09 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

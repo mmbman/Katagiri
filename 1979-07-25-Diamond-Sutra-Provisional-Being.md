@@ -13,7 +13,7 @@ description: July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of provisional being, and how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.
 
 <a name="000"></a>
-#### 0:00 start of recording
+##### 0:00 start of recording
 
 There must be a person who tries to establish a peaceful world, always. When you see the world, it’s pretty difficult for us to see a beautiful aspect of the human world. At that time, in many cases, we are disappointed. But according to [Diamond Sutra](glossary#diamond-sutra), [Subhuti](glossary#subhuti), one of [Buddha](glossary#buddha)’s ten major disciples, asks him, “How do we teach the Buddha’s teaching, which seems to be complicated – particularly in the confused world?” Buddha says, “There must be even one person who tries to teach Buddha’s teaching under all circumstances.” 
 
@@ -21,7 +21,7 @@ That is Buddha’s answer. So, you shouldn’t be disappointed with this world, 
 
 According to Buddha’s explanation, this person really practiced, in his past life, a certain particular Buddhist teaching based on [no-self](glossary#no-self) and also no perception of [dharma](glossary#dharma): no perception of subject, no perception of object. For century after century – for many, many years – he saw many Buddhas and practiced under them. What did he practice? He practiced the particular aspect of Buddhist teaching that is no perception of subject, no perception of object. 
 
-#### 3:25
+##### 3:25
 
 Last week I told you, perception of self is divided into four [categories].
 
@@ -35,7 +35,7 @@ The fourth kind of [ego consciousness](glossary#ego-consciousness) is: we want t
 
 So, no [ego consciousness](glossary#ego-consciousness). This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the [Buddha](glossary#buddha)’s teaching, practiced for many, many years this practice of no ego consciousness. 
 
-#### 10:20
+##### 10:20
 
 Second, he practiced “no perception of object.” ‘Object’ means trees, birds, and also Buddha’s teachings; everything. There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
 
@@ -63,7 +63,7 @@ Do you understand? This is no perception of soul, no perception of object.
 
 So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for many years in his past life. No perception of the subject, no perception of the object.
 
-#### 20:52
+##### 20:52
 
 [Diamond Sutra says:]
 
@@ -83,7 +83,7 @@ That means the object is not something you can attach to. That means the object 
 
 But it’s pretty hard to understand this. So, I want to explain this. 
 
-#### 25:34
+##### 25:34
 
 Why do you believe a thing to be accurate? Even though [Buddha](glossary#buddha) says everything is provisional being, you don’t believe it, because, [for instance], here is a book. No one believes this is a provisional being. You say, this is a being which is real, or accurate. Here it is! You don’t believe it [is a provisional being].
 
@@ -93,7 +93,7 @@ It is not a real being. The artificial shark, that is also a provisional being, 
 
 So, always you are being with created pictures on a screen. Intellectually, you believe that is a provisional world, but while you are watching this, completely unconsciously or consciously, you are present with provisional beings, so provisional beings turn into actual beings. So that’s why you cry, and you smile, with the world created on the screen.
 
-#### 29:25
+##### 29:25
 
 So with this point, we are always moving toward object. Always. At that time, object is no longer provisional being. Because if you move toward object initiatively, object becomes actual being. Because object is no longer object; object is with you, and you are in object. So finally, there is no object for you, completely. You become a tree. Tree becomes you. 
 
@@ -111,7 +111,7 @@ So, second stage, you talk to nature, wilderness. At that time, if you talk to t
 
 So, two types of provisional being. Why do we believe that a thing seems to be accurate, not provisional? Because you are participating in or you are engaged in the provisional being, initiatively. Always, we do [this]. On the other hand, object always moves, comes up to you, giving a kind of resistance or antagonism. At that time, it is also a sense of being accurate, or [an] actual being. 
 
-#### 35:50 
+##### 35:50 
 
 According to psychology, you know the idea of empathy? You are projecting yourself into the tree. At that time, the tree becomes you. So you, if you want to talk with the tree, you have to target yourself into the tree. At that time, the tree speaks to you. This is very natural. 
 
@@ -129,7 +129,7 @@ So, object is not always something giving a sense of resistance or antagonism. O
 
 For instance, we exist in that way because when you were born, your mother took care of you. The mother is your object. If you believe the mother is your object, at that time, that object is consciously or unconsciously giving a certain sense of resistance. “Oh, your mother is such a *[unintelligible]*, bossy. I don’t like it.” But baby? He doesn’t care. For baby, the mother is *huge*; a big tree, by which he is supported in a broad sense. So ... you should accept your object ... by which you are supported constantly, not giving a sense of resistance, or a sort of antagonism. That’s why object and subject are always communicating, interconnected.
 
-#### 43:50
+##### 43:50
 
 I think you understand why we believe things to be actual beings, not provisional beings. I explained it to you: because, by participation in your object, at that time, the object as a provisional being turns into an actual being. So that means there is always a sense of actuality.
 
@@ -149,7 +149,7 @@ Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with 
 
 So, even though you participate, this participation is not *defiled* participation or human activity. This is *undefiled* human activity. So this is religious activity. 
 
-#### 49:22
+##### 49:22
 
 That’s why, according to [Buddhism](glossary#buddhism), the subject is no perception of subject, [and the] object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means the object is nothing but provisional being. 
 
@@ -161,7 +161,7 @@ That’s why [Buddha](glossary#buddha) always says, everything is [emptiness](gl
 
 So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
 
-#### 52:40
+##### 52:40
 
 That’s why it says, “If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’”
 
@@ -177,7 +177,7 @@ Do you understand provisional being?
 
 *[There are a few quiet chuckles.]*
 
-#### 56:18
+##### 56:18
 
 **Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the [Buddha](glossary#buddha), he was practicing meditation in one of his lifetimes in a garden, and this king came up to him and saw him and remembered him, and got extremely angry at stuff, and butchered him, chopped him down into pieces. And Buddha just calmly watched him ... Is that king, in the Buddha’s perception, a provisional being?
 
@@ -215,7 +215,7 @@ Don’t you think so?
 
 **Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad – it’s not okay, it’s not easy, but there is another possibility here, in the moment. In the moment, possibility, [*unintelligible*]. 
 
-#### 1:01:36
+##### 1:01:36
 
 **Question**: [Roshi](glossary#roshi)? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
 
@@ -227,7 +227,7 @@ Finally, self is broad, but what is that? I cannot explain. But, it’s there. I
 
 [Buddhism](glossary#buddhism) is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. That means, that understanding that everything is working dynamically leads you to touch the core of real life. Which is fully alive. Fully alive.
 
-#### 1:05:11 end of recording
+##### 1:05:11 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

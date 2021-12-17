@@ -13,7 +13,7 @@ description: August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 ### What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: kaku (awareness), satori, and sho (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
 <a name="000"></a>
-#### 0:00 start of recording 
+##### 0:00 start of recording 
 
 Chapter 7:
 
@@ -25,7 +25,7 @@ In this chapter 7, there are two questions: What is [Buddha](glossary#buddha)? T
 
 The Buddha asked [Subhuti](glossary#subhuti): “Is there any dharma which the [Tathāgata](glossary#tathāgata) has fully known as ‘the utmost, right and perfect enlightenment’?” So, what does the Buddha experience? What does he *know* about enlightenment? What is enlightenment? Has the Buddha fully known the utmost right or perfect enlightenment, or not? 
 
-#### 3:52
+##### 3:52
 
 In Japanese, enlightenment is described by three different characters. One is ‘kaku’ *[he spells it]*: awareness. The second is [satori](glossary#satori) – you are very familiar with this term, satori. The third is ‘sho’ *[he spells it]*: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. The original nature of existence is, truth. 
 
@@ -35,7 +35,7 @@ This is the first experience; everyone can do this. But this experience of aware
 
 So that is awareness.
 
-#### 7:50 
+##### 7:50 
 
 The second is satori. Satori is a little deeper than the experience of awareness, because satori is that awareness which penetrates your body, your skin, muscle, bone, and marrow. You really understand what the universe is, how all beings exist, through your body and mind, skin, muscle, bone, and marrow. So your daily living is a little bit free from their difficulties, because you understand pretty well, and you know a little bit how to practice the universe in your daily living, how to practice the experience of satori in your daily living. 
 
@@ -43,7 +43,7 @@ In your daily living, maybe your attitude gradually becomes very gentle, compass
 
 That is satori. Usually people understand Zen [as] cultivating the experience of satori. [Zen practice](glossary#zen-practice ) gives [us] a chance to experience satori, and then that is the final goal we are aiming at. But this is not the final goal, because the experience of satori is still tinged with something intellectual, which is going on at the subconscious level. 
 
-#### 11:27
+##### 11:27
 
 The final goal is that you must be free from the experience of satori. That is the third, the one which is called ‘sho’, *[he spells it out,]* which literally means ‘verification’. Verification which is called ‘sho’ is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
 
@@ -55,7 +55,7 @@ This is enlightenment. That’s why [Buddha](glossary#buddha) says, “Is there 
 
 That is enlightenment, real enlightenment. That’s why, if you are called Buddha – does Buddha experience enlightenment, which he has known perfectly, as perfect, right, supreme enlightenment? [Subhuti](glossary#subhuti) says, “No.” 
 
-#### 16:04
+##### 16:04
 
 So let’s see about this utmost, right, perfect [enlightenment](glossary#enlightenment), represented as ‘sho’ in Japanese.
 
@@ -65,7 +65,7 @@ The commentary by [Conze](glossary#edward-conze) says:
 
 So let’s understand, let’s think, one by one.
 
-#### 18:10
+##### 18:10
 
 [Doctor Conze](glossary#edward-conze) said: 
 
@@ -81,7 +81,7 @@ Strictly speaking, whatever answer you get to the question “why” you exist i
 
 If you try to get an answer to this question *why*, it means that already you look at yourself objectively, running it through your head, without touching existence itself. Existence itself has no reason. Because before you make [an] answer why, I am Katagiri. I am here. I am Katagiri already. Before I call myself Katagiri, the original nature of Katagiri is right now, right here. How can I explain this? No reason. The real nature of Katagiri exists without reason. 
 
-#### 24:34
+##### 24:34
 
 One of the German poets said, “A rose exists without any reason. A rose blooms because it blooms.” 
 
@@ -95,7 +95,7 @@ This is [emptiness](glossary#śūnyatā). Emptiness means, no reason. With no re
 
 The utmost, perfect, right [enlightenment](glossary#enlightenment) is the nature of existence, which exists with no reason. Beyond the effective preferences, like or dislike, whatever it is, it exists constantly. When you understand this, nature’s existence which exists without any reason, at that time, emptiness is represented as – *[finger snap]* – stability in your daily living, stability. Perfect stability. But immediately, when the consciousness starts work, consciousness always catches something objectively. Consciousness takes something in possession of a form, always. Putting a name on it; judging, evaluating; this is characteristic of consciousness. 
 
-#### 29:51
+##### 29:51
 
 And consciousness works only when you don’t feel satisfactory, if you want to *be* something – [for example,] a certain teacher, in a certain state of your life – if you don’t satisfy yourself. 
 
@@ -111,7 +111,7 @@ That’s wonderful. But this is still something you play with, constantly. This 
 
 And then this is called “the marklessness of all things”. Completely emptiness. Emptiness means, no gap between you and the book, you and breakfast. No gap. So all you have to do is, you should ... experience stability there, in the oneness. 
 
-#### 36:32
+##### 36:32
 
 That is [emptiness](glossary#śūnyatā). And the second is “the marklessness of their emptiness.” 
 
@@ -123,7 +123,7 @@ We chant in Prajnaparamita, wisdom, and emptiness, or [impermanence](glossary#im
 
 That is “the marklessness of their emptiness”. You cannot believe any form of emptiness you have understood. Finally, “the marklessness of their emptiness” means, formlessness. That means, concretely speaking, openness. Openness ... to manifest the original nature of existence, [emptiness]. Openness to accommodate to conditioned elements, conditioned situations. To work freely. Or, openness is *straightforwardness* toward emptiness, toward the truth, constantly.
 
-#### 41:45
+##### 41:45
 
 In your daily living, if you read this book on [Diamond Sutra](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, [which] you have to take care of. Under all circumstances, whether you like or dislike [it], you have to take care [of it]. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, [like] “you have to read this”: that is your life. If it is true, you have to continue to read. Continue to read. 
 
@@ -133,7 +133,7 @@ Stability in the realm of emptiness is a very basic attitude toward human life. 
 
 That is marklessness of emptiness. Formlessness. Openness. Continually, your heart and your mind must be open. [Open] to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
 
-#### 45:03
+##### 45:03
 
 And third, “the marklessness of their suchness.” 
 
@@ -153,7 +153,7 @@ Then, maybe meditation hurts your body and mind. Well, it is not alright, it is 
 
 That is the third one, “the marklessness of their suchness”. Here ‘suchness’ means ‘obedience’. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
 
-#### 50:11
+##### 50:11
 
 Why do you exist in this world? I don’t know. “I don’t know” does not mean “I don’t know”; “I don’t know” means “I know” *and* “I don’t know,” [both]. “I don’t know” means, completely to accept the total picture of what you don’t know or what you know. 
 
@@ -167,7 +167,7 @@ This is emptiness. If you understand [Buddha](glossary#buddha) – Buddha experi
 
 One is not something you can think or you can grab. When you think, when you experience, when you “get it,” it is always two. That’s why religion, all religion, speaks about the truth. But [there are] many kinds of truth. We fight each other, according to many kinds of truth. “[Buddhism](glossary#buddhism) is right.” “Christianity is right; Buddhism is crazy.” But Buddhism and Christianity explain about the truth. The truth is exactly one. One means, nothing to get or to grasp. 
 
-#### 55:00
+##### 55:00
 
 > “It cannot be grasped, it cannot be talked about.” 
 
@@ -179,7 +179,7 @@ So, emptiness – this is, I have to talk about emptiness. To talk is important,
 
 So emptiness is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
 
-#### 59:00
+##### 59:00
 
 > “It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma.”
 
@@ -207,7 +207,7 @@ So, the absolute, the unconditioned, the original nature of existence [inherent]
 
 Do you have any questions?
 
-#### 1:06:00
+##### 1:06:00
 
 **Question**: [Roshi](glossary#roshi)? When you talk about the marklessness of all things, of their [emptiness](glossary#śūnyatā), and of their suchness, are those the three aspects of emptiness, or the three aspects of what?
 
@@ -217,7 +217,7 @@ Do you have any questions?
 
 **Katagiri**: [Dharma](glossary#dharma). [Enlightenment](glossary#enlightenment). The ultimate, utmost, right, perfect enlightenment. Okay?
 
-#### 1:06:45
+##### 1:06:45
 
 **Question**: [Roshi](glossary#roshi), would one good way of putting it be, everything is within [emptiness](glossary#śūnyatā) and emptiness is within everything? 
 
@@ -249,7 +249,7 @@ That’s why you can [survive] for many years, and you should be appreciative. Y
 
 If you don’t have more questions, I want to tell you one thing. At Omaha Zen Center, they will have the opening ceremony of the new [zendo](glossary#zendo) on September 9th. So they need lots of help. I want to get some volunteers to help Omaha Zen Center before the opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don’t know when, it depends on the numbers of the volunteers.
  
-#### 1:10:15 end of recording
+##### 1:10:15 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

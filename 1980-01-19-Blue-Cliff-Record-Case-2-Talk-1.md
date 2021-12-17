@@ -12,7 +12,7 @@ description: January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 ### Katagiri Roshi introduces Case 2 of the Blue Cliff Record, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. In the pointer, Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting 100 points” – not 90, not 99, only 100 or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? And also, how to drag yourself in muddy water like a sewer rat chased by a cat. 
 
 <a name="000"></a>
-#### 0:00 start of recording
+##### 0:00 start of recording
 
 At this time, I would like to study with you the second case of The [Blue Cliff Record](glossary#blue-cliff-record). The title is “The Ultimate Path is Without Difficulty”. Let me first read the main case:
 
@@ -36,7 +36,7 @@ In this pointer, [Engo Zen Master](glossary#engo-kokugon) emphasizes the signifi
 
 Plainly speaking, this is the truth, or original nature of existence, or [dharma](glossary#dharma). [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](dogen#fukanzazengi), “The [dharma vehicle](glossary#dharma-vehicle) is free and unrestricted, why should we expend sustained effort?” So [Dogen](glossary#dogen) uses the term “dharma vehicle”. 
 
-#### 6:40
+##### 6:40
 
 You know, the truth is explained in many ways. If you use a word, whatever you say, all expressions of the truth come into just one term: truth. Many kinds of religions use a different term, but all come into the truth.
 
@@ -48,7 +48,7 @@ So whatever kind of religion you study, even Christianity, even [Buddhism](gloss
 
 That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](dogen#life-and-death), “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any one’s mind.” This is a very famous statement mentioned by [Dogen](glossary#dogen). *[He repeats the quote.]* This [is the] correct attitude to research the truth, what [the truth] is; because this is human life.
 
-#### 12:47
+##### 12:47
 
 I told you before, one of our famous [Zen Masters](glossary#zen-master) says, “Zen is that we should get one hundred points, or zero points. Zero points or one hundred; exactly perfect. There is no other points between one hundred and zero.”
 
@@ -66,7 +66,7 @@ So, you should use your consciousness and understand what the bar is, what you [
 
 So, that means you should get one hundred points. *How*? It is not the study of [recognition], is not the study of [ontology](glossary#ontology); what you have to do, right now, right here, is you have to grasp the bar, one hundred percent. Not 90 percent, not *99* percent. You have to *grasp*. This is always the main point that [Buddhism](glossary#buddhism) emphasizes.
 
-#### 20:22
+##### 20:22
 
 For instance, if you have a TV set, or if you have an electric machine of whatever kind, what you have to do is to communicate with them in your daily living, instead of studying what the TV set is by your knowledge. Well, you have to know what the TV is, but what you have to know is how to deal with the TV set. This is sort of the study of [etiology], [recognition].
 
@@ -84,7 +84,7 @@ Where is the vehicle? That vehicle means [Buddha](glossary#buddha), Buddha’s w
 
 So, vehicle is one hundred points. You can get it. At that time, it’s really perfect. That is called the vehicle. 
 
-#### 25:35
+##### 25:35
 
 Zen is sometimes misunderstood by people because we don’t have a particular object which is called a divine entity, which is called God, which is called soul, or whatever you say. No object. 
 
@@ -98,7 +98,7 @@ For this, what should you do? Jump into it. Throw yourself into Buddha’s home.
 
 We don’t believe this, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, what is called zazen blooms. That is what is called [Buddha](glossary#buddha), Buddha’s home. 
 
-#### 29:22
+##### 29:22
 
 If you believe [zazen](glossary#zazen) [is] like this, well, you believe zazen is a particular practice. So Zen says, zazen is *not* a particular practice; your daily life is practice. Gassho, walking, having breakfast; anyway, we have to get 100 points. We should handle our daily life with wholeheartedness. It’s this what is called *shikan*.
 
@@ -114,7 +114,7 @@ At that time, there is no need for your particular, sustained effort. Why should
 
 That’s why that is the task of the fundamental vehicle of transcendence. All you have to do is, constantly you should be right on this vehicle, 100 points. That is really vast. Nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
 
-#### 32:44
+##### 32:44
 
 So, let’s read [the pointer], [line] by [line]. 
 
@@ -130,7 +130,7 @@ And “sun and moon and stars all at once go dark”. Even the sun, even the moo
 
 “Even if blows of the staff fall like rain“: [Rinzai](glossary#rinzai-zen ) [Zen Masters](glossary#zen-master) or other Zen Masters use a staff or stick, hitting the monks in order to encourage insight. [Even if] that giving the blows to the monks is just like rain, falling rain, constantly hitting, still you cannot live up to the truth, no matter how long you hit the monk, screaming, shouting. Screaming means “shouts roll like thunder” – a big shout which makes everybody wake up. Even though you use this, still you cannot live up to the truth. It’s still something explained, demonstrated. So that’s why he says he says, “Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence.”
 
-#### 36:45
+##### 36:45
 
 > Even the [Buddhas](glossary#buddha) of the [three times](glossary#three-times) can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) have not been able to bring it up in its entirety. 
 
@@ -150,7 +150,7 @@ That’s why he says, “the successive generations of [patriarchs](glossary#anc
 
 Look at the Chinese Zen histories. If [Buddhism](glossary#buddhism) were completely destroyed by the Chinese politics; if all monks were completely destroyed, and the government kicked them out of the temples – wherever the Zen monks went, either fishermen, either boatmen, still Zen is alive in their life. And when the world becomes peaceful, harmonious, all the Zen monks come back to Buddhism. It’s very strange, but it is very true. Only the Zen monks come back very naturally when the war [becomes] peace. But when the government is excited and gets angry – well they can live any time, anywhere. “Goodbye” – but it doesn’t mean that [Zen Buddhism](glossary#zen-buddhism ) dies; it’s still alive in their life. That’s why when the time comes, conditions are arranged, it comes back. 
 
-#### 43:00
+##### 43:00
 
 > The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patchrobed monks cannot save themselves completely.
 
@@ -176,7 +176,7 @@ Anyway, what do you practice for? Do you practice for the good of all sentient b
 
 That is called *[unintelligible]* practice. That is, throw yourself into the [Buddha](glossary#buddha)’s home.
 
-#### 49:15
+##### 49:15
 
 > When you get here, how will you ask for more instruction? To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. 
 
@@ -192,7 +192,7 @@ So [Engo Zen Master](glossary#engo-kokugon) says, “When you get here, how will
 
 But – it’s really work. If you don’t know, you feel *restless*. This restlessness comes from your interest in Zen, understanding. The restlessness is a part of your life; so don’t worry, don’t be obsessed with restlessness. All you have to do is, just continue to do it. Finally, your life works pretty well.
 
-#### 52:05
+##### 52:05
 
 “When you get here, how will you ask for more instruction?” – [Engo Zenji](glossary#engo-kokugon) says, “To say the word “[Buddha](glossary#buddha)” is trailing mud and dripping water…” If you use the word “Buddha,” it is still trailing mud and dripping water. 
 
@@ -206,7 +206,7 @@ People say Zen is stupid; that’s okay. In Nichiren [Buddhism] – do you know
 
 Somebody says, “Zen is pretty intellectual; Zen is pretty idealistic.” There are lots of criticism, don’t you think? [That’s good.] “Zen is *[unintelligible]*.” “Zen is ridiculous.” *Lots* of criticism – because Zen is freedom, free. Freedom is… do you know freedom? Freedom is a free state of being, which appears in many ways, in many situations. But it doesn’t bother us; [it only] appears. It is never contaminated by a certain condition. It always appears under certain conditions, but it’s never contaminated by ideas. That is what is called freedom. That’s why … if you use a particular term, “Zen,” it’s very *shameful*, because immediately you can see that idea of denomination. That’s why [Engo Zenji](glossary#engo-kokugon) says, “to say the word Ch’an is a face full of shame.”
 
-#### 57:02
+##### 57:02
 
 “Superior people who have studied for a long time do not wait for it to be said;” – well he doesn’t explain, because from moment to moment his life must be alive. So even though he doesn’t say it, his life is really Zen. 
 
@@ -216,7 +216,7 @@ Well, if you want to perform gymnastics, you should jump into it, right now actu
 
 That is the pointer. And then, the main case: ...
 
-#### 58:33 end of recording 
+##### 58:33 end of recording 
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

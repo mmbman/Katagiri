@@ -10,7 +10,7 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 <a class="nr-custom-trigger">NaturalReader</a>
 
 <a name="000"></a>
-#### start of recording
+##### start of recording
 
 Case 18 of Blue Cliff Record:
 
@@ -49,13 +49,13 @@ Case 18 of Blue Cliff Record:
 > Within the crystal palace, there is no one who knows.  
 >> Hsueh Tou added the comment, “He has raised it up.”  
 
-#### 3:05
+##### 3:05
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
 This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by Chinese emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
 
-#### 5:00
+##### 5:00
 
 > The National Teacher said, “Build a seamless monument for me.”
 
@@ -67,7 +67,7 @@ So, seamless means formless. In [Prajnaparamita](glossary#Prajnaparamita), we sa
 
 Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life is just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
-#### 8:25
+##### 8:25
 
 In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and the suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
@@ -81,7 +81,7 @@ That is, Buddhism always says, [emptiness](glossary#emptiness).
 
 Emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really dynamic working. But no one can touch it, because it’s really *dynamic*.
 
-#### 12:19
+##### 12:19
 
 From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
 
@@ -95,7 +95,7 @@ How do you light the candle of human culture? Your individual daily life is also
 
 Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
-#### 15:45
+##### 15:45
 
 That’s why I told you before, the quality of your life must be taught by your back. 
 
@@ -109,7 +109,7 @@ If you don’t want to accept, that’s okay – it depends on you, that’s up 
 
 So then finally you have self-doubt. Self-doubt means [you think], “I am stupid.” You’re not stupid, but a certain big doubt comes up. 
 
-#### 19:22
+##### 19:22
 
 Now I can really treasure the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. 
 
@@ -119,7 +119,7 @@ That is very common for human beings. When your parents die, when your brothers 
 
 That is a very common human style. So that’s why the National Teacher said, “Build a seamless monument for me.”
 
-#### 22:08
+##### 22:08
 
 And then,
 
@@ -127,7 +127,7 @@ And then,
 
 This is a very nice person. Because the National Teacher wants to build a seamless monument, [the Emperor asks,] “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
 
-#### 22:43
+##### 22:43
 
 > The National Teacher was silent for a long time; then he asked, “Do you understand?”  
 > The Emperor said, “I don’t understand.”
@@ -136,7 +136,7 @@ This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidh
 
 This is also “I don’t know.” But [Bodhidharma] knows pretty well; he knows very clearly who he is: becoming one. At that time there is nothing to dichotomize, or contaminate. 
 
-#### 23:55
+##### 23:55
 
 For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really late, you know?
 
@@ -148,7 +148,7 @@ When you’re riding an airplane, when you become one with the speed of the plan
 
 This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
 
-#### 26:32 
+##### 26:32 
 
 So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and [enlightenment](glossary#enlightenment). If you’re a really great enlightened person, then there’s only one, there is no space to look at it objectively. So you don’t know. 
 
@@ -158,7 +158,7 @@ So, no sound; that is really oneness. That is very quiet. But it is really dynam
 
 So that is the “I don’t know” that Bodhidharma said.
 
-#### 28:34
+##### 28:34
 
 Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what [zazen](glossary#zazen) is, and I say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
 
@@ -166,7 +166,7 @@ If you say “I don’t know,” you cannot have any spirit to teach or to tell 
 
 The “I don’t know” of Emperor Wu – I don’t know which of the two it was. *[He laughs.]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[Some laughter.]* But anyway, from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
 
-#### 30:32
+##### 30:32
 
 Finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
@@ -188,7 +188,7 @@ In [Shobogenzo “Four Horses” (Japanese: Shime)](dogen#four-horses), [Dogen Z
 
 Four kinds of horses. *[He chuckles.]* I don’t know which of the horses *you* belong to, but anyway, most people are just like this.
 
-#### 33:05
+##### 33:05
 
 From this, maybe you understand that the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
 
@@ -200,7 +200,7 @@ That’s why [Buddha](glossary#buddha) and Dogen Zenji explain the four kinds of
 
 So, the four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
 
-#### 36:08
+##### 36:08
 
 For instance, playing piano, I tell you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; all the organs, heart and feelings. And then you can really play. 
 
@@ -208,7 +208,7 @@ So what do you mean, touch the piano? Touching the piano is not touching the key
 
 So, when you do [zazen](glossary#zazen), that’s why zazen is [not just] for deepening your own life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
 
-#### 38:10
+##### 38:10
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. 
 
@@ -218,7 +218,7 @@ Anyway, you have to understand [yourself] as a human being  – but that human b
 
 If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stupidness, *[He laughs.]* how stupid you are.  Because this is karmic life.
 
-#### 40:20
+##### 40:20
 
 Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain that you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t know, exactly.
 
@@ -230,7 +230,7 @@ If you really understand this karmic life, karmic life turns into [Buddha's](glo
 
 That is the meaning of a whip. Or of practice, [constant] effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
-#### 43:30
+##### 43:30
 
 There is a story (in [“Four Horses”](dogen#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the [Buddha](glossary#buddha), ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
@@ -250,7 +250,7 @@ So after the outsider had left, Ānanda asked the Buddha, “What did the outsid
 
 The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
-#### 47:05
+##### 47:05
 
 People often go to the silence for their understanding. What is there to grasp? In Buddhism, silence is important – but silence itself is not important, to keep silent. If I write the words: “Teaching comes from silence” – many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence. And then we believe that silence is really the truth of human existence. But I don’t think so. 
 
@@ -262,13 +262,13 @@ If I sit down and really do [zazen](glossary#zazen), then you believe concentrat
 
 That is, Dogen Zenji says, the total manifestation of the whole world. Huge.
 
-#### 50:31
+##### 50:31
 
 That is teaching coming from your back. This is teaching coming from a powerless power, that you can get from your practice. Behind the effort, there is great power. Effort is not something you can create; there is power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond the name of concentration, name of practicer, name of [emptiness](glossary#śūnyatā) – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
 
 So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called [zazen](glossary#zazen). You have to really work. 
 
-#### 51:55
+##### 51:55
 
 So that is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is totally accepting your life, including the whole world. Just like touching a hair; if you touch a hair, that means touching the whole world. 
 
@@ -282,13 +282,13 @@ For instance, right in the middle of suffering or pain in [zazen](glossary#zazen
 
 So silence in pain is really aliveness, dynamically, in pain.
 
-#### 54:47
+##### 54:47
 
 [The National Teacher] kept silence and sat down for a while and said, “Do you understand?” The emperor said, “I don’t understand.” And then the National Teacher said, “I have a disciple to whom I have transmitted the Teaching.” 
 
 So finally the emperor said, “I don’t know.” But whatever kind of meaning of his answer, it doesn’t matter, because there is no way to approach to him. So he said, well, I have a disciple. So after my death, please ask my disciple what it means.
 
-#### 55:46
+##### 55:46
 
 > The National Teacher said, “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.”
 > 
@@ -314,19 +314,19 @@ To build up a seamless monument means not for him, but for all sentient beings �
 
 That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment on.
 
-#### 58:54
+##### 58:54
 
 > In between there is gold sufficient to a nation.
 
 Does “silent, nothing to say” mean it is something in vain? No, it’s just like gold – completely filling the whole world. That is the quality, that is the material of the seamless monument. You have to build up a seamless monument with this gold, the quality of life. But we believe the *name* of life; that is not the quality of life. The quality of life is completely gold, filling the whole world.
 
-#### 1:00:02
+##### 1:00:02
 
 > – Hsueh Tou added the comment, “A rough-hewn staff.”
 
 That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness, which no one [can touch]. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
-#### 1:01:10
+##### 1:01:10
 
 > Beneath the shadowless tree, the community ferryboat;
 
@@ -340,7 +340,7 @@ That’s why, day by day, in the practice, the gassho, and doing zazen, the chan
 
 But don’t misunderstand. The religious culture of zazen is not only to sit zazen, but you have to light the candle of zazen. Do you understand “to light”? Light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
 
-#### 1:04:14
+##### 1:04:14
 
 > – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
 
@@ -348,7 +348,7 @@ That is really spiritual security, so-called spiritual security. If you do this 
 
 But that is not always calm. It’s really alive. 
 
-#### 1:04:58
+##### 1:04:58
 
 > Within the crystal palace, there is no one who knows.
 
@@ -366,7 +366,7 @@ So if you know, you have to be free from the person who knows. That is original 
 
 That’s why Hsueh Tou says, “Within the crystal palace, there is no one who knows.”
 
-#### 1:07:33
+##### 1:07:33
 
 In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
@@ -382,13 +382,13 @@ Don’t be cheated by the *name* of truth; you have to know the *real quality* o
 
 That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
 
-#### 1:12:02
+##### 1:12:02
 
 > – Hsueh Tou added the comment, “He has raised it up.”
 
 *Exactly*. Exactly, that is holding, understanding life. 
 
-#### 1:12:32 end of recording
+##### 1:12:32 end of recording
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).

@@ -14,7 +14,7 @@ description: June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 *(Transcriber’s Note: In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism – so it seems likely that he is simply adding an extraneous “the” to “Buddhist faith”. I have omitted the “the” in some cases.)*
 
 <a name="000"></a>
-#### 0:00 start of recording
+##### 0:00 start of recording
 
 Good morning. Today, I would like to talk about Buddhist faith, particularly in Zen Buddhism. 
 
@@ -30,7 +30,7 @@ From this point, Buddhist faith is to know [there is] nothing to believe in. Not
 
 So what is Buddhist faith? If you want to know the definition of Buddhist faith, Buddhist faith is to believe [there is] nothing to know, to believe in the human situation where you are standing in completely nothing to know. This is Buddhist faith: nothing to know. 
 
-#### 4:50
+##### 4:50
 
 But it is very difficult for human beings to believe in nothing to know. That’s why the many religions try to give you some ideas: so-called ‘god’, divinity, or angels, and ghosts, and many things. Do you understand? [Telepathy], and many things. So whatever [kind of term you] use – divinity, and God, Buddhas, Avalokiteshvara, or ghosts, and spirituality – whatever you say, whatever kind of words you use, you should consider them once again. What do you mean? What is a ‘god’? What is a ‘divinity’? What is a ‘buddha’? What is the truth? What *is* it? Can’t you know it? 
 
@@ -50,7 +50,7 @@ So intimacy is no gap, no space between emptiness and your life: exactly connec
 
 That is called faith. So faith is intimacy. Buddhist faith is exactly intimacy. 
 
-#### 14:44
+##### 14:44
 
 Intimacy is something you have to experience, you have to jump into. If you want to swim, you have to be intimate with the water and your body. Constant, perfect intimacy between the water and your body and mind. You cannot separate water and body and mind. If you separate [them], there are some ‘daydreams’ coming up between you and the water.
 
@@ -70,7 +70,7 @@ So that’s why [in the] Prajñāpāramitā [Sutra], in the last sentence we say
 
 So that’s why Buddhism always tricks you: seeing, facing emptiness directly. And within the emptiness, you have to see your life, how it works. That is the Buddhist total attitude toward human life: so-called faith. Empirically, it is called intimacy. 
 
-#### 23:48
+##### 23:48
 
 There is a statement which appears in a Buddhist scripture. It says, “Faith is, within the principle of the truth, to bear up, to enjoy, to desire, and to be limpid and clear.” Truth is emptiness, alright? [So,] faith is, within the principle of emptiness, to bear up, to enjoy, to desire, and to be limpid and clear.
 
@@ -79,7 +79,7 @@ Let me say it simply, because this statement is the teaching about how we should
 It says, “within the principle of the truth.” That means, within the principle of emptiness. In other words, your body and mind is already going within emptiness. It means your body and mind are with emptiness already – and then you can have your life. If your life is not emptiness, you cannot have your life [in aliveness]. That’s why “within the principle of emptiness” is very important.
 
 
-#### 29:38
+##### 29:38
 
 And then it says, “to bear up.” There are three ways of “bearing up,” three kinds of patience. 
 
@@ -93,7 +93,7 @@ That’s why real dharma is not something you can give, you can think, you can b
 
 Next, “the patience of sound and echo.” It means that emptiness has lots of sounds, and also echoes, reverberating constantly, [over] every inch of your life. [Emptiness is] very quiet, tranquil; but that tranquility is not necessarily *still*, because it is penetrating every inch of your life. Emptiness is very quiet, and simultaneously dynamic, because it is supporting you. That’s why when you are very confused, emptiness makes you calm. [You can] bump your head into trouble and make a big bump on your forehead, but it doesn’t matter how many bumps you have; finally, all you can do is to make yourself calm. In other words, realizing the total picture of your life. So from this point, whatever you do, that emptiness is supporting you. That emptiness is penetrating to every inch of your life, whoever you are. That is called the patience of sound and echo, reverberations.
 
-#### 38:14
+##### 38:14
 
 The next one is “the patience of flexibility and adaptability”. Flexibleness, and also adaptableness.  Emptiness is very flexible. If you touch it, it turns into something. 
 
@@ -103,7 +103,7 @@ So very naturally, emptiness is very flexible and also adaptable, because you ca
 
 So you have to see human life deeply; that is “to bear up”. “Bear up” means to be patient with, to know the dharma. The dharma is emptiness; nothing to hold onto, [to] know. That is your situation, everyone’s situation. But human beings always try to know. They try to know, try to know, try to know – constantly. That is a human problem for us. We don’t want to let it be. So we need a practice to let it be, to let go of yourself and listen to the echos and silence, which are flexible and adaptable to your life. So anyway, be patient.
 
-#### 42:50
+##### 42:50
 
 Next, “to enjoy.” To enjoy means to have a deep aspiration to enjoy your life, a deep aspiration for seeing deeply, touching the basic nature of existence. This is so-called “enjoy”. [It is] not to flounder about. If you see trouble, immediately you flounder about your life, and that floundering makes you very confused, [so] it’s very difficult to deal with your life. “To enjoy” means constantly to have the practice of patience, and seeing human nature deeply. And then you can enjoy your life – with deep aspiration your life, and for all sentient beings. 
 
@@ -111,7 +111,7 @@ And next, “to desire.” To desire means, for instance, desire to use your lif
 
 And also Dogen Zenji mentions “speaking of dharma,” speaking of the truth. Speaking of the truth and listening to the truth, with each single body, life after life. That is really huge, that is a really marvelous way of giving with your life. For your life, and also for others. Not only this present life – past, present, future. This is a spiritual aspiration for how to use your life. This is “[to] desire.” 
 
-#### 48:31
+##### 48:31
 
 And the last one is “to be limpid and clear.” That means if you practice patience, and enjoyment, and desire, we pretty easily fall into the career of carrying those practices – patience, and enjoyment, and desire. But next, what you have to do is to be limpid and clear. That means, let it go. Just do it. That’s pretty hard for us. But this is the final goal for us. 
 
@@ -123,7 +123,7 @@ In other words, no intent to make your career ‘useful’. If you try to make y
 
 This is faith. That’s why finally what you have to do is, your life, your career, *all things* must be limpid and clear like water. You must be [like] water, clear and limpid. Just like water. And just see, and just take care, and just help, and pass by. That’s pretty hard practice for us. But this is the best way to practice faith, religious faith. 
 
-#### 53:06
+##### 53:06
 
 As a conclusion: to practice patience means not to bring religious life, or careers, or emptiness or truth, down to the level of the usual sense of human life. If you try to know [something], that means to bring the truth down to the level of human sense. Truth is not something like that. [It is] e emptiness, exactly. If it is true, instead of scooping the water of the truth into your basket, why don’t you soak your basket in the stream of the truth? That’s all you can do. 
 
@@ -137,7 +137,7 @@ Next, religiously, all you [do] in your life must be limpid and clear, like wate
 
 Do you have questions?
 
-#### 56:40
+##### 56:40
 
 **Question**: Roshi? Would you say a few words about zazen and this practice. *[Unintelligible.]*
 
@@ -151,7 +151,7 @@ For instance, a circle. A circle consists of many points, many dots. That is cal
 
 For instance, if I have a flashlight at night and make a circle, simultaneously the light is not one light, it is a circle. You can see [this]. But that circle is consisting of many moments. So each moment is your life. But your life is not *your life*. That is the total picture of the circle created by the flashlight. How do we know [that]? Just revolve the flashlight; that means your life. To continually revolve your life means [to] make your life alive, day by day. It means do zazen; exactly your zazen, but simultaneously it’s not your zazen, it is one circle, so-called universal zazen. When you really make your individual zazen [flow], that is the whole universe is working, pretty well. 
 
-#### 1:01:00
+##### 1:01:00
 
 **Question**: Is the trick in avoiding the gap to be living emptiness and living life at the same time?
 
@@ -161,7 +161,7 @@ For instance, if I drink this cup recklessly, I can talk with you and I can drin
 
 That’s why if the people go to the Zen monastery and practice, or if you go to a Christian monastery, you are really impressed, because they are just doing [things] very quietly, one by one, with wholeheartedness. No gap between. 
 
-#### 1:03:20
+##### 1:03:20
 
 **Question**: Would you say why it is bad for there to be a gap?
 
