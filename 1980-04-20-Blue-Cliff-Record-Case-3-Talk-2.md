@@ -3,11 +3,10 @@ title: "Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2"
 description: April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 
 [Home](index#1980) \| 
-[Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
-
-Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a> \| 
+[Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 
+[Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
 ---

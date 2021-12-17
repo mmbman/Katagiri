@@ -3,8 +3,8 @@ title: "Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Ta
 description: November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
+[Home](index#1979) \| 
 [Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
-[Home](index#blue-cliff-record-case-1-lecture-1) \| 
 [Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths" target="_blank">Original Recording</a> \|
 <a href="https://katagiritranscripts.podbean.com/e/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-–-talk-1/" target="_blank">Podcast</a> \|

@@ -3,17 +3,15 @@ title: "Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1"
 description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
 [Home](index#1980) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
+[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 **This transcript is still in rough draft form.**
 
 (Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
-
-Listen: 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> \| 
-<a class="nr-custom-trigger">NaturalReader</a>
 
 ---
 <a name="000"></a>

@@ -3,14 +3,13 @@ title: "Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – T
 description: January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
+[Home](index#1980) \| 
 [Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
-[Home](index#blue-cliff-record-case-2-lecture-1) \| 
-[Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+[Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Original Recording</a> \| 
+<a class="nr-custom-trigger">NaturalReader</a>
 
 #### Katagiri Roshi introduces Case 2 of the Blue Cliff Record, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. In the pointer, Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting 100 points” – not 90, not 99, only 100 or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? And also, how to drag yourself in muddy water like a sewer rat chased by a cat. 
-
-Listen: <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Original Recording</a> \| 
-<a class="nr-custom-trigger">NaturalReader</a>
 
 ---
 <a name="000"></a>

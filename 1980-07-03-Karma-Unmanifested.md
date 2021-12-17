@@ -3,13 +3,11 @@ title: "Karma: Unmanifested"
 description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#karma-unmanifested)
-
-**This transcript is still in rough draft form.**
-
-Listen: 
+[Home](index#1980) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
+
+**This transcript is still in rough draft form.**
 
 ---
 <a name="000"></a>
