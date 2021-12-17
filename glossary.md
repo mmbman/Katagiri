@@ -11,10 +11,10 @@ description:
 
 [A](#a) - [B](#b) - [C](#c) - [D](#d) - [E](#e) - [F](#f) - [G](#g) - [H](#h) - [I](#i) - [J](#j) - [K](#k) - [L](#l) - [M](#m) - [N](#n) - [O](#o) - [P](#p) - [Q](#q) - [R](#r) - [S](#s) - [T](#t) - [U](#u) - [V](#v) - [W](#w) - [X](#x) - [Y](#y) - [Z](#z)
 
----
 # A
 
 ---
+
 ## Abhidharma
 
 [Sanskrit](glossary#sanskrit): Abhidharma; "higher teaching about [dharmas](glossary#dharma)"
@@ -25,7 +25,6 @@ External links:
 
 - [Wikipedia: Abhidharma](https://en.wikipedia.org/wiki/Abhidharma)
 
----
 ## Abhidharmakosha
 
 [Sanskrit](glossary#sanskrit): Abhidharmakośa
@@ -39,7 +38,6 @@ External links:
 - [Wikipedia: Abhidharmakośakārikā](https://en.wikipedia.org/wiki/Abhidharmakośakārikā)
 - [encyclopediaofbuddhism.org link](https://encyclopediaofbuddhism.org/wiki/Abhidharmakośa)
 
----
 ## Aesthetic Contemplation
 
 "Aesthetic contemplation" may refer to Schopenhauer’s aesthetic theory. If so, this is an interesting connection to Western philosophy. "In aesthetic contemplation, we stop thinking about the world and the objects in it as means to our ends, that is, as objects of our will. We also see attention and perception take center stage."
@@ -51,7 +49,6 @@ External links:
 - [Schopenhauer’s Aesthetics at plato.stanford.edu](https://plato.stanford.edu/entries/schopenhauer-aesthetics/)
 - [Internet Encyclopedia of Philosophy: “Aesthetic Attitude"](https://iep.utm.edu/aesth-at/)
 
----
 ## Āgamas
 
 ([Sanskrit](glossary#sanskrit)) āgama: sacred work or scripture.
@@ -62,10 +59,8 @@ External links:
 
 - [Wikipedia: Āgama (Buddhism)](https://en.wikipedia.org/wiki/Āgama_(Buddhism))
 
----
 ## Alayavijñāna
 
----
 ## Ānanda
 
 [Shakyamuni Buddha](glossary#shakyamuni-Buddha)’s attendent, known for his complete memory of what the Buddha said.
@@ -74,19 +69,16 @@ External links:
 
 - [Wikipedia: Ānanda](https://en.wikipedia.org/wiki/Ānanda)
 
----
 ## Ancestor
 
 Also: *patriarch*
 
----
 ## Anja
 
 An attendant to a teacher. Similar to the ceremonial [jisha](glossary#jisha) position, but closer to a full-time butler and cleaning person.
 
 - [Blue Cliff Record: Case1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#1036)
 
----
 ## Aprāpti
 
 [Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). 
@@ -97,7 +89,6 @@ External links:
 
 - [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
----
 ## Arhat
 
 ([Sanskrit](glossary#sanskrit)) "A person who deserves respect from others," because they have reached the "final goal" of entering [nirvana](glossary#nirvana).
@@ -110,7 +101,6 @@ External links:
 
 - [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
----
 ## Aryadeva
 
 Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th [patriarch](glossary#ancestor) in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
@@ -119,7 +109,6 @@ External links:
 
 - [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
 
----
 ## Asanga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian [Sanskrit](glossary#sanskrit) exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
@@ -128,12 +117,10 @@ External links:
 
 - [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
 
----
 ## Auddhatya
 
 ([Sanskrit](glossary#sanskrit)) Usually translated as "distraction". Restlessness or agitation, restlessness of mind, or frivolity. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
 
----
 ## Avalokiteshvara
 
 [Sanskrit](glossary#sanskrit): Avalokiteśvara<br>
@@ -146,7 +133,6 @@ External links:
 
 - [Wikipedia: Avalokiteśvara](https://en.wikipedia.org/wiki/Avalokiteśvara)
 
----
 ## Avatamsaka Sutra
 
 The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower Ornament Scripture. Known for (naturally?) it's grandiose, "flowery" prose, describing a quest to meet a series of [Bodhisattvas](glossary#bodhisattva) who explain reality.
@@ -156,9 +142,9 @@ External links:
 - [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 ---
+
 # B
 
----
 ## Baso Dōitsu
 Chinese: Mazu Daoyi (Ma-tsu Tao-yi), 馬祖道一  
 Japanese: Baso Dōitsu  
