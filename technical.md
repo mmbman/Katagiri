@@ -1,8 +1,9 @@
+---
+title: Technical
+description: 
+---
 
 [Home](index#technical)
-
-----
-# Technical
 
 The [Katagiri Transcripts](https://katagiritranscripts.net) website is written in [Markdown](https://guides.github.com/features/mastering-markdown/) using [BBEdit for Mac](https://www.barebones.com/products/bbedit/), and is hosted on [GitHub Pages](https://pages.github.com).
 
