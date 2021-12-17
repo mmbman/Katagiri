@@ -4,6 +4,8 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1980) \| 
+[Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
+[Next](1981-07-18-Blue-Cliff-Record-Case-18) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
@@ -225,6 +227,8 @@ For instance, maybe a few days ago if a person died when he walked on the bridge
 
 ---
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+
+[Next: “Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18)
 
 [Home](index#1980)
 
