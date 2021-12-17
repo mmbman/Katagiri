@@ -1,5 +1,5 @@
 ---
-title: Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1
+title: Fukanzazengi – Talk 1
 description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
