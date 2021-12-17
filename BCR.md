@@ -1,14 +1,15 @@
-<a name="0"></a>
+---
+title: Blue Cliff Record Index
+description:
+---
+
 [Previous](dogen#0) – 
 [Home](index#BCR) – 
 [Next](books#0)
 
----
-# Blue Cliff Record Index
-
 This is an index to where koans from [The Blue Cliff Record](glossary#blue-cliff-record) appear in [Katagiri Roshi's](glossary#katagiri) talks. 
 
-Katagiri usually refers to ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR), which he says is the best translation (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
+Katagiri Roshi usually refers to ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR), which he says is the best translation (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
 
 **Note**: This is an early work in progress, and it only includes talks I have transcribed. I will update it as I add new transcripts.
 
