@@ -86,7 +86,7 @@ Let’s see when you were born, completely you forgot what you did. That means, 
 
 And then you completely depend on this explanation of human existence. And then you believe, “I get a happy life.” But this happy life is what? There is still big trouble. He has to be paralyzed. 
 
-Well, it’s not neccessary to be paralyzed. Let see modern civilization, modern human life: cancer, exactly the same. More or less we are scared, we are threatened by cancer, because there is no guarantee, “I am immune to become cancerous.” No guarantees. So more or less, everyone is threatened by cancer. And then when you [get] caner, what do you do? It’s a trap, because we don’t believe this.
+Well, it’s not neccessary to be paralyzed. Let see modern civilization, modern human life: cancer, exactly the same. More or less we are scared, we are threatened by cancer, because there is no guarantee, “I am immune to become cancerous.” No guarantees. So more or less, everyone is threatened by cancer. And then when you [get] cancer, what do you do? It’s a trap, because we don’t believe this.
 
 *[Tape change.]*
 
