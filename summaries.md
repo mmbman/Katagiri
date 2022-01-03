@@ -121,10 +121,17 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 
 ## 17. Save All Sentient Beings
 
-Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what ‘all’ means. It may not mean what we usually think. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
+Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what “all” means. It may not mean what we usually think; “all” means something which is closely connected with your individual life. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
 
 [Transcript](1980-03-15-Save-All-Sentient-Beings) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/03-1980" target="_blank">Original Recording</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">Original Recording</a>
+
+## 18. Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
+
+What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is transitory, fleeting, ephemeral. What is the opportunity of this human body and mind? How can we communicate human life to each other, in order to enter a peaceful world? Even though body and mind are going on in the rhythm of the universe, we are always poking our head into a hole, like a cat. Do we need to stay in the hole, turning it into a den? Katagiri Roshi discusses what is “right,” in the sense of “Right Thought” and “Right View” in Buddha’s Noble Eightfold Path. He also discusses how we should relate to modern civilization, and there is a story about his brother learning to swim in the Navy.
+
+[Transcript](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Original Recording</a>
 
 ## Introduction to Buddhism
 June 22, 1985
