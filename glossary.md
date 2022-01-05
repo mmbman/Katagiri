@@ -1,6 +1,6 @@
 ---
-title: Glossary
-description: 
+title: "Glossary"
+description: A work-in-progress glossary of terms used in the talks.
 ---
 
 [Home](index#appendices) \| 
