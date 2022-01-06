@@ -121,7 +121,7 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 
 ## 17. Save All Sentient Beings
 
-Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what “all” means. It may not mean what we usually think; “all” means something which is closely connected with your individual life. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
+Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what “all” means. It may not mean what we usually think: “all” means something which is closely connected with your individual life. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
 
 [Transcript](1980-03-15-Save-All-Sentient-Beings) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">Original Recording</a>
@@ -135,7 +135,7 @@ What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feel
 
 ## 19. Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2
 
-Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean, even if there is no one who we can complain to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
+Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
 
 [Transcript](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a>

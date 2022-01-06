@@ -9,7 +9,7 @@ description: March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what “all” means. It may not mean what we usually think; “all” means something which is closely connected with your individual life. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
+#### Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what “all” means. It may not mean what we usually think: “all” means something which is closely connected with your individual life. ‘Samskaras’ comes up again. Ultimately, we have to dive into the ocean.
 
 <a name="000"></a>
 ##### 0:00 start of recording
