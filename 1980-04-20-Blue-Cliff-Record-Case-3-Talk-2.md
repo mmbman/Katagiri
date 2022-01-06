@@ -9,7 +9,7 @@ description: April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a> \| 
 <a class="nr-custom-trigger">NaturalReader</a>
 
-#### Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
+#### Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
 
 <a name="000"></a>
 ##### 0:00 start of recording
