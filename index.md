@@ -243,8 +243,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 ## 1986
 
 1. [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
+1. [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
 
-1. Lay Ordination Lecture 2 of 7: Three Aspects of Repentance
 1. The Awakening of Faith (3/7/86)
 1. Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1
 1. The Awakening of Faith (3/14/86)
