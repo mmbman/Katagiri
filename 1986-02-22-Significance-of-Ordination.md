@@ -134,5 +134,7 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Home](index#1986) \| 
-[Next: “Lay Ordination Lecture 2 of 7: Three Aspects of Repentance”](1986-03-01-Three-Aspects-of-Repentance)
+[Previous](1985-06-22-Introduction-to-Buddhism) \| 
+[Next](1986-03-01-Three-Aspects-of-Repentance) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Original Recording</a>
 
