@@ -21,7 +21,7 @@ Case [Twenty] of Blue Cliff Record
 
 ##### end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: Not Yet Transcribed: 1981 Part 2](unfinished-1981-2)

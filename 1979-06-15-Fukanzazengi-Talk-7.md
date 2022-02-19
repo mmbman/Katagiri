@@ -173,7 +173,7 @@ Remember that story. That’s a beautiful story, isn’t it?
 
 ##### 51:04 end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being)

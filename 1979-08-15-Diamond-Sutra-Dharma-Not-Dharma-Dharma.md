@@ -185,7 +185,7 @@ So you must be free from the enlightenment that you have experienced – and the
 
 ##### 58:56 end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)

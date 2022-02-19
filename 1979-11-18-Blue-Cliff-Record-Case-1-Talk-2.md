@@ -373,7 +373,7 @@ The commentary is very helpful for you, so if you have time, read the commentary
 
 ##### 1:18:32 end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Blue Cliff Record, Case 2 – Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)

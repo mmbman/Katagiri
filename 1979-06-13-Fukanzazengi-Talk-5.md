@@ -533,7 +533,7 @@ That is from the first.
 
 ##### 1:35:31 end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6)

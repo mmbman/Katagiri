@@ -115,7 +115,7 @@ But practically speaking, for instance, if you want to master downhill skiing, a
 
 ##### end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: Glossary](glossary)

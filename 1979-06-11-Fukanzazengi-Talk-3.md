@@ -451,7 +451,7 @@ Such [delusions](glossary#delusion) come up, always. This is really flickering. 
 
 ##### 1:51:05 end of recording
 
----
+
 This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Fukanzazengi – Talk 4”](1979-06-12-Fukanzazengi-Talk-4)
