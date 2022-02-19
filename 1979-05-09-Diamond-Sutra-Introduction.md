@@ -224,7 +224,7 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 ##### 58:09 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Fukanzazengi – Talk 1”](1979-06-09-Fukanzazengi-Talk-1)
 

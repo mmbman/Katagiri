@@ -225,7 +225,7 @@ For instance, maybe a few days ago if a person died when he walked on the bridge
 ##### 1:15:03 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18)
 

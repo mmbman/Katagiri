@@ -98,7 +98,7 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 ##### end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Introduction to Buddhism” (June 22, 1985)](1985-06-22-Introduction-to-Buddhism)
 

@@ -223,7 +223,7 @@ Okay.
 ##### 1:16:06 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings)
 

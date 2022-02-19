@@ -390,7 +390,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 ##### 1:12:32 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Introduction to Buddhism”](1985-06-22-Introduction-to-Buddhism)
 

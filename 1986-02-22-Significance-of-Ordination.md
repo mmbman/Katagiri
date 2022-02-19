@@ -131,7 +131,7 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 ##### 44:33 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Lay Ordination Lecture 2 of 7: Three Aspects of Repentance”](1986-03-01-Three-Aspects-of-Repentance)
 

@@ -121,7 +121,7 @@ Do you have a question?
 
 ##### 53:06 end of recording
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Shobogenzo: Genjokoan – Talk 1, Part 1” (June 6, 1987)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 

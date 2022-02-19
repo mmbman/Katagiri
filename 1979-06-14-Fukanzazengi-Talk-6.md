@@ -430,7 +430,7 @@ This is an explanation of that thing. In the first book of [Abhidharmakosha](glo
 ##### 1:35:52 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Fukanzazengi – Talk 7”](1979-06-15-Fukanzazengi-Talk-7)
 

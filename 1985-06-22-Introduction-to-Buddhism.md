@@ -186,7 +186,7 @@ Thank you very much.
 
 ##### end of recording
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next: “Lay Ordination Lecture 1 of 7: Significance of Ordination” (February 22, 1986)](1986-02-22-Significance-of-Ordination)
 

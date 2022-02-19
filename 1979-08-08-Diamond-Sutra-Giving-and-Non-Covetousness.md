@@ -225,7 +225,7 @@ It is okay to pick up a lantern. But I really regret that people didn’t ask us
 ##### 1:07:09 end of recording
 
 
-This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
 [Next Talk: “Diamond Sutra: Dharma / Not Dharma / Dharma”](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
