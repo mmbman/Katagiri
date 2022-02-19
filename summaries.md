@@ -156,8 +156,6 @@ Katagiri Roshi introduces a series of seven lectures on lay ordination (Jukai). 
 [Transcript](1986-02-22-Significance-of-Ordination) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Original Recording</a>
 
------
-
 [Home](index) \| 
 [Previous](about) \| 
 [Next](1979-05-09-Diamond-Sutra-Introduction)
