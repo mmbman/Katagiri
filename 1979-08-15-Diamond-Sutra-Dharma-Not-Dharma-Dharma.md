@@ -6,8 +6,7 @@ description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#1979) \| 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Original Recording</a> \|
-<a class="nr-custom-trigger">NaturalReader</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Original Recording</a>
 
 #### If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: Nirmanakaya, Sambhogakaya, and Dharmakaya. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
@@ -193,13 +192,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Home](index#1979)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

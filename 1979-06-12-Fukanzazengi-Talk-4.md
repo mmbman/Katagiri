@@ -6,8 +6,7 @@ description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#1979) \| 
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Next](1979-06-13-Fukanzazengi-Talk-5) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Original Recording</a> \| 
-<a class="nr-custom-trigger">NaturalReader</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Original Recording</a> 
 
 #### Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
 
@@ -279,13 +278,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Home](index#1979)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

@@ -5,8 +5,7 @@ description:
 
 [Home](index) \| 
 [Previous](index) \| 
-[Next](summaries) \| 
-<a class="nr-custom-trigger">NaturalReader</a>     
+[Next](summaries)      
 
 ---
 
@@ -31,13 +30,3 @@ If you have comments or questions, you can [email me](mailto:michaelhoward@mac.c
 
 [Home](index)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

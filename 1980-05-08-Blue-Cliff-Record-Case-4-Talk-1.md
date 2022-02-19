@@ -6,8 +6,7 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#1980) \| 
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
 [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> \| 
-<a class="nr-custom-trigger">NaturalReader</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> 
 
 **This transcript is still in rough draft form.**
 
@@ -255,13 +254,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Home](index#1980)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

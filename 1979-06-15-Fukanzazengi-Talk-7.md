@@ -6,8 +6,7 @@ description: June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#1979) \| 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
 [Next](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-7" target="_blank">Original Recording</a> \| 
-<a class="nr-custom-trigger">NaturalReader</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-7" target="_blank">Original Recording</a> 
 
 #### The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
@@ -181,13 +180,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Home](index#1979)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

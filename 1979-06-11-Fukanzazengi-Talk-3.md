@@ -6,8 +6,7 @@ description: June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#1979) \| 
 [Previous](1979-06-10-Fukanzazengi-Talk-2) \| 
 [Next](1979-06-12-Fukanzazengi-Talk-4) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Original Recording</a> \|
-<a class="nr-custom-trigger">NaturalReader</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Original Recording</a>
 
 #### Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
 
@@ -459,13 +458,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Home](index#1979)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

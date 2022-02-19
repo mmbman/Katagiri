@@ -136,14 +136,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 [Next: “Lay Ordination Lecture 2 of 7: Three Aspects of Repentance”](1986-03-01-Three-Aspects-of-Repentance)
 
 [Home](index#1986)
-
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>

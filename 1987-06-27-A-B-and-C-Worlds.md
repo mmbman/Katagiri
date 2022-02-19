@@ -6,8 +6,7 @@ description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Home](index#1987) \| 
 [Previous](1987-06-20-Manas) \| 
 [Next](glossary) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Original Recording</a> \| 
-<a class="nr-custom-trigger">NaturalReader</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Original Recording</a> 
 
 **This transcript is still in rough draft form.**
 
@@ -123,13 +122,3 @@ This talk was transcribed by Kikan Michael Howard based on audio provided by [Mi
 
 [Home](index#1987)
 
-<script src="https://webreader.naturalreaders.com/nr-webreader.js" defer></script>
-<script>
-    window.addEventListener("DOMContentLoaded", function() {
-        if (typeof NRWebReader != 'undefined') {
-            window['NRWebReader'] = new NRWebReader({
-            widget_id: "p2syo58kbw"  // DO NOT REMOVE. This is your widget ID for your WebReader
-            });
-        }
-    }); 
-</script>
