@@ -26,6 +26,7 @@ For updates, you can follow [Katagiri Transcripts on Facebook](https://www.faceb
 If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
 
 ---
-[Home](index) \| 
-[Previous](index) \| 
-[Next](summaries)      
+[Next: Talk Summaries](summaries)
+
+[Home](index)
+
