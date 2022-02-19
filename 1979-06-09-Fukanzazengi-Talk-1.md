@@ -278,7 +278,7 @@ By the zazen, if you believe “I should be happy,” or “I want to do somethi
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Fukanzazengi – Talk 2”](1979-06-10-Fukanzazengi-Talk-2)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-05-09-Diamond-Sutra-Introduction) \| 
+[Next](1979-06-10-Fukanzazengi-Talk-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Original Recording</a> 

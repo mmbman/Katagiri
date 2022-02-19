@@ -137,4 +137,3 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 [Previous](1985-06-22-Introduction-to-Buddhism) \| 
 [Next](1986-03-01-Three-Aspects-of-Repentance) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Original Recording</a>
-

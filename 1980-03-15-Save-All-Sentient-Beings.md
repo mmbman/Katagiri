@@ -308,7 +308,7 @@ But first, get it. That’s why the Sixth Patriarch said it in that way.
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Blue Cliff Record, Case 3 – Talk 1”](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 
+[Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">Original Recording</a> 

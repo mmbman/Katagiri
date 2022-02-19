@@ -375,7 +375,7 @@ That’s why *[unintelligible]* for us. Why don’t you read “The Zen Doctrine
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Blue Cliff Record, Case 4 – Talk 1”](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 
+[Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \|
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Original Recording</a> 

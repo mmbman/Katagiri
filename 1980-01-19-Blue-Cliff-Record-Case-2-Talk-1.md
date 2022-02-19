@@ -220,7 +220,7 @@ That is the pointer. And then, the main case: ...
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Blue Cliff Record, Case 2 – Talk 2”](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
+[Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Original Recording</a> 

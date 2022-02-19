@@ -91,16 +91,11 @@ Well, it’s not neccessary to be paralyzed. Let see modern civilization, modern
 
 Well at that time, you want to scream. Because to be paralyzed, your life is, paralyzed is not something you can think. You understand paralyzed in your body. But it’s not such a matter of understanding, discussion. Not ... understanding, it is real thing you have to experience directly. When you become paralyzed, right in the bed every day. What do you do? Can you accept your life, saying “this is my karma”? Words are beautiful. But behind the karma, still we are screaming. Burning. Mind, emotions – lots of burning. 
 
-
-
-
-
 ##### end of recording
-
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next: “Introduction to Buddhism” (June 22, 1985)](1985-06-22-Introduction-to-Buddhism)
-
-[Home](index#1981)
-
+[Home](index#1981) \| 
+[Previous](unfinished-1981-1) \| 
+[Next](1985-06-22-Introduction-to-Buddhism) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Original Recording</a> 

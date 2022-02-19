@@ -562,7 +562,7 @@ That's why that is number six: total personality. Let's be there.
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Fukanzazengi – Talk 3”](1979-06-11-Fukanzazengi-Talk-3)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-06-09-Fukanzazengi-Talk-1) \| 
+[Next](1979-06-11-Fukanzazengi-Talk-3) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Original Recording</a> 

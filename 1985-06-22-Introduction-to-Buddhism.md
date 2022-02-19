@@ -188,7 +188,7 @@ Thank you very much.
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next: “Lay Ordination Lecture 1 of 7: Significance of Ordination” (February 22, 1986)](1986-02-22-Significance-of-Ordination)
-
-[Home](index#1985)
-
+[Home](index#1985) \| 
+[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Next](1986-02-22-Significance-of-Ordination) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Original Recording</a> 

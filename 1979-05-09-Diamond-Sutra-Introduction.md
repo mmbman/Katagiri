@@ -226,6 +226,7 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Fukanzazengi – Talk 1”](1979-06-09-Fukanzazengi-Talk-1)
-
-[Home](index#1979)
+[Home](index#1979) \| 
+[Previous](summaries) \| 
+[Next](1979-06-09-Fukanzazengi-Talk-1) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">Original Recording</a> 

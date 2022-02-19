@@ -188,7 +188,7 @@ So you must be free from the enlightenment that you have experienced – and the
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Blue Cliff Record, Case 1 – Talk 1”](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
+[Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Original Recording</a>

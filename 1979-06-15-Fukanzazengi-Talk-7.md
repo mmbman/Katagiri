@@ -176,7 +176,7 @@ Remember that story. That’s a beautiful story, isn’t it?
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Diamond Sutra: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
+[Next](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-7" target="_blank">Original Recording</a> 

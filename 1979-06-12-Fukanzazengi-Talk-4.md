@@ -274,7 +274,7 @@ And then all you have to do is, be one with death when death comes. That is shik
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Fukanzazengi – Talk 5”](1979-06-13-Fukanzazengi-Talk-5)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
+[Next](1979-06-13-Fukanzazengi-Talk-5) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Original Recording</a> 

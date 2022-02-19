@@ -227,7 +227,7 @@ It is okay to pick up a lantern. But I really regret that people didn’t ask us
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Diamond Sutra: Dharma / Not Dharma / Dharma”](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-08-01-Diamond-Sutra-Emptiness) \| 
+[Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Original Recording</a> 

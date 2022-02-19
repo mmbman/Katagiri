@@ -383,7 +383,7 @@ That's spiritual teacher. If you become a spiritual teacher, you must be like th
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
-
-[Home](index#1987)
-
+[Home](index#1987) \| 
+[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
+[Next](1987-06-20-Manas) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Original Recording</a> 

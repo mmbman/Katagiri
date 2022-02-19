@@ -230,7 +230,7 @@ Finally, self is broad, but what is that? I cannot explain. But, it’s there. I
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Diamond Sutra: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
+[Next](1979-08-01-Diamond-Sutra-Emptiness) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Original Recording</a> 

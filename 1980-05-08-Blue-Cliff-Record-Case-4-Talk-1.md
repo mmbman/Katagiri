@@ -250,7 +250,7 @@ Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very in
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Karma: Twelve Chains of Causation”](1980-07-01-Karma-Twelve-Chains-Of-Causation)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
+[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> 

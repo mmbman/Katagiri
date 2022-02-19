@@ -27,7 +27,7 @@ So before time and space is completely normal sense of ignorance. This is birth 
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Karma: Where Karma Originates”](1980-07-02-Karma-Where-Karma-Originates)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
+[Next](1980-07-02-Karma-Where-Karma-Originates) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Original Recording</a> 

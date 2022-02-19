@@ -536,7 +536,7 @@ That is from the first.
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
+[Next](1979-06-14-Fukanzazengi-Talk-6) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-5" target="_blank">Original Recording</a> 

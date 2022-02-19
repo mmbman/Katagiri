@@ -229,7 +229,7 @@ Is that okay? Do you have any other questions? We will have discussion (later?).
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
-
-[Home](index#1987)
-
+[Home](index#1987) \| 
+[Previous](1986-02-22-Significance-of-Ordination) \| 
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-1" target="_blank">Original Recording</a> 

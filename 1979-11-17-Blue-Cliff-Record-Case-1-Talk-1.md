@@ -154,7 +154,7 @@ Sometimes with trailing vines, there is something interrupted, so sometimes tree
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Blue Cliff Record, Case 1 – Talk 2”](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
+[Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths" target="_blank">Original Recording</a>

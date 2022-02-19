@@ -283,7 +283,7 @@ But if you see sort of a face that you can depend on, that face is really [a tri
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Blue Cliff Record, Case 3 – Talk 2”](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1980-03-15-Save-All-Sentient-Beings) \| 
+[Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Original Recording</a> 

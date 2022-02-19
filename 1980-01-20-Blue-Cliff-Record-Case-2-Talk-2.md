@@ -225,7 +225,7 @@ Okay.
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings)
-
-[Home](index#1980)
-
+[Home](index#1980) \| 
+[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| 
+[Next](1980-03-15-Save-All-Sentient-Beings) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-2-lecture-2" target="_blank">Original Recording</a> 

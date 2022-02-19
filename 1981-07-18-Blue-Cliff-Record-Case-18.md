@@ -392,7 +392,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next: “Introduction to Buddhism”](1985-06-22-Introduction-to-Buddhism)
-
-[Home](index#1981)
-
+[Home](index#1981) \| 
+[Previous](1980-07-03-Karma-Unmanifested) \| 
+[Next](1985-06-22-Introduction-to-Buddhism) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Original Recording</a> 

@@ -252,7 +252,7 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 
 #### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
 
-[Next Talk: “Diamond Sutra: Giving and Non-Covetousness”](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-
-[Home](index#1979)
-
+[Home](index#1979) \| 
+[Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
+[Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Original Recording</a>
