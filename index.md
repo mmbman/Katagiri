@@ -409,5 +409,4 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 <a name="end">
 
----
 [Go to top](https://katagiritranscripts.net)
