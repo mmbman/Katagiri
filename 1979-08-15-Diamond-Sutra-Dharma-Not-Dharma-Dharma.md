@@ -186,7 +186,7 @@ So you must be free from the enlightenment that you have experienced – and the
 ##### 58:56 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1979) \| 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 

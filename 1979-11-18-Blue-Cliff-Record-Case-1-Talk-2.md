@@ -374,7 +374,7 @@ The commentary is very helpful for you, so if you have time, read the commentary
 ##### 1:18:32 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1979) \| 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 

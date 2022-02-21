@@ -25,7 +25,7 @@ So before time and space is completely normal sense of ignorance. This is birth 
 
 ##### end of recording
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 

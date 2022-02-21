@@ -250,7 +250,7 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 ##### 1:10:15 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1979) \| 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 

@@ -306,7 +306,7 @@ But first, get it. That’s why the Sixth Patriarch said it in that way.
 ##### 1:09:29 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1980) \| 
 [Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 

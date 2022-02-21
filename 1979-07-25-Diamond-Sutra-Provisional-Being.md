@@ -228,7 +228,7 @@ Finally, self is broad, but what is that? I cannot explain. But, it’s there. I
 ##### 1:05:11 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1979) \| 
 [Previous](1979-06-15-Fukanzazengi-Talk-7) \| 

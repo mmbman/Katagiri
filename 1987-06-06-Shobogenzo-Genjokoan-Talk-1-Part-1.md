@@ -227,7 +227,7 @@ Is that okay? Do you have any other questions? We will have discussion (later?).
 
 ##### end of recording
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 

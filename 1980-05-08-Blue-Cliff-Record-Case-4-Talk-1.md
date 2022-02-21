@@ -248,7 +248,7 @@ Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very in
 ##### 56:08 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](http://www.mnzencenter.org/katagiri_talks.php).
+#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
 
 [Home](index#1980) \| 
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
