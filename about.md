@@ -13,7 +13,7 @@ These talks are a treasure trove of [dharma](glossary#dharma) material, most of 
 
   – Kikan Michael Howard
 
-For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](http://www.mnzencenter.org/katagiri/).
+For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](https://www.mnzencenter.org/katagiri-project.html).
 
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
