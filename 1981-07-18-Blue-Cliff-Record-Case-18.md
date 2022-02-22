@@ -390,7 +390,7 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 ##### 1:12:32 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
 
 [Home](index#1981) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 

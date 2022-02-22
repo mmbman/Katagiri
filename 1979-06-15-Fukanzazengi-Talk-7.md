@@ -174,7 +174,7 @@ Remember that story. That’s a beautiful story, isn’t it?
 ##### 51:04 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
 
 [Home](index#1979) \| 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 

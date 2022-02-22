@@ -225,7 +225,7 @@ It is okay to pick up a lantern. But I really regret that people didn’t ask us
 ##### 1:07:09 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard based on audio provided by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
 
 [Home](index#1979) \| 
 [Previous](1979-08-01-Diamond-Sutra-Emptiness) \| 
