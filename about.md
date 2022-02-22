@@ -7,7 +7,7 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 On careful listening, it becomes apparent that Katagiri Roshi often backed up and corrected his choice of English words and grammar as he spoke. I attempt to apply his own in-stream self-corrections in a style of intelligent transcription. My intent is to stay as true as possible to Katagiri Roshi's actual words, while also honoring what he was *saying*. This generally has the effect of smoothing out the grammar a bit, making the talks easier to read and understand. Words where I am unsure of the ideal transcription, or where I modify the choice of a preposition, or anything like that, are usually presented in brackets, [like this].
 
-Each talk requires many hours and several listens to carefully transcribe. That said, there may still be inaccuracies. This is a work-in-progress.
+Each talk requires multiple listens to carefully transcribe. That said, there may still be inaccuracies. This is a work-in-progress.
 
 These talks are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in [the books](resources#katagiri-books) that have been compiled from Katagiri Roshi’s teachings. The talks also convey his energy, enthusiasm, and particularly, his sense of humor. But really, more and more, I think the thing may be that these talks are brimming over with vital information, which flies by. I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
 
