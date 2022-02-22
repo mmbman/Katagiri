@@ -272,7 +272,7 @@ And then all you have to do is, be one with death when death comes. That is shik
 ##### 1:10:30 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1979) \| 
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 

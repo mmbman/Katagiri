@@ -373,7 +373,7 @@ That’s why *[unintelligible]* for us. Why don’t you read “The Zen Doctrine
 ##### 1:17:28 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1980) \| 
 [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 

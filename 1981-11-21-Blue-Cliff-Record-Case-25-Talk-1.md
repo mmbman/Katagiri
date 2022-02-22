@@ -93,7 +93,7 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 
 ##### end of recording
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1981) \| 
 [Previous](unfinished-1981-1) \| 

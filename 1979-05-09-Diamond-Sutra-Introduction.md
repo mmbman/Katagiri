@@ -224,7 +224,7 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 ##### 58:09 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1979) \| 
 [Previous](summaries) \| 

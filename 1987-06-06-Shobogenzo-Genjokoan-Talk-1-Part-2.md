@@ -257,7 +257,7 @@ So, always connected. Something like that.
 
 ##### end of recording
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org).
+#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1) \| 
