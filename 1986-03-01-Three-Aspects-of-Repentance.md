@@ -127,11 +127,11 @@ Then, the next practice is very important. If the bird comes into the cage, you 
 
 This is egolessness, the practice of egolessness. How beautiful it is. You don’t believe my talk, but it is really true. If you want to paint a portrait of the bird, you have to do it!
 
-> Then, paint a portrait of the tree, choosing the most beautiful of its branches for the bird. Then paint all the green foliage, and the wind’s freshness, and the dust of the sun...
+> Then, paint a portrait of the tree, choosing the most beautiful of its branches for the bird. Then paint all the green foliage, and the wind’s freshness, and the dust of the sun, and the noise of the creatures in the grasses in the summer heat.
 
 When you do this, all things become alive. You can make your life come alive. Even the trees. You can paint the persimmon, [and] simultaneously you can paint the air, and autumn. But without this practice, you cannot paint the autumn, and the air, the dust of the sun. 
 
-> ... and the noise of the creatures in the grasses in the summer heat. And then wait for the bird to decide to sing.
+> And then wait for the bird to decide to sing.
 >
 > If the bird doesn’t sing, it’s a bad sign.
 
