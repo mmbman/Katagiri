@@ -9,7 +9,7 @@ On close listening, it becomes apparent that Katagiri Roshi often backed up and 
 
 Each talk requires multiple listens over many hours to carefully transcribe. That said, there may still be inaccuracies. This is a work-in-progress.
 
-These talks are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in [the books](resources#katagiri-books) that have been compiled from Katagiri Roshi’s teachings. The talks also convey his energy, enthusiasm, and particularly, his sense of humor. But really, more and more, I think the thing may be that these talks are brimming over with vital information, which flies by. I am transcribing these talks as a way of studying them myself. I've already found a lot here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
+The talks convey Katagiri Roshi’s energy, enthusiasm, and particularly, his sense of humor. But also, they are a treasure trove of [dharma](glossary#dharma) material, most of which is not found in [the books](resources#katagiri-books) that have been compiled from Katagiri Roshi’s teachings. I am transcribing the talks as a way of studying them myself. I've already found a lot here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
 
   – Kikan Michael Howard
 
