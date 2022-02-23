@@ -35,7 +35,7 @@ Why do you have to live? Because you have to express this compassion. You should
 
 It is not something you try to understand, but you have to put yourself in the heart of this compassion. In other words, you should put yourself in the vastness of the universe. You don’t know what it is. We can explain using lots of words, but practically, you don’t understand it.
 
-Sitting here, you don’t understand the total picture of the Twin Cities. You can understand in a sense; you can know the total picture of Twin Cities through a map, through teaching, through words, through your experience – you can understand it. But practically, if you really want to see the total picture of the Twin Cities, [then] right now, right here, you have to go up to the top of the [IDS tower]. That’s it. Is this something you have to think [about]? It’s not. Beyond [whether] you understand or don’t understand, you have to put yourself right there. This is first. [It’s an] emergency; you have to do it. 
+Sitting here, you don’t understand the total picture of the Twin Cities. You can understand in a sense; you can know the total picture of Twin Cities through a map, through teaching, through words, through your experience – you can understand it. But practically, if you really want to see the total picture of the Twin Cities, [then] right now, right here, you have to go up to the top of the [IDS tower]. That’s it. (Transcriber’s Note: the IDS tower used to be the tallest building in downtown Minneapolis.) Is this something you have to think [about]? It’s not. Beyond [whether] you understand or don’t understand, you have to put yourself right there. This is first. [It’s an] emergency; you have to do it. 
 
 For instance, here is the doan task: hitting the small bells and the big bells, and you have to chant the title of the sutra. Most of you don’t have experience [doing this], but you know what the doan task is: hitting the big bell, the small bell, and chanting. You believe it seems pretty easy: hitting the big bell here, the small bell here. It seems to be simple, you know, because you’re familiar with that doan task every day. *[A few people chuckle.]* Do you think [this] is real understanding of the doan task? Even though your head becomes huge, [and you become a] so-called intellectual, wonderful person: no way. If you do it, if you start to take care of the doan task, you’re really confused! You don’t know how to do it, even the simple one. Even though before you [are] doan, you understand the procedures: you remember [that] first you hit the bell, and big bell, and the three bells, and then next the small bell, et cetera. But if you start to do it, you’re confused! You completely forget the second bell, you completely forget the third bell, and then instead of hitting the big bell, you hit the small bell. And the Ino says, “Shhh!” You know? *[Laughter.]* Something like that. 
 
@@ -83,7 +83,7 @@ And also, “cutting down a thicket of sandalwood” means something good, somet
 
 And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to the purity *and* to impurity, too. This is the essential nature of repentance. 
 
-So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert [which] I mentioned a couple of years ago. Do you remember? “How To Make A Portrait Of A Bird”. That’s very beautiful for children. 
+So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert [which] I mentioned a couple of years ago: “How To Make A Portrait Of A Bird”. Do you remember? That’s very beautiful for children. 
 
 In the beginning, he says, 
 
@@ -97,7 +97,9 @@ So he says, “First, paint the cage with the open door.” Next, he says:
 
 > Then, paint something pretty, something simple, something beautiful, something useful, for the bird.
 
-You have to paint something beautiful, something pretty, something simple – for what? Not for *you*, not for the cage. For the bird. Something beautiful, something simple for the bird means, beyond your intellectual sense. Anyway, you have to see yourself and also the vastness of space around, where all sentient beings exist. You have to see. That is called something beautiful – beyond your explanations. So we have to paint the air, not only paint the persimmon. If you want to paint the persimmon, you have paint the persimmon and also space, and autumn. How can you paint the autumn? But that is something beautiful, something pretty, something simple. And then, the persimmon appears on the canvas, in a simple way that is really beautiful.
+You have to paint something beautiful, something pretty, something simple – for what? Not for *you*, not for the cage. For the bird. Something beautiful, something simple for the bird means, beyond your intellectual sense. Anyway, you have to see yourself and also the vastness of space around, where all sentient beings exist. You have to see. That is called something beautiful – beyond your explanations. 
+
+We have to paint the air, not only paint the persimmon. If you want to paint the persimmon, you have paint the persimmon and also space, and autumn. How can you paint the autumn? But that is something beautiful, something pretty, something simple. And then, the persimmon appears on the canvas, in a simple way that is really beautiful.
 
 So, something pretty, something simple, something beautiful, something useful, for the bird. That is our practice, constantly. Even though you don’t understand it, anyway, paint it. Paint something pretty. That means you should go to the top of the IDS tower. You don’t believe it is something beautiful, but that’s alright. [If] you are following the Buddha’s teaching you should go there, you should put yourself [there] in that way. This is painting something beautiful.
 
@@ -105,7 +107,7 @@ So, something pretty, something simple, something beautiful, something useful, f
 
 If you paint something beautiful, don’t attach to it. You have to leave your painting in the woods, in the forest, and then *you* shouldn’t show up, you should hide behind [it]. This is [to] practice the truth. When you do gassho, you have to practice samadhi. What do you mean? Samadhi is really tranquil silence. So, you must be behind the gassho. You cannot move. If you move even just a little, immediately your head comes up, and [you start] arguing. 
 
-So that’s why this says, “Hide behind a tree without speaking, without moving. Sometimes the bird comes quickly.” Sometimes the bird comes, but strictly speaking, not sometimes, *always* the bird is exactly there. But according to the individual experience, we say “sometimes”: “Sometimes I can experience enlightenment through zazen.” But Buddha’s compassion is open to everyone. So *always*, there is a bird. But we don’t realize it. So individually, we say “sometimes”. We don’t know when. 
+So that’s why this says, “Hide behind a tree without speaking, without moving. Sometimes the bird comes quickly.” Sometimes the bird comes, but strictly speaking, not sometimes, *always* the bird is exactly there. But according to the individual experience, we say “sometimes”: “Sometimes I can experience enlightenment through zazen.” But Buddha’s compassion is open to everyone. So *always*, there is a bird. But we don’t realize it, so individually, we say “sometimes”. We don’t know when [the bird will appear].
 
 But this poet says, it doesn’t matter when [the bird] comes [or] how fast it comes. He says, 
 
@@ -135,15 +137,13 @@ When you do this, all things become alive. You can make your life come alive. Ev
  
  > ... A sign that the painting is bad. But if he sings, it’s a good sign, a sign that you can sign [the painting].
  
- “It’s bad” means, you “get” enlightenment, or a Ph.D., or medical doctorate, but it doesn’t work. When it doesn’t work, I think you should pay attention more carefully to that Ph.D., or get your own experience, until the bird starts to sing. And then when the bird starts to sing, that *is* your experience, your life. So, you can put the [signature]. But don’t sign it with your arrogance. So this poet says ... 
-
-*[Tape change.]*
+ “It’s bad” means, you “get” enlightenment, or a Ph.D., or medical doctorate, but it doesn’t work. When it doesn’t work, I think you should pay attention more carefully to that Ph.D., or get your own experience, until the bird starts to sing. And then when the bird starts to sing, that *is* your experience, your life. So, you can put the [signature]. But don’t sign it with your arrogance. So this poet says ...  
 
 > [Take one feather of the bird, and write] your name in the corner of the picture.
 
 *You* shouldn’t show up, because the whole world is alive, so you are just a corner. That’s enough. It’s not necessary. You are [the] whole life; [and the] whole life is working. And then, your life is just a corner; it’s enough. Don’t sign with your arrogance. 
 
-So, “take one feather of the bird” means, Buddha. You should take one of the ideas of the universe you have had. “The universe is the same and one ground”: that’s enough. You should use that feather, and then paint. Don’t paint a big name right in the middle of the canvas; no, just a corner. “And you write your name in the corner of the picture.” 
+So, “take one feather of the bird” means, Buddha. You should take one of the ideas of the universe you have had. “The universe is the same and one ground”: that’s enough. You should use that feather, and then paint. Don’t paint a big name right in the middle of the canvas; no. Just a corner. [The poem says,] “And you write your name in the corner of the picture.” 
 
 This is the poem. It’s a very beautiful one.
 
