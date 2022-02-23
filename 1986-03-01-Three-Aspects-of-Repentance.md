@@ -81,7 +81,9 @@ One more thing: technically, Zen Buddhism says, “Passing through a thicket of 
 
 And also, “cutting down a thicket of sandalwood” means something good, something pretty, something beautiful. Very naturally, we attach to something good, something pretty, something sweet. But we have to cut [it] down too; we have to always cut [it] down and pass through this one too. It’s not so easy. Particularly, if you do something good, we want to be proud of ourselves. We want to attach to our lives. 
 
-And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to the purity *and* to impurity, too. This is the essential nature of repentance. 
+And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to the purity *and to impurity*, too. This is the essential nature of repentance. 
+
+##### 34:09
 
 So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert [which] I mentioned a couple of years ago: “How To Make A Portrait Of A Bird”. Do you remember? That’s very beautiful for children. 
 
