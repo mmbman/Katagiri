@@ -147,7 +147,7 @@ When you do this, all things become alive. You can make your life come alive. Ev
 
 So, “take one feather of the bird” means, Buddha. You should take one of the ideas of the universe you have had. “The universe is the same and one ground”: that’s enough. You should use that feather, and then paint. Don’t paint a big name right in the middle of the canvas; no. Just a corner. [The poem says,] “And you write your name in the corner of the picture.” 
 
-This is the poem. It’s a very beautiful one.
+[That] is the poem. It’s a very beautiful one.
 
 ##### 47:29
 
@@ -161,7 +161,7 @@ Do you have a question?
 
 ##### 48:49
 
-**Question**: When you were talking about entering the life of the brambles and cutting down the sandalwood: why do have to cut down the sandalwood?
+**Question**: When you were talking about entering the life of the brambles and cutting down the sandalwood: why do you have to cut down the sandalwood?
 
 **Katagiri**: Because, particularly when you take care of your own life seriously, with great effort, very naturally you will see a good life, which you can show [as] a good example to others. Very naturally, you attach that good example you have demonstrated. So that’s why you have to pass through, instead of holding fast. “This is my own good example; everyone should learn [from this]” – you cannot say so. 
 
