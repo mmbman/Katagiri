@@ -11,7 +11,7 @@ Latest transcript: [“Lay Ordination Lecture 2 of 7: Three Aspects of Repentanc
 - [Talk Summaries](summaries)
 - [Search](search)
 
-Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988-89) [Appendices](#end)
+Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989) [Appendices](#end)
 
 ## 1979
 
@@ -365,7 +365,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Chanting Practive: Chanting Practice
 1. Disporting with the Buddhas: Transformation through Play
 
-## 1988-89
+## 1988
 
 1. Lay Ordination Lecture (2nd Series: 1 of 3): Depending on the Dharma
 1. Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance
@@ -393,6 +393,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo: Baika: Plum Blossoms – Talk 5
 1. Shobogenzo: Baika: Plum Blossoms – Talk 6
 1. Devotion: Walking Alone with Open Heart
+
+## 1989
 
 1. [Dealing With Death, Dealing With Life](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
