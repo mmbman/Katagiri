@@ -13,7 +13,7 @@ description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 ##### 0:00 start of recording
 
-(The recording begins with the community chanting the Verse of Opening the Sutras.)
+(The recording begins with the community chanting the Verse of Opening the Sutras:)
 
 Mujō jin jin mi myō no hō wa
 hyaku sen man go ni mo ai-o koto katashi

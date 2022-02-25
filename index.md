@@ -393,7 +393,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo: Baika: Plum Blossoms – Talk 5
 1. Shobogenzo: Baika: Plum Blossoms – Talk 6
 1. Devotion: Walking Alone with Open Heart
-1. Dealing With Death, Dealing With Life
+
+1. [Dealing With Death, Dealing With Life](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
 ## Appendices
 
