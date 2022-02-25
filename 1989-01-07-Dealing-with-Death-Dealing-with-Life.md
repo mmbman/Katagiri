@@ -15,15 +15,15 @@ description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
 (The recording begins with the community chanting the Verse of Opening the Sutras:)
 
-Mujō jin jin mi myō no hō wa
-hyaku sen man go ni mo ai-o koto katashi
-ware ima ken-mon shi ju-ji suru koto o etari
-negawakuwa nyorai no shin-jitsu-gi o geshi tatematsuran
+Mujō jin jin mi myō no hō wa  
+hyaku sen man go ni mo ai-o koto katashi  
+ware ima ken-mon shi ju-ji suru koto o etari  
+negawakuwa nyorai no shin-jitsu-gi o geshi tatematsuran  
 
-An unsurpassed, penetrating and perfect dharma
-Is rarely met with even in a hundred thousand million kalpas. 
-Having it to see and listen to, remember and accept,
-I vow to taste the truth of the Tathagata’s words.
+An unsurpassed, penetrating and perfect dharma  
+Is rarely met with even in a hundred thousand million kalpas.  
+Having it to see and listen to, remember and accept,  
+I vow to taste the truth of the Tathagata’s words.  
 
 **Katagiri Roshi**: Next week, I’m going to see a person who is going to die in prison. He’s one of the friends who practiced here for a couple of years. He is going to die from throat cancer. 
 
@@ -135,19 +135,19 @@ If you have something to say, or if you want to send a card to him, I am willing
 
 (Closing chant:)
 
-Shu-jō mu-hen sei-gan-dō
-bon-nō mu-jin sei-gan-dan
-ho-mon mu-ryō sei-gan-gaku
-butsu-do mu-jō sei-gan-jō
+Shu-jō mu-hen sei-gan-dō  
+bon-nō mu-jin sei-gan-dan  
+ho-mon mu-ryō sei-gan-gaku  
+butsu-do mu-jō sei-gan-jō  
 
-Sentient beings are numberless;
-I vow to save them.
-Desires are inexhaustible;
-I vow to put an end them.
-The Dharmas are boundless;
-I vow to master them.
-The Buddha’s Way is unsurpassable;
-I vow to attain it.
+Sentient beings are numberless;  
+I vow to save them.  
+Desires are inexhaustible;  
+I vow to put an end them.  
+The Dharmas are boundless;  
+I vow to master them.  
+The Buddha’s Way is unsurpassable;  
+I vow to attain it.  
 
 *[Closing bows with bells.]*
 
