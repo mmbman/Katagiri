@@ -4,7 +4,7 @@ description: A work-in-progress glossary of terms used in the talks.
 ---
 
 [Home](index#appendices) \| 
-[Previous](1987-06-27-A-B-and-C-Worlds) \| 
+[Previous](1989-01-07-Dealing-with-Death-Dealing-with-Life) \| 
 [Next](dogen)
 
 ---
