@@ -164,7 +164,14 @@ Katagiri Roshi explains “repentance” in Buddhism, which is also sometimes ca
 [Transcript](1986-03-01-Three-Aspects-of-Repentance) \| 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/three-aspects-of-repentance" target="_blank">Original Recording</a>
   
-  
+## Dealing with Death, Dealing with Life
+January 7, 1989
+
+Katagiri Roshi discusses how we should practice with those who are ill or dying. We have to deeply understand human suffering and pain. There shouldn’t be an expectation that there is a certain way to die; lots of emotions come up, and we should be right there with it. Also, we should practice a feeling togetherness with those who are ill or dying, because there is no separation between us and them. We need to practice this in our day-to-day lives, or we will not be ready to offer compassion in difficult times. This everyday practice may seem to be small, trifling things, but it is very important for us; it makes our personality mature. It includes expressing emotions in appropriate ways and times, not recklessly. Constantly we must be in the realm of oneness or wholeness. We need oneness, and also oneness needs *us*. We have to receive oneness, and deal with it, and make it alive. To illustrate the Japanese word *ki*, Katagiri Roshi talks about his love of the American television show *Bewitched*.
+
+[Transcript](1989-01-07-Dealing-with-Death-Dealing-with-Life) \| 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-11365083" target="_blank">Original Recording</a>
+
 
 [Home](index) \| 
 [Previous](about) \| 
