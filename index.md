@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [“Lay Ordination Lecture 2 of 7: Three Aspects of Repentance”](1986-03-01-Three-Aspects-of-Repentance) ([1986](#1986)) – updated Feb. 23, 2022.
+Latest transcript: [“Dealing with Death, Dealing with Life”](1989-01-07-Dealing-with-Death-Dealing-with-Life) ([1989](#1989)) – posted Feb. 26, 2022.
 
 # Table of Contents
 
