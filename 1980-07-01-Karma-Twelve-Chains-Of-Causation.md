@@ -5,12 +5,13 @@ description: July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
-[Next](1980-07-02-Karma-Where-Karma-Originates) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Original Recording</a> 
+[Next](1980-07-02-Karma-Where-Karma-Originates) 
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
 
-(The online audio of this first talk is only about five minutes long: apparently the first side of the tape was blank. Very unfortunate. However, the talk from the following day appears after this one.)
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Listen to this talk on mnzencenter.org</a> 
+
+(Transcriber’s Note: The online audio of this first talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the talk from the following day picks up after this one.)
 
 … the words come up. And then, everyone, can people look at this form of circles(?). And then how do they agree with this existence of a form of circle, coming from a movement. How? Just words. Without words, we cannot get our agreement. Don’t you think so?
 
@@ -29,5 +30,4 @@ So before time and space is completely normal sense of ignorance. This is birth 
 
 [Home](index#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
-[Next](1980-07-02-Karma-Where-Karma-Originates) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Original Recording</a> 
+[Next](1980-07-02-Karma-Where-Karma-Originates)

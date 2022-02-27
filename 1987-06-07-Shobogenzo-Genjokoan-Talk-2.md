@@ -5,10 +5,11 @@ description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
-[Next](1987-06-20-Manas) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Original Recording</a> 
+[Next](1987-06-20-Manas)
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -385,5 +386,4 @@ That's spiritual teacher. If you become a spiritual teacher, you must be like th
 
 [Home](index#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
-[Next](1987-06-20-Manas) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Original Recording</a> 
+[Next](1987-06-20-Manas)

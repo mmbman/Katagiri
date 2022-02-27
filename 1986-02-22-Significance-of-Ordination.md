@@ -5,10 +5,11 @@ description: "February 22, 1986 Dharma Talk by Dainin Katagiri Roshi"
 
 [Home](index#1986) \| 
 [Previous](1985-06-22-Introduction-to-Buddhism) \| 
-[Next](1986-03-01-Three-Aspects-of-Repentance) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Original Recording</a>
+[Next](1986-03-01-Three-Aspects-of-Repentance)
 
 #### Katagiri Roshi introduces a series of seven lectures on lay ordination (Jukai). In this first talk, he discusses the significance of lay ordination. The goal of lay ordination is explained as three points: first, realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration for living our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: the ordinary sense of knowledge; knowing something beyond the ordinary sense, in the world of impermanence; and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize the three points. Even if we don’t understand this, we can still take action to enter this world of the Buddha.
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Listen to this talk on mnzencenter.org</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -135,5 +136,4 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 
 [Home](index#1986) \| 
 [Previous](1985-06-22-Introduction-to-Buddhism) \| 
-[Next](1986-03-01-Three-Aspects-of-Repentance) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Original Recording</a>
+[Next](1986-03-01-Three-Aspects-of-Repentance)

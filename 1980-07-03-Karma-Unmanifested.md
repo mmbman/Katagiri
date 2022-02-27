@@ -5,10 +5,11 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Original Recording</a> 
+[Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -229,5 +230,4 @@ For instance, maybe a few days ago if a person died when he walked on the bridge
 
 [Home](index#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Original Recording</a> 
+[Next](1981-07-18-Blue-Cliff-Record-Case-18)

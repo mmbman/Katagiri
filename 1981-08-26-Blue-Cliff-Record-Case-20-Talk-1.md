@@ -5,10 +5,11 @@ description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1981) \| 
 [Previous](unfinished-1981-1) \| 
-[Next](unfinished-1981-2) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Original Recording</a>
+[Next](unfinished-1981-2) 
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -26,5 +27,4 @@ Case [Twenty] of Blue Cliff Record
 
 [Home](index#1981) \| 
 [Previous](unfinished-1981-1) \| 
-[Next](unfinished-1981-2) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Original Recording</a>
+[Next](unfinished-1981-2)

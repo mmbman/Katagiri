@@ -5,10 +5,11 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-1" target="_blank">Original Recording</a> 
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -231,5 +232,4 @@ Is that okay? Do you have any other questions? We will have discussion (later?).
 
 [Home](index#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-1" target="_blank">Original Recording</a> 
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)

@@ -5,12 +5,13 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1980) \| 
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> 
+[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
 
 (Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 ##### 0:00 start of recording
@@ -252,5 +253,4 @@ Tomorrow, I’d like to read the commentary by Engo Zen Master. It’s a very in
 
 [Home](index#1980) \| 
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Original Recording</a> 
+[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)

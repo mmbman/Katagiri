@@ -5,10 +5,11 @@ description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1981) \| 
 [Previous](unfinished-1981-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Original Recording</a> 
+[Next](1985-06-22-Introduction-to-Buddhism)
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 ##### start of recording
@@ -97,5 +98,4 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 
 [Home](index#1981) \| 
 [Previous](unfinished-1981-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Original Recording</a> 
+[Next](1985-06-22-Introduction-to-Buddhism)

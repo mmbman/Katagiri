@@ -5,10 +5,11 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1980) \| 
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-[Next](1980-07-03-Karma-Unmanifested) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Original Recording</a> 
+[Next](1980-07-03-Karma-Unmanifested)
 
-**This transcript is still in rough draft form.**
+**This transcript is in rough draft form.**
+
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 ##### 0:00 start of recording 
@@ -267,5 +268,4 @@ Okay? Do you understand?
 
 [Home](index#1980) \| 
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-[Next](1980-07-03-Karma-Unmanifested) \| 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Original Recording</a> 
+[Next](1980-07-03-Karma-Unmanifested)
