@@ -153,7 +153,7 @@ So, “take one feather of the bird” means, Buddha. You should take one of the
 
 The third condition is ritual. 
 
-Ritual is attaining “kannō-dōkō”, which means “interacting communion of appearance and response.” Through the poem, you can see this. Ritual is constantly painting a portrait of your life; communicating and trying to have interacting communion between you and the universe. Not you and something small; the universe. This is a ritual. That’s why without ritual, you cannot do *anything*.
+Ritual is attaining *kannō-dōkō*, which means “interacting communion of appearance and response.” Through the poem, you can see this. Ritual is constantly painting a portrait of your life; communicating and trying to have interacting communion between you and the universe. Not you and something small; the universe. This is a ritual. That’s why without ritual, you cannot do *anything*.
 
 So, [those are the] three conditions which are necessary for repentance. 
 
