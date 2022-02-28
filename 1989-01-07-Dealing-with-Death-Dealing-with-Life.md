@@ -108,7 +108,7 @@ So that is what? That is the simple practice of zazen. If you do it, you can exp
 
 If you need source, so-called dharma or truth, then naturally truth or dharma needs you. That’s why Dogen Zenji always mentions that when you become a cook, your concentration is always going to the vegetables you are dealing with; naturally vegetables are coming back. I don’t mean you should always be imagining that. It means, day to day, from moment to moment, you have to deal with the vegetables, water, pans, and your clothes, and toilet paper; you should deal all things in that way. Then, all sentient beings [are] coming back to you. You need all sentient beings, and all sentient beings need you. That is our practice, day to day. 
 
-And then, [if you are practicing,] even though you see a person who is senile or vegetative, or a person with cerebral death, you can deal with them as Buddha from the beginning to end. 
+And then, [if you are practicing,] even though you see a person who is senile, or a person who is vegetative, or a person with cerebral death, you can deal with them as Buddha from the beginning to end. 
 
 ##### 45:58
 
