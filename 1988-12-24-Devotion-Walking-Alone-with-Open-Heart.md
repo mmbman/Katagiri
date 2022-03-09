@@ -171,11 +171,13 @@ Anyway, we have to deal with human problems in the sangha – but first, standin
 
 ##### 1:07:30
 
-In January we will have a “community building workshop”. That’s interesting. So I think you will see lots of complaints from individuals at that workshop. But don’t be confused, okay? Just listen. And you should realize: that is human. If you open your heart, how many complaints are there? Millions. *[Laughter.]* How many satisfactions are there? Just a little bit. *[He laughs.]* Myriad dissatisfactions there. But you don’t know what the dissatisfactions are. You don’t know from where the dissatisfactions come. That’s why you’re confused. Satisfaction is just a little amount.
+In January we will have a “community building workshop”. That’s interesting. I think you will see lots of complaints from individuals at that workshop. But don’t be confused, okay? Just listen. And you should realize: that is human. If you open your heart, how many complaints are there? Millions. *[Laughter.]* How many satisfactions are there? Just a little bit. *[He laughs.]* Myriad dissatisfactions there. But you don’t know what the dissatisfactions are. You don’t know from where the dissatisfactions come. That’s why you’re confused. Satisfaction is just a little amount.
 
 If you go to this workshop, I think everyone says their complaints, their ideas, and criticisms and blames; lots of things happen. The abbot shouldn’t be there, because if I am there, people won’t say everything they want to say. So I am not allowed to be there; that’s fine. You should open your basket and take out the many complaints. But don’t be confused. I think you should [...] very deeply and carefully, with tranquility, taste [that] this is not others’ problem, this is a human problem. This is human, not only a particular person. 
 
 And then next, you have to think how to build up this sangha as a peaceful group. Please: I pray for it. *[He laughs.]*
+
+Do you have some questions? Anything is fine.
 
 **Question**: The point of the community building working workshop is to try to build up our peaceful sangha.
 
@@ -185,23 +187,19 @@ And then next, you have to think how to build up this sangha as a peaceful group
 
 **Katagiri**: Yeah, we don’t know. “We don’t know” means there are negative and positive possibilities there. 
 
-**Same person**: Yeah, so you should not emphasize the negative possibilities.
+**Same person**: Yeah, so you should not emphasize the negative possibilities only.
 
 **Katagiri**: No. But actually, negative things coming up *[unintelligible]*.
 
 **Same person**: Maybe; we don’t know.
 
-**Katagiri**: May be. But that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this family workshop, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this kind of particular workshop. But most of who are asked see a little more the negative aspect of sangha than positive. That’s why we try to. So if you have this workshop, I think the negative is coming up. But I don’t thing we’re always negative. So positive things coming up. If positive things always coming up, that’s lucky. I hope. 
+**Katagiri**: May be. But that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this “family workshop”, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this particular kind of workshop. Most of those who are asked see a little more the negative aspect of sangha than the positive. That’s why we try to [have the workshop]. So if you have this workshop, I think the negative is coming up. But I don’t think we’re always negative; positive things come up. If only positive things are coming up, that’s lucky – real lucky. I hope [for that].
 
 ##### 1:12:11
 
-**Question**: You were talking about criticism earlier. How does one criticize without criticism leading to conflict?
+**Question**: You were talking about criticism earlier. How does one criticize without criticism leading to conflict? Because sometimes it’s probably necessary to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
 
-**Katagiri**: How to criticize without... ?
-
-**Question**: Because sometimes it’s necessary probably to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
-
-**Katagiri**: Criticism is not necessary, broadly speaking. No. We don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world called dharma. So, no criticism at that place. Okay? But that universal place, world, arises constantly in a different moment, in other words, different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetra. Then, what kind of color is your life? You are black? Yes sir. Then the black color, see the white. And then, always white cannot be accepted as white; white is accepted in terms of black. That is conflict coming up. 
+**Katagiri**: Criticism is not necessary, broadly speaking. No. We don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma. [There is] no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetra. Then, what kind of color is your life? You are black? Yes sir. Then the black color, see the white. And then, always white cannot be accepted as white; white is accepted in terms of black. That is conflict coming up. 
 
 I think it is not necessary to criticize, basically. If it is necessary, I think you should walk with some person, sharing your good aspect. Sharing not criticism, walk with them, instead of giving words. Give your hands. If you see something lacking. *[Unintelligible.]* You try to walk with him or her, and give a hand to them, and walk. In order to walk, basically, more or less, you need a peaceful way of life. Because you don’t walk alone. So you have to walk with people. And then, conflict comes out not as an idea, conflict comes out as something real. You have to deal with it right now. Stumble over the rock, and then you give a hand, instead of [saying,] “Your walking is careless.” Give a hand to him or her, and spring back again, and walk.
 
