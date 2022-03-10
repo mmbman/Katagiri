@@ -5,7 +5,7 @@ description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1987) \| 
 [Previous](1987-06-20-Manas) \| 
-[Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)
+[Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 
 **This transcript is in rough draft form.**
 
@@ -121,4 +121,4 @@ But practically speaking, for instance, if you want to master downhill skiing, a
 
 [Home](index#1987) \| 
 [Previous](1987-06-20-Manas) \| 
-[Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)
+[Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)

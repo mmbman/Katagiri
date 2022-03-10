@@ -4,7 +4,7 @@ description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1989) \| 
-[Previous](1987-06-27-A-B-and-C-Worlds) \| 
+[Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 
 [Next](glossary)
 
 #### Katagiri Roshi discusses how we should practice with those who are ill or dying. We have to deeply understand human suffering and pain. There shouldn’t be an expectation that there is a certain way to die; lots of emotions come up, and we should be right there with it. Also, we should practice a feeling togetherness with those who are ill or dying, because there is no separation between us and them. We need to practice this in our day-to-day lives, or we will not be ready to offer compassion in difficult times. This everyday practice may seem to be small, trifling things, but it is very important for us; it makes our personality mature. It includes expressing emotions in appropriate ways and times, not recklessly. We need oneness, and also oneness needs *us*. We have to receive oneness, and deal with it, and make it alive. To illustrate the Japanese word *ki*, Katagiri Roshi talks about his love of the American television show *Bewitched*.
@@ -157,5 +157,5 @@ I vow to attain it.
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1989) \| 
-[Previous](1987-06-27-A-B-and-C-Worlds) \| 
+[Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 
 [Next](glossary)
