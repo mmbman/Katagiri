@@ -73,77 +73,123 @@ The Buddha mentions this. In Sutta Nipāta, which are the oldest Buddhist script
 
 If you believe in the dharma, and receive it and deal with it, and live in it, it is just like this.
 
-“A tranquil sage is he”: First you must be tranquil, because the six senses must be calmed down, otherwise you don’t see the panoramic picture of existence. In other words, [that is] the panoramic picture of how all consciousness is functioning day to day, moment after moment. Your six senses must be calmed down [to] become the seventh consciousness, [which is] called original self consciousness. Original self consciousness is very calmed down. And then [...] this original self consciousness calms down again and touches the whole universe. At that time, it is called *calm state of consciousness*. “The universe” means your consciousness calms down and touches all things without exception [which are] constantly related with you. This is called “the tranquil sage”. Everyone [can] become [this], even [if only] for a moment. This is the practice for us. 
+> A tranquil sage is he
 
-“who steadfast”: if you want to receive the dharma, first you have to become tranquil. And then, how do you deal with [things]? Then you have to be steadfast or stable; imperturbable. 
+First you must be tranquil, because the six senses must be calmed down, otherwise you don’t see the panoramic picture of existence. In other words, [that is] the panoramic picture of how all consciousness is functioning day to day, moment after moment. Your six senses must be calmed down [to] become the seventh consciousness, [which is] called original-self consciousness. Original-self consciousness is very calmed down. And then [...] this original-self consciousness calms down again and touches the whole universe. At that time, it is called *calm state of consciousness*. “The universe” means your consciousness calms down and touches all things without exception [which are] constantly related with you. This is called “the tranquil sage”. Everyone [can] become [this], even [if only] for a moment. This is the practice for us. 
 
-“walks alone”: [The tranquil sage] walks alone, step by step, because in the moment, you are alone. Life or death occurs in the moment. In other words, life and death are nothing but the moment; that’s it. We don’t believe life is the moment, because in our lives there are lots of choices. But if you see death, immediately you can taste it: death is exactly the moment. Death is not something you can think of objectively. Death is nothing objective. You must be *there*, exactly. That is a moment. 
+> who steadfast
+
+If you want to receive the dharma, first you have to become tranquil, and then how do you deal with [things]? Then you have to be steadfast or stable; imperturbable. 
+
+> walks alone
+
+[The tranquil sage] walks alone, step by step, because in the moment, you are alone. Life or death occurs in the moment. In other words, life and death are nothing but the moment; that’s it. We don’t believe life is the moment, because in our lives there are lots of choices, but if you see death, immediately you can taste it: death is exactly the moment. Death is not something you can think of objectively. Death is nothing objective; you must be *there*, exactly. That is a moment. 
 
 Death is nothing but the momentum of energy, life is the momentum of energy, connected with all sentient beings without exception. That’s enormous energies; you can never control it. So you have to walk alone, right in the middle of the moment. That’s it; that’s all you can do. Even if I give you a wonderful Buddha’s statement before you die, you can accept it, but still you walk alone.
 
-“Unmoved by blame and by praise”: Walking alone means “unmoved by blame and by praise”. In other words, you mustn’t be moved by anything. You can see objectively, or you can hear objectively, or you can taste objectively, [but] you shouldn’t be moved. That means you shouldn’t be tossed away.
+> unmoved by blame and by praise,
 
-Blame and praise are almost the same for us, because whichever you get, we are always tossed away. Particularly blaming: if somebody blames us or abuses us, it’s pretty easy for us to be confused. [...] In the atmosphere of American Buddhism, many things happen in the sangha: blaming or praising, criticism, confusions, bewilderment. And then we don’t know the meaning of devotion to the dharma, or Buddhism, because we are completely tossed away by them. That’s why we practice *calming down*. That’s why we need the practice of just sitting, beyond whether you are confused or not. So that is “unmoved by blame and praise.” 
+Walking alone means “unmoved by blame and by praise”. In other words, you mustn’t be moved by… well, anything. You can see objectively, or you can hear objectively, or you can taste objectively, [but] you shouldn’t be moved. That means you shouldn’t be tossed away.
 
-“Unmoved by blame and praise” is like “the lion who is not scared by noises.” Whatever kind of animal appears, the lion is always calm. And [also] “the breeze that is not to be caught in a net”:  air or water are never caught by the net.
+Blame and praise are almost the same for us, because whichever you get, we are always tossed away. Particularly blaming: if somebody blames us or abuses us, it’s pretty easy for us to be confused. 
 
-“Like the lotus that blooms unsullied above the muddy water”: you also know that one. 
+In the atmosphere of American Buddhism, many things happen in the sangha: blaming or praising, criticism, confusions, bewilderment. And then we don’t know the meaning of devotion to the dharma, or Buddhism, because we are completely tossed away by them. That’s why we practice *calming down*. That’s why we need the practice of just sitting, beyond whether you are confused or not. So that is “unmoved by blame and praise.” 
 
-“A leader he, not led”: that is also important. You must always be a leader. *Leader* means you must be master of yourself, in whatever situation you may be in. You are not led by something. Particularly in difficulties, it’s very difficult to be a leader for yourself, for all sentient beings. *Leader* means you must manifest yourself in the simplest way. In other words, don’t change your life so much [because of] some difficulty. Just walk step by step; this is the basic pace of walking in life when there is not much excitement. [When there is excitement,] you try to scoop the water or air by net. Or sometimes you try to scoop some water from the ocean [of] knowledge, but your head and body are just like a bamboo basket, always leaking. *[He laughs.]* That’s what we always do.
+> like the lion who is not scared by noises,
 
-Recently I think that people are always very [eager] to do something exciting and bracing and confusing, and also they struggle so much with fighting. And then everyone without exception is going – where? Where are you going? What is the terminal station of your life? It’s very simple. It is exactly the end of your life, but simultaneously, that end of your life is the beginning of [your] life. That is the terminal station. How can I understand the beginning of life as the end of life? We don’t believe it – but this is the simplest way of life. 
+“Unmoved by blame and praise” is like “the lion who is not scared by noises.” Whatever kind of animal appears, the lion is always calm. And also…
 
-People are always struggling, fighting, screaming, and blaming – that’s pretty noisy. And we are very confused by the noises. We are never lions; we become spitzes, dogs: always barking at somebody else. While the spitz has a host, the spitz enjoys very much barking at somebody else; but if he doesn’t have his host, he cowers and is running away instead of barking. Do you understand? I always say that is a characteristic of spitzes. 
+> the breeze that is not to be caught in a net,
 
-If you receive the dharma, and deal with the dharma, and are living the dharma, it is just like this. This is not a dogmatic way of life (so to speak). It’s very strong: you are you. From the beginning to end, you have to take care of the moment, day to day. This is not dogmatic. Next, that self is completely open to everything.
+Air or water are never caught by the net.
+
+> like the lotus that blooms unsullied above the muddy water,
+
+This is [similar]; you know that [one]. 
+
+> a leader he, not led.
+
+That is also important. You must always be a leader. *Leader* means you must be master of yourself, in whatever situation you may be in. You are not led by something. 
+
+Particularly in difficulties, it’s very difficult to be a leader for yourself, for all sentient beings. *Leader* means you must manifest yourself in the simplest way. In other words, don’t change your life so much because of some difficulty. Just walk step by step; this is the basic pace of walking in life when there is not much excitement. [When there is excitement,] you try to scoop the water or air by net. Or sometimes you try to scoop some water from the ocean [of] knowledge, but your head and body are just like a bamboo basket, always leaking. *[He laughs.]* That’s what we always do.
+
+Recently I think that people are always very [eager] to do something exciting and bracing and confusing, and also they struggle so much with fighting. And then everyone without exception is going – where? Where are you going? What is the terminal station for your life? It’s very simple. The terminal station is exactly the end of your life, but simultaneously, that end of your life is the beginning of [your] life. How can I understand the beginning of life as the end of life? We don’t believe it – we don’t know – but this is the simplest way of life. 
+
+People are always struggling, fighting, screaming, and blaming – that’s pretty noisy. And we are very confused by the noises. We are never lions; we become *spitzes*, dogs: always barking at somebody else. *[Laughter.]* While the spitz has a host, the spitz enjoys very much barking at somebody else; but if he doesn’t have his host, he cowers and is running away instead of barking. Do you understand? I always say that is a characteristic of spitzes. 
+
+If you receive the dharma, and deal with the dharma, and are living the dharma, it is just like this. This is not a dogmatic way of life (so to speak). It’s very strong: *you* are *you*. From the beginning to end, [you have to be] in the moment, you have to take care of the moment, day to day. This is not dogmatic. Next, that self is completely open to everything.
 
 ##### 39:02
 
 Buddha says, 
 
-> Practicing benevolence, equanimity, compassion, and sympathy, seeking release, unobstructed by anything of the world, roam like the unicorn, alone.
+> Practicing benevolence, equanimity, compassion, and sympathy,  
+> seeking release, unobstructed by anything of the world,  
+> roam like the unicorn, alone.
 >
-> (From *Khaggavisana Sutta*, translated by G. F. Allen. Unicorn means rhinoceros.)
+> (From *Khaggavisana Sutta*, translated by G. F. Allen. “Unicorn” probably means rhinoceros.)
 
-So you walk alone like a unicorn. A unicorn has one horn; that is a symbol of aloneness. Everyone has to walk [alone] in the human world. But that is not a dogmatic way of life, because Buddha mentions practicing *benevolence*. Your presence must be benevolent to everyone or everything, in many ways. Practicing benevolence, you must be equanimous: magnificent, and calm, and steadfast. 
+So you walk alone like a unicorn. A unicorn has one horn; that is a symbol of aloneness. Everyone has to walk [alone] in the human world, but that way of life is not dogmatic, because Buddha mentions practicing *benevolence*. Your presence must be benevolent to everyone or everything, in many ways. Practicing benevolence, you must be equanimous: magnificent, and calm, and steadfast. 
 
-And [you must practice] compassion and sympathy. You must express your compassion under all circumstances. Sympathy is expressed when you meet certain circumstances: when somebody feels sad, et cetera, and you can help him out, something like that. But compassion is a little deeper: it must be operating under all circumstances. That is real love. That is the original nature of human being, which everyone has.
+And [you must practice] compassion and sympathy. You must express your compassion under all circumstances. Sympathy is expressed when you meet certain circumstances: when somebody feels sad, et cetera, and you can help him out, something like that. But compassion is a little deeper: it must be operating under all circumstances. That is real love. This is the original nature of human being, which everyone has.
 
 *[Tape change.]*
 
-... everyone is a completely beautiful being, beyond human speculation, because everyone has *compassion*, which is profound and sublime: helping, sharing his or her life with all sentient beings, without exception. 
+... everyone is a completely beautiful being, beyond human speculation, because everyone has *compassion*, which is profound and sublime: sharing his or her life with all sentient beings, without exception. 
 
-“Seeking release”: We are always seeking release. *Release* means we want to be peaceful. But if you start to seek for peace, then under the beautiful flag of peace, we start to fight. So then peace becomes no longer peace. That always happens. But originally, we are always seeking for peace… release, emancipation. Release from object and subject; perfect peace. 
+> seeking release
 
-“Unobstructed by anything of the world, roam like the unicorn, alone”: You shouldn’t ignore anything of the world; you cannot be alone. “Unobstructed by anything of the world” is your presence. Your presence is already deeply and constantly connected with everything without exception, in some sense, in many ways. That’s why you are alone, but you are compassionate to everything. You have a precious heart spreading to every inch of the world. This is the human heart. No one is a bad guy or a stupid guy. Everyone is completely precious and beautiful, beyond bad or good. That is “unobstructed by anything of the world, and roam”. Walking alone is not dogmatic: walk alone *with* all sentient beings. If you walk alone, then you can share your life with all sentient beings. 
+We are always seeking release. *Release* means we want to be peaceful. But if you start to seek for peace, then under the beautiful flag of peace, we start to fight. So then peace becomes no longer peace. That always happens. But originally, we are always seeking for peace: release, emancipation. Release from object and subject. Perfect peace. 
+
+> Unobstructed by anything of the world,
+
+You shouldn’t ignore anything of the world; you cannot be alone. “Unobstructed by anything of the world” is your presence. Your presence is already deeply and constantly connected with everything without exception, in some sense, in many ways. That’s why you are alone, but you are compassionate to everything. You have a precious heart spreading to every inch of the world. This is the human heart. No one is a bad guy or a stupid guy. Everyone is completely precious and beautiful, beyond bad or good.
+
+> roam like the unicorn, alone.
+
+Walking alone is not dogmatic: walk alone *with* all sentient beings. If you walk alone, then you can share your life with all sentient beings. 
 
 ##### 44:39
 
-And also, here is another thing which is very interesting. (This is from the Mettā Sutta, or Sutta Nipata verse 1, chapter 8):
+And also, here is another thing which is very interesting. 
 
-> An all-embracing love for all the universe, in all its heights and depths and breadth,
-> an unstinted love, unmarred by hate within, not rousing enmity.
+> An all-embracing love for all the universe, in all its heights and depths and breadth,  
+> an unstinted love, unmarred by hate within, not rousing enmity.  
+> 
+> (from the Mettā Sutta, or Sutta Nipata 1.8)
 
-“An all-embracing love”: This is compassion. This is your original heart. If you return to the first stage of *wow*, the expression of your life that is very simple, then you can immediately touch all-embracing love, beyond your perceptions. In other words, it’s penetrating. All-embracing love penetrates you, if you practice this. 
+> An all-embracing love
 
-“for all the universe”: It’s not just for you; it’s for all the universe.
+This is compassion. This is your original heart. If you return to the first stage of *wow*, the expression of your life that is very simple, then you can immediately touch all-embracing love, beyond your perceptions. In other words, all-embracing love penetrates you, if you practice this. 
 
-“in all its heights and depths and breadth”: It’s very deep. We don’t know what it is, but we can experience it. You are already there, [in the] so-called dharma. 
+> for all the universe,
 
-“an unstinted love”: Everything is just like that, so you believe in this one dharma, and deal with it, and live it.
+It’s not just for you; it’s for all the universe.
 
-“unmarred by hate within”: Internally, it’s very easy for us to create hatred or criticism. It’s very easy to be critical, particularly toward others, the outside world. And critical toward the outside is simultaneously critical toward *you*. Because you cannot just see the world in one direction; simultaneously the world sees you. That is the situation of your life: if you see the world, the world looks at you. There is always communication. 
+> in all its heights and depths and breadth,
+
+It’s very deep. We don’t know what it is, but we know it; we can experience it. You are already there, [in the] so-called dharma. 
+
+> an unstinted love,
+
+Everything is just like that; so you believe in this one dharma, and deal with it, and live it.
+
+> unmarred by hate within,
+
+Internally, it’s very easy for us to create hatred or criticism. It’s very easy to be critical, particularly toward others, the outside world. And critical toward the outside is simultaneously critical toward *you*, because you cannot just see the world in one direction: simultaneously, the world sees you. That is the situation of your life: if you see the world, the world looks at you. That’s why there is always communication. 
 
 So very naturally, if you are critical toward the object, simultaneously that is critical toward you. I don’t mean you shouldn’t be critical; but if you want to be critical toward others or toward circumstances, I think you should be careful. In a deep sense, in terms of dharma, if you’re critical toward all sentient beings, that’s really helpful for all sentient beings. 
 
-“not rousing enmity”: Hatred is really destructive [toward] the self and the object. You must be careful to deal with hatred. There is always enmity inside. 
+> not rousing enmity.
+
+Hatred is really distracting the self and the object. You must be careful to deal with hatred. There is always enmity inside. 
 
 And also he says, 
 
-> As you stand, or walk, or sit, or lie, reflect with all your might on this; 
+> As you stand, or walk, or sit, or lie, reflect with all your might on this;  
 > this is deemed the state divine.
 
-“As you stand, or walk, or sit, or lie, reflect with all your might on this” means even though you sleep, or stand, sit, or walk, you try to practice believing in the dharma, receiving the dharma, and living the dharma. Anyway, try. This is the practice. 
+“As you stand, or walk, or sit, or lie, reflect with all your might on this” means even though you sleep, or stand, sit, or walk on the street, you try to practice believing in the dharma, receiving the dharma, and living the dharma. Anyway, try. This is the practice. 
 
 ##### 49:45
 
