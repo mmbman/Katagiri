@@ -142,6 +142,14 @@ Katagiri Roshi explains *repentance* in Buddhism, which is also sometimes called
 
 [Transcript](1986-03-01-Three-Aspects-of-Repentance)
   
+## Devotion: Walking Alone with Open Heart
+
+December 24, 1988
+
+Katagiri Roshi discusses how and why we should devote ourselves to dharma. He says that in Japanese, *to devote* is *kie* or *kimyo*, which mean to return to something true or ultimate, which is universal life. Devotion must be practiced in terms of two points: one is that you have to walk alone, and the other is that you must be compassionate, open to everything. He relates this to Shakyamuni Buddha’s statement that “you should rely on the self; you should rely on the dharma,” and to passages from Muni Sutta, Khaggavisana Sutta, and Mettā Sutta. And he discusses how to deal with problems in the community while standing in the dharma. 
+  
+[Transcript](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
+
 ## Dealing with Death, Dealing with Life
 January 7, 1989
 

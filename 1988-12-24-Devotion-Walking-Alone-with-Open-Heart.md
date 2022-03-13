@@ -7,9 +7,7 @@ description: December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1987-06-27-A-B-and-C-Worlds) \| 
 [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
-#### 
-
-**This transcript is in rough draft form.**
+#### Katagiri Roshi discusses how and why we should devote ourselves to dharma. He says that in Japanese, *to devote* is *kie* or *kimyo*, which mean to return to something true or ultimate, which is universal life. Devotion must be practiced in terms of two points: one is that you have to walk alone, and the other is that you must be compassionate, open to everything. He relates this to Shakyamuni Buddha’s statement that “you should rely on the self; you should rely on the dharma,” and to passages from Muni Sutta, Khaggavisana Sutta, and Mettā Sutta. And he discusses how to deal with problems in the community while standing in the dharma. 
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/walking-alone-with-open-heart" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
