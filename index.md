@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [“Dealing with Death, Dealing with Life”](1989-01-07-Dealing-with-Death-Dealing-with-Life) ([1989](#1989)) – posted Feb. 26, 2022.
+Latest transcript: [“Devotion: Walking Alone with Open Heart”](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) ([1988](#1988)) – posted March 13, 2022.
 
 # Table of Contents
 
