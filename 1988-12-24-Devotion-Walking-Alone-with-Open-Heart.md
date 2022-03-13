@@ -151,14 +151,14 @@ Walking alone is not dogmatic: walk alone *with* all sentient beings. If you wal
 
 ##### 44:39
 
-And also, here is another thing which is very interesting. 
+And also, here is another thing which is very interesting.
 
 > An all-embracing love for all the universe,  
 > in all its heights and depths and breadth,  
 > an unstinted love, unmarred by hate within,  
 > not rousing enmity.  
-> 
-> (from the Mettā Sutta, or Sutta Nipata 1.8)
+
+(This is from the Mettā Sutta, or Sutta Nipata 1.8.)
 
 > An all-embracing love
 
