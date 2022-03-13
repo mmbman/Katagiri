@@ -20,15 +20,15 @@ Good morning. It seems [like we haven’t had a] talk on a Saturday for a long t
 
 The other day one of the students asked me about devotion. He said we are often duped by devotion. I don’t know why, but he said so. I thought [it was] because he was too involved in [his] individual personality or individual world; his understanding was not [over a] wide range. Not only him, [but for anyone,] if your understanding is very narrow, you are “duped” by whatever it is: dharma, Buddhism, Christianity, or even the self – you are duped even by the idea of the self. So today I would like to talk about *devotion*.
 
-In Japanese, devotion is called *kie* or *kimyo*. The *ki* of kimyo is “return”, and *myo* is “life”. Or *kie*: the *ki* of kie is “return”, and *e* is “where you can depend on”. “Where you can depend on” is not where you are groping for now, but where you are already in; that is “the place where you can depend on”. But usually we are groping for someplace we can depend on, and then if we find it, we attach to it very much, individually or personally, in many ways. That is a problem for us. “The place that you can depend on” is not some place or some thing you are seeking for, because you are already right in [it]. [...] “Depend on” means you are right in [it]. 
+In Japanese, devotion is called *kie* or *kimyo*. The *ki* of kimyo is “return”, and *myo* is “life”. Or *kie*: the *ki* of kie is “return”, and *e* is “where you can depend on”. “Where you can depend on” is not where you are groping for now, but where you are already in; that is “the place where you can depend on”. But usually we are groping for someplace we can depend on; and then if we find it, we attach to it very much, individually or personally, in many ways. That is a problem for us. “The place that you can depend on” is not some place or some thing you are seeking for, because you are already right in it. [...] “Depend on” means you are right in it. 
 
-That is called *devotion* in English. I don’t know the original meaning [of devotion] in English, but in Japanese we call it *kimyo*: “return to life”. *Life* means the original, ultimate state of life – in other words *universal life*, covering a very wide range [that] you are connected with in some sense. You have to return to that life; this is called *kimyo* or *devotion*. Dogen Zenji mentions, “You have to return to something true”; this is called “taking refuge in Buddha, Dharma, and Sangha,” or “taking refuge in the Triple Treasure.” Very often we chant, “I take refuge in the Buddha, I take refuge in Dharma, I take refuge in Sangha.” Devotion is to return to something true, something ultimate. That’s why devotion is imporant for us.
+That is called *devotion* in English. I don’t know the original meaning [of devotion] in English, but in Japanese we call it *kimyo*: “return to life”. *Life* means the original, ultimate state of life – in other words *universal life*, covering a very wide range [that] you are connected with in some sense. You have to return to that life; this is called *kimyo* or *devotion*. Dogen Zenji mentions, “You have to return to something true”; this is called “taking refuge in Buddha, Dharma, and Sangha,” or “taking refuge in the Triple Treasure.” Very often we chant, “I take refuge in the Buddha, I take refuge in Dharma, I take refuge in Sangha.” Devotion is to return to something true, something ultimate. That’s why devotion is important for us.
 
 ##### 06:22
 
 In general Buddhism, that something ultimate, or the truth, is called *dharma*. Generally, the idea of dharma [...] has two meanings: one is the principle of ultimate being, the second is all things in the phenomenal word. “In the phenomenal world” means not only the phenomenal world, but also including the ultimate nature of existence too – so, everything. 
 
-In this case, we understand dharma in terms of these meanings – the principle of existence [or] ultimate being, and also all things in the phenomenal world – but those meanings are still ideas created by us. [This] dharma is nothing but the *principle* of how all sentient beings exist, how all sentient beings are structured. Still that is a principle. So dharma is a principle for you – but on the other hand, dharma must be that dharma which you make as living dharma. In other words, you must make the dharma *alive*. That is a person’s responsibility. That is *you*. The principle of ultimate existence or ultimate being is a principle, but a principle is a principle, [so] you have to make the principal alive; that is *your* responsibility.
+In this case, we understand dharma in terms of these meanings – the principle of existence [or] ultimate being, and also all things in the phenomenal world – but those meanings are still ideas created by us. [This] dharma is nothing but the *principle* of how all sentient beings exist, how all sentient beings are structured. So dharma is still a principle for you – but on the other hand, dharma must be that dharma which you make as living dharma. In other words, you must make the dharma *alive*. That is a person’s responsibility. That is *you*. The principle of ultimate existence or ultimate being is a principle, but a principle is a principle, [so] you have to make the principal alive; that is *your* responsibility.
 
 That’s why Shakyamuni Buddha says you should rely on the self, you should rely on the dharma. You should rely on the dharma, but simultaneously that is the principle of ultimate existence, common to everything. What does Buddhism believe in? Dharma. So you should believe in the dharma as a *principle* of ultimate existence, common to everyone, everything. But *faith*, so-called *belief*, is something alive. That is you; you have to make it alive. That’s why Buddha says, “rely on the self”.
 
@@ -36,7 +36,7 @@ That’s why Shakyamuni Buddha says you should rely on the self, you should rely
 
 From this point, the meaning of the dharma connected with the self is not merely the idea of all things we have usually thought, but kind of everything without exception, which means the internal and external factors that your individual existence is constituted of. In other words, the dharma connected with you is something connected in the wide range. Because without you, “all things” doesn’t make sense. Even though you say “all things”, if “all things” are not connected with you, then “all things” doesn’t make sense, because that is nothing but an idea.
 
-[Does] Japan exist? Japan exists, or an unknown planet exists, someone says, but you have never seen it. You don’t know what Japan is, because you have never been there. So conceptually you have lots of knowledge, but still this is believing in the principle or idea. Of course, Japan exists on earth, but still it’s an idea. So, I think without *us* – if the idea of Japan is not connected with *your* individual life – the idea of Japan exists, but it doesn’t really make sense for your life. [There is] still some gap between. But if you taste Japan – or the unknown planet – in some sense, I think Japan is no longer an idea, Japan is something real connected with you. [It is] that kind of pretty deep flavor you can taste on your tongue, with your body. Flavor is not an idea, flavor is your body. Your ideas, your body, and everything connected: that is flavor.
+[Does] Japan exist? Japan exists, or an unknown planet exists, someone says, but you have never seen it. You don’t know what Japan is, because you have never been there. So conceptually you have lots of knowledge, but still this is believing in the principle or idea. Of course, Japan exists on Earth, but still it’s an idea. So, I think without *us* – if the idea of Japan is not connected with *your* individual life – the idea of Japan exists, but it doesn’t really make sense for your life. [There is] still some gap between. But if you taste Japan – or the unknown planet – in some sense, I think Japan is no longer an idea, Japan is something real connected with you. [It is] that kind of pretty deep flavor you can taste on your tongue, with your body. Flavor is not an idea, flavor is your body. Your ideas, your body, and everything connected: that is flavor.
 
 So the dharma connected with [your] individual life is not an idea of universal things, common to everything, in which you presume [an] idea of “all things” in advance. Is that clear? But [it is] all things which exist in the whole wide range, as long as [your] individual life is connected with it in some sense, [or] in many senses. That is called *dharma*, we say.
 
@@ -44,7 +44,7 @@ So the dharma connected with [your] individual life is not an idea of universal 
 
 So that dharma is what is called “something true you can depend on,” which means you can be right in it, beyond whether you are conscious of it or not. That dharma is very pure and simple. [It is] very tolerant, soft, and flexible – but very sharp, *very* sharp, because if you poke your head into it, it’s already dualistic. 
 
-For instance, I always say that when you see something wonderful, you say, “Wow!” I think the very beginning of the *wow* is very pure. And then after *wow*, you poke your head into it, and research it: “What’s that?” And then that is dualistic. At the beginning of saying wow, it is already dualistic, but it is quite pure; it’s very close to the purity. That’s why you cannot explain what it is. Before you explain it, you have a simple expression that is “wow”; that’s it. Or, sometimes, “Mmm”; that’s it. Or sometimes, “Ah.” From *ah* or *mm* or *wow*, which are very simple, you can express a huge world. That is the huge mansion of the dualistic world, consisting of philosophy, psychology, physics, biology – and brains, and the million, million cells, and many things. Then you can build up *huge* mansions. But there are not many people who live in them! They are always looking at the mansions, saying “Wonderful, wonderful!”; that’s it. They never come back to the first stage of the *wow*, the first stage of dualism. 
+For instance, I always say that when you see something wonderful, you say, “Wow!” I think the very beginning of the *wow* is very pure. And then after *wow*, you poke your head into it, and research it: “What’s that?” And then that is dualistic. At the beginning of saying wow, it is already dualistic, but it is quite pure; it’s very close to the purity. That’s why you cannot explain what it is. Before you explain it, you have a simple expression that is “wow”; that’s it. Or, sometimes, “Mmm”; that’s it. Or sometimes, “Ah.” From *ah* or *mm* or *wow*, which are very simple, you can express a huge world. That is the huge mansion of the dualistic world, consisting of philosophy, psychology, physics, biology – and brains, and the million, million cells, and many things. Then you can build up *huge* mansions. But there are not many people who live in them! They are always looking at the mansions, saying “wonderful, wonderful!”; that’s it. They never come back to the first stage of the *wow*, the first stage of dualism. 
 
 Dualism is not bad. Dualism doesn’t have any problem, but an important point is how you can deal with dualism. You have to deal with dualism by returning to the first stage of dualism, the first germination of dualism. That is simple, very simple. That simplicity is very close to the truth, [or the] universe, eternity. That simplicity occurs where? The moment. Just the moment. Very simple. 
 
@@ -52,7 +52,7 @@ So the moment and you come together, creating kind of a momentum of energy. In t
 
 Or, religiously speaking, you just *devote*. You just bow; that’s it. Very simple. In a word, you can express it in the simplest way; that is *wow*, or *surprising*. Or with your body, just gassho, or just bow. Just [offer] respect. With your thoughts, simply think it, and next, you have to pass by it. That is our practice. 
 
-That simplicity in life is very close to the truth as it really is. That is called *dharma*. So you have to *devote* yourself to this dharma – which means the simplest state of existence, common to everything: you, trees, birds, winter, spring, summer. Winter is very simple: winter is winter. Wherever you may go, whatever you think, winter is always winter. Winter is never changed by your spiritual power. Even if you become a sage, or even if you can walk on the lake with your feet, you never change winter. Winter is winter. Lake is lake. That’s it. That is very simple; the simplest state of existence. 
+That simplicity in life is very close to the truth as it really is. That is called *dharma*. So you have to *devote* yourself to this dharma, which means the simplest state of existence, common to everything: you, trees, birds, winter, spring, summer. Winter is very simple: winter is winter. Wherever you may go, whatever you think, winter is always winter. Winter is never changed by your spiritual power. Even if you become a sage, or even if you can walk on the lake with your feet, you never change winter. Winter is winter. Lake is lake. That’s it. That is very simple; the simplest state of existence. 
 
 So belief in this dharma is expressing the simplest way of life. You can believe it in terms of the principle of existence, understanding it through your head. In order to believe it, next you have to be there, and accept that dharma, and deal with it, and then live it: live out your life, right in the middle of dharma. That is not so easy for us. And also, most people don’t know how to deal with it, much less do they know how to *be* there, how to live in the dharma. Because we are involved so much in the dualistic world. Most people deal with dharma in the dualistic way; they never see the dharma as nondualism, a nondualistic state of existence.
 
@@ -62,7 +62,7 @@ That is a point: how you can receive it, and deal with it, and live in it.
 
 ##### 24:54
 
-The Buddha mentions this. In Sutta Nipāta, which are the oldest Buddhist scriptures, number 213 (1.12; also known as at Muni Sutta or “The Sage”) says:
+The Buddha mentions this. In Sutta Nipāta, which are the oldest Buddhist scriptures, number 213 (1.12; also known as Muni Sutta or “The Sage”) says:
 
 > A tranquil sage is he who steadfast walks alone,  
 > unmoved by blame and by praise,  
@@ -83,7 +83,7 @@ If you want to receive the dharma, first you have to become tranquil, and then h
 
 > walks alone
 
-[The tranquil sage] walks alone, step by step, because in the moment, you are alone. Life or death occurs in the moment. In other words, life and death are nothing but the moment; that’s it. We don’t believe life is the moment, because in our lives there are lots of choices, but if you see death, immediately you can taste it: death is exactly the moment. Death is not something you can think of objectively. Death is nothing objective; you must be *there*, exactly. That is a moment. 
+[The tranquil sage] walks alone, step by step, because in the moment, you are alone. Life or death occurs in the moment. In other words, life and death are nothing but the moment; that’s it. We don’t believe life is the moment, because in our lives there are lots of choices; but if you see death, immediately you can taste it: death is exactly the moment. Death is not something you can think of objectively. Death is nothing objective; you must be *there*, exactly. That is a moment. 
 
 Death is nothing but the momentum of energy, life is the momentum of energy, connected with all sentient beings without exception. That’s enormous energies; you can never control it. So you have to walk alone, right in the middle of the moment. That’s it; that’s all you can do. Even if I give you a wonderful Buddha’s statement before you die, you can accept it, but still you walk alone.
 
@@ -117,7 +117,7 @@ Recently I think that people are always very [eager] to do something exciting an
 
 People are always struggling, fighting, screaming, and blaming – that’s pretty noisy. And we are very confused by the noises. We are never lions; we become *spitzes*, dogs: always barking at somebody else. *[Laughter.]* While the spitz has a host, the spitz enjoys very much barking at somebody else; but if he doesn’t have his host, he cowers and is running away instead of barking. Do you understand? I always say that is a characteristic of spitzes. 
 
-If you receive the dharma, and deal with the dharma, and are living the dharma, it is just like this. This is not a dogmatic way of life (so to speak). It’s very strong: *you* are *you*. From the beginning to end, [you have to be] in the moment, you have to take care of the moment, day to day. This is not dogmatic. Next, that self is completely open to everything.
+If you receive the dharma, and deal with the dharma, and are living the dharma, it is just like this. This is not a dogmatic way of life (so to speak). It’s very strong: *you* are *you*. From the beginning to end, [you have to be] in the moment, you have to take care of the moment, day to day. This is not dogmatic, [because] next, that self is completely open to everything.
 
 ##### 39:02
 
@@ -153,8 +153,10 @@ Walking alone is not dogmatic: walk alone *with* all sentient beings. If you wal
 
 And also, here is another thing which is very interesting. 
 
-> An all-embracing love for all the universe, in all its heights and depths and breadth,  
-> an unstinted love, unmarred by hate within, not rousing enmity.  
+> An all-embracing love for all the universe,  
+> in all its heights and depths and breadth,  
+> an unstinted love, unmarred by hate within,  
+> not rousing enmity.  
 > 
 > (from the Mettā Sutta, or Sutta Nipata 1.8)
 
@@ -176,9 +178,9 @@ Everything is just like that; so you believe in this one dharma, and deal with i
 
 > unmarred by hate within,
 
-Internally, it’s very easy for us to create hatred or criticism. It’s very easy to be critical, particularly toward others, the outside world. And critical toward the outside is simultaneously critical toward *you*, because you cannot just see the world in one direction: simultaneously, the world sees you. That is the situation of your life: if you see the world, the world looks at you. That’s why there is always communication. 
+Internally, it’s very easy for us to create hatred or criticism. It’s very easy to be critical, particularly toward others, the outside world. And critical toward the outside is simultaneously critical toward *you*, because you cannot just see the world in one direction; simultaneously, the world sees you. That is the situation of your life: if you see the world, the world looks at you. There is always communication. So very naturally, if you are critical toward the object, simultaneously that is critical toward you. 
 
-So very naturally, if you are critical toward the object, simultaneously that is critical toward you. I don’t mean you shouldn’t be critical; but if you want to be critical toward others or toward circumstances, I think you should be careful. In a deep sense, in terms of dharma, if you’re critical toward all sentient beings, that’s really helpful for all sentient beings. 
+I don’t mean you shouldn’t be critical; but if you want to be critical toward others or toward circumstances, I think you should be careful. In a deep sense, in terms of dharma, if you’re critical toward all sentient beings, that’s really helpful for all sentient beings. 
 
 > not rousing enmity.
 
@@ -186,7 +188,8 @@ Hatred is really distracting the self and the object. You must be careful to dea
 
 And also he says:
 
-> As you stand, or walk, or sit, or lie, reflect with all your might on this;  
+> As you stand, or walk, or sit, or lie,  
+> reflect with all your might on this;  
 > this is deemed the state divine.
 
 “As you stand, or walk, or sit, or lie, reflect with all your might on this” means even though you sleep, or stand, sit, or walk on the street, you try to practice believing in the dharma, receiving the dharma, and living the dharma. Anyway, try. This is the practice. 
@@ -227,7 +230,7 @@ Like sangha. Originally, sangha is a peaceful world, a peaceful place you live i
 
 If you don’t deal with different problems in the sangha, you cannot carry the sangha for the long run. Or on the other hand, if you are very involved in the different problems with your culture in the sangha, strongly attaching with confusions, then you cannot carry the sangha on for the long run. Do you understand? Because [then] you don’t have any tranquility; no compassion, no benevolence, no sympathy. Then there is no way to carry on this sangha century after century; not only in the United States – everywhere. So you should deal with the sangha like this. 
 
-You cannot receive and handle the sangha as pure always. No way. You cannot do it. Someone criticizes this sangha because there are too many troubles in human relationship, and then they say the reason why they criticize this sangha is that the sangha must be pure. People expect the sangha to be pure. Sure, it is, but that purity is nothing but an idea. Everyone understands [the idea, but] purity must be something alive in your life. It means, your responsibility is how to make the sangha pure, alive, day to day. That is our individual responsibility.
+You cannot receive and handle the sangha as pure always. No way. You cannot do it. Someone criticizes this sangha because there are too many troubles in human relationship, and then they say the reason why they criticize the sangha is that the sangha must be pure. People expect the sangha to be pure. Sure, it is, but that purity is nothing but an idea. Everyone understands [the idea, but] purity must be something alive in your life. It means, your responsibility is how to make the sangha pure, alive, day to day. That is our individual responsibility.
 
 So I can accept your problems and your complaints, but... I cannot do anything. All I can do is always talk about Buddhas. That’s it. And then, whether you make it alive or not is just you; your responsibility. 
 
@@ -263,7 +266,7 @@ Do you have some questions? Anything is fine.
 
 **Question**: You were talking about criticism earlier. How does one criticize without criticism leading to conflict? Because sometimes it’s probably necessary to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
 
-**Katagiri**: Criticism is not necessary, broadly speaking. No; we don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma; so [there is] no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetera. Then, what color is your life? You are black? Yes, sir. Then the black color sees the white; and then, white cannot be accepted as white; white is always accepted in terms of black. That is conflict coming up. 
+**Katagiri**: Criticism is not necessary, broadly speaking. No – we don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma; so [there is] no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetera. Then, what color is your life? You are black? Yes, sir. Then the black color sees the white; and then, white cannot be accepted as white; white is always accepted in terms of black. That is conflict coming up. 
 
 I think it is not necessary to criticize, basically. If it is necessary, I think you should walk with that person, sharing your good aspect, instead of criticizing. If you see something lacking, give them your hands. [...] Try to walk with him or her, and give a hand to them. 
 
