@@ -106,7 +106,9 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 30
 1. Blue Cliff Record, Case 33
 1. Blue Cliff Record, Case 33
-1. Blue Cliff Record, Case 34
+
+1. [Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
+
 1. Blue Cliff Record, Case 35
 1. Blue Cliff Record, Case 36 – Talk 1
 1. Blue Cliff Record, Case 36 – Talk 2
