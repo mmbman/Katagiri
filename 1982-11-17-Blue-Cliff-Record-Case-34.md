@@ -25,7 +25,7 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 >
 > (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
 
-(Transcriber’s Note: In reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* whenever he says *usual*. *Common* would also work. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* denotes *customary*, and so the implication of the word depends more on the context: “the usual” in studying Zen may be different than “the usual” in daily life. *Ordinary* is the word that is used in Cleary’s translation of Yun Men’s notes, and I think it might make this talk easier to read and understand, as “ordinary” is pretty much just “ordinary”. However, I didn’t want to change the word that Katagiri Roshi actually used, because he might have been using it deliberately.)
+(Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* whenever he says *usual*. *Common* would also work. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* denotes *customary*, and so the implication of the word depends more on the context: “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just ordinary. *Ordinary* is the word that is used in Cleary’s translation of Yun Men’s notes, and I think it might make this talk easier to read and understand. However, I didn’t want to change the word that Katagiri Roshi actually used, because he might have been choosing it deliberately.)
 
 This case doesn’t have a pointer, just a case and verse. The conversation between Yang Shan and the monk in this case is construed in a very common or usual (ordinary) way, to all intents and purposes. But sometimes we don’t understand why [in Zen we have to] think again about these usual conversations. In a sense, the Zen spirit is a little bit cryptic, it’s not the usual way; but in a good sense I think the Zen spirit is very compassionate to us. That’s why it’s pretty hard to understand. With this conversation, it doesn’t matter whether it is valuable or not; the important point is that we have to have open eyes to see the human world, visible and also invisible, in a little bigger scale. You have to see it. If you understand just the surface of human life, it’s not good enough for us to live in peace and harmony. 
 
@@ -39,11 +39,9 @@ So that’s why even though \[...] [the conversation] is construed in the usual 
 
 ##### 12:20
 
-Anyway, the monk said, “Mount Lu.” Mount Lu means the mountains named Lu.
+Anyway, the monk said, “Mount Lu.” Mount Lu means the mountains named Lu. So he came from Mount Lu. Yang Shan said, “Did you visit Five Elders Peak?” Maybe this Mount Lu has five old peaks. 
 
-So he came from Mount Lu. Yang Shan said, “Did you visit Five Elders Peak?” Maybe this Mount Lu has five old peaks. 
-
-This mountain is located where this monk lives, so he can visit the mountain any time. For instance, Mount Fuji in Japan: I can climb Mount Fuji any time. But I have never visited Mount Fuji. And also, when Americans go to Japan, you go to the *[unintelligible]*, which are very fancy old temples, painted with gold – a very fancy, wonderful, gorgeous shrine. But I have never visited there. So *you* may know it pretty well, but I don’t know it. The Japanese know pretty well the Grand Canyon, but maybe some of you don’t know the Grand Canyon. *[Laughter.]* 
+This mountain is located where this monk lives, so he can visit the mountain any time. For instance, Mount Fuji in Japan: I can climb Mount Fuji any time. But I have never visited Mount Fuji. And also, when Americans go to Japan, you go to the *[unintelligible]*, which are very fancy old temples, painted with gold – a very wonderful, gorgeous shrine. But I have never visited there. So *you* may know it pretty well, but I don’t know it. The Japanese know pretty well the Grand Canyon, but maybe some of you don’t know the Grand Canyon. *[Laughter.]* 
 
 So, “Did you visit the Five Elders Peak?” The monks says, “I didn’t get there.” 
 
@@ -57,9 +55,9 @@ According to tradition, let’s [read] this conversation [along with Yuan Wu’s
 
 So first of all, for “where have you just come from,” the note says, “Everyone in the world is the same.” That means, [answering the question as] daily routine. 
 
-But, “still it is necessary to ask.” If it is daily routine, is it not important? Yes, it’s important! That’s why you have to get up in the morning and deal with your body, your face, and water. It *is* important, that’s why you do it every day. If it is not necessary to do it, I think you should do it just one day; the next day it’s not necessary to do it. But it *is* necessary; whatever you feel from the daily routine, it is necessary to do it. So that’s why it says, “Everyone in the world is the same” for the question “Where do you come from?” It is necessary for us. 
+But, “still it is necessary to ask.” If it is daily routine, is it not important? Yes, it’s important! That’s why you have to get up in the morning and deal with your body, your face, and water. It *is* important, that’s why you do it every day. If it is not necessary to do it, I think you should do it only one day, the next day it’s not necessary to do it. But whatever you feel from the daily routine, it is necessary to do it. So that’s why it says, “Everyone in the world is the same” for the question “Where do you come from?” But it is necessary for us. 
 
-“(The monk) will inevitably construe it in the ordinary way.” He just talks in the ordinary way. It’s very smooth going. His mind is not [crooked]; he makes the usual answer. 
+“(The monk) will inevitably construe it in the ordinary way.” He just talks in the ordinary way. It’s very smooth going. His mind is not crooked; he makes the usual answer. 
 
 ##### 16:37
 
@@ -71,9 +69,9 @@ And the monk said, “Mount Lu.” For the note for this, [Yuan Wu] says, “A t
 
 “Mount Lu” means: Where do you come from, Katagiri? I come from Japan. 
 
-But within this word, it’s pretty hard to find a truthful man. [It’s] just like the form of dance. Within the form of dance, it’s pretty hard to see [what] the beauty of the real dance is. You can never touch it. But beyond your speculation, the beauty of the so-called dance is *something* more than the form of dance. The form of dance is appearing and disappearing; it’s not the real art. The real art is pretty hard to find within the form of dance. But without the form of dance, you cannot perform the dance! So you have to do it. In order to perform dance, simultaneously there is the form of dance. 
+But within this word, it’s pretty hard to find a truthful man. [It’s] just like the form of dance. Within the form of dance, it’s pretty hard to see exactly [what] the beauty of the real dance is. You [can] never touch it. But beyond your speculation, the beauty of the so-called dance is *something* more than the form of dance. The form of dance is appearing and disappearing, so it’s not the real art. The real art is pretty hard to find within the form of dance. But without the form of dance, you cannot perform the dance! So you have to do it. In order to perform dance, simultaneously there is the form of dance. 
 
-But unfortunately, the form of dance is nothing but impermanence. So, it’s appearing and disappearing. You have to see something more than the form of dance. We always say that is called the beauty of art. But what do we mean, the beauty of art? Anyway, if you perform dance, you have to perform dance on the basis of this beauty of art. And then at that time, the form of dance becomes really beautiful. If you forget this point, the form of dance is just the form of dance. It doesn’t make sense. 
+But unfortunately, the form of dance is nothing but impermanent, so it’s appearing and disappearing. You have to see something more than the form of dance. We always say that is called the beauty of art. But what do we mean, the beauty of art? Anyway, if you perform dance, you have to perform dance on the basis of this beauty of art. And then at that time, the form of dance becomes really beautiful. If you forget this point, the form of dance is just the form of dance. It doesn’t make sense. 
 
 So, the monk said, “Mount Lu.” That means, “from Japan.” “Are you a ballerina?” – Yes, sir. – “Why don’t you dance?” – Yes, I do just the performance. But within this performance of dance, it’s pretty hard to find the truth. 
 
@@ -85,15 +83,17 @@ So, the monk said, “Mount Lu.” That means, “from Japan.” “Are you a ba
 
 Yang Shan said, “Did you visit Five Elders Peak?” The note for this says, “He uses the wind to fan the fire. How could he have ever passed it by?”
 
-“He uses the wind to fan the fire” means it’s not a special technique to find the truthful man, so-called artist, so-called dancer. No, [particular things aren’t necessary]. It’s pretty easy to find [...] the truthful man of dance; it is just like fanning a fire with wind.
+“He uses the wind to fan the fire” means it’s not a special technique to find the truthful man, so-called artist, so-called dancer. No, particular things aren’t necessary. It’s pretty easy to find [...] the truthful man of dance; it is just like fanning a fire with wind.
 
-“How could he have ever passed it by?” You are never lost as to what to do. If you want to know the real beauty of art, just perform a dance! It’s very simple. There is no way to be at a loss what to do. 
+“How could he have ever passed it by?” You [should] never be at a loss as to what to do. If you want to know the real beauty of art, just perform a dance! It’s very simple. There is no way to be at a loss what to do. 
 
-I said before that life is like a falling maple leaf, showing the back and showing the front. Someone asked for a calligraphy about death, because I wrote already about life. I said yes, but I didn’t know what to say about death, so I had to think about it for a couple of days. And then I got a good idea, because it is a pair of calligraphies, so I said, “A falling maple leaf never fails to fall.” Do you understand? *[He chuckles.]* That is death. That is performing dance. This is also life itself. No way to escape. 
+I said before that life is like a maple leaf falling, showing the back and showing the front. Someone asked for a calligraphy about death, because I wrote already about life. I said yes, but I didn’t know what to say about death, so I had to think about it for a couple of days. And then I got a good idea, because it is a pair of calligraphies, so I said, “A falling maple leaf never fails to fall.” Do you understand? *[He chuckles.]* That is death. That is performing dance. This is also life itself. So, [there is] no way to escape. 
 
-If you want to know true art, so-called dance, you should perform dance. During the performing of dance, there is no way to fail to perform the dance. Exactly right in the middle of performing dance, you just perform. [There is] no mistake. That is “He uses the wind to fan the fire”: very simple ways. 
+If you want to know true art, so-called dance, you should perform dance. During the performing of dance, there is no way to fail to perform the dance. Exactly right in the middle of performing dance, you just perform. [There is] no mistake. That is his comment, “He uses the wind to fan the fire”: very simple ways. 
 
-If you want to know the meaning of happiness, and enlightenment, et cetera, do you have to do something particular? Yes, sometimes – if you have a chance to do something particular apart from daily life, it’s fine. But you should remember there are some individuals who cannot have enough time to do something particular apart from daily life. Most people make every possible effort to live everyday life. Through everyday life, still there is a wonderful chance to know the truthful man. That’s why [Yun Men says,] “How could he have ever passed it by?” There is no way to be at a loss of what to do; just perform. Just wash your face; just get up in the morning. 
+If you want to know the meaning of happiness, and enlightenment, et cetera, do you have to do something particular? Oh yes, sometimes – if you have a chance to do something particular apart from daily life, it’s fine. But you should remember there are some individuals who do not have enough time to do something particular apart from daily life. Most people make every possible effort to live everyday life. Through everyday life, still there is a wonderful chance to know the truthful man. 
+
+That’s why [Yun Men says,] “How could he have ever passed it by?” There is no way to be at a loss of what to do; just perform. Just wash your face; just get up in the morning. 
 
 ##### 25:25
 
@@ -103,9 +103,7 @@ If you want to know the meaning of happiness, and enlightenment, et cetera, do y
 
 Next, the monk says, “I didn’t get there.” Traditionally, we probably expect some particular answer to this question, but this monk says “I didn’t get there”; he answers in the usual way. That’s why the note says, “Take a step.” “Take a step” means “why don’t you answer in a little bit different way”.
 
-For instance, if this moment Yang Shan asked, “Did you climb Elders Peak,” maybe you could say… well, this is not exactly an answer, okay? *[He chuckles.]* But maybe you could say, “I have nothing to do with Amitābha Buddha, so I don’t want to see him.” If you say so, [you may have] many pretty interesting stories [about that]. 
-
-Yang Shan is encouraging himself to continue to talk with him, but [the monk] didn’t say [something different], he said, “I didn’t get there.” Yang Shan seems to be very bored, or disappointed, anyway, and it seems that he didn’t know what to do with his [answer]. He expected some good answer, maybe, but the monk didn’t [give it]. That’s why this note says “Take a step, why don’t you?” 
+For instance, if Yang Shan asks [you], “Did you climb Elders Peak,” maybe you could say… well, this is not exactly an answer, okay? *[He chuckles.]* But maybe you could say, “I have nothing to do with Amitābha Buddha, so I don’t want to see him.” If you say so, [you may have] many pretty interesting stories [about that]. So Yang Shan is encouraging [the monk] to continue to talk with him, but he didn’t say so, so [the monk] said, “I didn’t get there.” Yang Shan seems to be very bored, or disappointed, and it seems that he didn’t know what to do with his [answer]. Maybe he expected some good answer, but the monk didn’t [give it]. That’s why this note says “Take a step, why don’t you?” 
 
 And, “A red face is not as good as honest speech. He seems to be at a loss.” “Take a step” means why don’t you answer in a little bit different way, but he didn’t, so this note continues, “A red face is not as good as honest speech.” [That means] still he’s pretty good, because [it’s better to] be honest, and not put disgrace on himself. If he says, “I have nothing to do with Amitābha Buddha so I don’t want to see him,” maybe he could put disgrace upon himself, you know? In other words, he [would make] a mistake, and he would be beaten by this Zen Master. So that’s why [the note] says, “A red face is not as good as honest speech.” You are you, so don’t imitate others. You must be you. [It’s better to] be honest. 
 
