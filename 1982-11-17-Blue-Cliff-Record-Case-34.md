@@ -23,7 +23,7 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 >
 > (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
 
-(Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* whenever he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* suggests *customary*, and so the implication of the word depends more on the context: for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*. Cleary’s translation of Yun Men’s notes uses the word *ordinary*, and I think using that word would make it easier to follow what Katagiri Roshi is saying. However, I didn’t want to change the word *usual* in the transcript, because he might be using that word intentionally for some reason.)
+(**Transcriber’s Note**: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* whenever he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* suggests *customary*, and so the implication of the word depends more on the context: for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*. Cleary’s translation of Yun Men’s notes uses the word *ordinary*, and I think using that word would make it easier to follow what Katagiri Roshi is saying. However, I didn’t want to change the word *usual* in the transcript, because he might be using that word intentionally for some reason.)
 
 **Katagiri Roshi:** This case doesn’t have a pointer, just a case and verse. The conversation between Yang Shan and the monk in this case is construed in a very common or usual (ordinary) way, to all intents and purposes. But sometimes we don’t understand why [in Zen we have to] think again about these usual conversations. In a sense, the Zen spirit is a little bit cryptic, it’s not the usual way; but in a good sense I think the Zen spirit is very compassionate to us. That’s why it’s pretty hard to understand. With this conversation, it doesn’t matter whether it is valuable or not; the important point is that we have to have open eyes to see the human world, visible and also invisible, in a little bigger scale. You have to see it. If you understand just the surface of human life, it’s not good enough for us to live in peace and harmony. 
 
@@ -63,8 +63,6 @@ But, “still it is necessary to ask.” If it is daily routine, is it not impor
 > 
 >> A truthful man is hard to find.
 
-And the monk said, “Mount Lu.” For the note for this, [Yuan Wu] says, “A truthful man is hard to find.” 
-
 “Mount Lu” means: Where do you come from, Katagiri? I come from Japan. 
 
 But within this word, it’s pretty hard to find a truthful man. [It’s] just like the form of dance. Within the form of dance, it’s pretty hard to see exactly [what] the beauty of the real dance is. You [can] never touch it. But beyond your speculation, the beauty of the so-called dance is *something* more than the form of dance. The form of dance is appearing and disappearing, so it’s not the real art. The real art is pretty hard to find within the form of dance. But without the form of dance, you cannot perform the dance! So you have to do it. In order to perform dance, simultaneously there is the form of dance. 
@@ -78,8 +76,6 @@ So, the monk said, “Mount Lu.” That means, “from Japan.” “Are you a ba
 > Yang Shan said, “Did you visit Five Elders Peak?”  
 >
 >> He uses the wind to fan the fire. How could he have ever passed it by?
-
-Yang Shan said, “Did you visit Five Elders Peak?” The note for this says, “He uses the wind to fan the fire. How could he have ever passed it by?”
 
 “He uses the wind to fan the fire” means it’s not a special technique to find the truthful man, so-called artist, so-called dancer. No, particular things aren’t necessary. It’s pretty easy to find [...] the truthful man of dance; it is just like fanning a fire with wind.
 
@@ -115,8 +111,6 @@ This is pretty good because in relationship with people, you cannot always criti
 > 
 >> Too much ado! He should be careful of his eyebrows. What is this old fellow’s hurry?
 
-Yang Shan said, “You never visited the mountain at all.” And then the note says, “Too much ado! He should be careful of his eyebrows. What is this old fellow’s hurry?”
-
 “Too much ado”: The monk said “I didn’t get there, I have never been there,” but it is alright, because he’s already living [there]. If Katagiri lives in Japan, Katagiri’s life is encompassed by Mount Fuji. Even though I have never visited there, my life is Mount Fuji. 
 
 He points out [that it’s] just a form of dance. Your form of dance is pretty good; next moment, the form of dance is not good. So you pick up a form of dance. This monk saying “I didn’t get there” and the teacher saying, “Oh, you have never visited there” means, for instance, according to the dance: [the teacher asks,] “How did you like your dance?” You say, “I didn’t feel good.” [The teacher says,] “Oh, you didn’t feel good, huh? So in your dance you made a mistake.” That’s just like this conversation. 
@@ -132,8 +126,6 @@ But strictly speaking, if you didn’t feel good [about the dance], that’s fro
 > (Later,) Yun Men said, “These words were all for the sake of compassion; thus they had a conversation in the weeds.”  
 > 
 >> The sword that kills people, the sword that gives people life. Two, three. If you want to know the mountain road, you must be the man who travels on it.
-
-Next, Yun Men said, “These words were all for the sake of compassion; thus they had a conversation in the weeds.” The note says: “The sword that kills people, the sword that gives people life. Two or three. If you want to know the mountain road, you must be the man who travels on it.”
 
 “These words were all for the sake of compassion”: According to tradition, within such a usual conversation Zen sometimes gives big blows, hitting the monks – a pretty fancy, dramatic show there, [on] the stage of conversation between the monks and teachers. If Yang Shan were Rinzai or [Tōzan], probably he would give a big blow to him. But Yang Shan is very patient to give an answer to his question; he kept the conversation in the usual way. So that’s why Yun Men said, “These words were all for the sake of compassion.” He was very compassionate. But also, his compassion points out that we should know something more than the usual conversation, more than behind the words. 
 
