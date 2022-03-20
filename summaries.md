@@ -121,6 +121,13 @@ Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Fac
 
 [Transcript](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
+## Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”
+November 17, 1982
+
+Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: how to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
+
+[Transcript](1982-11-17-Blue-Cliff-Record-Case-34)
+
 ## Introduction to Buddhism
 June 22, 1985
 
