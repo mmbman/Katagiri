@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [“Devotion: Walking Alone with Open Heart”](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) ([1988](#1988)) – posted March 13, 2022.
+Latest transcript: [Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34) ([1982](#1982)) – posted March 19, 2022.
 
 # Table of Contents
 
