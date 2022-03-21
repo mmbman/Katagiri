@@ -11,7 +11,7 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-34" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
-(Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* where he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* means *customary*, so it depends more on the context; for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*.)
+(Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* where he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* means *customary*, so it depends more on the context; for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*. Cleary’s translation of the Notes to the case uses the word *ordinary*.)
 
 <a name="000"></a>
 ##### 0:00 start of recording
