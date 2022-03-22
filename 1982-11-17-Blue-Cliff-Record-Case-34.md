@@ -145,7 +145,7 @@ In order to act, you have to pick up a certain form. That is the form of swimmin
 
 *[Tape change.]* 
 
-For instance, if you fall in love with somebody, you really hang on to him or her. But if you don’t, even though see a really beautiful lady or beautiful man, still you can handle them just as a person, beyond a man or a woman. That is so-called compassion. *[Unintelligible]* In equal attitude. That’s pretty hard, but this is important. Basically, we can do it. 
+For instance, if you fall in love with somebody, you really hang on to him or her. But if you don’t, even though you see a really beautiful lady or beautiful man, still you can handle them just as a person, beyond a man or a woman. That is so-called compassion. *[Unintelligible]* In equal attitude. That’s pretty hard, but this is important. Basically, we can do it. 
 
 I take as an example, sometimes, a mothers’ life toward her child. She scolds him or her, but still on the basis of her life, there is compassion, which means accepting the child’s entire life. Accepting totally whatever he or she does: this is compassion. The mother doesn’t know this sometimes, but this is really human warmness.
 
