@@ -4,7 +4,7 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1982) \| 
-[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
 #### Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: how to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
@@ -129,7 +129,7 @@ The point is, through the performance of dance what we have to do is to pay atte
 > 
 >> The sword that kills people, the sword that gives people life. Two, or three. If you want to know the mountain road, you must be the man who travels on it.
 
-“These words were all for the sake of compassion”: According to tradition, within such a usual conversation, Zen sometimes gives big blows, hitting the monks – a pretty fancy, dramatic show there, [on] the stage of conversation between the monks and teachers. If Yang Shan were Rinzai or [Tōzan], probably he would give a big blow to him. But Yang Shan is very patient to give an answer to his question; he kept the conversation in the usual way. So that’s why Yun Men said, “These words were all for the sake of compassion.” [Yang Shan] was very compassionate. But it doesn’t mean we was just compassionate; also his compassion points out that we should know something more than the usual conversation, [something] behind the words. 
+“These words were all for the sake of compassion”: According to tradition, within such a usual conversation, Zen sometimes gives big blows, hitting the monks – a pretty fancy, dramatic show there, [on] the stage of conversation between the monks and teachers. If Yang Shan were Rinzai or [Tōzan], probably he would give a big blow to him. But Yang Shan is very patient to give an answer to his question; he kept the conversation in the usual way. So that’s why Yun Men said, “These words were all for the sake of compassion.” [Yang Shan] was very compassionate. But it doesn’t mean he was just compassionate; also his compassion points out that we should know something more than the usual conversation, [something] behind the words. 
 
 That’s why [the note then says,] “The sword that kills people, the sword that gives people life.” If you are ready to accept the usual conversation as just the usual conversation, then your life is just the usual life. But maybe if you’re ready to see something more than the usual life through the usual conversation, probably you’re pretty good. That means it makes your life alive.
 
@@ -222,5 +222,5 @@ I understand it’s pretty hard, because getting up in the morning is a very sim
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1982) \| 
-[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
