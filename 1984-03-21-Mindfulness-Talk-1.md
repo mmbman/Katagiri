@@ -7,24 +7,28 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
+#### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding Zen Master Dogen’s teaching. He begins with the first: contemplation of the body as “impure”.
+
 **This talk is in rough draft state.**
 
-#### Part 1
+(Transcriber’s Note: This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).)
+
+### Part 1
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321a.mp3" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
 
-There are four kinds of mindfulness as one of the traditional Buddhist practices. The four kinds of mindfulness:
+There are four kinds of mindfulness as one of the traditional Buddhist practices. The four kinds of mindfulness are:
 
 - Contemplation of the body as impure.
 - Contemplation of feeling as suffering.
-- Contemplation of the mind as impermanent. 
+- Contemplation of the mind as impermanent.
 - Contemplation of existence as insubstantial.
 
-These are the four kinds or four stages of mindfulness which are very general and traditional in Buddhist practice. 
+These are the four kinds or four stages of mindfulness which are very general and traditional in Buddhist practice. (Transcriber’s Note: These are the [Four Foundations of Mindfulness](https://www.lionsroar.com/the-buddhas-four-foundations-of-mindfulness/).)
 
-First of all I would like to explain the contemplation of the body as impure, or observation of the body as impure. But generally speaking, it is considered as the body as impure, in common sense, because human beings really attach to the human body or human life as pure, emphasizing strongly their richness, their positions, their family’s status, their cleverness, lots of property, et cetera. Very naturally we create a strong attachment to them. So that’s why Buddha emphasizes to consider the body as impure, in order to be free from the attachment to human body. 
+First of all I would like to explain the contemplation of the body as impure, or observation of the body as impure. But generally speaking, it is considered as the body as impure, in common sense, because human beings really attach to the human body or human life as pure, emphasizing strongly their richness, their position, their family’s status, their cleverness, their property, et cetera. Very naturally we create a strong attachment to [these things]. That’s why Buddha emphasizes [for us] to consider the body as impure, in order to be free from the attachment to the human body. 
 
-For instance, I always tell people, the more you live out your life with very hard effort, the more you want to emphasize how wonderful it was, and you want to give it [forcibly] to others. This is really arrogance. You are really arrogant with your life. If you look at your parents and grandparents, who have lots of experiences on the basis of hard work year after year, very naturally they really attach to their own lifestyles. We respect their lifestyle because that was very important for them, and also we can learn lots of things from their lives. But I don’t think it is necessary for them to attach to their own lifestyle, because that is really prejudice. So very naturally, a child doesn’t follow it. A child is naturally against it. The same applies to our lives, in many ways. Social status, position, and your lifestyle, or viewpoint, whatever it is. We always believe the viewpoints on the human life, human world as pure. That means my views are right. So that is called attachment or prejudice, which is called *wrong view*. 
+For instance, I always tell people, the more you live out your life with very hard effort, the more you want to emphasize how wonderful it is, and you want to give it [forcibly] to others. This is really arrogance; you are really arrogant with your life. If you look at your parents and grandparents, who have lots of experiences on the basis of hard work year after year, very naturally they really attach to their own lifestyles. We respect their lifestyle because that was very important for them, and also we can learn lots of things from their lives. But I don’t think it is necessary for them to attach to their own lifestyle, because that is really prejudice. So very naturally, a child doesn’t follow [this]; a child is naturally against it. The same applies to our lives, in many ways. Social status, position, and your lifestyle, or viewpoint, whatever it is. We always believe the viewpoints on the human life, human world as pure. That means my views are right. So that is called attachment or prejudice, which is called *wrong view*. 
 
 That’s why in ancient times, when Shakyamuni tells disciples and his followers to practice this mindfulness, contemplating the body as impure. Not only Buddhism, but also in Christianity, in the Christian monasteries they also this, looking at the human skeleton. That is very common, not only in Buddhist practice. 
 
@@ -82,7 +86,7 @@ That’s why first he mentions like this. That why observation that the body is 
 
 This is the true body and therefor is observing the body as impure, which transcends pure and impure. But literally, Dogen Zenji mentions, the more vivid representation, he says, “This is the true body, and therefor is observing the body as impure, which is vividly hopping along, or jumping along, or vividly living.” Here it says, transcends pure and impure. This is okay; I understand this one. But literally Dogen Zenji says more alive. So the observation of the body as impure is just like something leaping along, vividly, constantly. That is called observation of the body as impure. It means, you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly, constantly. So thats why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of sesshin is different. You always expect “in this sesshin, I would like to have a *good* sesshin.” Of course. But if you’re jumping into [it], sesshin is not an idea, sesshin is something alive, because you do it. Your human body is something alive, so you don’t know ... finally the sesshin is going in a different way [from] what you have expected. So whatever you say, sesshin, and human body, breath, your eyes, nerves of your eyes, activities, spiritual life – all are something alive. And then, you have to observe [or contemplate] that human body which is vividly living. Not an idea. Not the human body separate from mine. Not the human body separate from the tree, birds, human activities. We have to see the human body complete which is vividly alive, living, jumping, hopping along. Because when your body is really jumping, hopping along, or living, you don’t know what the human body is. That is called transcend. So transcend your ideas, your idea of purity or impurity, or good or bad. You don’t know, you cannot pin it down. 
 
-#### Part 2
+### Part 2
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321b.mp3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
 
@@ -242,7 +246,7 @@ Of course it is encouragement, but encouragement really is available for a certa
 
 For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never seen before. But gradually you don’t feel good because you can’t tune into the usual life. You can notice that there is trouble with your friend in order to have a good relationship between you and your friend.
 
-#### Part 3
+### Part 3
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
 
