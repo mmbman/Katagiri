@@ -7,7 +7,7 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-#### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on Zen Master Dogen’s teaching from Shobogenzo *Sanjūshichi-bon-bodai-bunpō*: “Thirty-seven Elements of Bodhi”. He begins with the first foundation: contemplation of the body as “impure”.
+#### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on Zen Master Dogen’s “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter in Shobogenzo, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”.
 
 **This talk is in a rough draft state.**
 
@@ -46,7 +46,7 @@ But most people don’t understand it, particularly this chapter. The title is �
 
 Let me read first the translation by Uchiyama: 
 
-> Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. This becomes the true body, and therefor transcends pure and impure. If there is no detachment, there can be no attainment of this observation. If there is no body, there can be no attainment of practice, teaching, or observation of the body’s impurity. Yet the attainment of this observation has already been actualized, so we should know that it is gained through detachment. The attainment of this observation appears in such daily activities as sweeping the grounds and wiping the zazen platform. If we practice like this for months and years, it will become an absolute fact covering the great earth in its pure suchness.
+> Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. This becomes the true body, and therefore transcends pure and impure. If there is no detachment, there can be no attainment of this observation. If there is no body, there can be no attainment of practice, teaching, or observation of the body’s impurity. Yet the attainment of this observation has already been actualized, so we should know that it is gained through detachment. The attainment of this observation appears in such daily activities as sweeping the grounds and wiping the zazen platform. If we practice like this for months and years, it will become an absolute fact covering the great earth in its pure suchness.
 
 From Light That Shines Through Infinity:
 
@@ -95,17 +95,19 @@ That’s why first he mentions like this. That why observation that the body is 
 
 ##### 37:44
 
-> This becomes the true body, and therefor transcends pure and impure. 
+[The next sentence is:]
 
-“This is the true body, and therefor is observing the body as impure, which transcends pure and impure.” But literally, Dogen Zenji [uses a] more vivid representation. He says:
+> This is the true body, and therefore is observing the body as impure, which transcends pure and impure. (In the recording, for some reason this is shortened to, “This becomes the true body, and therefore transcends pure and impure.”)
 
-> This is the true body, and therefor is observing the body as impure, which is vividly hopping along.
+But literally, Dogen Zenji [uses a] more vivid representation. He says:
 
-(*The Light That Shines Through Infinity* has it as: “Since this is the true body, it is observing the body as not-pure, which is vividly hopping along.”)
+> This is the true body, and therefore is observing the body as impure, *which is vividly hopping along*.
+
+(*The Light That Shines Through Infinity* has it as, “Since this is the true body, it is observing the body as not-pure, which is vividly hopping along.”)
 
 Here it says, “transcends pure and impure”. This is okay – I understand it – but literally Dogen Zenji says [something] more alive. The observation of the body as impure is just like something leaping along, vividly, constantly; that is called observation of the body as impure. It means, you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly, constantly. 
 
-So that’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of sesshin is different. You always expect “in this sesshin, I would like to have a *good* sesshin.” Of course. But if you’re jumping into [it], sesshin is not an idea, sesshin is something alive, because you do it. Your human body is something alive, so [...] finally the sesshin is going in a different way [from] what you have expected. 
+That’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of sesshin is different. You always expect, “In this sesshin, I would like to have a *good* sesshin.” Of course. But if you’re jumping into [it], sesshin is not an idea, sesshin is something alive, because you do it. Your human body is something alive, so [...] finally the sesshin is going in a different way [from] what you have expected. 
 
 So whatever you say – sesshin, or human body, breath, your eyes, nerves of your eyes, activities, spiritual life – all are something alive. And then, you have to observe or contemplate that human body which is vividly living. Not an idea; not the human body separate from mind; not the human body separate from the tree, birds, human activities. We have to see the human body which is vividly alive: living, jumping, hopping along. Because when your body is really hopping along, or living, you don’t know what the human body is. That is called [to] *transcend*. So transcend your ideas, your idea of purity or impurity, or good or bad. You don’t know, you cannot pin it down. 
 
@@ -120,7 +122,6 @@ So that’s why Dogen Zenji mentions, this is the true body. The true body is [.
 This is the true body, and there for it is observing the body as impure, which is vividly living. 
 
 ##### 02:26
-
 
 And next he says, 
 
