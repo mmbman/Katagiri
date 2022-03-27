@@ -199,7 +199,7 @@ I guess there are a lot of questions in there. Why was it dangerously steep? Why
 
 **Same Person**: Right, but I guess what I’m… That’s always the most difficult point for me, and I think for a lot of people. It almost seems like when you try to reason it out at that point, it never works. It’s like, sometimes in my mind I go, “I should see this as every moment is something… sparkling.” 
 
-**Katagiri**: But you cannot [handle] all aspects of your life just like this; understanding completely, seeing the beauty of the dance. You cannot do your life completely in that way. Look at your life so far. How do you get up in the morning so far? Do you see, before you get up in the morning, “the beautiful art of the dance is here”? *[Laughter, clapping.]* You cannot get up in that way. Can you get up in the morning, [saying,] “It’s a beautiful universe”? It’s too much! So immediately you become an actor. 
+**Katagiri**: But you cannot [handle] all aspects of your life just like this; understanding completely, seeing the beauty of the dance. You cannot do your life completely in that way. Look at your life so far. How do you get up in the morning so far? Do you see, before you get up in the morning, “the beautiful art of the dance is here”? *[Laughter, clapping.]* You cannot get up in that way. Can you get up in the morning, [saying,] “It’s a beautiful universe”? It’s too much! *[Laughter.]* So immediately you become an actor. 
 
 **Same Person**: You mean *[unintelligible]*? *[Laughter.]*
 
