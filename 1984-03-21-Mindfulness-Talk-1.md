@@ -7,7 +7,7 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-#### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on Zen Master Dogen’s “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter in Shobogenzo, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”.
+#### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on Zen Master Dogen’s “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Shobogenzo, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”.
 
 **This talk is in a rough draft state.**
 
@@ -48,18 +48,13 @@ Let me read first the translation by Uchiyama:
 
 > Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. This becomes the true body, and therefore transcends pure and impure. If there is no detachment, there can be no attainment of this observation. If there is no body, there can be no attainment of practice, teaching, or observation of the body’s impurity. Yet the attainment of this observation has already been actualized, so we should know that it is gained through detachment. The attainment of this observation appears in such daily activities as sweeping the grounds and wiping the zazen platform. If we practice like this for months and years, it will become an absolute fact covering the great earth in its pure suchness.
 
-From Light That Shines Through Infinity:
-
-> Observing the body as not-pure means that one skin bag of the present observing body is the entire universe of the ten directions. Since this is the true body, it is observing the body as not-pure, which is vividly hopping along. If there is no body, practice is unattained, teaching is unattained, observation is unattained. No hopping along means that observation is unattained. Already the attainment of observation is completely manifest. You should realize that hopping along is already attained. The so-called attainment of observation is the daily activities of sweeping the grounds and washing the floors. Because of sweeping the grounds with “which moon is this?” or sweeping the grounds and washing the floor with “the second moon,” there is suchness of the entire great earth.
-
-
 As a conclusion, this paragraph says [that] practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. But he explains why we have to do it. In ancient times, still this practice was [done] by the monks, contemplating the body as impure. Why is it he has to say contemplating the body beyond the idea of purity or impurity? 
 
 The explanation is here, so little by little, we want to say it.
 
 ##### 16:00
 
-First of all he says:
+First of all, he says:
 
 > Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. 
 
@@ -75,7 +70,9 @@ So very naturally, that’s why Dogen Zenji mentions immediately in the first se
 
 If we try to practice this mindfulness traditionally, you always say, “observing the human body as impure, watching the human skeleton.” That’s fine. But it is nothing but the moral sense, moral practice; it’s not religious practice. If you do religious practice in the moral sense, you never get a peaceful mind, a peaceful life. It’s just like usual life: always you have to go forward, always you have to get a better practice; you have to do it, always. Finally, religious practice makes you irritated, restless; it doesn’t make sense for you. So very naturally we have to consider again and again what religious practice is. We have to go beyond religious practice in the moral sense. That is very important for us. 
 
-I use [the word] *observation* or *contemplation*; I don’t know. In Sanskrit we say *vipassana*; vipassana is *insight* or *discernment*. According to the Six Paramitas, which is also one of the traditional Buddhist practices, [there are] *concentration* and *wisdom*. Concentration and wisdom always function together; you can’t separate them. If you try to explain, you can separate them, but actually they function together. Concentration means *samatha* and *vipassana* working together. Samatha is *quiescence* or *tranquility*, *stillness*; *samadhi*, sometimes; *one-pointedness*. And wisdom, vipassana, means *insight*, *discernment*. Insight and discernment is to see a distant object clearly. “Distant object” means the source of the phenomenal world, the source of existence, the human life, human world. That is insight. 
+##### 
+
+I use [the word] *observation* or *contemplation*; I don’t know [which is better]. In Sanskrit we say *vipassana*; vipassana is *insight* or *discernment*. According to the Six Paramitas, which is also one of the traditional Buddhist practices, [there are] *concentration* and *wisdom*. Concentration and wisdom always function together; you can’t separate them. If you try to explain, you can separate them, but actually they function together. Concentration means *samatha* and *vipassana* working together. Samatha is *quiescence* or *tranquility*, *stillness*; *samadhi*, sometimes; *one-pointedness*. And wisdom, vipassana, means *insight*, *discernment*. Insight and discernment is to see a distant object clearly. “Distant object” means the source of the phenomenal world, the source of existence, the human life, human world. That is insight. 
 
 How can you have this practice of insight? That is tranquility. How can you experience tranquility? That is zazen. 
 
@@ -97,13 +94,11 @@ That’s why first he mentions like this. That why observation that the body is 
 
 [The next sentence is:]
 
-> This is the true body, and therefore is observing the body as impure, which transcends pure and impure. (In the recording, for some reason this is shortened to, “This becomes the true body, and therefore transcends pure and impure.”)
+> This is the true body, and therefore is observing the body as impure, which transcends pure and impure.
 
 But literally, Dogen Zenji [uses a] more vivid representation. He says:
 
 > This is the true body, and therefore is observing the body as impure, *which is vividly hopping along*.
-
-(*The Light That Shines Through Infinity* has it as, “Since this is the true body, it is observing the body as not-pure, which is vividly hopping along.”)
 
 Here it says, “transcends pure and impure”. This is okay – I understand it – but literally Dogen Zenji says [something] more alive. The observation of the body as impure is just like something leaping along, vividly, constantly; that is called observation of the body as impure. It means, you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly, constantly. 
 
@@ -115,11 +110,11 @@ So whatever you say – sesshin, or human body, breath, your eyes, nerves of you
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321b.mp3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
 
-... This is the true human body. That’s why your body is the true human body. Rinzai Zen Master says, “The true human body is coming and going from every pore of your body.” But a monk didn’t understand this one, and then immediately the monk asked, “What is that?” So immediately Rinzai grabbed him and shook him: “How stupid you are!” and pushed him away. Because, the human body is considered very naturally as just the human body, separate from activities, nutrition, and also spiritual life, and the trees and birds. Completely separate. So we don’t understand. If you do that, you cannot keep your human body healthy, as a Buddha. Real health is to take care of human life as a Buddha, beyond purity or impurity. That is really perfect health. 
+... This is the true human body. That’s why your body is the true human body. Rinzai Zen Master says, “The true human body is coming and going from every pore of your body.” But a monk didn’t understand this, and asked, “What is that?” So immediately Rinzai grabbed him and shook him, [saying,] “How stupid you are!” And pushed him away. Because, the human body is considered very naturally as just the human body, completely separate from activities, nutrition, and also spiritual life, and the trees and birds; so we don’t understand. If you do that, you cannot keep your human body healthy, as a Buddha. Real health is to take care of human life as a Buddha, beyond purity or impurity. That is really perfect health. 
 
-So that’s why Dogen Zenji mentions, this is the true body. The true body is [...] nothing but a skin bag, but simultaneously, it is something beyond a skin bag. What is this? The universe. Anyway, your body is walking with the universe. It is really true. So that’s why it is the real, true body. You cannot separate what is the skin bag and where is the universe. It’s working together. 
+So that’s why Dogen Zenji says, “this is the true body.” The true body is [...] nothing but a skin bag, but simultaneously, it is something beyond a skin bag. What is that? The universe. Your body is walking with the universe. It is really true. That’s why it is the real, true body. You cannot separate what is the skin bag and what is the universe; it’s working together. 
 
-This is the true body, and there for it is observing the body as impure, which is vividly living. 
+This is the true body, and therefore it is observing the body as impure, which is vividly living. 
 
 ##### 02:26
 
