@@ -11,7 +11,7 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is in rough draft stage.**
 
-(Transcriber’s Note: For the word *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West. The Nishijima & Cross translation of the Shobogenzo chapter in question uses *not pure*. Some of this talk appears in Chapter 9 of *The Light That Shines Through Infinity*, in the section “Dogen’s Not-Pure Body”.)
+(Transcriber’s Note: Although Katagiri Roshi uses the word *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West. The Nishijima & Cross translation of the Shobogenzo chapter in question uses *not pure*. Some of this talk appears in Chapter 9 of *The Light That Shines Through Infinity*, in the section “Dogen’s Not-Pure Body”.)
 
 #### This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).
 
