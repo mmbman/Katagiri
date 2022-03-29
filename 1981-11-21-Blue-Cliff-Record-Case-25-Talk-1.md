@@ -7,7 +7,7 @@ description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 [Previous](unfinished-1981-1) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-**This transcript is in rough draft form.**
+**This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

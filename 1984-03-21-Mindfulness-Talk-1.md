@@ -11,9 +11,9 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 #### This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).
 
-**This talk is in a rough draft state.**
+**This transcript is in rough draft stage.**
 
-(Transcriber’s Note: For the word *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in English. The Nishijima & Cross translation of the Shobogenzo chapter in question uses *not pure*. Some of this talk appears in Chapter 9 of *The Light That Shines Through Infinity*, in the section “Dogen’s Not-Pure Body”.)
+(Transcriber’s Note: For the word *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West. The Nishijima & Cross translation of the Shobogenzo chapter in question uses *not pure*. Some of this talk appears in Chapter 9 of *The Light That Shines Through Infinity*, in the section “Dogen’s Not-Pure Body”.)
 
 ### Part 1
 
@@ -158,9 +158,9 @@ So no body is no attainment of practice, no attainment of the teaching, no attai
 
 > Yet the attainment of this observation has already been actualized...
 
-What is a *real* observation? Real observation is constantly being *with* the process of meditation, doing zazen. That is real observation. The idea of observation is to see something in the distance; that is [what we usually call] observation. That’s why we have to observe something closely or discern something in the distance, but that’s not real discernment. Real discernment or observation is to be constantly *with* it.
+What is *real* observation? Real observation is constantly being *with* the process of meditation, doing zazen. That is real observation. The idea of observation is to see something in the distance; that is [what we usually call] observation. That’s why we have to observe something closely or discern something in the distance, but that’s not real discernment. Real discernment or observation is to be constantly *with* it.
 
-For instance, fires. You should observe fire, you should discern fire. Can you see the fire in the distance? Thinking always, “it is fire, it is fire” – analyzing, synthesizing – but it doesn’t make sense for you, because fire doesn’t burn your body or your mind. So what is real discernment or real observation of fire? Put your hand in the fire. Immediately, you can observe [it]. [That is] real observation.
+For instance, fires. You should observe fire, you should discern fire. [Seeing] the fire in the distance, [you are] always thinking, “it is fire, it is fire” – analyzing, synthesizing – but it doesn’t make sense for you, because fire doesn’t burn your body or your mind. So what is real discernment or real observation of fire? Put your hand in the fire. Immediately, you can observe [it]. [That is] real observation.
 
 If you observe the human body as Buddha, it is actually no observation – but observation has already been actualized. So this is the total picture of the real reality you live in. That’s why Dogen Zenji says, “Yet the attainment of this observation has already been actualized.”
 
@@ -172,17 +172,15 @@ If you observe the human body as Buddha, it is actually no observation – but o
 
 What is the observation you have already actualized? It is nothing but the jumping around. That means, just activity. Just bubbles coming up constantly; just like energies gushing out. Like a spring gushing out from the ground; constantly coming up. That means nothing but the process, nothing but the practice, nothing but activity, constantly there. 
 
-That’s why he says, “so you should know that it is attainment of jumping-around-ness”. That means *transcendence*. We say transcendence, but we don’t understand it. What does that mean? That is not something you should keep away from this to something else. No, that’s not transcendence. It is you that are always there but there is no place for you or your object. That is called transcendence. You are sick, but you are always right in the middle of sickness, [so] no trace of sickness is left. That is called transcendence. It’s not to escape from sickness. You have to watch constantly, just like spring water coming up. That’s why it says it like this here. 
+That’s why he says, “so you should know that it is attainment of jumping-around-ness”. That means *transcendence*. We say transcendence, but we don’t understand it. What does it mean? It is not something you should keep away from this to something else. No, that’s not transcendence. It is you that are always there, but there is no place for you or your object. That is called transcendence. You are sick, but you are always right in the middle of sickness, [so] no trace of sickness is left. That is called transcendence. It’s not to escape from sickness. You have to watch constantly, just like spring water coming up. That’s why it says it like this here. 
 
 ##### 14:39
 
-So,
-
 > The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors. 
 
-That is coming from a koan in the Book of Equanimity (Case 21). Tenshin Sensei gave us that story in his last talk. [It is a conversation] between Dogo Zenji and Ungan Zenji; Ungan and Dogo are in the relation of the dharma brothers. Ungan swept the temple grounds. Dogo passed by, and said, “You are at the heart of it. You are working very hard, aren’t you?” So Ungan said, “There is one person doesn’t know how hard he is working.” 
+That is coming from a koan in the Book of Equanimity (Case 21). Tenshin Sensei gave us that story in his last talk. [It is a conversation] between Dogo Zenji and Ungan Zenji; Ungan and Dogo are in the relation of the dharma brothers. Ungan swept the temple grounds. Dogo passed by, and said, “You are at the heart of it. You are working very hard, aren’t you?” So Ungan said, “There is one person who doesn’t know how hard he is working.” 
 
-So completely beyond hard or easy, there is another person here. Apparently, he is working hard, but on the other hand, Ungan says, you have to see the other person who doesn’t work hard. 
+So completely beyond hard or easy, there is another person here. Apparently, [Ungan] is working hard, but on the other hand, Ungan says, you have to see the other person who doesn’t work hard. 
 
 Then Dogo Zenji says, “If so, that is a second moon.” That means, the dualistic world. You want to say there is a person who is working hard, or there is another person who doesn’t work hard –  so you want to say [something in] the dualistic world. 
 

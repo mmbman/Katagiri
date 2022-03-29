@@ -7,7 +7,7 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
 [Next](1980-07-03-Karma-Unmanifested)
 
-**This transcript is in rough draft form.**
+**This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

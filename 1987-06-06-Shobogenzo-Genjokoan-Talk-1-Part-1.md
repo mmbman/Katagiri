@@ -7,7 +7,7 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 
-**This transcript is in rough draft form.**
+**This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
