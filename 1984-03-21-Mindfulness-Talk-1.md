@@ -9,9 +9,9 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 #### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on the “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”.
 
-**This transcript is in draft stage.**
-
 (Transcriber’s Note: Although Katagiri Roshi uses the word *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West. The Nishijima & Cross translation of the Shobogenzo chapter in question uses *not pure*. Some of this talk appears in Chapter 9 of *The Light That Shines Through Infinity*, in the section “Dogen’s Not-Pure Body”.)
+
+**This transcript is in draft stage.**
 
 #### This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).
 
@@ -26,19 +26,19 @@ There are four kinds of mindfulness as one of the traditional Buddhist practices
 - Contemplation of the mind as impermanent.
 - Contemplation of existence as insubstantial.
 
-These are the four kinds or four stages of mindfulness which are very general and traditional in Buddhist practice. (Transcriber’s Note: These are basically the [Four Foundations of Mindfulness](https://www.lionsroar.com/the-buddhas-four-foundations-of-mindfulness/).)
+These are the Four Stages of Mindfulness (often called the Four Foundations of Mindfulness), which are very general and traditional in Buddhist practice.
 
-First of all I would like to explain the contemplation of the body as impure, or observation of the body as impure. But generally speaking, it is considered as the body as impure, in common sense, because human beings really attach to the human body or human life as pure, emphasizing strongly their richness, their position, their family’s status, their cleverness, their property, et cetera. Very naturally we create a strong attachment to [these things]. That’s why Buddha emphasizes [for us] to consider the body as impure, in order to be free from the attachment to the human body. 
+First of all I would like to explain the contemplation of the body as impure, or observation of the body as impure. Generally speaking, it is [considering] the body as impure, in [the] common sense. [This is] because human beings really attach to the human body or human life as pure, emphasizing strongly their wealth, their position, their family’s status, their cleverness, their property, et cetera. Very naturally we create too strong an attachment to [these things]. That’s why Buddha emphasizes [for us] to consider the body as impure: in order to be free from the attachment to the human body. 
 
-For instance, I always tell people, the more you live out your life with very hard effort, the more you want to emphasize how wonderful it is, and you want to give it [forcibly] to others. This is really arrogance; you are really arrogant with your life. If you look at your parents and grandparents, who have lots of experiences on the basis of hard work year after year, very naturally they really attach to their own lifestyles. We respect their lifestyle because that was very important for them, and also we can learn lots of things from their lives. But I don’t think it is necessary for them to attach to their own lifestyle, because that is really prejudice. So very naturally, a child doesn’t follow [this]; a child is naturally against it. The same applies to our lives, in many ways: social status, position, and your lifestyle, or your viewpoint, whatever it is. We always believe the viewpoints on the human life, human world as “pure”; that means my views are “right”. So that is called attachment or prejudice, which is called *wrong view*. 
+For instance, I always tell people, the more you live out your life with very hard effort, the more you want to emphasize how wonderful it is, and you want to give it forcibly to others. This is really arrogance; you are really arrogant with your life. If you look at your parents and grandparents, who have lots of experiences on the basis of hard work year after year, very naturally they really attach to their own lifestyles. We respect their lifestyle because that was very important for them, and also we can learn lots of things from their lives. But I don’t think it is necessary for them to attach to their own lifestyle, because that is really prejudice. So very naturally, a child doesn’t follow [this]; a child is naturally against it. The same applies to our lives, in many ways: social status, position, and your lifestyle, or your viewpoint; whatever it is. We always believe the viewpoints on the human life, human world as “pure”; that means my views are “right”. That is attachment or prejudice, which is called *wrong view*. 
 
-That’s why in ancient times Shakyamuni tells his disciples and followers to practice this mindfulness, contemplating the body as impure. Not only in Buddhism, but also in Christian monasteries they also practice this, looking at the human skeleton. That is very common; not only in Buddhist practice. 
+That’s why in ancient times Buddha Shakyamuni tells his disciples and followers to practice this mindfulness, contemplating the body as impure. Not only in Buddhism, but also in Christian monasteries they also practice this, looking at human skeletons. That is very common, not only in Buddhist practice. 
 
 ##### 8:01
 
-But Dogen Zenji understands this practice very deeply, so [his teaching is] quite different. He mentions this in Shobogenzo. It is already translated into English, but [we] don’t understand completely when we read [Shobogenzo]. Even the Japanese don’t understand it. So if you translate it, you don’t understand it; it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
+But Dogen Zenji understands this practice very deeply, so [his teaching is] quite different. He mentions this in Shobogenzo. Shobogenzo is already translated into English, but we don’t understand completely when we read it. Even the Japanese don’t understand it. If you translate it, you don’t understand it; it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
 
-So [...] here is one translation by Uchiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness [in] Japanese, it’s kind of [like] repeating [a magic spell]. 
+Here is one translation by Uchiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness [in] Japanese, it’s kind of [like] repeating [a magic spell]. 
 
 When I was at Eiheiji monastery, I didn’t understand why Dogen Zenji had to explain [this] deeply. Traditionally, it’s pretty easy to understand: contemplate the body as impure, it’s very simple. Why did Dogen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life you have to [try to] understand this one, again and again. This is very important for us. 
 
