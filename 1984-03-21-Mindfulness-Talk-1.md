@@ -286,87 +286,91 @@ Don’t misunderstand this one. People always think, “*That* is zazen.” Some
 
 ##### 36:03
 
-**Question**: Is this also ... before you say ... doing zen that’s short range... how about in taking vows in zen, we vow to save all sentient beings, is that in the short range?
+**Question**: Before you were saying that if we have *[unintelligible]* like bank robberies in doing your zen, that’s short range. How about in taking vows then, too, if we vow to save all sentient beings, is that in the short range?
 
-**Katagiri**: That’s in the big range. *[Laughter.]* How can you save all sentient beings? You have to walk constantly, you have to be right in the middle of huge oceans. Because all sentient beings, countless number, where you should be. It’s not short range, it’s not small oceans. It’s huge oceans. That is a vow to save all sentient beings. 
+**Katagiri**: No, that’s *big range*. *[Laughter.]* How can you save all sentient beings? You have to walk constantly, you have to be right in the middle of *huge* oceans. Because all sentient beings, countless number [of them, is] where you should be. It’s not short range, it’s not small oceans. It’s huge oceans. That is a vow to save all sentient beings. 
 
-I always say that vow is just like to swim in the ocean, which is vast. There is nothing to hold on to. But you cannot stop swimming. You have to just keep going. Even though you say “tired,” or “hopeless”, or “hope,” whatever you think, your activity your process must be going completely beyond your ideas. That is vow. It’s a huge range. 
+I always say that vow is just like to swim in the ocean, which is vast. There is nothing to hold on to. You cannot stop swimming; you have to just keep going. Even though you say “tired,” or “hopeless”, or “hope,” whatever you think, your activity, your process must be going completely beyond your idea. That is vow. It’s a huge range. 
 
-That’s why, in a sense, consciousness always feels boring. Zazen is a little boring. That’s why people cannot stand up there. Very naturally, even the teacher cannot stand up there. *[He laughs.]* Very naturally the teacher gives some candy in the process, on the way to reach the other shore. “Here, eat this.” [The teacher is] always encouraging. 
+That’s why, in a sense, consciousness always feels boring. Zazen is a little boring. That’s why people cannot stand up there. Very naturally, even the teacher cannot stand up there. *[He laughs.]* Very naturally the teacher gives some candy – “Here, eat this” – in the process, on the way to reach the other shore. [The teacher is] always encouraging. 
 
-Of course it is encouragement, but that encouragement really is [only] available for a certain period of time. No *[unintelligible]* anyway. This is life and death. You just swim. 
+Of course it is encouragement, but that encouragement really is [only] available for a certain period of time. No *[unintelligible]*. This is life and death. You just swim. 
 
 ##### 38:56
 
 **Question**: Can zazen be used as an escape from obligations in life?
 
-**Katagiri**: Maybe in the beginning of doing zazen we can see certain situations you can escape from. So you feel good, in a sense. But if you get into it more deeply, you can realize it’s not true. So next moment, you’re very confused. 
+**Katagiri**: Maybe in the beginning of doing zazen you can see certain situations you can escape from. So you feel good, in a sense. But if you get into it more deeply, you can realize it’s not true. So next moment, you’re very confused. 
 
-For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never seen before. But gradually you don’t feel good because you cannot tune into the usual life. You can notice that there is trouble in order to have a good relationship with your friend ...
+For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never seen before. But gradually you don’t feel good, because you cannot tune into the usual life. You can notice that there is trouble in order to have a good relationship with your friend ...
 
 ### Part 3
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
 
-**Same person**: ... You mean as a consequence of doing zazen ... ?
+**Same person**: You mean as a consequence of doing zazen ... ?
 
-**Katagiri**: Maybe so; maybe not. But in a sense you can get into it deeply. 
-
-So it’s very difficult to live with people who are just waiting outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: still a little difficult, because you already get into very deep. So the next experience is you don’t feel good. But in the beginning, you feel good. On the other hand, you don’t. So you have to go beyond this. 
+**Katagiri**: Maybe so; maybe not. But in a sense you can get in too deeply. So it’s very difficult to live with people who are just [waiting] outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: it’s still a little difficult, because you already get in very deep. So the next experience is, you don’t feel good. In the beginning, you feel good; on the other hand, you don’t. So you have to go beyond this. 
 
 ##### 1:18
+ 
+**Question**: Roshi? When I was being raised Catholic, the terms *pure* and *impure* had very narrow and guilt-producing connotations. Is there some other word to say the same thing?
 
-**Question**: Roshi? When I was Catholic, the terms *pure* and *impure* have very narrow and guilt-producing connotations. Is there some other word to say the same thing?
+**Katagiri**: Mm-hmm!  A narrow idea of purity ... ?
 
-**Katagiri**: Mmm-hmmm!  A narrow idea of purity ... ?
-
-**Same person**: I have still my Catholic definition of pure and impure, so is there some other word you could use that would say the ... *[she laughs.]*
+**Same person**: I have still my Catholic definition of “pure” and “impure”, so is there some other word you could use that would say ... *[she laughs.]*
 
 **Another person**: Wholesome and unwholesome may work?
 
-**Same person**: At one time during a lecture this morning you said “true”. Is that another word?
+*[Laughter.]*
 
-**Katagiri**: Well maybe. *[Laughter.]*
+**Same person**: At one time during your lecture this morning you said “true”. Is that another word? And I thought you were saying that instead of “pure”.
 
-Wholesome, unwholesome. [...]
+**Katagiri**: [As in] true body. Well, maybe. Mm-hm. *[Laughter.]*
 
-**Third person**: Does purity imply some sort of clarity or straightforwardness?
+Wholesome, unwholesome. It seems to me that wholesome or unwholesome is almost the same as purity or impurity.
 
-**Katagiri**: Purity in Buddhism is not a result of doing something. Purity is activity itself of doing something; that is purity. Going beyond the idea of purity and impurity. The idea of purity kind of a human value. In terms of the dualistic. If you do *this*, then you can get *this*. And then you say purity or impurity. So purity or impurity given to the result of the human activity. 
+**Another person**: Does purity imply some sort of clarity or straightforwardness?
+
+**Katagiri**: Purity in Buddhism is not a result of doing something. Purity is [the] activity itself of doing something; that is purity. Going beyond the idea of purity and impurity. The idea of purity is kind of a human value. In terms of the dualistic sense, if you do *this*, then you can get *this*, and then you say purity or impurity. So purity or impurity are given to the result of the human activity. 
 
 **Another person**: That’s why some translators like *wholesome*, because wholesome implies *whole*, not like it is some result. 
 
-**Another person**: So it is spirit of shikantaza the same as purity?
+**Another person**: So would you say [is the] spirit of shikantaza the same as purity?
 
-**Katagiri**: Sure. Shikan itself, activity of shikan itself, that is purity. 
+**Katagiri**: Sure. *Shikan* itself, activity [or] shikan itself, that is purity. 
 
-**Another person**: 
+**Another person**: *[Unintelligible.]*
 
-**Katagiri**: [...] Temporarily we say purity. But that is no trace of purity; that is called purity. So that’s why purity is manifested as no purity. So in Buddhism we use a negative: no purity, or no eyes, no ears – that is exactly you have to see some other aspect, so-called purity. The function of purity, constantly. At that time, no purity.
+**Katagiri**: [If you do it, exactly.] Temporarily, we say purity. *[He chuckles.]* But that is no trace of purity; that is called purity. So that’s why purity is manifested as no purity. So in Buddhism we use a negative: no purity, or no eyes, no ears – that is exactly you have to see some other aspect, so-called purity. Function of the purity, constantly. At that time, no purity.
 
-**Same person**: Well in a sense, then, what you’re saying is that purity and no-purity are the same thing.
+**Another person**: Well in a sense, then, what you’re saying is that purity and no-purity are the same thing.
 
-**Katagiri**: Yes, same thing. Exactly. No different. But it’s very difficult to say about that activity or process itself. That’s why temporarily we use “no purity”. 
+**Katagiri**: Yes, same thing, exactly. No different. But it’s very difficult to say about that activity or process itself. That’s why temporarily we use “no purity”. 
 
 **Same person**: So there’s no impurity. 
 
-**Katagiri**: Sure, [and] no purity. That is the spirit of *shikan* you are doing. 
+**Katagiri**: Sure, no impurity, no purity. That is the spirit of *shikan*; you are doing. 
 
 Is that okay? Just like sleep. Shikan sleep, you know? Shikan sleep is very pure ... that means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
 
-**Another person**: Is that similar to what Dogen talks about whole being the Buddha nature? No Buddha nature, Buddha nature, whole Buddha nature. 
+**Another person**: Is that similar to what Dogen talks about whole-being Buddha nature? No Buddha nature, Buddha nature, whole-being Buddha nature. 
 
-**Katagiri**: Self is entire whole world like this. That is the spirit of *shikan*. That is not an abstract idea, abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
+**Katagiri**: [The self] is the entire whole world like this. That is the spirit of *shikan*. That is not an abstract idea, an abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
 
-**Question**: We say “nothing to attain.” Then it’s like the question always comes up, why do we practice? So we say.
+##### 7:40
 
-**Katagiri**: But you already attain a certain stage; that’s why you have questions, “why do we have to do it?” Do you understand? You already touch it. “No attainment” means just the one ... nothing around this. So at that time, you touches this .... ? Nothing? Just like sleeping. Sleeping as object and sleeper as subject, just one feeling. Who touches sleep? I? No. Or, “I am touching sleep,” means already you attain. But actually you are really sleeping exactly. 
+**Question**: Also we say “nothing to attain.” Then it’s like the question always comes up, why do we practice? So we say.
+
+**Katagiri**: But you already attain a certain stage; that’s why you have questions, [like] “why do we have to do it?” Do you understand? You already touch it. “No attainment” means just the one [feeling], nothing around this. So at that time, who touches this [feeling]? Nothing. Just like sleeping. Sleeping as object and sleeper as subject, just one [feeling]. Who touches sleep? I? No. Or, “I am touching sleep” means already you attain. But actually you are really sleeping exactly. 
 
 **Same person**: So arrogance is to attain.
 
-**Katagiri**: Sure. That is called very purity, beyond purity or impurity, beyond idea place of subject and object. Exactly. 
+**Katagiri**: Sure. That is called very pure purity, beyond purity or impurity, beyond idea or trace of subject and object. Exactly. 
 
-**Question**: Instead of saying purity and impurity, could you also say completeness, complete and incomplete? 
+##### 9:45
+
+**Question**: Instead of saying purity and impurity, could you also say complete and incomplete? 
 
 **Katagiri**: Sure. 
 
