@@ -11,8 +11,6 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 (Transcriber’s Note: Although Katagiri Roshi uses the word *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West. The Nishijima & Cross translation of the Shobogenzo chapter in question uses *not pure*. Some of this talk appears in Chapter 9 of *The Light That Shines Through Infinity*, in the section “Dogen’s Not-Pure Body”.)
 
-**This transcript is in draft stage.**
-
 #### This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).
 
 ### Part 1
@@ -56,9 +54,9 @@ First of all, he says:
 
 > Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. 
 
-Usually we understand the contemplation of the body as taking the body as impure. But he doesn’t take the human body as impure; he takes the human body [as] beyond impurity or purity. The human body you observe is nothing but a bag of skin, but on the other hand it is the entire universe; that is what this sentence says. “Your human body is nothing but a bag of skin, but on the other hand, it is the universe” means Buddha. So take care of your body as Buddha, beyond good or bad, right or wrong, purity or impurity. 
+Usually we understand the contemplation of the body as impure is taking the body as impure. But he doesn’t take the human body as impure; he takes the human body [as] beyond impurity or purity. The human body you observe is nothing but a bag of skin, but on the other hand it is the entire universe; that is what this sentence says. “Your human body is nothing but a bag of skin, but on the other hand, it is the universe” means Buddha. So take care of your body as Buddha, beyond good or bad, right or wrong, purity or impurity. 
 
-For instance, [there are] four disciplines of human health, in order to keep your body and mind healthy: we have to take care of your skin, four limbs, nutrition, and also mental or spiritual life. The skin doesn’t mean only the skin. If you look at the skin and then you feel beautiful, at that time you can say, he or she is beautiful. Of course you can say so, but on the other hand, you don’t know what’s going on inside of the skin. Even though the skin is healthy, you don’t know what’s going on inside of the skin or behind the skin, you cannot see it. So the skin is healthy, but the skin is not healthy. It means that the skin is [actually] the total picture of human life. 
+For instance, [there are] four disciplines of human health, in order to keep your body and mind healthy: we have to take care of your skin, four limbs, nutrition, and also mental or spiritual life. The skin doesn’t mean only the skin. If you look at the skin and then you feel beautiful, at that time you can say, he or she is beautiful. Of course you can say so, but on the other hand, you don’t know what’s going on inside of the skin. Even though the skin is healthy, you don’t know what’s going on inside of the skin or behind the skin, you cannot see it. So the skin is healthy, but the skin is not healthy. It means that the skin is the total picture of human life. 
 
 In a sense, the human body is always sick. But as a whole, you are not sick; you are pretty good. So are you sick? No, you are not sick. But are you pretty healthy? No; more or less, we have lots of sickness. Your body is nothing but a bag of skin, but on the other hand, it is the universe. *Universe* means you cannot pin down whether your skin is good or bad, pure or impure; you cannot say so, because it’s *big*. Your skin is connected with mental life. And also, “four limbs” means activities. If your activities don’t work well, it’s pretty hard to keep your body healthy. So you need to take really good care of the human skin, the physical body, and also nutrition. On the other hand, human activities are very important for us. If you have a lack of human activities, you cannot keep your body healthy. And also mental life, this is also important. 
 
@@ -72,7 +70,7 @@ If we try to practice this mindfulness traditionally, you always say, “observi
 
 I use [the word] *observation* or *contemplation*; I don’t know. In Sanskrit we say *vipassana*; vipassana is *insight* or *discernment*. 
 
-According to the Six Pāramitās, which is also one of the traditional Buddhist practices, [we have] *concentration* and *wisdom*. Concentration and wisdom always function together; you can’t separate them. If you try to explain them, you can separate them, but actually they function together; concentration means *samatha* and *vipassana* working together. *Samatha* is *quiescence*, *tranquility*, *stillness* –  or *samadhi*, sometimes; *one-pointedness*. And wisdom, *vipassana*, means *insight*, *discernment*. (Transcriber’s Note: Vippasana is not the same as prajñā, which is often translated as wisdom, but they are often used as near-synonyms.)
+According to the Six Pāramitās, which is also one of the traditional Buddhist practices, [we have] *concentration* and *wisdom*. Concentration and wisdom always function together; you can’t separate them. If you try to explain them, you can separate them, but actually they function together; concentration means *samatha* and *vipassana* working together. *Samatha* is *quiescence*, *tranquility*, *stillness* –  or *samadhi*, sometimes; *one-pointedness*. And wisdom, *vipassana*, means *insight*, *discernment*. (Transcriber’s Note: Vipassana is not the same as prajñā, which is often translated as wisdom, but they are often used as near-synonyms.)
 
 Insight or discernment is to see a distant object clearly. The “distant object” [is] the source of the phenomenal world, the source of existence, [of] the human life, the human world. [Seeing] that is insight. How can you have this practice of insight? That is tranquility. How can you experience tranquility? That is zazen. If you are very tranquil, still, quiescent, simultaneously you can observe or contemplate the source of the phenomenal world. That is called *vipassana*. 
 
@@ -200,7 +198,7 @@ That is the whole story. That’s why it says, “The attainment of observation 
 
 > Because of sweeping the grounds with “which moon?” or sweeping the grounds and wiping the floor with “the second moon,” there is suchness of the entire great earth.
 
-“Lifting the broom and then saying, ‘which moon?’”: Like the truth, or hard work, or not hard work. Which moon?
+Lifting the broom and then saying, “which moon?”: Like the truth, or hard work, or not hard work. Which moon?
  
 “Or sweeping the grounds and wiping the floor with ‘the second moon’”: “The second moon” means, if you yawn, your zazen becomes yawning zazen. If you sleep, zazen becomes sleeping zazen. If you chase after thought, your zazen is also sleeping zazen – thinking zazen. Zazen is exactly one, connected with the whole universe. You cannot pin down what the zazen is. Do you do zazen, or is zazen helping your life? No. Real zazen is walking together with the whole universe. But it appears in many ways. If you yawn: yawn zazen. If you feel bored: bored zazen. Many zazens appear. Those are second moons. 
 
@@ -222,11 +220,11 @@ Just sweep.
 
 So that is the first part [of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”], [where Dogen Zenji explains the] meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
 
-According to the traditional understanding, you should accept your body as not pure. That is a completely dualistic understanding. That’s why you have to see always skeleton, skeleton, always skeleton. I don’t mean it’s wrong; it’s pretty good. But it is a moral understanding. And also this practice is open to just a particular [kind of] person; it’s not [even]. How can usual people practice, people who don’t have this opportunity? How? If they don’t have a skeleton, they cannot do it; and if they don’t *want to* [contemplate a skeleton], they cannot have a chance to practice this mindfulness. It’s not [even]. But this teaching given by Buddha is universal. If so, how can we accept this practice as universal? For this, we should understand this practice very differently. 
+According to the traditional understanding, you should accept your body as not pure. That is a completely dualistic understanding. That’s why you have to see always skeleton, skeleton, always skeleton. I don’t mean it’s wrong; it’s pretty good. But it is a moral understanding. And also this practice is open to just a particular [kind of] person; it’s not [equal]. How can usual people practice, people who don’t have this opportunity? How? If they don’t have a skeleton, they cannot do it; and if they don’t *want to* [contemplate a skeleton], they cannot have a chance to practice this mindfulness. It’s not [equal]. But this teaching given by Buddha is universal. If so, how can we accept this practice as universal? For this, we should understand this practice very differently. 
 
-So first of all, simply speaking, please accept your human body as Buddha. You say, “What do you mean by Buddha?” You don’t understand Buddha, I don’t understand Buddha – so forget it. If you don’t understand the meaning of Buddha, forget it. Buddha is something beyond the idea of purity or impurity. Working together with all sentient beings, this is called the total picture of your human body. You cannot pin it down. Temporarily, that is called Buddha. 
+So first of all, simply speaking, please accept your human body as Buddha. You say, “What do you mean by Buddha?” You don’t understand Buddha, I don’t understand Buddha... so forget it. If you don’t understand the meaning of Buddha, forget it. Buddha is something beyond the idea of purity or impurity. Working together with all sentient beings, this is called the total picture of your human body. You cannot pin it down. Temporarily, that is called Buddha. Everyone has this Buddha. 
 
-Everyone has this Buddha. So why don’t you accept the human body as Buddha, and take care of it? That means, without any prejudice, from moment to moment, you must be fresh. You must have fresh eyes to observe your human body as Buddha, constantly. 
+So why don’t you accept the human body as Buddha, and take care of it? That means, without any prejudice, from moment to moment, you must be fresh. You must have fresh eyes to observe your human body as Buddha, constantly. 
 
 So that is what? That is nothing but everyday practice activities: sweeping the grounds, wiping the floors. You wash the dishes every day, but washing the dishes, wiping the floor is not separate as you believe; it’s very profound practice for us. Our activities are not separate from Buddha’s teachings; that’s why Buddha’s teachings are very close to our everyday activities. But people misunderstand everyday activities in the common sense. [Everyday activities are] very deep, profound, to educate, to deepen your life. We don’t understand that; that’s why Dogen Zenji has to constantly [explain it] like this. 
 
@@ -244,7 +242,7 @@ So that is what? That is nothing but everyday practice activities: sweeping the 
 
 **Katagiri**: *Defilement* is when you see something through discrimination [...] complicated by consciousness. That means you leave a trace of your perception; that is discrimination. That is called *defilement*. 
 
-**Same person**: So undefiled is just being in the activity.
+**Same person**: So *undefiled* is just being in the activity.
 
 **Katagiri**: Mm-hm. But it’s very clear. There is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, [there is] no object. Do you understand that one? No object called “sleeping”. But if there is no object called sleeping, very naturally you don’t perceive you who sleeps. For you, there is no subject, no bodies, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep. 
 
@@ -264,7 +262,7 @@ The same applies to all activities. Zazen is exactly [like] this; you can practi
 
 **Same person**: Thank you.
 
-**Katagiri**: That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in Tenzo Kyōkun it says [there are] three minds: magnanimous mind, [parental] mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
+**Katagiri**: That is called *shikan*: wholeheartedness. Or [speaking in terms of consciousness], in Tenzo Kyōkun it says [there are] three minds: magnanimous mind, [parental] mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
 
 ##### 30:10
 
@@ -284,7 +282,7 @@ Don’t misunderstand this one. People always think, “That is zazen.” Someti
 
 ##### 36:03
 
-**Question**: Before you were saying that if we have *[unintelligible]* like bank robberies in doing your zen, that’s short range. How about in taking vows then, too, if we vow to save all sentient beings, is that in the short range?
+**Question**: Before you were saying that if we have *[unintelligible]* like bank robberies in doing your zen, that’s short range. How about in taking vows then, too; if we vow to save all sentient beings, is that in the short range?
 
 **Katagiri**: No, that’s *big range*. *[Laughter.]* How can you save all sentient beings? You have to walk constantly, you have to be right in the middle of *huge* oceans. Because all sentient beings, countless number [of them, is] where you should be. It’s not short range, it’s not small oceans. It’s huge oceans. That is a vow to save all sentient beings. 
 
@@ -350,7 +348,7 @@ Wholesome, unwholesome. It seems to me that wholesome or unwholesome is almost t
 
 **Katagiri**: Sure, no impurity, no purity. That is the spirit of *shikan*; you are doing. 
 
-Is that okay? Just like sleep. Shikan sleep, you know? Shikan sleep is very pure ... that means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
+Just like sleep. Shikan sleep, you know? Shikan sleep is very pure ... that means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
 
 **Another person**: Is that similar to what Dogen talks about whole-being Buddha nature? No Buddha nature, Buddha nature, whole-being Buddha nature. 
 
