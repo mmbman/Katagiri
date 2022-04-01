@@ -102,11 +102,11 @@ That’s why first he speaks like this. That’s why “the observation that the
 
 > This is the true body, and therefore is observing the body as impure, which transcends pure and impure.
 
-[That is the translation,] but literally, Dogen Zenji [says it in a more vivid way]:
+It says “transcends pure and impure” – this is okay, I understand it, but literally Dogen Zenji says something more alive:
 
 > This is the true body, and therefore is observing the body as impure, *which is vividly hopping along*.
 
-[Literally] he says “hopping long”, or “jumping along”, or “vividly living”. [The translation] says, “transcends pure and impure” – this is okay, I understand it, but literally Dogen Zenji says something more alive. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly.
+[Literally] he says “hopping long”, or “jumping along”, or “vividly living”. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly.
 
 That’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of sesshin is different. You always expect, “In *this* sesshin, I would like to have a *good* sesshin.” Of course. But if you’re jumping into it, sesshin is not an idea, sesshin is something alive, because *you* do it. Your human body is something alive, so [...] finally the sesshin is going in a different way from what you have expected. 
 
