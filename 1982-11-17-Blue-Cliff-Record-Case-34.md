@@ -4,8 +4,8 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1982) \| 
-[Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Next](1984-03-21-Mindfulness-Talk-1)
 
 #### Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: how to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
 
@@ -222,5 +222,5 @@ I understand it’s pretty hard, because getting up in the morning is a very sim
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1982) \| 
-[Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Next](1984-03-21-Mindfulness-Talk-1)
