@@ -76,19 +76,19 @@ If we try to practice this mindfulness traditionally, you always say, “observi
 
 I use [the word] *observation* or *contemplation*; I don’t know. In Sanskrit we say *vipassana*; vipassana is *insight* or *discernment*. 
 
-According to the Six Pāramitās, which is also one of the traditional Buddhist practices, [we have] *concentration* and *wisdom*. Concentration and wisdom always function together; you can’t separate them. If you try to explain them, you can separate them, but actually they function together. So in a sense, concentration means *samatha* and *vipassana* working together. *Samatha* is *quiescence*, *tranquility*, *stillness*, or sometimes *samadhi* – *one-pointedness*. And wisdom, *vipassana*, means *insight*, *discernment*. (Transcriber’s Note: Vipassana is not the same as prajñā, which is often translated as wisdom, but they are often used as near-synonyms.)
+According to the Six Pāramitās, which is also one of the traditional Buddhist practices, [we have] *concentration* and *wisdom*. Concentration and wisdom always function together; you can’t separate them. If you try to explain them, you can separate them, but actually they function together. So in a sense, concentration means *samatha* and *vipassana* working together. *Samatha* is *quiescence*, *tranquility*, *stillness*, or sometimes *samadhi* – *one-pointedness*. And wisdom, *vipassana*, means *insight*, *discernment*. 
 
-Insight or discernment is to see a distant object clearly. The “distant object” [is] the source of existence. *Existence* means the phenomenal world: human life, the human world. [Seeing that] is insight. How can you have this practice of insight? That is tranquility. How can you experience tranquility? That is zazen. If you are very tranquil, still, quiescent, then simultaneously you can observe or contemplate the source of the phenomenal world. That is called *vipassana*. 
+Insight or discernment is to see a distant object clearly. The “distant object” [is] the source of existence. *Existence* means the phenomenal world: human life, the human world. [Seeing that] is insight. How can you have this practice of insight? That is tranquility. How can you experience tranquility? That is zazen. If you are very tranquil or still, quiescent, then simultaneously you can observe or contemplate the source of the phenomenal world. That is called *vipassana*. 
 
-The source of existence, the source of the phenomenal world, doesn’t have a sense of comparison or resemblance – *prama*. *Prama* in Sanskit means comparison or resemblance. So [the source of existence is] exactly pure, nothing. If you are tranquil in zazen, simultaneously this is nothing but the experience of touching the source of the phenomenal world, without any sense of comparison, before you are conscious of your own experience. 
+The source of existence, the source of the phenomenal world, [doesn’t have a] sense of comparison – *prama*. *Prama* in Sanskit means comparison or resemblance. So [the source of existence is] exactly pure, nothing. If you are tranquil in zazen, simultaneously this is nothing but the experience of touching the source of the phenomenal world, without any sense of comparison, before you are conscious of your own experience. 
 
-Tranquility means *samadhi*, we say, or one-pointedness. In other words, tranquility or quiescence means to abide *firmly* in zazen, in one-pointedness, in right-now-right-here. That is *shamata*. Simultaneously this is nothing but the experience or clear observation of what the source of the human phenomenal world is, exactly. That’s why *vipassana* is clear observation of the source of the phenomenal world, but *shamata* guides you or takes you to truth itself, simultaneously. Our consciousness cannot reach it; that’s why we don’t know, that’s why we are struggling. Our mind is *very* busy, so we cannot reach it. All we have to do is just to keep going, just like this, nothing else. But we don’t know that. 
+Tranquility means *samadhi*, we say, or one-pointedness. In other words, tranquility or quiescence means *to abide firmly* in zazen, in one-pointedness, in right-now-right-here. That is *shamata*. Simultaneously this is nothing but the experience or clear observation of what the source of the human phenomenal world is, exactly. That’s why *vipassana* is clear observation of the source of the phenomenal world, but *shamata* guides you or takes you to truth itself, simultaneously. Our consciousness cannot reach it; that’s why we don’t know, that’s why we are struggling. Our mind is *very* busy, so we cannot reach it. All we have to do is just to keep going, just like this, nothing else. But we don’t know that. 
 
 That is observation or contemplation.
 
 ##### 32:56
 
-In zazen we practice facing the wall. According to Bodhidharma, [...] wall meditation means observation of the wall, looking at the wall. Looking at the wall doesn’t mean *you* look at the wall. The wall is emptiness. The wall is the source of existence; [there is] nothing there. So doing zazen, facing the wall, means abiding firmly in zazen, right-now-right-here, and then – what can you experience? This is emptiness, nothing, but nothing doesn’t mean nothing, because simultaneously *vipassana* means you can touch very deeply the source of the human phenomenal world. That’s why in the Nirvana Sutra [it says], “If you want to see suchness, the truth of the human world, you have to see it through meditation, zazen.” That’s why doing zazen is very important for us.
+In zazen we practice facing the wall. According to Bodhidharma, [facing the wall] means observation of the wall, looking at the wall. Looking at the wall doesn’t mean *you* look at the wall. The wall is emptiness. The wall is the source of existence; [there is] nothing there. So doing zazen, facing the wall, means abiding firmly in zazen, right-now-right-here – and then, what can you experience? This is emptiness, nothing, but nothing doesn’t mean nothing, because simultaneously *vipassana* means you can touch very deeply the source of the human phenomenal world. That’s why in the Nirvana Sutra [it says], “If you want to see suchness, the truth of the human world, you have to see it through meditation, zazen.” That’s why doing zazen is very important for us.
 
 And the contemplation of the body: I told you, in this case the body is [both] the body and the mind, in the modern sense. Then the human body means the human body, and nutrition, and also human activities, and spiritual life. So you have to observe the human body, including nutrition and activities, spiritual life. All are connected. 
 
@@ -110,11 +110,11 @@ It says “transcends pure and impure” – this is okay, I understand it, but 
 
 > This is the true body, and therefore is observing the body as impure, *which is vividly hopping along*.
 
-[Literally] he says “hopping long”, or “jumping along”, or “vividly living”. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly.
+Literally he says “hopping long”, or “jumping along”, or “vividly living”. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly.
 
 That’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of sesshin is different. You always expect, “In *this* sesshin, I would like to have a *good* sesshin.” Of course. But if you’re jumping into it, sesshin is not an idea, sesshin is something alive, because *you* do it. Your human body is something alive, so [...] finally the sesshin is going in a different way from what you have expected. 
 
-So whatever you say – sesshin, or human body, breath, your eyes, *[unintelligible]*, activities, spiritual life – all are something alive. And then, you have to observe or contemplate that human body which is vividly living. Not an idea; not the human body separate from mind; not the human body separate from the trees, birds, or human activities. We have to see the human body which is vividly alive: living, jumping, hopping along. Because when your body is really hopping along, or living, you don’t know what the human body is. That is called *transcend*. So transcend your ideas – your idea of purity or impurity, or good or bad. You don’t know, you cannot pin down ... 
+So whatever you say – sesshin, or human body, breath, your eyes, *[unintelligible]*, activities, spiritual life – all are something alive. And then, you have to observe or contemplate that human body which is vividly living. Not an idea; not the human body separate from mind; not the human body separate from the trees, birds, or human activities. We have to see the human body which is vividly alive: living, jumping, hopping along. Because when your body is really hopping along or living, you don’t know what the human body is. That is called *transcend*. So *transcend* your ideas – your idea of purity or impurity, or good or bad. You don’t know, you cannot pin down ... 
 
 ### Part 2
 
@@ -122,13 +122,7 @@ So whatever you say – sesshin, or human body, breath, your eyes, *[unintelligi
 
 ... That’s why your body is the true human body. 
 
-Rinzai Zen Master said, “The true human body is coming and going from every pore of your body.” 
-
-But a monk didn’t understand this, and asked, “What is that?” 
-
-Immediately Rinzai grabbed him and shook him, [saying,] “How stupid you are!” And pushed him away. 
-
-(Transcriber’s Note: This is probably referring to Case 38 of the Book of Equanimity, “Linji’s (Rinzai’s) ‘True Person’”.)
+Rinzai Zen Master said, “The true human body is coming and going from every pore of your body.” But a monk didn’t understand this, and asked, “What is that?” Immediately Rinzai grabbed him and shook him, [saying,] “How stupid you are!” And pushed him away. (Transcriber’s Note: This is probably referring to Case 38 of the Book of Equanimity, “Linji’s (Rinzai’s) ‘True Person’”.)
 
 [That was] because, the human body is considered very naturally as just the human body, completely separate from activities, nutrition, spiritual life, and the trees and birds. If you do that, you cannot keep your human body healthy, as a Buddha. Real health is to take care of human life as a Buddha, beyond purity or impurity. That is really perfect health. 
 
@@ -146,13 +140,13 @@ But literally he says “no jumping-around” or “no living”:
 
 > If there is no [vivid livingness], there can be no attainment of this observation. 
 
-It means, if you are really merging with your activities, you don’t know what you are doing. Your activities are very clear; you know pretty well [what you are doing]. But right in the middle of the *process* of the activities, you don’t know; observation doesn’t work. But it’s very clear.
+It means, if you are really merging with your activities, you don’t know what you are doing. Your activities are very clear, you know pretty well [what you are doing], but right in the middle of the *process* of the activities, you don’t know; observation doesn’t work. But it’s very clear.
 
 Just like sleep. When you sleep like a rock, you don’t know, you don’t perceive what’s going on. But sleep exists, very clearly. And also your human body observes very clearly, but your perception doesn’t accept [the observation], so [relation] doesn’t work. You cannot contemplate [it], but sleep is constantly going. Your human body, your human mind, exactly participates in sleep. At that time, [there is] no sleep. 
 
 That’s why here it says that no detachment – but literally he said no *jumping-around-ness* or no *livingness* – is no attainment of observation. Because you don’t know. But sleep is there, very clearly. 
 
-So, no observation. This is just like zazen; *samatha*. If you do it, exactly you experience tranquility. But [the] real pure sense of tranquility is *you don’t know*. All you have to do is constantly abide firmly in zazen; that’s it. That is called tranquility or quiescence, if you want to put a name on it. But actually, you don’t know. No observations, no contemplation there. 
+So, no observation. This is just like zazen; *samatha*. If you do it exactly, you experience tranquility. But [the] real pure sense of tranquility is *you don’t know*. All you have to do is constantly abide firmly in zazen; that’s it. That is called tranquility or quiescence, if you want to put a name on it. But actually, you don’t know. No observations, no contemplation there. 
 
 ##### 5:40
 
@@ -160,15 +154,13 @@ And also he says,
 
 > If there is no body, there can be no attainment of practice, teaching, or observation of the body’s impurity. 
 
-It means no bodies... 
+It means no bodies.
 
-If you see sleep as a result, as an idea, you are caught by the idea of sleep. But if you participate exactly as one with the function or process of sleep, [there is] no sleep. If so, [there is] no object. If there is no object, there is no subject either, because subject doesn’t make sense. Do you understand?
+If you see sleep as a result, as an idea, you are caught by the idea of sleep. But if you participate exactly as one with the function or process of sleep, [there is] no sleep. If so, [there is] no object. If there is no object, there is no subject either, because subject doesn’t make sense. Do you understand? According to a sentence: subject, [verb], and object. If you see the object as an idea, you are constantly caught by the object. But if you participate in the object exactly, there is no object. No sense of sleep, because you are exactly one, so no object. If there is no object, there is no reason why we should have a subject, so no subject. That’s why [it says] “no body” here.
 
-According to a sentence: subject, [verb], and object. If you see the object as an idea, you are constantly caught by the object. But if you participate in the object exactly, there is no object. No sense of sleep, because you are exactly one, so no object. If there is no object, there is no reason why we should have a subject, so no subject. That’s why [it says] “no body” here.
+So if you do zazen, exactly no zazen. If there is no zazen, [then] no observations, because no bodies; I don’t have [a body]. That’s why it says here that no body is no attainment of practice. There is no space to say “I am practicing”. [Also,] no attainment of teaching and no attainment of observations. Nothing to say. So constantly all you have to do is to abide firmly in zazen. That’s it. That’s all we have to do.
 
-So if you do zazen, exactly no zazen. If there is no zazen, [then] no observations, because no bodies. I don’t have [a body]; that’s why it says here that no body is no attainment of practice. There is no space to say “I am practicing”. [Also,] no attainment of teaching and no attainment of observations. Nothing to say. So constantly all you have to do is to abide firmly in zazen. That’s it. That’s all we have to do.
-
-But we always make an effort to do zazen, in terms of a result. We want to always see the result of what we have done. At that time, you forget the process of doing zazen, or participating in zazen. First of all, you have to participate in zazen; that is most important. And *then* you can see the result. But we don’t do it [that way] in everyday life. 
+But we always make an effort to do zazen in terms of a result. We want to always see the result of what we have done. At that time, you forget the process of doing zazen, or participating in zazen. First of all, you have to participate in zazen; that is most important. And *then* you can see the result. But we don’t do it [that way] in everyday life. 
 
 Even if you don’t see it or you don’t notice this, our life is going just like this. So that’s why we have to explain this. But actually we don’t believe it, because we always first [look at] the result of what we have done, and then sometimes it is great encouragement for us, sometimes disappointment for us. So we give up, or we try to do it more... up and down, up and down, always. 
 
@@ -178,7 +170,7 @@ So no body is no attainment of practice, no attainment of the teaching, no attai
 
 > Yet the attainment of this observation has already been actualized...
 
-What is *real* observation? Real observation is constantly being *with* the process of meditation, doing zazen. But the idea of observation is to see something in the distance; that is [what we usually call] observation. That’s why we have to observe something closely or discern something in the distance; but that’s not real discernment. Real discernment or observation is to be constantly *with* it.
+What is *real* observation? Real observation is constantly being *with* the process of meditation, doing zazen. But the idea of observation is to see something in the distance; that is [what we usually call] observation. That’s why we have to observe something closely or discern something in the distance. But that’s not real discernment. Real discernment or observation is to be constantly *with* it.
 
 For instance, fires. You should observe fire, you should discern fire. [When] you see the fire in the distance, [you are] always thinking, “it is fire, it is fire” – analyzing, synthesizing – but it doesn’t make sense for you, because the fire doesn’t burn your body or your mind. So what is real discernment or real observation of fire? Put your hand in the fire. Immediately, you can observe *real* observations.
 
@@ -194,7 +186,7 @@ That’s why he says, “so you should know that it is attainment of jumping-aro
 
 > The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors. 
 
-That is coming from a koan (Case 21) in the Book of Equanimity. Tenshin Sensei gave us that story in his last talk. [It is a conversation] between Dogo Zenji and Ungan Zenji; Ungan and Dogo are in the relation of dharma brothers. 
+That is coming from a koan (Case 21) in the *Book of Equanimity*. Tenshin Sensei gave us that story in his last talk. [It is a conversation] between Dogo Zenji and Ungan Zenji; Ungan and Dogo are in the relation of dharma brothers. 
 
 Ungan was sweeping the temple grounds. Dogo passed by, and said, “You are at the heart of it. You are working very hard, aren’t you?” So Ungan said, “There is one person who doesn’t know how hard he is working.” 
 
@@ -210,17 +202,17 @@ That is the whole story. That’s why here it says, “The attainment of observa
 
 > Because of sweeping the grounds with “which moon?” ...
 
-Like the truth, or hard work, or not hard work. Which moon?
+This is [referring to] Ungan lifting the broom and saying, “Which moon?” Like the truth, or hard work, or not hard work: which moon?
  
 > ... or sweeping the grounds and wiping the floor with “the second moon” ...
 
-“The second moon” means, if you yawn, your zazen becomes yawning zazen. If you sleep, zazen becomes sleeping zazen. If you chase after thought, your zazen is also sleeping zazen – thinking zazen. Zazen is exactly one, connected with the whole universe. You cannot pin down what the zazen is. Do you do zazen, or is zazen helping your life? No. Real zazen is walking together with the whole universe. But it appears in many ways. If you yawn: yawn zazen. If you feel bored: bored zazen. Many zazens appear. Those are second moons. 
+“The second moon” means, if you yawn, your zazen becomes yawning zazen. If you sleep, zazen becomes sleeping zazen. If you chase after thought, your zazen is also sleeping zazen... thinking zazen. Zazen is exactly one, connected with the whole universe. You cannot pin down what the zazen is. Do you do zazen, or is zazen helping your life? No. Real zazen is walking together with the whole universe. But it appears in many ways. If you yawn: yawn zazen. If you feel bored: bored zazen. Many zazens appear. Those are second moons. 
 
-“Which moon?” means you have to do it, just do it. Just do it. But on the other hand, if you see it, there is a second moon: sleeping zazen, yawning zazen, bored zazen. You can see the many moons. Those are the second moons, the dualistic world. That makes you confused: what is *real* zazen? But all you have to do is just do zazen. That zazen is what? You do zazen with which moon? Sleeping zazen? No. Or Enlightenment zazen? No way! *[He chuckles.]* Or [doing] zazen? No, you cannot say that. So finally the zazen you do is *what*? What is that? What kind of things do you do zazen with? Your human body? Or Buddha? *Nothing*. Just sit. 
+“Which moon?” means you have to do it, just do it. Just do it. But on the other hand, if you see it, there is a second moon: sleeping zazen, yawning zazen, bored zazen. You can see the many moons. Those are the second moons, the dualistic world. That makes you confused: what is *real* zazen? But all you have to do is just do zazen. That zazen is what? You do zazen with which moon? Sleeping zazen? No. Or Enlightenment zazen? No way! *[He chuckles.]* Or [doing] zazen? No, you cannot say [that]. So finally the zazen you do is *what*? What is that? What kind of things do you do zazen with? Your human body? Or Buddha? *Nothing*. Just sit. 
 
 That is Ungan holding the broom and saying, “Which moon sees this?”
 
-And finally, Dogen Zenji says, 
+And finally Dogen Zenji says, 
 
 > ... the attainment of observation is suchness of the entire universe. 
 
