@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34) ([1982](#1982)) – posted March 19, 2022.
+Latest transcript: [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1) ([1984](#1984)) – posted April 3, 2022.
 
 # Table of Contents
 
