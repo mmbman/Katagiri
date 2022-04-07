@@ -106,11 +106,13 @@ We have to paint the air, not only paint the persimmon. If you want to paint the
 
 So, something pretty, something simple, something beautiful, something useful, for the bird. That is our practice, constantly. Even though you don’t understand it, anyway, paint it. Paint something pretty. That means you should go to the top of the IDS tower. You don’t believe it is something beautiful, but that’s alright. [If] you are following the Buddha’s teaching you should go there, you should put yourself [there] in that way. This is painting something beautiful.
 
-> Then, place the canvas against a tree, in a garden, in the woods, or in a forest. Hide behind the trees, without speaking, without moving. Sometimes the bird comes quickly.
+> Then, place the canvas against a tree, in a garden, in the woods, or in a forest. Hide behind the trees, without speaking, without moving. 
 
 If you paint something beautiful, don’t attach to it. You have to leave your painting in the woods, in the forest, and then *you* shouldn’t show up, you should hide behind [it]. This is [to] practice the truth. When you do gassho, you have to practice samadhi. What do you mean? Samadhi is really tranquil silence. So, you must be behind the gassho. You cannot move. If you move even just a little, immediately your head comes up, and [you start] arguing. 
 
-So that’s why this says, “Hide behind a tree without speaking, without moving. Sometimes the bird comes quickly.” Sometimes the bird comes, but strictly speaking, not sometimes, *always* the bird is exactly there. But according to the individual experience, we say “sometimes”: “Sometimes I can experience enlightenment through zazen.” But Buddha’s compassion is open to everyone. So *always*, there is a bird. But we don’t realize it, so individually, we say “sometimes”. We don’t know when [the bird will appear].
+> Sometimes the bird comes quickly.
+
+Sometimes the bird comes, but strictly speaking, not sometimes, *always* the bird is exactly there. According to the individual experience we say “sometimes”: “Sometimes I can experience enlightenment through zazen.” But Buddha’s compassion is open to everyone, so *always*, there is a bird. But we don’t realize it, so individually, we say “sometimes”. We don’t know when [the bird will appear].
 
 But this poet says, it doesn’t matter when [the bird] comes [or] how fast it comes. He says, 
 
