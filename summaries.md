@@ -128,6 +128,13 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 
 [Transcript](1982-11-17-Blue-Cliff-Record-Case-34)
 
+## Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho
+November 24, 1982
+
+Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we act? Also: does it matter how many people come to our Zen Center, and what kind of people they are? Do we make distinctions or not? Where is the boundary between subject and object? 
+
+[Transcript](1982-11-24-Blue-Cliff-Record-Case-35)
+
 ## Introduction to Buddhism
 June 22, 1985
 
