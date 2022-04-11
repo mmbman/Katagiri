@@ -17,11 +17,11 @@ description: November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 The thirty-fifth case [of Blue Cliff Record]: “The Dialogue of Manjusri and Wu Cho”. 
 
-The pointer:
+The Pointer:
 
 >  Determining dragons and snakes, distinguishing jewels and stones, separating the profound and the naive, to settle all uncertainty: if you haven’t an eye on your forehead and a talisman under your elbow, time and again you will miss the point immediately. Right at this very moment seeing and hearing are not obscured; sound and form are purely real. Tell me, is it black? Is it white? Is it crooked? Is it straight? At this point, how will you discriminate?
 
-The case:
+The Case:
 
 > Manjusri asked Wu Cho, “Where have you just come from?”  
 > Wu Cho said, “The South.”  
@@ -96,21 +96,19 @@ If you don’t have a third eye to see, to understand, or if you don’t have ma
 
 > Right at this very moment seeing and hearing are not obscured;
 
-“Right at this very moment” means from moment to moment, when you see somebody, when you want to educate somebody, right at this very moment, right now, seeing and hearing are not obscured. His or her consciousness functioning very clearly; nothing obscured. 
+This means when you see somebody, when you want to educate somebody, right at this very moment, *right now*, seeing and hearing are not obscured, his or her consciousness [is] functioning very clearly; nothing obscured. 
 
 > sound and form are purely real. 
 
-That means your object. The sense objects are also very clear. In other words, if you don’t see your object, your object become obscure, it is already confusion, it is one of the confusions, if you cannot see the object as it really is. So whatever happens, under all circumstances, you have to see your object in proper way. But if it becomes obscure, that is a problem. And on the other hand, your own consciousness also obscure, you cannot deal with your object. So your own consciousness and object must be clear, not obscure. So everything is very clear: there is a table, there is a Katagiri, there is a book. We have to see clearly, and deal with this book, this table, with kindness, compassion, and wholeheartedness. 
+That means your object; the sense objects are also very clear. In other words, if you don’t see your object, if your object becomes obscure, it is already confusion. If you cannot see the object as it really is, it is one of the confusions. So whatever happens, under all circumstances you have to see your object in the proper way. If it becomes obscure, that is a problem. And on the other hand, if your own consciousness is also obscure, you cannot deal with your object. So your own consciousness and your object must be clear, not obscure. Everything is very clear: there is a table, there is a Katagiri, there is a book. We have to see clearly, and deal with this book, this table, with kindness, compassion, and wholeheartedness. 
 
 > Tell me, is it black? Is it white? Is it crooked? Is it straight? 
 
-It means, when the object is very clear, your consciousness is very clear, at that time object and subject are interpenetrating each-other, without creating any interlocking obstacles. At that time, how can you say it? Where is the boundary between the subject and object? While you can see even slightly a boundary between you and cabbage, you and zazen, at that time zazen is exactly object separate from you. It’s object, but simultaneously it shouldn’t be object, it must be within you, because it must be alive. When the object must be fully alive, at that time object comes into you, very naturally. If you are alive fully, very naturally you can penetrate your object. So at that time, there are no particular categories. Is it white? Is it black? Is it crooked? Is it straight? No. This is called total dynamic working. 
+It means, when the object is very clear and your consciousness is very clear, at that time object and subject are interpenetrating each-other, without creating any interrupting obstacles. At that time, how can you say it? Where is the boundary between the subject and object? While you can see even slightly a boundary between you and cabbage, you and zazen, at that time zazen is exactly an object separate from you. It’s an object, but simultaneously it shouldn’t be an object, it must be within you, because it must be alive. When the object must be fully alive, at that time the object comes into you, very naturally. If you are alive fully, very naturally you can penetrate your object. So at that time, there are no particular categories. Is it white? Is it black? Is it crooked? Is it straight? No. This is called total dynamic working. 
 
 > At this point, how will you discriminate?
 
-Nevertheless, this is not spiritual dimensions which make you spaced out. Still you are you, object is object. Very clearly we have to discriminate. You cannot mix it up. You are you, your object is your object. You have to see it there. 
-
-So how will you discriminate? This is a bodhisattva practice. It’s pretty hard, but you can do it. 
+Nevertheless, this is not a “spiritual dimension” which makes you spaced out. Still you are you, object is object. Very clearly, we have to discriminate. You cannot mix it up. You are you, your object is your object; you have to see it there. So how will you discriminate? This is a bodhisattva practice. It’s pretty hard, but you can do it. 
 
 ##### 34:10
 
@@ -119,24 +117,25 @@ So let’s see the case.
 > Manjusri asked Wu Cho, “Where have you just come from?”  
 > Wu Cho said, “The South.”  
 
-This is a very common question and answer. And Wu Cho said, “The South.” At that time, Buddhism was developing from the south of China. So very naturally maybe Wu Cho practiced in the south. That’s why he said, “The South.”
+This is a very common question and answer. At that time, Buddhism was developing from the south of China. So very naturally maybe Wu Cho practiced in the south, that’s why he said, “The South.”
 
 > Manjusri said, “How is the Buddhist Teaching being carried on in the South?”  
 
-In other words, how do you take care of Buddhist teachings in the south.
+In other words, how do you take care of Buddhist teachings in the South?
 
 > Wu Cho said, “Monks of the Last Age have little regard for the rules of discipline.”  
 
-The Last Age means the complicated, muddy world, muddy period of time, where there is lots of confusion. There is teaching there, but no experience of enlightenment. Counterfeit age is the period which there are teaching and practice but no enlightenment. In the authentic period or age, while Buddha was alive, or right after his death for 500 years or a thousand years, we call the Right Dharma Age. At that time, there are still the teaching and experience and also also enlightenment, awareness there. 
-
-He says there is no a really great man of Buddhist monk there, but still there are some who obey Buddhist discipline in their lives. 
+The Last Age means the complicated, muddy period of time in the world, where there is lots of confusion. There is teaching there, but no experience and no enlightenment. The Counterfeit Age is the period which there are teaching and practice but no enlightenment. The authentic period, while Buddha was alive, or after his death for five hundred years or a thousand years, we call the Right Dharma Age. At that time, there are still the teaching and experience and also enlightenment, awareness there. So here he says there is not a really great man of Buddhism there, but still there are some who obey Buddhist discipline in their lives. 
 
 > Manjusri said, “How numerous are the congregations?”  
+
+[He means] how big the organization is.
+
 > Wu Cho said, “Some three hundred, some five hundred.”  
 
-In those days, monasteries were very popular, so there were many monks there. Some monasteries had three hundred, some five hundred, some monasteries had a thousand monks, two thousand monks. Baso Zen Master, .... Zen Masters Masters, it is said, had a thousand, sometimes two thousand. They were really famous, popular Zen Masters. But on the other hand, some Zen Master has just four or five monks, and practices seriously. Temples were not ... very poor. But he also was one of the famous Zen Teachers there. But generally speaking, particularly Rinzai Zen was very popular in those days. 
+In those days monasteries were very popular, so there were many monks there. Some monasteries had three hundred, some five hundred, some monasteries had a thousand monks, two thousand monks. Baso Zen Master’s, Setcho Zen Master’s monastery, it is said, had a thousand, sometimes two thousand. They were really famous, popular Zen Masters. But on the other hand, some Zen Master has just four or five monks and practices seriously. Temples were not fun; the rain was freezing, and they were very poor. But he also was one of the famous Zen Teachers. But generally speaking, particularly Rinzai Zen was very popular in those days. 
 
-For instance, in the United States, in the West. Buddhism comes from the west in the united states, not in the middle, jump to the east, you know, skipping the midwest. Now ... midwest, even though you don’t like it. *[Laughter.]*
+For instance, in the United States, Buddhism started from the West and then jumped to the East, you know, skipping the Midwest. And now, little by little, it’s in the Midwest – even though you don’t like it. *[Laughter.]*
 
 > Wu Cho asked Manjusri, “How is it being carried on hereabouts?”  
 
@@ -144,15 +143,15 @@ So how about you, Manjusri? How about your monastery?
 
 > Manjusri said, “Ordinary people and sages dwell together; dragons and snakes intermingle.”  
 
-In my monastery, ordinary people and sages dwell together, practice together, and dragons and snakes are all practicing together. That means, no discrimination. Between man and woman, dragons and snakes, poor or rich, no discrimination. All come together and practice. 
+[He says] in my monastery, ordinary people and sages practice together, and dragons and snakes are all practicing together. That means no discrimination between man and woman, dragons and snakes, poor or rich. All come together and practice. 
 
 > Wu Cho said, “How numerous are the congregations?”  
 
-So how big are you monasteries? 
+How big are you monasteries? 
 
 > Manjusri said, “In front, three by three; in back, three by three.”  
 
-That means, my monastery is immense. That’s great, huh? The monastery is immense, huge – vast. Even though there are just the five monks, even though one, even though three, anyway, it’s immense. And then you can practice very stably, very stably. But if you are always caught by the number of people who practice at the monasteries, comparing them with other monasteries, you become very unstable. 
+That means, my monastery is *immense*. That’s great, huh? That monastery is immense, huge, vast. Even though there are just the five monks, or three one, or one, anyway it’s immense. And then you can practice very stably, very stably. But if you are always caught by the number of people who practice at the monasteries, comparing them with other monasteries, you become very unstable. 
 
 ##### 42:05
 
@@ -165,15 +164,13 @@ The verse:
 
 > The thousand peaks twist and turn, the color of indigo.  
 
-This is representing the beautiful scenery of Mount Wutai. The scenery is completely beautiful, beyond words, beyond discrimination, beyond the sense of comparison. Perfect. Mountain is mountain, but mountain is not mountain, so mountain is really being interconnected with skies, birds, trees, peoples’ lives, creating a harmonious life in the human world. That is the scenery of Mount Wutai. 
+This is representing the beautiful scenery of Mount Wutai. The scenery is completely beautiful, beyond words, beyond discrimination, beyond the sense of comparison. Perfect. Mountain is mountain, but mountain is not mountain, so mountain is really beings interconnected, interpenetrated with skies, birds, trees, peoples’ lives, and creating a harmonious life in the *sahā* human world. 
 
-That means completely accept the mountains life, the scenery’s life. Completely and totally accept your presence and others’ presence. 
-
-That is a little bit different from acceptance of the mountains and others’ life and your life in terms of common sense. 
+That is the scenery of Mount Wutai. That means completely accept the mountain’s life, the scenery’s life. Completely and totally accept your presence and others’ presence. That is a little bit different from acceptance of the mountain’s or others’ life and your life in terms of common sense. 
 
 I told you several years ago, in Zen there are three ways of thinking and understanding. In the first stage, mountains are mountains. Second stage, mountains are not mountains. The third stage, mountains are mountains.
 
-(Transcriber’s note: The conclusion of the talk is missing.)
+(Transcriber’s note: The conclusion of this talk seems to be missing.)
 
 ##### 45:05 end of recording.
 
