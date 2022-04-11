@@ -7,7 +7,7 @@ description: November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
-#### Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we act? Also: does it matter how many people come to our Zen Center? Does if matter what kind of people they are? Do we make distinctions or not? Where is the boundary between subject and object? 
+#### Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: does it matter how many people come to our Zen Center? Does if matter what kind of people they are? Do we make distinctions or not? Where is the boundary between subject and object? 
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-35" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -27,6 +27,7 @@ The Case:
 > Wu Cho said, “Monks of the Last Age have little regard for the rules of discipline.”  
 > Manjusri said, “How numerous are the congregations?”  
 > Wu Cho said, “Some three hundred, some five hundred.”  
+>  
 > Wu Cho asked Manjusri, “How is it being carried on hereabouts?”  
 > Manjusri said, “Ordinary people and sages dwell together; dragons and snakes intermingle.”  
 > Wu Cho said, “How numerous are the congregations?”  
@@ -34,9 +35,9 @@ The Case:
 >
 > (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
 
-We couldn’t find Wu Cho’s history, but it is said that Wu Cho was one of the *[unintelligible]* Zen Masters who lived from 594 to 657. [In this story,] he went to Mount Wutai in China. It is said that Mount Wutai was the spiritual abode of Manjushri; anyway the Chinese people believed that Mount Wutai was a place where Manjushri lived in those days. Wu Cho visited Mount Wutai and talked with Manjushri, but actually, as you know, Manjushri is not a real person. So in this case, Wu Cho was entirely intimate with the spirit of Manjushri, and talked with spiritual Manjushri. He could imagine him in his heart. So in other words, he talked with himself. 
+We couldn’t find Wu Cho’s history, but it is said that Wu Cho was one of the *[unintelligible]* Zen Masters, who lived from 594 to 657. [In this story,] he went to Mount Wutai in China. It is said that Mount Wutai was the spiritual abode of Manjushri; anyway the Chinese people believed that Mount Wutai was a place where Manjushri lived in those days. Wu Cho visited Mount Wutai and talked with Manjushri, but actually, as you know, Manjushri is not a real person. So in this case, Wu Cho was entirely intimate with the spirit of Manjushri, and talked with spiritual Manjushri. He could imagine him in his heart. So in other words, he talked with himself. 
 
-In the last sentence of the case, Manjushri says, “In front, three by three; in back, three by three.” This is a typical term which occurs very often in Zen scriptures; in Shobogenzo and here, anyplace, it always comes up. In front and in back mean before and after. Three by three does not mean three, it implies infinity, boundlessness. From this point, this case teaches us that it is not the important point to know how many practitioners we have in the monastery. Wherever you may go, whoever the people are, even though they don’t practice in the monastery, they are the practitioners. According to Shakyamuni Buddha, Buddha opens his heart not only to people who follow the Buddha’s teaching, but also to people who don’t follow his teaching. He always opens his heart, sharing his compassion with all living beings. From this point, practitioners are not limited to only the people who practice at a certain monastery, et cetera. 
+In the last sentence of the case, Manjushri says, “In front, three by three; in back, three by three.” This is a typical term which occurs very often in Zen scriptures; in Shobogenzo and here, anyplace, it always comes up. In front and in back mean before and after. Three by three does not mean three, it implies infinity, boundlessness. From this, the case teaches us that it is not the important point to know how many practitioners we have in the monastery. Wherever you may go, whoever the people are, even though they don’t practice in the monastery, they are the practitioners. According to Shakyamuni Buddha, Buddha opens his heart not only to people who follow the Buddha’s teaching, but also to people who don’t follow his teaching. He always opens his heart, sharing his compassion with all living beings. From this point, practitioners are not limited to only the people who practice at a certain monastery, et cetera. 
 
 And also, practice is not only the practice of sitting, but also daily living is our practice. If we say daily living is practice, at that time we consciously or unconsciously strongly emphasize daily living as a practice instead of doing zazen. You cannot ignore the practice of zazen. But if we emphasize strongly the importance of the practice of zazen rather than daily living, we really emphasize just practicing zazen, ignoring everyday life. But you cannot do this either. So the measure of your practice really depends on how you keep both of them in balance.
 
@@ -44,15 +45,15 @@ And also a third point is that if we educate others or educate ourselves, we hav
 
 For instance, it is like a cat in a lion cage. If a cat is in the lion cage, the cat cannot escape from it. If so, confusion will be very clear. If you see something very clearly, which there is no escape from, I think you shouldn’t make lots of fuss for nothing, running wildly around the cage and jumping carelessly. As soon as possible, you must make the mind calm, and you should be prepared for something. 
 
-*[Unintelligible]* Roshi, a famous Zen Master in Japan, his determination was that he would never be deceived by human “cheap tricks”. He said, “If I were a cat in a lion cage, I wouldn’t want to struggle, I would want to do zazen there.” *[He laughs.]* Do you understand? That’s great, you know. The more you struggle, running wildly around the cage, the more you are confused. [The situation comes up very clearly.] So right in the middle of confusion, if you can see no way to escape, then as best as you can you have to make your mind calm, sit down there and deal with your life. Even though it is hard, that is the real good way. And that way of taking care of you is to accept totally your presence in terms of infinity. 
+*[Unintelligible]* Roshi, a famous Zen Master in Japan, his determination was that he would never be deceived by human “cheap tricks”. He said, “If I were a cat in a lion cage, I wouldn’t want to struggle, I would want to do zazen there.” *[He laughs.]* Do you understand? That’s great, you know. The more you struggle, running wildly around the cage, the more you are confused. [The situation comes up very clearly.] So right in the middle of confusion, if you can see no way to escape, then as best as you can you have to make your mind calm, sit down there and deal with your life. Even though it is hard, that is the real good way. And that way of taking care of yourself is to accept totally your presence in terms of infinity. 
 
-That is most important for us. If you don’t do that, you always see just the surface of the water – pros and cons, success and failure – and you judge somebody by the number of practitioners, and by what appears of the development of the zen monastery. If you become famous, everyone says you are great. I don’t think it is great. If you become a person who is famous, it is not always great. Even though you are not famous, still you are great. Otherwise, how can you exist in this world in peace and harmony, walking at your own pace? 
+That is most important for us. If you don’t do that, you always see just the surface of the water – pros and cons, success and failure – and you judge somebody by the number of practitioners, and by what appears of the development of the Zen monastery. If you become famous, everyone says you are great. I don’t think it is great. If you become a person who is famous, it is not always great. Even though you are not famous, still you are great. Otherwise, how can you exist in this world in peace and harmony, walking at your own pace? 
 
 You cannot imitate the President of the United States, even if you want to be President of the United States. Of course you could be President, but it’s really limited. So if you cannot be President of the United States, you have to walk at your own pace. How can you walk day by day at your own pace, peacefully, without creating too much stress, confusion, distress, in comparing your life with somebody else’s? If you live your life like that, [comparing your life to others,] very quickly you will be exhausted. 
 
-So that’s why Manjushri said, “In front, three by three; in back, three by three.” In front means your future; in back means your past life. Past life, present life, future life: all are immense, boundless. So you should see your life in terms of boundlessness, even if you don’t understand how you should see or how you should accept your life in terms of boundlessness, or infinity. That is the first stage, right in the middle of confusion or any kind of situation: accept the situation with calm mind. And then at the second stage you can deal [with things] one by one, with calm mind. Otherwise, confusion is growing like a snowball.
+So that’s why Manjushri said, “In front, three by three; in back, three by three.” In front means your future; in back means your past. Past life, present life, future life: all are immense, boundless. So you should see your life in terms of boundlessness, even if you don’t understand how you should accept your life in terms of boundlessness, or infinity. That is the first stage: right in the middle of confusion or any kind of situation, accept the situation with calm mind. And then at the second stage you can deal [with things] one by one, with calm mind. Otherwise, confusion is growing like a snowball.
 
-This the point this case teaches us. 
+That is the point this case teaches us. 
 
 ##### 19:19
 
@@ -74,7 +75,7 @@ That is how deeply he or she understands his or her life, or others’ lives. An
 
 > to settle all uncertainty:
 
-“Uncertainty” means lots of questions, doubts. If you want to deal with your life and others’ lives, finally you have to find the solutions, you have to get answers to your doubts. In other words, sooner or later you have to wipe out lots of doubts, questions. But *how* should you wipe out your questions and doubts? Sometimes you can find [the answers] quickly, sometimes you cannot find them quickly. Sometimes you should keep the questions and doubts warm in your heart, and carry them on your back, for a month, for two months... sometimes for a year. In the process of keeping them warm in your heart, sometimes a solution pops up. Sometimes you have discuss your doubts, sometimes you have to ask somebody your questions. Sometimes you have to really study hard in order to find the solutions of your life. 
+“Uncertainty” means lots of questions, doubts. If you want to deal with your life and others’ lives, finally you have to find the solutions, you have to get answers to your doubts. In other words, sooner or later you have to wipe out lots of doubts, questions. But *how* should you wipe out your questions and doubts? Sometimes you can find [the answers] quickly, sometimes you cannot find them quickly. Sometimes you should keep the questions and doubts warm in your heart, and carry them on your back, for a month, for two months... sometimes for a year. In the process of keeping them warm in your heart, sometimes a solution pops up. Sometimes you have to discuss your doubts, sometimes you have to ask somebody your questions. Sometimes you have to really study hard in order to find the solutions of your life. 
 
 Finally, even though you stand silently in front of someone, it must be a kind of answer. Just your presence with somebody must be a kind of answer to the questions people have. This is the responsibility which we have as teachers, as parents, as people who want to educate or cultivate or deepen our life and others’ lives.
 
@@ -94,7 +95,7 @@ If you don’t have a third eye to see, to understand, or if you don’t have ma
 
 > Right at this very moment seeing and hearing are not obscured;
 
-This means from moment to moment when you see somebody, when you want to educate somebody, right at this very moment – *right now* – seeing and hearing are not obscured, his or her consciousness [is] functioning very clearly; nothing obscured. 
+This means from moment to moment when you see somebody, when you want to educate somebody, right at this very moment – *right now* – seeing and hearing are not obscured; [your] consciousness is functioning very clearly, nothing obscured. 
 
 > sound and form are purely real. 
 
@@ -131,7 +132,7 @@ The Last Age means the complicated, muddy period of time in the world, where the
 
 > Wu Cho said, “Some three hundred, some five hundred.”  
 
-In those days monasteries were very popular, so there were many monks there. Some monasteries had three hundred, some five hundred, some monasteries had a thousand monks, two thousand monks. Baso Zen Master’s and Setcho Zen Master’s monastery, it is said, had a thousand, sometimes two thousand. They were really famous, popular Zen Masters. But on the other hand, some Zen Master has just four or five monks and practices seriously. The temples were not fancy, the rain was freezing, and they were very poor, but he also was one of the famous Zen Teachers. But generally speaking, particularly Rinzai Zen was very popular in those days. 
+In those days monasteries were very popular, so there were many monks there. Some monasteries had three hundred, some five hundred, some monasteries had a thousand monks, two thousand monks. Baso Zen Master’s and Setcho Zen Master’s monasteries, it is said, had a thousand, sometimes two thousand. They were really famous, popular Zen Masters. But on the other hand, some Zen Master has just four or five monks and practices seriously. The temple was not fancy, the rain was freezing, and they were very poor, but he also was one of the famous Zen teachers. But generally speaking, particularly Rinzai Zen was very popular in those days. 
 
 For instance, in the United States, Buddhism started from the West and then jumped to the East, you know, skipping the Midwest. And now, little by little, it’s in the Midwest – even though you don’t like it. *[Laughter.]*
 
@@ -168,7 +169,7 @@ That is the scenery of Mount Wutai. That means completely accept the mountain’
 
 I told you several years ago, in Zen there are three ways of thinking and understanding. In the first stage, mountains are mountains. Second stage, mountains are not mountains. The third stage, mountains are mountains. (See [Diamond Sutra: Introduction](https://katagiritranscripts.net/1979-05-09-Diamond-Sutra-Introduction), etc.)
 
-(Transcriber’s note: The conclusion of this talk seems to be missing.)
+(Transcriber’s Note: The conclusion of this talk seems to be missing.)
 
 ##### 45:05 end of recording.
 
