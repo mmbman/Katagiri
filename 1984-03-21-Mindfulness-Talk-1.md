@@ -4,7 +4,7 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1984) \| 
-[Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
+[Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
 #### Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on the “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”. Along the way, he discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
@@ -391,5 +391,5 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1984) \| 
-[Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
+[Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)

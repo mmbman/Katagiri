@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1) ([1984](#1984)) – posted April 3, 2022.
+Latest transcript: [Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35) ([1982](#1982)) – posted April 11, 2022.
 
 # Table of Contents
 
