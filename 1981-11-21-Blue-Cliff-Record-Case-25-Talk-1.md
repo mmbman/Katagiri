@@ -1,15 +1,15 @@
 ---
-title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds up His Staff – Talk 1"
+title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1"
 description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index#1981) \| 
-[Previous](unfinished-1981-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Next](1982-11-17-Blue-Cliff-Record-Case-34)
 
 **This transcript is in rough draft stage.**
 
-#### Katagiri Roshi discusses Case 25 of the *Blue Cliff Record*. Doing one thing. Rousseau and Sun-Moon-Light Tathagata from the Lotus Sutra. Adam and Eve. 
+#### Katagiri Roshi discusses Case 25 of the *Blue Cliff Record*. Doing one thing. Rousseau and Sun-Moon-Light Tathagata. Adam and Eve. 
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -62,13 +62,13 @@ So for many centuries, we didn’t notice this, just being one with the rhythm o
 
 That’s why in the Lotus Sutra Manjushri says to Maitreya Buddha, “When you were born in this world, you forgot completely what you did.” It means for century after century what we did was just to be one with the rhythm of nature, that’s all, beyond you should think or you shouldn’t think.
 
-If you read the Bible, the Bible also says Adam and Eve didn’t think anything, just lived, with nakedness. And also finally they started to think, “What is this?” And then they finally ... you know that pretty well, huh? 
+If you read the Bible, the Bible also says Adam and Eve didn’t think anything, just lived, with nakedness. And also finally they started to think, “What is this?” And then they finally ... well, you know that pretty well, huh? 
 
 This is really true. It’s not a “myth”, it’s really human life. And then we completely forget the real picture of human life. The real picture of human life is exactly the same as the rhythm of nature, beyond you think or you shouldn’t think. It’s just life. This is the real reality, or absolute reality, your life is present in. 
 
 And then you forget, and you start to live in your own way. And so far, for many, many years, we don’t yet know the real picture of human existence. And then finally we start to think, “What is this?” And then we think of our life. And then, according to religion, physics, psychology, or the I-Ching, and many things, we can think of human life. 
 
-But when you think this, the real picture of life, and create many things – myths, physics, psychology, religions – endlessly you can create many kinds of myths. So far we have created many myths, and from now on we could create more myths, the more human civilization is developed. Constantly. 
+But when you think this, the real picture of life, and create many things – myths, physics, psychology, religions – endlessly you can create many kinds of myths. So far we have created many myths, and from now on we could create more myths, the more human civilization is developed, constantly. 
 
 ##### 27:25
 
@@ -78,15 +78,15 @@ Well what I want to tell you is, if you want to get knowledge from school, fine,
 
 So I always think this case, real case. I know him very much, that’s why I criticize sometimes, and then a friend of mine said, you are wrong. Why don’t you respect his position, his reality, because he became already abbot of Eiheiji monastery? So, great. Invited by many people – it’s great. Whatever reason he has, anyway. But anyway, I always think this. He got very good positions: professor, and dean of university, president of university, and also archbishop of American Zen Buddhism, and also finally, abbot of Eiheiji monastery. This is highest position for Zen priest, Soto Zen anyway. If you become abbot of Eiheiji monastery, you’re really proud of yourself, always. “Oh, good boy.” But right before this, well, his body was paralyzed. Let’s imagine. If you were him, what would you do? You’d scream, don’t you think so? If I were him, I would like to scream. “What is life?” I always depend on, anyway, lots of myths. And positions and philosophy, psychology we created, after we have knowledge to think enough. and then, we think, we create lots of things. And then finally, we depend on this position, because we want to be happy. But already we forget what we did in the past, just like the lotus sutra says. So all we have to do is, try to create wonderful myths, and philosophy, psychology -- building the big mansions, and people come together, looking at this, and then completely forget what they did in the past. That means, we completely forget what is real life, real picture of life. 
 
-I ... some examples, during the second world war, a person was in the position of army in Japan, the highest positions. And then the situation was completly perverted. And then he lost official army position, and also present, the atmosphere of Japan was completely messed [up]. If you are the official army officers, the people didn’t liek you. So it was very dificult for him to find a job, and to support human life, his life. Because during the second world war, the army officers lived pretty well. Food, clothes, because [they were] army officers. But most people were very poor. No food, no clothes. So after this, completely situation was changed, and then the people didn’t like [him]. And then finally he tried to find a job, and finally he found a job, but that job is sales support, you know. So called I’Ching.... Standing or sitting in front of the station, there were all stations, if you go to Japan you can see lots of fortune tellers. Fortune tellers, you know, every station in front of the railroad station. And ... in the evenings, in Tokyo, more than ten fortune tellers sat in front of the stations. And asking people coming to see you hands, and etc. 
+I ... some examples, during the second world war, a person was in the position of army in Japan, the highest positions. And then the situation was completely perverted. And then he lost official army position, and also present, the atmosphere of Japan was completely messed [up]. If you are the official army officers, the people didn’t like you. So it was very difficult for him to find a job, and to support human life, his life. Because during the second world war, the army officers lived pretty well. Food, clothes, because [they were] army officers. But most people were very poor. No food, no clothes. So after this, completely situation was changed, and then the people didn’t like [him]. And then finally he tried to find a job, and finally he found a job, but that job is sales support, you know. So called I’Ching.... Standing or sitting in front of the station, there were all stations, if you go to Japan you can see lots of fortune tellers. Fortune tellers, you know, every station in front of the railroad station. And ... in the evenings, in Tokyo, more than ten fortune tellers sat in front of the stations. And asking people coming to see you hands, and etc. 
 
 So he learned this because he was in the highest position when he was in the army, so he was pretty smart and sharp, so he studied this, and he got ... He ... and he lived wonderful, for many years. And finally, he was also paralyzed. And then, one of the zen teachers visited to see him, because he knew him. So he visited to see him in his house, and he said, that person said, “I didn’t know which there is such a big drop”. Do you understand, big drop? ...
 
-Let’s see when you were born, completely you forgot what you did. That means, you forgot already what is real picture of human life, you forgot it. Because it is not necessary to think, or it is not neccessary not think, because that is real picture of your life. Your life is completely becoming one with rythm of nature, so it’s not necessary. So that’s why Lotus Sutra says, ... Anyway, century after century, you didn’t htink. And then when you were born, and then after your birth, still you don’t think. Becayse it’s already there. And ... started to think. But already human beings created lots of myths, and et cetera. Start to think, what is the real picture of human existence, and then we explain real picture of existence. That is a myth, that is philosophy, psychology. Big mansions. But if you depend on this kind of ... you build up huge mansions. But remember, you still forgot what you did, [which] means real picture of life, what is real picture of your life.
+Let’s see when you were born, completely you forgot what you did. That means, you forgot already what is real picture of human life, you forgot it. Because it is not necessary to think, or it is not necessary not think, because that is real picture of your life. Your life is completely becoming one with rhythm of nature, so it’s not necessary. So that’s why Lotus Sutra says, ... Anyway, century after century, you didn’t think. And then when you were born, and then after your birth, still you don’t think. Because it’s already there. And ... started to think. But already human beings created lots of myths, and et cetera. Start to think, what is the real picture of human existence, and then we explain real picture of existence. That is a myth, that is philosophy, psychology. Big mansions. But if you depend on this kind of ... you build up huge mansions. But remember, you still forgot what you did, [which] means real picture of life, what is real picture of your life.
 
 And then you completely depend on this explanation of human existence. And then you believe, “I get a happy life.” But this happy life is what? There is still big trouble. He has to be paralyzed. 
 
-Well, it’s not neccessary to be paralyzed. Let see modern civilization, modern human life: cancer, exactly the same. More or less we are scared, we are threatened by cancer, because there is no guarantee, “I am immune to become cancerous.” No guarantees. So more or less, everyone is threatened by cancer. And then when you [get] cancer, what do you do? It’s a trap, because we don’t believe this.
+Well, it’s not necessary to be paralyzed. Let see modern civilization, modern human life: cancer, exactly the same. More or less we are scared, we are threatened by cancer, because there is no guarantee, “I am immune to become cancerous.” No guarantees. So more or less, everyone is threatened by cancer. And then when you [get] cancer, what do you do? It’s a trap, because we don’t believe this.
 
 *[Tape change.]*
 
@@ -97,5 +97,5 @@ Well at that time, you want to scream. Because to be paralyzed, your life is, pa
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index#1981) \| 
-[Previous](unfinished-1981-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
+[Next](1982-11-17-Blue-Cliff-Record-Case-34)
