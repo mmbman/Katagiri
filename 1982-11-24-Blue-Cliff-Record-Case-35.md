@@ -13,7 +13,7 @@ description: November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 ##### 0:00 start of recording
 
-The thirty-fifth case [of Blue Cliff Record]: “The Dialogue of Manjusri and Wu Cho”. 
+The thirty-fifth case [of the *Blue Cliff Record*]: “The Dialogue of Manjusri and Wu Cho”. 
 
 The Pointer:
 
