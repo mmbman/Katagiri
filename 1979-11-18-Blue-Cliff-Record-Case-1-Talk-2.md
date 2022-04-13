@@ -240,7 +240,7 @@ So, “Master Chih asks, ‘Does your majesty know who this man is?’ The Emper
 
 *[He laughs.]* Really [Zen Master](glossary#zen-master) Chih was treating Emperor Wu badly. *[Laughter]* ... because this Zen Master knew that Emperor Wu believed very strongly in [Avalokiteshvara](glossary#avalokiteshvara). So completely without complaint, expressing his respect to Avalokiteshvara, the Zen Master teased Emperor Wu: “He is Mahasattva Avalokiteshvara.” *[He laughs.]* 
 
-Mahasattva means [Avalokiteshvara](glossary#avalokiteshvara) is not the usual Avalokiteshvara that seems to be a “god” or divinity, which has sort of a strong power to control human beings. “Maha sattva” means “great being” – completely beyond the discussion of whether Avalokitshvara has the strong power of the almighty or not, simply this is Avalokitshvara. So that’s why he put the Mahasattva to Avalokiteshvara.
+Mahasattva means [Avalokiteshvara](glossary#avalokiteshvara) is not the usual Avalokiteshvara that seems to be a “god” or divinity, which has sort of a strong power to control human beings. “Maha sattva” means “great being” – completely beyond the discussion of whether Avalokiteshvara has the strong power of the almighty or not, simply this is Avalokiteshvara. So that’s why he put the Mahasattva to Avalokiteshvara.
 
 So, Mahasattva [Avalokiteshvara](glossary#avalokiteshvara). [Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is Avalokiteshvara! All of you really wanted to see how surprised Emperor Wu was to hear that, immediately as the great [Zen Master](glossary#zen-master) Chih expressed it. 
 
