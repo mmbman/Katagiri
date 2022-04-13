@@ -52,11 +52,11 @@ This pointer was said to be divided into five sections. The first section:
 
 Zazen is the “one object”. Whatever you do, there are always two objects, and also opportunity or action. Full action of your body and mind, this is one device, one object. Whenever you do zazen – or walking on the street, or working in the office, working in the kitchen – whatever you do, there is one device, one object.
 
-Shakyamuni Buddha showed the flowers with his hand, and [Mahākāśyapa](glossary#mahākāśyapa), one of his [disciples], smiled when he saw the Buddha’s flowers. “Mahākāśyapa smiled” is exactly one device; one opportunity, one action of Mahākāśyapa’s life. And the flowers shown by Buddha are “one object.”
+Shakyamuni Buddha showed the flowers with his hand, and [Mahākāśyapa](glossary#mahākāśyapa), one of his disciples, smiled when he saw the Buddha’s flowers. “Mahākāśyapa smiled” is exactly one device; one opportunity, one action of Mahākāśyapa’s life. And the flowers shown by Buddha are “one object.”
 
 ##### 9:50
 
-“One word, one phrase”: You know [this] pretty well. This is the explanation of existence in a word. Without words and phrases, we cannot find the opportunity to communicate with each other. So if you want to teach something to people, we need four circumstances: one device, one object, one word, one phrase. Time, opportunity, action of your life, and your object. And also there is action: verbal action, or sometimes not verbal action. Even though you don’t use words, still there is [utterance]. 
+“One word, one phrase”: You know this pretty well. This is the explanation of existence in a word. Without words and phrases, we cannot find the opportunity to communicate with each other. So if you want to teach something to people, we need four circumstances: one device, one object, one word, one phrase. Time, opportunity, action of your life, and your object. And also there is action: verbal action, or sometimes not verbal action. Even though you don’t use words, still there is [utterance]. 
 
 So, “One device, one object; one word, one phrase – the intent is that you will have a place to enter.” This is why it is said we have to use one device, one object, one word, one phrase: in order to teach; in order to communicate human life with human beings. Well, there is no reason “why,” because it is always there; without this, we cannot do anything at all. So, it’s completely beyond “why”. Before you make a question why, *it’s there*. It completely transcends the human questions of “why,” “what we should do or shouldn’t do”.
 
@@ -72,7 +72,7 @@ It is not ‘bad’, in a sense, but it is not ‘good’. This is one reason wh
 
 So, we are always poking our heads into the hole in the ground to see what’s in it, because it’s very fun for us, and it is the reason why human life is developing pretty well. On the other hand, we don’t know what’s in it. Maybe atomic bomb there, maybe a chemical bomb there. Maybe a skunk there, maybe beautiful flowers there. No one knows.
 
-This [spirit of] question is always within the human being: how to use modern civilization, how to use human consciousness. But if you see the human world now, you know [this] pretty well.
+This [spirit of] question is always within the human being: how to use modern civilization, how to use human consciousness. But if you see the human world now, you know this pretty well.
 
 That’s why Setchō Zen Master says, “Still this is gouging a wound in healthy flesh.” We are, our body and mind are, originally [very fleshy].
 
@@ -98,7 +98,7 @@ The second section is completely opposite to the first section. In the second se
 
 > The intent is that you will realize there is something transcendental.
 
-“Something transcendental” literally, originally means “development”. Development is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say “something transcendent” means to show yourself for what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. Whatever you may be [doing] – [zazen](glossary#zazen), gassho, walking, or eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, [as] you are what you are. This is something transcendental. That is development of your life. 
+“Something transcendental” literally, originally means “development”. Development is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say “something transcendent” means to show yourself for what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. Whatever you may be doing – [zazen](glossary#zazen), gassho, walking, or eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, [as] you are what you are. This is something transcendental. That is development of your life. 
 
 [But] this development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [*shikan*](glossary#shikan).
 
@@ -106,7 +106,7 @@ Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#
 
 ##### 27:19
 
-In other words, [as] I told you before: modern civilization is pretty good for us, and consciousness is pretty good for us, but we have to transcend the function of consciousness. 
+In other words, as I told you before: modern civilization is pretty good for us, and consciousness is pretty good for us, but we have to transcend the function of consciousness. 
 
 ‘Transcend’ doesn’t mean to destroy consciousness. Transcend is not to attach to any [expectations]. “Consciousness is good” or “consciousness is bad” – we cannot say so. “Transcend” means that through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have been lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
 
@@ -122,7 +122,7 @@ Secondly, regardless of whether you like or dislike, we have to transcend. We mu
 
 That is the really great function which modern civilization possesses inherently. That is great function. Great function is basically, everything is free, completely free. It is never limited by any rules or principles. We say always, “modern civilization is best,” or “modern civilization is good” – it becomes sort of rules or principles we set up already. But it is not the real nature of modern civilization. In order to make modern civilization help all sentient beings, we should appreciate it, and reflect, and watch carefully, without misusing it. 
 
-That’s why here it says that the Great Function appears [constantly] without abiding by fixed principles.
+That’s why here it says that the Great Function appears constantly without abiding by fixed principles.
 
 “The intent is that you will realize there is something transcendental.” Your life, floor, trees, birds – trancendental. We set up a certain idea, when you see spring: wow, spring is wonderful, because all trees, all beings start to work, and everyone is excited. And that means exactly, consciously or unconsciously, that you hate winter. But you cannot hate winter, because spring comes from winter. Without winter, you cannot [see] spring.
 
@@ -164,9 +164,9 @@ That is very important. “This way will do, not this way will do too.” Everyt
 
 Of course you should talk. *You* talk, *you* sit, *you* chant, *you* walk. But, next moment, you should be free from yourself, you should let go of yourself. [Zazen](glossary#zazen), gassho – let it go. That means you should learn something from the state of letting go. That means *[shikan](glossary#shikan)*: just do it. 
 
-But before “just do”, consciousness is always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” – Next moment: “Are you sure?” *[Rueful laughter.]* But next moment: “Why don’t you stop talking?” – “I cannot escape. Something compels me to talk.” – “Do you like it?” – “No, I don’t like it.” – “If you don’t like it, why don’t you stop it?” – “But I cannot stop it.” [In] all this, consciousness digs in the ground, makes a hole, and believes “this is my den.” “This is my hole,” always.
+But before “just do”, consciousness is always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” – Next moment: “Are you sure?” *[Rueful laughter.]* But next moment: “Why don’t you stop talking?” – “I cannot escape. Something compels me to talk.” – “Do you like it?” – “No, I don’t like it.” – “If you don’t like it, why don’t you stop it?” – “But I cannot stop it.” In all this, consciousness digs in the ground, makes a hole, and believes “this is my den.” “This is my hole,” always.
 
-But you cannot do this always. Of course, you can make a hole. And if you believe [it’s your] den, that’s okay; next, let it go. Get out from the den. That means, *just do*. Just *shikan* taza. 
+But you cannot do this always. Of course, you can make a hole. And if you believe it’s your den, that’s okay; next, let it go. Get out from the den. That means, *just do*. Just *shikan* taza. 
 
 ##### 45:00
 
@@ -196,17 +196,17 @@ So, that is “diffuse”.
 
 > This way won’t do, not this way won’t do either – this is too cut off. 
 
-Next, “This way will not do, not this way will not do either.” [This is] completely [the] opposite.
+Next, “This way will not do, not this way will not do either.” This is completely the opposite.
 
 You cannot doubt this way or not this way; that means ... [emptiness](glossary#śūnyatā), or truth, or [Buddhas](glossary#buddha), delusions, or whatever you say, all are something connected with your individual life, otherwise you cannot exist in this world. So, you should appreciate them. [However] you judge your life, whatever you say – without this, you cannot exist. So, appreciate it. That means, *do* this way, or not this way. Thinking carefully, with your best, make a choice. That means your life is really accepted in an affirmative way. That means: “Oh, pretty good!” So you really like your life very much. 
 
 But on the other hand, Setchō Zen Master says: “No, no... Don’t adopt this way or not this way.” Completely negative. Because, Setchō Zen Master says, your life is nothing but all beings, connected with your individual life – [but] if you believe “oh, wonderful, wonderful,” so you really accept yourself pretty easily, that means you’re already making the hole, and poking your head in, and believing *this*. Don’t stay in your den. In order to let it go, to be free from the den you believe in, Setchō Zen Master says don’t adopt this way or not this way. That means, be free from them. We have to experience something transcendental. 
 
-Basically, all beings are free. That’s why Setchō says, “This way will not do, not this way will not do either—this is too cut off.” Because the great function and original nature of trees, and birds, modern civilization, are completely something transcendental: even though [Buddhas](glossary#buddha) and patriarchs try to approach them, there is no way to attach to them, no way to touch them – because there are no particular fixed rules or principles [that] we can set up, we can believe.
+Basically, all beings are free. That’s why Setchō says, “This way will not do, not this way will not do either—this is too cut off.” Because the great function and original nature of trees, and birds, modern civilization, are completely something transcendental: even though [Buddhas](glossary#buddha) and patriarchs try to approach them, there is no way to attach to them, no way to touch them – because there are no particular fixed rules or principles that we can set up, we can believe.
 
 It is pretty easy for us to believe certain rules or laws. For instance, Buddhism says all beings are produced by interdependent origination; all beings come from this interdependent co-origination. And then at that time, interdependent origination becomes a principal: “The Law.” And then, we can believe it. But what is interdependent origination? Well, what you have understood is something fixed as a solid being, which is called principles, discipline, and law; rules. But rules and principals are completely something transcendent; that means free. This is the original nature of human being. Finally, if you believe the reality that all beings come from interdependent co-origination – forget it! “Forget it” means, why don’t you learn interdependent origination from the reality itself? Anyway, jump into it! Dive into it and learn what interdependent co-origination is, don’t you think so?
 
-For instance, what is swimming? You can learn this. For swimming, you need a body, and a mind, and also water, and also your breathing, and also air. And then, swimming comes into existence – by what? By the air, your nose, your eyes, your heart, breathing. Physical, mental – many things. We understand [this] pretty well. But this is not interdependent co-origination. You [are understanding] interdependent co-origination in terms of intellectual consciousness, making a hole and believing [it] is a den! But the den is a den; no one can get in. If another animal comes into the den, they fight each other. The same applies to human beings, because somebody invades your territory. *[He chuckles.]* The den is really your territory: “This is *my* den. Don’t interrupt my den.” This is the pretty usual intellectual understanding. 
+For instance, what is swimming? You can learn this. For swimming, you need a body, and a mind, and also water, and also your breathing, and also air. And then, swimming comes into existence – by what? By the air, your nose, your eyes, your heart, breathing. Physical, mental – many things. We understand this pretty well. But this is not interdependent co-origination. You are understanding interdependent co-origination in terms of intellectual consciousness, making a hole and believing it is a den! But the den is a den; no one can get in. If another animal comes into the den, they fight each other. The same applies to human beings, because somebody invades your territory. *[He chuckles.]* The den is really your territory: “This is *my* den. Don’t interrupt my den.” This is the pretty usual intellectual understanding. 
 
 Intellectual understanding is really pretty strange; but in a sense, wonderful. *[He chuckles.]* You understand: “I am making a den; I am feeling good from my den.” It’s very interesting. But simultaneously, we must be free from the den. 
 
@@ -214,7 +214,7 @@ So, interdependent co-origination is something you have to experience directly f
 
 ##### 59:36
 
-It’s just like my brother, I told you before – do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim! If you enter the Navy, you should learn swimming, you should be a master swimmer. But he couldn’t. So one day a sergeant threw him [out of] the boat into the ocean. He was very surprised. “Oh no!” *[Laughter.]* No way to escape. But [his] other friends [were] watching carefully; if something happened, somebody would help him. But for him, for my brother, there was no way to escape, no way to know somebody was watching him. Already there!
+It’s just like my brother, I told you before – do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim! If you enter the Navy, you should learn swimming, you should be a master swimmer. But he couldn’t. So one day a sergeant threw him out of the boat into the ocean. He was very surprised. “Oh no!” *[Laughter.]* No way to escape. But his other friends were watching carefully; if something happened, somebody would help him. But for him, for my brother, there was no way to escape, no way to know somebody was watching him. Already there!
 
 But still, his stream of consciousness was going on. That’s interesting, don’t you think? If still the stream of consciousness is going, he can notice: “Uh-oh; what should I do?” So he struggles, and during the struggle still he is looking at himself. “How can I take a breath; how can I float?” 
 
@@ -260,13 +260,13 @@ This is a point: we have to test. You have to experience it by yourself. I canno
 
 So, please test. Get a taste. 
 
-And then he says, “I site this for you to see.” This is [referring to] the case; the case is an example. The Zen Master says, “Sun Face Buddha, Moon Face Buddha.” He was about to die. For his death: “Are you okay?” Yes, or no. “Are you sure?” I’m not sure, or I’m sure. “To be ready to die; are you sure?” Yes or no. Nothing to say. That’s why he says, “Sun Face Buddha, Moon Face Buddha.” 
+And then he says, “I site this for you to see.” This is referring to the case; the case is an example. The Zen Master says, “Sun Face Buddha, Moon Face Buddha.” He was about to die. For his death: “Are you okay?” Yes, or no. “Are you sure?” I’m not sure, or I’m sure. “To be ready to die; are you sure?” Yes or no. Nothing to say. That’s why he says, “Sun Face Buddha, Moon Face Buddha.” 
 
 “Where are you going?” “I don’t know.” But he knows. He doesn’t know where he is going, but he knows. “He knows” means: dive into the ocean. That’s all. 
 
 This is the final goal we have to reach. Zen Master Baso is treating his death like this. But death itself is something which you have to taste by yourself; so in many ways, how to taste, how to express. 
 
-The disciple asks the Zen Master, “Before you die, please say something for us. Please leave a good message for us, for our education, for our practice as monks.” [The Zen Master] says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a [Buddha](glossary#buddha)’s teaching, completely beyond human speculation. But he says, “I don’t want to die.” 
+The disciple asks the Zen Master, “Before you die, please say something for us. Please leave a good message for us, for our education, for our practice as monks.” The Zen Master says, “I don’t want to die.” Then the monks are very surprised, because they had expected something wonderful, a wonderful thing just like a [Buddha](glossary#buddha)’s teaching, completely beyond human speculation. But he says, “I don’t want to die.” 
 
 This “I don’t want to die” doesn’t mean “I don’t want to die.” Without using these two ways, “I want to die” or “I don’t want to die,” completely beyond – what would be right? This is his death. Finally, the question is left: what would be the right way? But if you answer this question, “What will be right,” with “Yes, this” – it’s already dead, you made it dead. Or if you say, “No, it’s not” – it’s already dead, which is called not-dead. So finally, *what is right*? 
 
@@ -274,7 +274,7 @@ If you really understand interdependent co-origination, if you really understand
 
 That’s why our practice is continuous. Dogen says, “Just continuous practice.” Continuous practice is a really stable human attitude toward day by day. Saying something about today *now*; not before today, not after today. 
 
-So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha.” What is Sun Face Buddha, Moon Face Budha? What would be right? Should I depend on Sun Face Buddha, living for eternity, seeking for the Buddha’s face? What is peace? What is bliss, real bliss? Always [there are] questions there.
+So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha.” What is Sun Face Buddha, Moon Face Budha? What would be right? Should I depend on Sun Face Buddha, living for eternity, seeking for the Buddha’s face? What is peace? What is bliss, real bliss? Always there are questions there.
 
 But if you see sort of a face that you can depend on, that face is really [a trick]. It’s not the real face. This is very important, through the face you can see the real face. But that face always leaves you with a question, “What is your face,” constantly. *[Unintelligible.]*
 

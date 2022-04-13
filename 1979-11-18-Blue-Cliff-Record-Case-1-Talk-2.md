@@ -32,7 +32,7 @@ While this is a very natural question, his natural question has a lot of meaning
 
 ##### 6:13
 
-In not only [Zen Buddhism](glossary#zen-buddhism ), but in general [Buddhism](glossary#buddhism), the most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not the *most* important. If you have individual questions and understanding or experience, the most important [point] in Buddhism is how you must be free from this individual experience and individual understanding. You have to break through the barrier of individual, personal understanding. That is a [Buddhistic](glossary#buddhistic ) way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even if you believe you experience a religious state of what is divinity, or [Buddha](glossary#buddha), or [Avalokiteshvara](glossary#avalokiteshvara), through [zazen](glossary#zazen) – whatever you say, well that is [just] that. That is not important. The most important point is, you have to break through this barrier of personal, individual experience or understanding.
+In not only [Zen Buddhism](glossary#zen-buddhism ), but in general [Buddhism](glossary#buddhism), the most important point is not individual understanding. Individual understanding or individual viewpoint is okay, but it’s not the *most* important. If you have individual questions and understanding or experience, the most important point in Buddhism is how you must be free from this individual experience and individual understanding. You have to break through the barrier of individual, personal understanding. That is a [Buddhistic](glossary#buddhistic ) way of living; that is very important. Whatever it is, good or bad, whatever kind of understanding or viewpoint – or even if you believe you experience a religious state of what is divinity, or [Buddha](glossary#buddha), or [Avalokiteshvara](glossary#avalokiteshvara), through [zazen](glossary#zazen) – whatever you say, well that is [just] that. That is not important. The most important point is, you have to break through this barrier of personal, individual experience or understanding.
 
 Because, there is always a language by which a world is established and understood. Without words, without language, there is no world you can understand. Only through language, we can establish a [style] of human life, we can establish the human world, we can communicate with each other. Without words or language, there is no way to communicate. 
 
@@ -48,7 +48,7 @@ So, finally, if you pay attention to the desk, if you pay attention to the flowe
 
 And then, consciousness starts to work, and judge, and then, you create images. You create images, and conventions, and customs, and habits. If you have habits, if you have customs, if you have the temporal promises, there is very naturally the creation of the human world, human life, and human society. This is the regulation and rules, et cetera.
 
-Those customs, regulations, [conventions], prepossessions, and images come from language. Language is something created by consciousness. Consciousness is characterized by dichotomizing something in two. So, simultaneously, you can say subject and object; there are lots of things, many kinds of sciences, through this. This is the usual thing which happens in the human world. 
+Those customs, regulations, conventions, prepossessions, and images come from language. Language is something created by consciousness. Consciousness is characterized by dichotomizing something in two. So, simultaneously, you can say subject and object; there are lots of things, many kinds of sciences, through this. This is the usual thing which happens in the human world. 
 
 But if you do something, we expect immediately some rewards, and merit, progress, according to prepossessions, images, conventions, promises – according to the law of causation.
 
@@ -66,11 +66,11 @@ This is the human activity we do, the activity itself of building the temple and
 
 Reality is very complicated. You cannot pin down what it is. What is merit? What is the activity of building the temple and educating the people? What do you mean? What is education? 
 
-Because this is language. By the language we are discussing so much about something. And language [can] point out something which seems to be real. But language cannot point out something real. There’s a little gap: something real which exists from moment to moment, and something which language points out; [there’s a] little gap between. Finally, if you see something real which exists, right now, right here, well, finally you cannot say anything by the words. 
+Because this is language. By the language we are discussing so much about something. And language can point out something which seems to be real. But language cannot point out something real. There’s a little gap: something real which exists from moment to moment, and something which language points out; there’s a little gap between. Finally, if you see something real which exists, right now, right here, well, finally you cannot say anything by the words. 
 
-For instance, I had bad news from Zen Center in San Francisco last night. Some person *[unintelligible]* bad news. One of our friends, this person died. I didn’t have much more information, except, [they] just died. Well it is said that he was murdered by somebody; they didn’t know yet. But he was pretty young – 21 years old. 
+For instance, I had bad news from Zen Center in San Francisco last night. Some person *[unintelligible]* bad news. One of our friends, this person died. I didn’t have much more information, except, they just died. Well it is said that he was murdered by somebody; they didn’t know yet. But he was pretty young – 21 years old. 
 
-If you say, “I am 21 years old; it is young” – what do you mean, young? “I am 60 years old, I am 70 years; it is old age.” What do you mean? “Old age, old man should die first. Young man should live longer.” Of course ... we hope so. But reality doesn’t agree with this understanding. Even though you believe, “I am young, so I can live long,” of course it is, but reality doesn’t agree with [that]. At any time, what is the reality where you, at 20 years old, live? What is reality? You can say you can live long, or you have to die tomorrow – maybe so, maybe not. You can live tomorrow, or even longer – maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
+If you say, “I am 21 years old; it is young” – what do you mean, young? “I am 60 years old, I am 70 years; it is old age.” What do you mean? “Old age, old man should die first. Young man should live longer.” Of course ... we hope so. But reality doesn’t agree with this understanding. Even though you believe, “I am young, so I can live long,” of course it is, but reality doesn’t agree with that. At any time, what is the reality where you, at 20 years old, live? What is reality? You can say you can live long, or you have to die tomorrow – maybe so, maybe not. You can live tomorrow, or even longer – maybe, maybe not. Finally, nothing to say, if you look at the reality itself. What could you say? 
 
 This is reality, in which everyone is living, day to day. Whoever you are, young or old, it doesn’t matter. That’s why [Buddha](glossary#buddha) says, life and death, old age and sickness are [suffering](glossary#suffering).
 
@@ -82,13 +82,13 @@ Finally, language disappears. Completely disappears. If you look at the reality,
 
 If you believe you’re young and live long, such a person is what is called *tanpankan* in Japanese. Tan means to carry. Pan means board, long board. Kan means fellow, man. Tanpankan means a fellow who carries a board on his shoulder. If you carry the board on your shoulder, you cannot see the board: you can see just one side, but you cannot see the back. That is *prejudice*. It is this very narrow understanding. That is called tanpankan. 
 
-So [say] we are studying something according to the Four Noble Truths, but you don’t want to believe life is characterized by [suffering](glossary#suffering), because you hate suffering. That suffering really suffering opposed to pleasure. Suffering and pleasure, whatever you say, those are just words, apart from the reality itself [in which] you exist from day to day. 
+So say we are studying something according to the Four Noble Truths, but you don’t want to believe life is characterized by [suffering](glossary#suffering), because you hate suffering. That suffering really suffering opposed to pleasure. Suffering and pleasure, whatever you say, those are just words, apart from the reality itself in which you exist from day to day. 
 
 Of course, we are very lucky. We are living in a lucky, wonderful world, which is called modern civilization. Lots of food, lots of things we can have. Of course, we are happy. But we cannot say we are always happy. Or we cannot believe that life is characterized by [suffering](glossary#suffering). If you look at the reality in which human beings exist, you know pretty well what’s going on in the human world. You cannot judge human life in terms of just pleasure, or in terms of just suffering, pain. If you see the pain, suffering, immediately there is pleasure. If you see the pleasure there is immediately suffering, because this is reality. Suffering and pleasure live in peace and harmony as good friends. You cannot separate them. 
 
 Then if you believe this human life according to pleasure, that is tanpankan. 
 
-I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; [suffering](glossary#suffering) and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy [themselves] very much. If you become Buddhist, [Buddha](glossary#buddha) says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say this to somebody, you are really a troublemaker. 
+I don’t mean you should ignore pleasure in the human world. We should see the reality in which we exist; [suffering](glossary#suffering) and pleasure both exist simultaneously. We should be such a person. I don’t mean you should ignore or destroy someone who is pleased today. How about the young teenagers? Teenagers enjoy themselves very much. If you become Buddhist, [Buddha](glossary#buddha) says “life is suffering.” But if you’re pleased to exist in this world, and you are wrong, can you say so? If you say this to somebody, you are really a troublemaker. 
 
 So, don’t be tanpankan, okay? The life characterized by [suffering](glossary#suffering) is not something like that. That’s why suffering must be true, okay? If the suffering becomes true, that means completely the language which is called suffering disappears. Nothing to say. Because even though you say in [words], “life is perfect,” can you say, “life is happy?” No. There is pleasure; if it is true, can you say “life is pleasure?” You cannot say so either.  Using the words always points out the reality in which we exist, but, there is some gap. And then reality itself, in which pleasure and suffering both co-exist – with the language, it completely disappears. Nothing to say. Everything becomes a question mark. Nothing to say.
 
@@ -128,21 +128,21 @@ This is language, okay? *[Laughter.]* You don’t understand, but *I* understand
 
 What I want to tell you is: it says “Rose” and next, “Oh!” The rose is really the being that you get right now, that you can see through the six consciousnesses. So that’s why he built up just, “Rose.” But next, “Oh!” means completely no words – because the rose blooms in reality from moment to moment, completely beyond human verbalization. Nothing to say. When language completely disappears, at that time you cannot say anything – just “Oh!” So, the language completely drops off, and then, at that time, you can see the really beautiful world, the beauty of existence. But you cannot say anything at all about the beauty of existence, because this is reality itself. 
 
-And then if you really want to explain this, you cannot stay there always, in the realm of material existence. Do you remember Vimalakirti? He kept silent, when the [Bodhisattva](glossary#bodhisattva) asked him, “What is the truth? Which is the one and undivided? What is it?” And then Vimalakirti kept silent. This silence is really the implication of glancing at the pure nature of existence, the beauty of existence. When language completely drops off, at that time, how can you say [it]? Just the sound, “Oh.” 
+And then if you really want to explain this, you cannot stay there always, in the realm of material existence. Do you remember Vimalakirti? He kept silent, when the [Bodhisattva](glossary#bodhisattva) asked him, “What is the truth? Which is the one and undivided? What is it?” And then Vimalakirti kept silent. This silence is really the implication of glancing at the pure nature of existence, the beauty of existence. When language completely drops off, at that time, how can you say it? Just the sound, “Oh.” 
 
-But you cannot stay there always in the realm of silence, so finally you have to say something in words, coming from this silence. You have to say [something], otherwise you cannot educate somebody. 
+But you cannot stay there always in the realm of silence, so finally you have to say something in words, coming from this silence. You have to say something, otherwise you cannot educate somebody. 
 
-So language must be dropped off, and finally language must come from silence again. And then, that’s why the inscription says, right after “Oh,” “Pure contradiction.” This is the philosophical explanation. So, if you really want to explain “oh” as the beauty of existence, nothing to say, language drops off. And then language comes back again, explaining about this beauty of existence in terms of, you can say, pure contradiction. Or, in terms of [poetry], you can say, “Under layers of ivy, peaceful sleep with joy. No one touches.” This is poetry.
+So language must be dropped off, and finally language must come from silence again. And then, that’s why the inscription says, right after “Oh,” “Pure contradiction.” This is the philosophical explanation. So, if you really want to explain “oh” as the beauty of existence, nothing to say, language drops off. And then language comes back again, explaining about this beauty of existence in terms of, you can say, pure contradiction. Or, in terms of poetry, you can say, “Under layers of ivy, peaceful sleep with joy. No one touches.” This is poetry.
 
-But this is still an explanation, which is told in terms of poetry, in terms of language, in terms of philosophy. But *really*, if you really see the reality of [the rose], everyone should experience this point when language drops off. At that time, nothing to say. 
+But this is still an explanation, which is told in terms of poetry, in terms of language, in terms of philosophy. But *really*, if you really see the reality of the rose, everyone should experience this point when language drops off. At that time, nothing to say. 
 
 That’s why when [Bodhidharma](glossary#bodhidharma) first met Emperor Wu, the emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma says, “There is no merit.” The merit Emperor Wu understood is just the image of merit. Looking at his reality, looking at the image. Coming from the image, coming from prepossession, coming from the conventional, coming from customs. But reality doesn’t agree sometimes. So Bodhidharma saying “no merit” means to lead him to open his eyes, to look at the beauty of existence when language drops off completely. 
 
-That’s why \[[Bodhidharma](glossary#bodhidharma)] said “No merit.” But [the Emperor] didn’t understand.
+That’s why [Bodhidharma](glossary#bodhidharma) said “No merit.” But the Emperor didn’t understand.
 
 ##### 36:29
 
-And then [after that] the main subject starts, from this question:
+And then after that the main subject starts, from this question:
 
 > Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma), “What is the highest meaning of the holy truths?”
 
@@ -152,7 +152,7 @@ For instance, “Life is characterized by [suffering](glossary#suffering).” Do
 
 But Emperor Wu didn’t understand, that’s why [Engo Zen Master](glossary#engo-kokugon) says, “This dull fellow speaks up.” *[Laughter.]* 
 
-That note by [Engo Zen Master](glossary#engo-kokugon) is [really picking on him], not the usual note in the Western style. (Katagiri says “picking him out”.) Sometimes he praises somebody very well, but he praises them in many ways – not always directly, sometimes by looking down on somebody. That’s why the notes in [Blue Cliff Record](glossary#blue-cliff-record) are *very* interesting, really [picking on people], piercing the human heart directly. 
+That note by [Engo Zen Master](glossary#engo-kokugon) is really picking on him, not the usual note in the Western style. (Katagiri says “picking him out”.) Sometimes he praises somebody very well, but he praises them in many ways – not always directly, sometimes by looking down on somebody. That’s why the notes in [Blue Cliff Record](glossary#blue-cliff-record) are *very* interesting, really picking on people, piercing the human heart directly. 
 
 So when “Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma),” the commenter says, “This dull fellow speaks up.”
 
@@ -160,7 +160,7 @@ So when “Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bod
 
 And, “What is the highest meaning of the holy truths?” The note says, “What a donkey-tethering stake this is.” *[He laughs along with the group.]* 
 
-We are always *tethered*: your body and mind [is tethered] with what? Well, preconceptions, prepossessions, images, conventions, and customs, and heredity. Created by what? Form, perceptions, consciousness. So – [stop the chain].
+We are always *tethered*: your body and mind is tethered with what? Well, preconceptions, prepossessions, images, conventions, and customs, and heredity. Created by what? Form, perceptions, consciousness. So – [stop the chain].
 
 So what is the highest meaning of the holy truths? Holy truth is... 
 
@@ -170,7 +170,7 @@ So what is the highest meaning of the holy truths? Holy truth is...
 
 And then [Bodhidharma](glossary#bodhidharma) says, “Empty, without holiness.”
 
-D.T. Suzuki [translated it as], “Vastness and nothing holy.” This translation says, “Empty, without holiness.” Anyway, empty means vast. Nothing there, but it’s vast. Without holiness: nothing holy, nothing not holy. Completely nothing.
+D.T. Suzuki translated it as, “Vastness and nothing holy.” This translation says, “Empty, without holiness.” Anyway, empty means vast. Nothing there, but it’s vast. Without holiness: nothing holy, nothing not holy. Completely nothing.
 
 So, [Engo Zen Master](glossary#engo-kokugon) says [in the Notes], “Wu considered this answer rather extraordinary. The arrow has flown past Korea. Very clear.” 
 
@@ -180,7 +180,7 @@ Emperor Wu expected a wonderful answer from [Bodhidharma](glossary#bodhidharma) 
 
 But, he doesn’t say that. “Nothing holy. Empty.” 
 
-[The Emperor] was completely confused. 
+The Emperor was completely confused. 
 
 And then, the note says, “The arrow has flown past Korea.” This is a very common expression in Zen. “The arrow has flown past Korea” means, we don’t know. *[He laughs.]* We don’t know when, how, where the arrow will fall down, or reach. Because: vastness, [emptiness](glossary#śūnyatā). His answer, “vastness and nothing holy,” is just like an arrow; shoot! The arrow is endlessly going in space, which is called vastness. Nothing holy. We don’t know where it goes. What is the target, where is the target? We don’t know. 
 
@@ -200,7 +200,7 @@ So, he says, “Who is facing me?” [Bodhidharma](glossary#bodhidharma) replied
 
 The note says, “Bah! His second reply isn’t worth half a cent.” *[Laughter.]* 
 
-Who is facing [him]? [Bodhidharma](glossary#bodhidharma) says, “I don’t know.” And after this it says, “The emperor didn’t understand.” He didn’t understand. [Engo Zen Master](glossary#engo-kokugon) says, “Too bad! Still, he’s gotten somewhere.” 
+Who is facing him? [Bodhidharma](glossary#bodhidharma) says, “I don’t know.” And after this it says, “The emperor didn’t understand.” He didn’t understand. [Engo Zen Master](glossary#engo-kokugon) says, “Too bad! Still, he’s gotten somewhere.” 
 
 Ah, too bad. Anyway, too bad. *[Laughter.]*
 
@@ -218,7 +218,7 @@ So, “Oh poor man. He thinks about an old debt. The bystander has eyes.” The 
 
 Then, “Master Chih asked, ‘Does your majesty know who this man is?’ The Emperor said, ‘I don’t know.’” *[He laughs.]*
 
-So this “I don’t know” seems to be the same answer [Bodhidharma](glossary#bodhidharma) gave, “I don’t know,” when he was asked by Emperor Wu, “Who are you, standing in front of me?” He said, “I don’t know.” But [Bodhidharma’s] “I don’t know” is completely different from the “I don’t know” Emperor Wu said. His “I don’t know” is *completely* “I don’t know.” *[Laughter.]*
+So this “I don’t know” seems to be the same answer [Bodhidharma](glossary#bodhidharma) gave, “I don’t know,” when he was asked by Emperor Wu, “Who are you, standing in front of me?” He said, “I don’t know.” But Bodhidharma’s “I don’t know” is completely different from the “I don’t know” Emperor Wu said. His “I don’t know” is *completely* “I don’t know.” *[Laughter.]*
 
 So [Bodhidharma](glossary#bodhidharma)’s “I don’t know” is completely beyond “I don’t know” or “I know”. This is Bodhidharma’s way. 
 
@@ -232,7 +232,7 @@ So finally, language completely drops off; what or who he is. That’s why he sa
 
 Why he comes to China to teach [Buddhism](glossary#buddhism) – at that time, there is a purpose of activity. Well, if you do something with a purpose, there must be some profit, or result, or reward, very naturally. This is a very systematic understanding of human activity. Of course, we should know this; but we cannot judge reality in that way. 
 
-[For example,] even though you teach for [a long time], how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 15 years. I don’t know how many people I have given instruction. But remind me, how many people come back after that? Clearly, one or two. 
+[For example,] even though you teach for a long time, how many people understand Buddha’s teaching? Pretty rare. I believe I have given instruction of [zazen](glossary#zazen) for 15 years. I don’t know how many people I have given instruction. But remind me, how many people come back after that? Clearly, one or two. 
 
 ##### 50:17
 
@@ -240,7 +240,7 @@ So, “Master Chih asks, ‘Does your majesty know who this man is?’ The Emper
 
 *[He laughs.]* Really [Zen Master](glossary#zen-master) Chih was treating Emperor Wu badly. *[Laughter]* ... because this Zen Master knew that Emperor Wu believed very strongly in [Avalokiteshvara](glossary#avalokiteshvara). So completely without complaint, expressing his respect to Avalokiteshvara, the Zen Master teased Emperor Wu: “He is Mahasattva Avalokiteshvara.” *[He laughs.]* 
 
-Mahasattva means [Avalokiteshvara](glossary#avalokiteshvara) is not the usual Avalokiteshvara that seems to be a “god” or divinity, which has sort of a strong power to control human beings. “Maha sattva” means “great being” – completely beyond the discussion of [whether] Avalokitshvara has the strong power of the almighty or not, simply this is Avalokitshvara. So that’s why he put the Mahasattva to Avalokiteshvara.
+Mahasattva means [Avalokiteshvara](glossary#avalokiteshvara) is not the usual Avalokiteshvara that seems to be a “god” or divinity, which has sort of a strong power to control human beings. “Maha sattva” means “great being” – completely beyond the discussion of whether Avalokitshvara has the strong power of the almighty or not, simply this is Avalokitshvara. So that’s why he put the Mahasattva to Avalokiteshvara.
 
 So, Mahasattva [Avalokiteshvara](glossary#avalokiteshvara). [Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is Avalokiteshvara! All of you really wanted to see how surprised Emperor Wu was to hear that, immediately as the great [Zen Master](glossary#zen-master) Chih expressed it. 
 
@@ -250,11 +250,11 @@ So, the [Zen Master](glossary#zen-master) says, “Your majesty, don’t say tha
 
 Because, the [Zen Master](glossary#zen-master) knows pretty well, that is Emperor Wu’s understanding of [Buddhism](glossary#buddhism): the essence of the truth is always somewhere apart from his life. Building up the temples? “Oh, there is merit, [Buddha](glossary#buddha)’s merit, there! Buddha and [Avalokiteshvara](glossary#avalokiteshvara) exist there.” And educating the monks? “Oh, I did something good.” Always something good, or merit, or result – always *outside*.
 
-So that’s why the [Zen Master](glossary#zen-master) said, “[Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is [Avalokiteshvara](glossary#avalokiteshvara)!” [The Emperor] was very surprised: “Oh, I missed it!” So he immediately tried to send someone to get him back. But the Zen Master said, “Don’t do that. Don’t do that.” Because if you do this, you are looking for the truth *outside*. The truth never comes back; never goes away. Even though you say, “I don’t want the truth.” 
+So that’s why the [Zen Master](glossary#zen-master) said, “[Bodhidharma](glossary#bodhidharma) is not Bodhidharma, Bodhidharma is [Avalokiteshvara](glossary#avalokiteshvara)!” The Emperor was very surprised: “Oh, I missed it!” So he immediately tried to send someone to get him back. But the Zen Master said, “Don’t do that. Don’t do that.” Because if you do this, you are looking for the truth *outside*. The truth never comes back; never goes away. Even though you say, “I don’t want the truth.” 
 
 ##### 54:18
 
-When I became a monk, for a while I felt good as a monk, because everyone offered food, and respected me, and it was wonderful. The more I was in the middle of the monks, and everyone looked at me as a monk, the more I realized a lot of criticism, and the more I found [the custom of the] Buddhist temples in Japan. And I had to see the death of people, and performing funeral services; I really hated that. And also my master didn’t teach me anything, and my master said, “You should do this, you should do that.” Many things: you have to be a good speaker, you have to be a good calligrapher, you have to be a good listener, you have to be a good understanding person. Lots of things. Well, how can I know all things? So I thought, I made a big mistake. I really wanted to give up [being a] monk.
+When I became a monk, for a while I felt good as a monk, because everyone offered food, and respected me, and it was wonderful. The more I was in the middle of the monks, and everyone looked at me as a monk, the more I realized a lot of criticism, and the more I found [the custom of the] Buddhist temples in Japan. And I had to see the death of people, and performing funeral services; I really hated that. And also my master didn’t teach me anything, and my master said, “You should do this, you should do that.” Many things: you have to be a good speaker, you have to be a good calligrapher, you have to be a good listener, you have to be a good understanding person. Lots of things. Well, how can I know all things? So I thought, I made a big mistake. I really wanted to give up being a monk.
 
 Because, we are always looking at something *outside*, okay?
 
@@ -288,7 +288,7 @@ There are, I told you, three things. Speech: this is to manifest yourself in wor
 
 So, finally, we have to just do. [Dogen](glossary#dogen) says in Zuimonki, in “Nansen Kills The Cat,” finally he said, “Give a word of Zen; I let the [cat](glossary#cat) go.” 
 
-I [would] let go of the [cat](glossary#cat), because the monk didn’t say anything, just kept silent. [Because] silence is already an answer, a real answer. Silence is not silence, silence is a real answer; expression, manifesting yourself in the world. That’s why [Dogen](glossary#dogen) Zenji says, “I would let go of the cat.” 
+I would let go of the [cat](glossary#cat), because the monk didn’t say anything, just kept silent. [Because] silence is already an answer, a real answer. Silence is not silence, silence is a real answer; expression, manifesting yourself in the world. That’s why [Dogen](glossary#dogen) Zenji says, “I would let go of the cat.” 
 
 It’s not necessary to kill the [cat](glossary#cat). But in a sense, “to kill the cat” is great *[unintelligible]*, experience to awaken the monk, because it’s very powerful. To help somebody, say something. “This is a picture. You don’t say the picture, you don’t say not picture, but don’t use the real worlds, I mean *say* something about it.” It’s very powerful. Completely you come to the demand, something you have to say, but finally, you can say nothing.
 
@@ -296,7 +296,7 @@ Even in [shikantaza](glossary#shikantaza), just doing the sitting doesn’t mean
 
 That’s why Zen always denies the words, always points out the world beyond verbal explanation. But it doesn’t mean ignoring the words, because it’s not necessary to be bogged down with words. Without words, we cannot exist. So, what do you mean, the negation of the words, language? Because we are pretty easily caught by words – kind of the words – because we get used to understanding ourselves pretty easily through the words. But anyway, we have to come to our experience of no words. At that time, nothing to say. You have to experience it. 
 
-And then, nevertheless, you cannot stay there. You have to say [something]. Because you cannot exist alone; you have to communicate with people. How can you communicate? Just using the words in the usual way, that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always what Zen emphasizes. 
+And then, nevertheless, you cannot stay there. You have to say something. Because you cannot exist alone; you have to communicate with people. How can you communicate? Just using the words in the usual way, that sometimes makes trouble. Sometimes it’s making trouble. So, we have to communicate in a deep way. That is always what Zen emphasizes. 
 
 If you study the [Blue Cliff Record](glossary#blue-cliff-record), maybe you can grab that real spirit of [Zen Buddhism](glossary#zen-buddhism ). Beyond denomination: [Rinzai](glossary#rinzai-zen ), [Soto](glossary#soto-zen ). Anyway, out of general Buddhism, we have to understand Zen practice. We’re not comparing with Rinzai or Soto, et cetera, or the other schools. We have to understand our practice of [zazen](glossary#zazen) in terms of general Buddhism mentioned by [Buddha](glossary#buddha). 
 
@@ -358,7 +358,7 @@ Is that okay?
 
 **Question**: When you tell the story about picking up the teacher, was that the story from your house, was that your experience? 
 
-**Katagiri**: Well [it’s] a Zen story, such a case happened in the world.
+**Katagiri**: Well it’s a Zen story, such a case happened in the world.
 
 ##### 1:15:50
 

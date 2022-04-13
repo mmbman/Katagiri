@@ -13,7 +13,7 @@ description: November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 ##### 0:00 start of recording
 
-The thirty-fifth case [of the *Blue Cliff Record*]: “The Dialogue of Manjusri and Wu Cho”. 
+The thirty-fifth case of the *Blue Cliff Record*: “The Dialogue of Manjusri and Wu Cho”. 
 
 The Pointer:
 
@@ -35,7 +35,7 @@ The Case:
 >
 > (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
 
-We couldn’t find Wu Cho’s history, but it is said that Wu Cho was one of the *[unintelligible]* Zen Masters, who lived from 594 to 657. [In this story,] he went to Mount Wutai in China. It is said that Mount Wutai was the spiritual abode of Manjushri; anyway the Chinese people believed that Mount Wutai was a place where Manjushri lived in those days. Wu Cho visited Mount Wutai and talked with Manjushri, but actually, as you know, Manjushri is not a real person. So in this case, Wu Cho was entirely intimate with the spirit of Manjushri, and talked with spiritual Manjushri. He could imagine him in his heart. So in other words, he talked with himself. 
+We couldn’t find Wu Cho’s history, but it is said that Wu Cho was one of the *[unintelligible]* Zen Masters, who lived from 594 to 657. In this story, he went to Mount Wutai in China. It is said that Mount Wutai was the spiritual abode of Manjushri; anyway the Chinese people believed that Mount Wutai was a place where Manjushri lived in those days. Wu Cho visited Mount Wutai and talked with Manjushri, but actually, as you know, Manjushri is not a real person. So in this case, Wu Cho was entirely intimate with the spirit of Manjushri, and talked with spiritual Manjushri. He could imagine him in his heart. So in other words, he talked with himself. 
 
 In the last sentence of the case, Manjushri says, “In front, three by three; in back, three by three.” This is a typical term which occurs very often in Zen scriptures; in Shobogenzo and here, anyplace, it always comes up. In front and in back mean before and after. Three by three does not mean three, it implies infinity, boundlessness. From this, the case teaches us that it is not the important point to know how many practitioners we have in the monastery. Wherever you may go, whoever the people are, even though they don’t practice in the monastery, they are the practitioners. According to Shakyamuni Buddha, Buddha opens his heart not only to people who follow the Buddha’s teaching, but also to people who don’t follow his teaching. He always opens his heart, sharing his compassion with all living beings. From this point, practitioners are not limited to only the people who practice at a certain monastery, et cetera. 
 

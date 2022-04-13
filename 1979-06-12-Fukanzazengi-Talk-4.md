@@ -14,7 +14,7 @@ description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 ##### 0:00 start of recording
 
-Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn [this]:
+Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn this.
 
 [Dogen writes,]
 
@@ -24,9 +24,9 @@ Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen
 
 The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about dying while either sitting or standing: “It is written in [Keitoku Dentō-roku](glossary#keitoku-dentō-roku) that [Bodhidharma](glossary#bodhidharma) and the fourth, fifth and sixth Chinese Zen [patriarchs](glossary#ancestor) died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the [Zen](glossary#zen) histories.” 
 
-So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while [they were] giving a lecture. Anyway, there are examples in Buddhist history – but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they [did], wherever they [were], they died.
+So from this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while they were giving a lecture. Anyway, there are examples in Buddhist history – but it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing. Wherever they may be, they died in peace and harmony. Whatever they did, wherever they were, they died.
 
-[Dogen Zenji](glossary#dogen) really wants to [speak] about how important zazen is. That zazen is [shikantaza](glossary#shikantaza). In shikantaza, all [delusions](glossary#delusion) drop off from the first. That is dropping off body and mind – body and mind dropping off. That is zazen itself. 
+[Dogen Zenji](glossary#dogen) really wants to speak about how important zazen is. That zazen is [shikantaza](glossary#shikantaza). In shikantaza, all [delusions](glossary#delusion) drop off from the first. That is dropping off body and mind – body and mind dropping off. That is zazen itself. 
 
 ##### 4:37
 
@@ -34,15 +34,15 @@ Usually in the world, we constantly persist in our selfishness, [ego consciousne
 
 There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because no one pays attention to you if you do that; finally, those kind of people are completely isolated. And also, you cannot live in the human world in peace and harmony. So finally, it is really true that you are disinterested in human life. 
 
-So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they [could] keep their life longer, they take their [own] life.
+So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they could keep their life longer, they take their own life.
 
 There are some that death compels to die, even though they don't want to die. There are some that scream right before their death, because they don't like it. I know lots of examples. 
 
-I took care of a young man who served in the army. At that time he was 30 years old. At his house, for many, many years, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, he was kicking out everybody; he did everything [as] he liked. Finally, there was nothing to do which caused him to be interested, so he was disinterested in his usual daily life. So, he went and entered the army. 
+I took care of a young man who served in the army. At that time he was 30 years old. At his house, for many, many years, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, he was kicking out everybody; he did everything as he liked. Finally, there was nothing to do which caused him to be interested, so he was disinterested in his usual daily life. So, he went and entered the army. 
 
-Well, he found [the army] a little bit interesting, a little bit fun, because there are lots of chances to kill a person, and kill animals, and use guns; lots of fun there, which he had never experienced before. So he enjoyed it very much. But unfortunately, one day he fell down from a tree while he was trimming it with a Japanese hand saw. He fell down from the high tree, and the bottom of his body was completely numb. He couldn't walk. So, he was in the army hospital.
+Well, he found the army a little bit interesting, a little bit fun, because there are lots of chances to kill a person, and kill animals, and use guns; lots of fun there, which he had never experienced before. So he enjoyed it very much. But unfortunately, one day he fell down from a tree while he was trimming it with a Japanese hand saw. He fell down from the high tree, and the bottom of his body was completely numb. He couldn't walk. So, he was in the army hospital.
 
-But he was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself. Still he expressed his ego in order to accomplish his purpose of his life. [He was always] screaming at the nurses, and hitting somebody, and fighting, even though he sat down on the chair. You know ... using the special chair? He screams at the nurses, and is fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. “Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch,” I always told him. But he enjoyed it very much; it was a part of his life. 
+But he was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself. Still he expressed his ego in order to accomplish his purpose of his life. He was always screaming at the nurses, and hitting somebody, and fighting, even though he sat down on the chair. You know ... using the special chair? He screams at the nurses, and is fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. “Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch,” I always told him. But he enjoyed it very much; it was a part of his life. 
 
 And then in three years, he got another disease... maybe a kidney didn't work. If a kidney didn't work, he couldn't have urine, so all of a sudden, the poisons went around his whole body. Three days after starting to suffer from this, he died.
 
@@ -54,7 +54,7 @@ That was his last scene. He had for so long persisted in his egoistic sense, in 
 
 This is very common. Very common. For such people, they never thought of the significance of [zazen](glossary#zazen), which causes all [delusions](glossary#delusion) to drop off, from the first. They never thought of glancing even once at such a wonderful world. They don't care. That is okay. 
 
-But it is not bad to glance at that wonderful world. [If you glance at it] even once in your whole life, that's great. It's not bad. Even if you cannot have the chance to glance at this wonderful world once in your whole life, still, if you want to pursue this, it's not bad for us. Because life is going on; so life after life, we can do it. 
+But it is not bad to glance at that wonderful world. If you glance at it even once in your whole life, that's great. It's not bad. Even if you cannot have the chance to glance at this wonderful world once in your whole life, still, if you want to pursue this, it's not bad for us. Because life is going on; so life after life, we can do it. 
 
 ##### 15:14
 
@@ -76,9 +76,9 @@ There is a [Zen](glossary#zen) story in [The Blue Cliff Record](BCR), the [46th 
 
 ##### 16:46
 
-What [Kyosei Zen Master](glossary#kyosei) asked the monk, his question, is something [with] which [he] raked [the] monk’s mind [to see] how much his practice was going on. So [he asked], “What sound is that outside the gate?” The monk said, “The sound of raindrops.” The teacher didn’t ask for the sound of the raindrops; he asked for the raindrops themselves. But he used the words, “What’s the sound outside of the gate?” So the monk said, “That is the sound of raindrops.” 
+What [Kyosei Zen Master](glossary#kyosei) asked the monk, his question, is something with which he raked the monk’s mind to see how much his practice was going on. So he asked, “What sound is that outside the gate?” The monk said, “The sound of raindrops.” The teacher didn’t ask for the sound of the raindrops; he asked for the raindrops themselves. But he used the words, “What’s the sound outside of the gate?” So the monk said, “That is the sound of raindrops.” 
 
-You know the sound [of raindrops]. The sound is not the raindrops. Raindrops are raindrops. But the sound comes from where? Raindrops. But the sound is not raindrops. It’s very clear, don’t you think so? Because raindrops are, anyway, *raindrops*. I cannot say. Raindrops are active, moving, very active. Becoming one, or the merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, “some raindrops.” That is already something *extra*, don’t you think so? 
+You know the sound of raindrops. The sound is not the raindrops. Raindrops are raindrops. But the sound comes from where? Raindrops. But the sound is not raindrops. It’s very clear, don’t you think so? Because raindrops are, anyway, *raindrops*. I cannot say. Raindrops are active, moving, very active. Becoming one, or the merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, “some raindrops.” That is already something *extra*, don’t you think so? 
 
 ##### 19:02
 
@@ -94,7 +94,7 @@ That’s why the Zen teacher says, “sentient beings are inverted.”
 
 Yes, we are inverted. This is really true, don't you think so? 
 
-You’re sitting here; how much can you sit? What is the sound of your [shikantaza](glossary#shikantaza)? You say, “Yes! Sound; that is a sound.” What is the sound, in you? You say, “the sound of shikantaza” – but it’s too late, because real shikantaza has gone already! And then you catch the sound from the shikantaza, and when you grasp it, [you say,] “that is shikantaza.” It’s not shikantaza. You are already inverted; don’t you think so? And then you judge [it] immediately; and then finally, you follow after that, again and again. What happens after that, after following after things? “After things” means, sound.
+You’re sitting here; how much can you sit? What is the sound of your [shikantaza](glossary#shikantaza)? You say, “Yes! Sound; that is a sound.” What is the sound, in you? You say, “the sound of shikantaza” – but it’s too late, because real shikantaza has gone already! And then you catch the sound from the shikantaza, and when you grasp it, [you say,] “that is shikantaza.” It’s not shikantaza. You are already inverted; don’t you think so? And then you judge it immediately; and then finally, you follow after that, again and again. What happens after that, after following after things? “After things” means, sound.
 
 You know that [Dogen Zenji](glossary#dogen) says, I told you often, the moment consists of 60 instants. (Transcriber’s Note: Katagiri says “instances,” but he probably means “instants”; that may be the better translation.) So what you can hear, the moment, is the sound of the moment. *[He snaps his fingers.]* Like this. But, this one moment – *[finger snap]* – consists of 60 instants. If it is true – what did you hear? What in the moment have you heard? *[Snap.]* This sound, don’t you think so? But this sound, the moment, is nothing but sort of dregs, after you squeeze the 60 instants. And then you got the one grip of the raindrops, just the raindrops: “I’ve got it.” But that is one moment – already, you have missed 60 instants! So how can you know? 
 
@@ -102,7 +102,7 @@ The same applies to this monk’s answer. That’s why the [Zen Master](glossary
 
 ##### 25:12
 
-The monk didn’t understand; that’s why the monk asked, “What about you? How do you understand that?” And then the [Zen Master](glossary#zen-master) said, “I almost don’t lose myself.” That’s pretty good. *[He chuckles.]* Because, without some raindrop you [can] listen to, you cannot understand the raindrop, what it is. [But] how can you reach the raindrop as it really is? No way. Because, it’s huge; before you perceive [it], before you hear the sound, that is the real raindrop. How can you realize this? It’s not a dream, it’s real rain – but how can you reach there? Through only one thing, only one way you can reach it: through the sound of the raindrop.
+The monk didn’t understand; that’s why the monk asked, “What about you? How do you understand that?” And then the [Zen Master](glossary#zen-master) said, “I almost don’t lose myself.” That’s pretty good. *[He chuckles.]* Because, without some raindrop you listen to, you cannot understand the raindrop, what it is. How can you reach the raindrop as it really is? No way. Because it’s huge; before you perceive it, before you hear the sound, that is the real raindrop. How can you realize this? It’s not a dream, it’s real rain – but how can you reach there? Through only one thing, only one way you can reach it: through the sound of the raindrop.
 
 But, you shouldn't lose sight of yourself, and also you shouldn't follow after that sound of raindrops. Well, move away! Move away. We always sit on the chair of the sound of the raindrop, persisting that that is the raindrop. But it's not the raindrop. 
 
@@ -114,7 +114,7 @@ So he said ‘almost’; “I almost don't lose myself.” ‘Almost’ means co
 
 The same applies to death. If you attach to death, if you sit down in the chair of death, that death is something extra coming upside; it really scares you. So at that time, you really burn up. So we don't like it. We say, "I hate death." But if you completely keep away from death, you forfeit. Your life doesn't work. 
 
-Just imagine if you could live full on, like a heavenly being. Finally you could be disinterested in human [life], because [it’s] no fun – because fun is always, constantly there. [There is] no need [for] trying to get [your] desires to [have] fun; fun is always there. So finally, no fun; you are disinterested in fun. Do you understand?
+Just imagine if you could live full on, like a heavenly being. Finally you could be disinterested in human life, because it’s no fun – because fun is always, constantly there. There is no need to try to get your desires to have fun; fun is always there. So finally, no fun; you are disinterested in fun. Do you understand?
 
 Well, it is really true. You are supported by air, hydrology; carbonic acid gas, and also oxygen. Your life is supported constantly; and you are disinterested in it. You don't pay careful attention to it – because you are always basking in it. 
 
@@ -138,7 +138,7 @@ But if you for a moment come out of this shikantaza, you can look at yourself an
 
 That's why this morning I told you: cease fire. Completely cease fire. (Transcriber’s Note: This talk was given during a seven-day sesshin or meditation retreat. Katagiri Roshi may have offered this guidance during a [zazen](glossary#zazen) period or at another time.) 
 
-Cease fire doesn't mean throw away. [There is] nothing to do. It's not necessary to do anything particular; only to stop firing, stop shooting. Nothing to do; all you have to do is, here is [shikantaza](glossary#shikantaza). Shikantaza – well, arranging the circumstances, and regulating the body and breath, and also regulating mind, based on no design of becoming [Buddha](glossary#buddha), or whatever it is. Just sit down there.
+Cease fire doesn't mean throw away. There is nothing to do. It's not necessary to do anything particular; only to stop firing, stop shooting. Nothing to do; all you have to do is, here is [shikantaza](glossary#shikantaza). Shikantaza – well, arranging the circumstances, and regulating the body and breath, and also regulating mind, based on no design of becoming [Buddha](glossary#buddha), or whatever it is. Just sit down there.
 
 And then finally, you can stop shooting. If you do it, you can stop shooting, very naturally. Stop shooting immediately, okay? 
 
@@ -146,41 +146,41 @@ On the other hand, stop shooting “catches” many things. Even a small sound, 
 
 What are the raindrops? The raindrops are you. The raindrops are [zazen](glossary#zazen). 
 
-If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe “that is raindrops” or “[that is] shikantaza.” That is confusion. So, completely cease firing. For this – no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just do, okay?
+If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe “that is raindrops” or “that is shikantaza.” That is confusion. So, completely cease firing. For this – no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just do, okay?
 
 ##### 40:16
 
-I always [use] the example of death because death is a very good example in order to explain [shikantaza](glossary#shikantaza), in which all [delusions](glossary#delusion) completely drop off. Right in the middle of death, all delusions drop off. [Whether] you are qualified to accept death or you are not qualified to accept death, or you are stupid or you are not stupid – it doesn't matter; just death. Don't you think so? 
+I always use the example of death because death is a very good example in order to explain [shikantaza](glossary#shikantaza), in which all [delusions](glossary#delusion) completely drop off. Right in the middle of death, all delusions drop off. Whether you are qualified to accept death or you are not qualified to accept death, or you are stupid or you are not stupid – it doesn't matter; just death. Don't you think so? 
 
 If you hear the sound from [zazen](glossary#zazen), from [the] practicer, you say, “I am qualified to be a good Zen student,” or, “I am not qualified,” “I am stupid,” “I am not stupid; I am excellent” – but whatever you say, it’s really sounds. Right in the middle of shikantaza itself, it is really exactly the same as death itself. No way; exactly no way. 
 
-The gap is something which causes you to see something objectively. While [you are] seeing something objectively, it creates lots of things: fear, enjoyment, criticism; judgement, good and bad; many things. But if you are one with exactly death itself – nothing to say. If you're one. 
+The gap is something which causes you to see something objectively. While you are seeing something objectively, it creates lots of things: fear, enjoyment, criticism; judgement, good and bad; many things. But if you are one with exactly death itself – nothing to say. If you're one. 
 
 ##### 42:37
 
-For instance, if I die: before dying, I can see my death. It really scares me. [I say,] “I don’t want to die.” Or I say, “Okay, okay; I can die.” On the other hand, I don’t want to die – but death is coming up to me. So, always I discuss with death: 
+For instance, if I die: before dying, I can see my death. It really scares me. I say, “I don’t want to die.” Or I say, “Okay, okay; I can die.” On the other hand, I don’t want to die – but death is coming up to me. So, always I discuss with death: 
 
 “I like it, but I don’t *like* it.”
 
 “Well, are you sure you like death?”
 
-”No, [I’m not]. But anyway, no way, so I like it.”
+”No, I’m not. But anyway, no way, so I like it.”
 
 “But, it is not honest.” 
 
 So, if I continue to ask myself, “Are you sure?” – I don’t like it. But if I don’t like it, can I escape from it? No way. Because death is just coming up to me. Death is there, coming up. 
 
-But right before, until death reaches me, death is still not real death. [It is the] sound of death; I always hear the sound of death. Then after the sound of death, always it makes me confused: “I like it,” “I don’t like it,” “I like it,” “I don’t like it”... “Oh, I don’t care.” Whatever you say, this is nothing but hearing the sound of death, that’s all. It’s not real death. 
+But right before, until death reaches me, death is still not real death. It is the sound of death; I always hear the sound of death. Then after the sound of death, always it makes me confused: “I like it,” “I don’t like it,” “I like it,” “I don’t like it”... “Oh, I don’t care.” Whatever you say, this is nothing but hearing the sound of death, that’s all. It’s not real death. 
 
-But if death reaches me perfectly – [there is] no death. No [suffering](glossary#suffering), no prison, no [delusions](glossary#delusion). Completely all delusions drop off. 
+But if death reaches me perfectly – there is no death. No [suffering](glossary#suffering), no prison, no [delusions](glossary#delusion). Completely all delusions drop off. 
 
 And then immediately, there is a moment that comes up, which is called “after death”. And then [Katagiri](glossary#katagiri) says, “Oh! I died.” But if I died... *[He laughs.]* I cannot see [it if I] died. 
 
-But anyway, let’s see the movie. So, I look at death, and then lots of sounds come up, and then I say, criticizing: “Oh, I [don’t] like it. Oh, poor Katagiri,” patting my head. And also: fighting death, and sometimes shaking hands with death, and sometimes escaping from [death], sometimes playing hide and seek with death. But whatever happens, death is continually coming up to me. This is reality; this is very normal. 
+But anyway, let’s see the movie. So, I look at death, and then lots of sounds come up, and then I say, criticizing: “Oh, I don’t like it. Oh, poor Katagiri,” patting my head. And also: fighting death, and sometimes shaking hands with death, and sometimes escaping from death, sometimes playing hide and seek with death. But whatever happens, death is continually coming up to me. This is reality; this is very normal. 
 
 So finally, whatever I say, that is a [dualistic](glossary#dualistic) world. Lots of things come up. Stumbling over whatever I say, finally, what happens? All I have to do is to merge myself in death as it really is, because it’s *real*. 
 
-So finally, death says, “Hi.” If he says, “Hi,” I can answer, “Hi” – because it’s already one. No [delusions](glossary#delusion) [about] what I have to say or [what I] shouldn’t say; [whether] I should give [an] answer to death – “Hi” – or not. No delusions; completely all delusions drop off, if I become one with death exactly. 
+So finally, death says, “Hi.” If he says, “Hi,” I can answer, “Hi” – because it’s already one. No [delusions](glossary#delusion) about what I have to say or what I shouldn’t say; whether I should give an answer to death – “Hi” – or not. No delusions; completely all delusions drop off, if I become one with death exactly. 
 
 And then, the movie is still going on. That is life. And then ...
 
@@ -196,7 +196,7 @@ But the mind is pretty picky. Mind is very picky, always picking up; that's why 
 
 Recently we have had tragic airplane accidents very often. I always think of the people who are dying there. I always think, if I were them, what should I do? What's happening in my life? I can think of lots of things. 
 
-But whenever I get a solution, through the countless [Zen](glossary#zen) stories, koans, or [shikantaza](glossary#shikantaza), dropping off body and mind – whatever you say, it's completely words. Don't you think so? If you face death, it’s no time to discuss [it].
+But whenever I get a solution, through the countless [Zen](glossary#zen) stories, koans, or [shikantaza](glossary#shikantaza), dropping off body and mind – whatever you say, it's completely words. Don't you think so? If you face death, it’s no time to discuss it.
 
 And then, with humility, what could you do, right in the middle of that situation? *[There is a long pause.]* No guarantee, no guarantee. “I should do this, or that” – no. I don’t have anything to promise you. “I can die in peace and harmony right in the middle of such a situation” – I cannot say so. Or, “I would be completely confused and scream” – I cannot say so. I don’t know. Actually, I don’t know what to do. 
 
@@ -204,13 +204,13 @@ This is reality, okay? This is reality. So that's why we are practicing [shikant
 
 ##### 50:50
 
-For instance, [the statement] “Zazen gives you lots of strength.” So you are interested in such a zazen. “Through zazen [there are] ways of regulating breath, there are lots of techniques.” So you follow these techniques, and you can completely take care of [your] breath, perfectly. And then you say, “Oh, my zazen is perfect.” 
+For instance, the statement “Zazen gives you lots of strength.” So you are interested in such a zazen. “Through zazen there are ways of regulating breath, there are lots of techniques.” So you follow these techniques, and you can completely take care of your breath, perfectly. And then you say, “Oh, my zazen is perfect.” 
 
-And then, still you don’t believe it, so you try to buy the machine for measuring brain waves, connect it, and look at your brain. *[There is some shuffling and chuckling.]* Let’s start to do zazen: “How about breath, how about body?” – “Body is okay. Yes, okay.” – “How about the breath; breath is okay?” – “Yes, okay.” Well, even though you don’t say it, the machine says it’s okay. “How about the brain and nervous system?” So you plug me into the machine, and the brain is constantly going. And then the machine says, “Oh, your brain is calm now.” *[The group laughs.]* So you say, “Wow! Wonderful! I am [an] enlightened person.” That’s interesting. Don’t you think so? That’s *great*. 
+And then, still you don’t believe it, so you try to buy the machine for measuring brain waves, connect it, and look at your brain. *[There is some shuffling and chuckling.]* Let’s start to do zazen: “How about breath, how about body?” – “Body is okay. Yes, okay.” – “How about the breath; breath is okay?” – “Yes, okay.” Well, even though you don’t say it, the machine says it’s okay. “How about the brain and nervous system?” So you plug me into the machine, and the brain is constantly going. And then the machine says, “Oh, your brain is calm now.” *[The group laughs.]* So you say, “Wow! Wonderful! I am an enlightened person.” That’s interesting. Don’t you think so? That’s *great*. 
 
-So, finally, you cannot stop looking at the machine. *[Laughter.]* Finally, you try to collect the money to buy that machine. *[Laughter.]* And connecting the machine, [you are] sitting zazen right in front of the machine. Without the machine you cannot do zazen, because there is nothing to prove your zazen as a means – so you continue to sit right in front of the machine. 
+So, finally, you cannot stop looking at the machine. *[Laughter.]* Finally, you try to collect the money to buy that machine. *[Laughter.]* And connecting the machine, you are sitting zazen right in front of the machine. Without the machine you cannot do zazen, because there is nothing to prove your zazen as a means – so you continue to sit right in front of the machine. 
 
-So, every day you sit; every day the machine says, “Your brain is good!” – “Good!” – “Good!” And then you say, “My zazen is perfect.” And then psychologists [compile] the data and say: “Katagiri’s zazen is perfect. This is what is called shikantaza: all [delusions](glossary#delusion) drop off.” *[Laughter.]* I don’t think so. *[Everyone laughs.]* And then, next moment, the psychologist says, “May I borrow your machine?” *[Laughter.]* 
+So, every day you sit; every day the machine says, “Your brain is good!” – “Good!” – “Good!” And then you say, “My zazen is perfect.” And then psychologists compile the data and say: “Katagiri’s zazen is perfect. This is what is called shikantaza: all [delusions](glossary#delusion) drop off.” *[Laughter.]* I don’t think so. *[Everyone laughs.]* And then, next moment, the psychologist says, “May I borrow your machine?” *[Laughter.]* 
 
 And then, I cannot stop sitting, so I have to do zazen without the machine. Well, what should I do? No clue! Immediately my mind is going on: “It’s not perfect!” So I cannot do zazen without a machine.
 
@@ -222,17 +222,17 @@ One gentleman was very interested in checking his brain, so he went to the hospi
 
 Well, he couldn’t stop. Still he wanted to go there and check his brain – because he didn’t have his life with confidence without the machine. So finally, he bought it. *[He laughs.]* He bought the machine. Then he put the machine on; the machine is saying, “You’re good. Now... *Uh-oh*, you aren’t!” *[Laughter.]* 
 
-Anyway, it’s very comic what occurs with the modern [Zen]. Sitting in zazen, in back of the screen, completely [a mess]. Even though the zazen machine says, “Your brain is calm” – very neat – but behind the screen, completely a mess, because he doesn’t know what to do. Without the machine, the mess appears in front – *[unintelligible]* *[He laughs.]* So he’s confused.
+Anyway, it’s very comic what occurs with modern Zen. Sitting in zazen, in back of the screen, completely [a mess]. Even though the zazen machine says, “Your brain is calm” – very neat – but behind the screen, completely a mess, because he doesn’t know what to do. Without the machine, the mess appears in front – *[unintelligible]* *[He laughs.]* So he’s confused.
 
 ##### 57:40
 
-So if you use [zazen](glossary#zazen) as a means like this, it doesn't make sense. Even though for three years you use zazen and get a strong feeling and spirit in your life – [still] it doesn't connect with the problem of life and death. No connection. So finally, *forget it*. All you have to do is, you have to be one with [shikantaza](glossary#shikantaza). That's all! Right now, right here, that's all you have to do. 
+So if you use [zazen](glossary#zazen) as a means like this, it doesn't make sense. Even though for three years you use zazen and get a strong feeling and spirit in your life – still it doesn't connect with the problem of life and death. No connection. So finally, *forget it*. All you have to do is, you have to be one with [shikantaza](glossary#shikantaza). That's all! Right now, right here, that's all you have to do. 
 
 And then at that time, we can say, all [delusions](glossary#delusion) drop off. But that is an explanation; *after*. Raindrops touch the ground, make a sound, coming out of [enlightenment](glossary#enlightenment). And then I can say, “that is the sound of raindrops.” But it's not real raindrops; we're always here, keeping our distance.
 
 [Dogen Zenji](glossary#dogen) says, “Zazen is dropping off body and mind.” Remember this. Your whole life, you should remember: “Zazen is dropping off body and mind.” It means all [delusions](glossary#delusion) drop off. That means exactly the same as death. Death is exactly the same as life. 
 
-So how can I say it? How can I check? While all delusions drop off, right in the middle of death – nothing to say. But, when you become one with death, all delusions drop off! Otherwise you cannot become one with death; don’t you think so? It is really true. [They] completely drop off.
+So how can I say it? How can I check? While all delusions drop off, right in the middle of death – nothing to say. But, when you become one with death, all delusions drop off! Otherwise you cannot become one with death; don’t you think so? It is really true. They completely drop off.
 
 But we don't do that. Taking away all [delusions](glossary#delusion), *and then* I want to be one – it's too late; you cannot do this. You have to be one anyway. If you're one, all delusions drop off very naturally. But we don't believe it, because we get use of always keeping a certain distance and hearing the sound, and believing that is the real world. And we continue to follow after that – that's why we are inverted, perverted. 
 
@@ -250,11 +250,11 @@ If you don't like this: if you look at the United States, I promise, there is no
 
 But whatever happens, all we have to do is, to be present right in the middle of death itself, life itself, where all [delusions](glossary#delusion) drop off. Qualified or not qualified, it doesn't matter. You cannot ignore it; you should accept it. But all we have to do is, just practice this. At that time, you can find great teacher, finally. Teacher finds great teacher. 
 
-So, some teacher says, “I am not qualified to be a teacher,” so he returns to normal life. But what he does [then]: he does the same things as before. Don’t you think so? Same things. I know several people [like this]. And also he makes an announcement in public: “I am no longer a priest.” This is wonderful – but what he does is the same thing. 
+So, some teacher says, “I am not qualified to be a teacher,” so he returns to normal life. But what he does then: he does the same things as before. Don’t you think so? Same things. I know several people like this. And also he makes an announcement in public: “I am no longer a priest.” This is wonderful – but what he does is the same thing. 
 
 ##### 1:05:45
 
-What would you like? There is stinky, muddy water, there is beautiful water – but both [are the] same. And you can do the same things, wherever you may be: a beautiful, nice smelling place, or here is a muddy, stinky [place], and lots of things. That is the [samsaric](glossary#samsara) world, and here is another beautiful world – but both are the same, and wherever you may be, you can do the same things. What would you like? What would you *be*? What would you *prefer* to be? Do you want be a stinky, muddy [group]? Do you understand?
+What would you like? There is stinky, muddy water, there is beautiful water – but both are the same. And you can do the same things, wherever you may be: a beautiful, nice smelling place, or here is a muddy, stinky place, and lots of things. That is the [samsaric](glossary#samsara) world, and here is another beautiful world – but both are the same, and wherever you may be, you can do the same things. What would you like? What would you *be*? What would you *prefer* to be? Do you want be a stinky, muddy [group]? Do you understand?
 
 If you are in a beautiful place, there’s a lot of “barking.” Remember this. Many people bark at you. Because you are already in a beautiful place, that’s why you can see lots of ugly things. If you make a mistake, lots of things happen, and then immediately you say, “That is something extra.” If you do this, you never touch the core of human life. 
 

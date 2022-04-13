@@ -24,7 +24,7 @@ If it is true, how does the Buddha experience and preach the dharma? Chapter 8 i
 
 ##### 4:45
 
-In [Buddhism](glossary#buddhism) usually there are three kinds of giving [in] the perfection of giving. One is material gifts. The second is [dharma](glossary#dharma) gifts. The third is the giving of fearlessness. 
+In [Buddhism](glossary#buddhism) usually there are three kinds of giving in the perfection of giving. One is material gifts. The second is [dharma](glossary#dharma) gifts. The third is the giving of fearlessness. 
 
 Material gifts, dharma gifts – but if you don’t have any material gifts, or if you don’t have any capability to preach dharma, what should you give? In one of the Buddhist scriptures, there are seven kinds of giving for such a person who doesn’t have any material gifts or dharma gifts. 
 
@@ -42,13 +42,13 @@ Peaceful words are very important. But peaceful words are not always gentle, not
 
 But even though it’s not necessary to scold or to scream always, there is a very interesting story. One of the famous Japanese novelists ... had one of his sons who wasted lots of money. This novelist was also one of the great painters. So he painted, and the larger pictures were in his room. Sometimes he could sell them, but usually he didn’t sell them. But his son sold most of them without saying anything, in order to spend his life at the bar – *[mild laughter]* – drinking beer, wine, whisky always. Unfortunately, he got an ulcer. So he went to the hospital to recover, but unfortunately, after he recovered he still continued to spend lots of money to drink brandy. And finally, he got cancer. [All the way] until his death, his father didn’t scold him at all; he didn’t say *anything*. But his brothers and sisters were really angry with the father because he didn’t say anything to him – just watched him. 
 
-This novelist was one of the very enthusiastic Buddhists, believing the teaching of the Lotus Sutra. In the Lotus Sutra, it’s always explaining the oneness of the world. So, right before he died with cancer, [the son] really expressed appreciation to his father. He didn’t say anything, but the son really expressed his gratitude to his father. This is [beautiful], because the world is one. 
+This novelist was one of the very enthusiastic Buddhists, believing the teaching of the Lotus Sutra. In the Lotus Sutra, it’s always explaining the oneness of the world. So, right before he died with cancer, the son really expressed appreciation to his father. He didn’t say anything, but the son really expressed his gratitude to his father. This is [beautiful], because the world is one. 
 
 So, it’s not always scolding, using [harsh] words, but it’s not always to use soft words or gentle words. It really depends on the situation. Basically, anyway, we have to practice giving with words. 
 
 ##### 12:56
 
-The fourth: “giving with the body”. That means to help people with [the] body first. 
+The fourth: “giving with the body”. That means to help people with the body first. 
 
 Most people think something with their head, saying, “I want to help the people,” or, “I think I can believe.” In [Buddhism](glossary#buddhism), to think is not to think, to think is to *do* something with your body. So to believe is to *practice* with your body. To believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do it with your body. 
 
@@ -58,7 +58,7 @@ You have to do something with body, but also mind must be present with body. Bec
 
 Sixth: ... The gift of making room for a person, and offering a blanket to people. 
 
-Sometimes [on] a bus, old people come in, but young people don’t care whoever comes in, so they keep sitting. But if you see the old people ride on the bus, why don’t you make room for them? And sometimes you can offer a cushion, blanket, or sleeping bag. Or [phone], et cetera. 
+Sometimes on a bus, old people come in, but young people don’t care whoever comes in, so they keep sitting. But if you see the old people ride on the bus, why don’t you make room for them? And sometimes you can offer a cushion, blanket, or sleeping bag. Or [phone], et cetera. 
 
 Seventh: the gift of sharing a room with people. Sometimes you can share a room with people.
 
@@ -66,7 +66,7 @@ Those seven practices are the perfection of giving for a person who doesn’t ha
 
 ##### 18:06
 
-But strictly speaking, material gifts and [dharma](glossary#dharma) gifts are all on the same footing. For example, if material gifts are given to a person of a preacher’s fiber, one can help him to study and practice the teachings and become a preacher. Material gifts of this kind are on an equal footing with dharma gifts, because in the future he will be a preacher to give the [Buddha](glossary#buddha)’s teachings to people. Or, by dharma gifts one can regain one’s footing from difficulties in one’s life, and feel grateful for one’s life, without wasting any kinds of materials. Dharma gifts of this sort are of the same value as material gifts. Even though one is very poor, even though one has just [enough] materials to live to the minimum, he can find happiness in such a situation, because he can listen to dharma teaching, teaching given by preachers and people. 
+But strictly speaking, material gifts and [dharma](glossary#dharma) gifts are all on the same footing. For example, if material gifts are given to a person of a preacher’s fiber, one can help him to study and practice the teachings and become a preacher. Material gifts of this kind are on an equal footing with dharma gifts, because in the future he will be a preacher to give the [Buddha](glossary#buddha)’s teachings to people. Or, by dharma gifts one can regain one’s footing from difficulties in one’s life, and feel grateful for one’s life, without wasting any kinds of materials. Dharma gifts of this sort are of the same value as material gifts. Even though one is very poor, even though one has just enough materials to live to the minimum, he can find happiness in such a situation, because he can listen to dharma teaching, teaching given by preachers and people. 
 
 [Doctor Conze](glossary#edward-conze) says in his comment: 
 
@@ -80,23 +80,23 @@ That means the dharma gifts are the direct cause of leading people to reach spir
 
 ##### 23:25
 
-The dharma gifts are, I told you, the direct cause of leading people to reach spiritual welfare [or] stature, so-called enlightenment or “dharma body”. In [Buddhism](glossary#buddhism), Buddha body is divided into three. One is [dharma](glossary#dharma) body. The second is Nirmanakaya: nirmana body. The third is Sambhogakaya. Nirmanakaya Buddha, Sambhogakaya Buddha, and Dharmakaya Buddha.
+The dharma gifts are, I told you, the direct cause of leading people to reach spiritual welfare or stature, so-called enlightenment or “dharma body”. In [Buddhism](glossary#buddhism), Buddha body is divided into three. One is [dharma](glossary#dharma) body. The second is Nirmanakaya: nirmana body. The third is Sambhogakaya. Nirmanakaya Buddha, Sambhogakaya Buddha, and Dharmakaya Buddha.
 
 Dharmakaya Buddha means dharma body, or dharma itself, or the essential nature of dharmas. That is Buddha himself. That is the essential characteristic and character of the Buddha. So we call the essential nature of dharma the Buddha himself. That is called Dharmakaya Buddha. 
 
 The second, Nirmanakaya Buddha, is a visible Buddha. For example, [Shakyamuni Buddha](glossary#shakyamuni-buddha), who was born 2500 years ago in India as a human. This is Nirmanakaya Buddha. 
 
-The third, Sambhogakaya Buddha, that is [where] we can reach at the stage of the Buddha as a result, through one’s virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. (Transcriber’s Note: Katagiri Roshi says something like “virtual quality” here, but the word “virtual” has a different meaning than he probably intended, so I am substituting “virtuous quality”.)
+The third, Sambhogakaya Buddha, that is where we can reach at the stage of the Buddha as a result, through one’s virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. (Transcriber’s Note: Katagiri Roshi says something like “virtual quality” here, but the word “virtual” has a different meaning than he probably intended, so I am substituting “virtuous quality”.)
 
 So, Dharmakaya Buddha – [dharma](glossary#dharma) itself, or the essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That’s why the no-dharmas [are those] through which [Shakyamuni Buddha](glossary#shakyamuni-buddha ) has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as a human tries to teach dharma itself, but that dharma explained by Shakyamuni Buddha as a human is no-dharma. It’s not real dharma, because dharma is completely beyond human speculation. 
 
-But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [Diamond Sutra](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, with this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from [the] real truth. 
+But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [Diamond Sutra](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, with this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from real truth. 
 
 ##### 28:55
 
 But if it is true, is there no way to teach? Shouldn’t we teach the [dharma](glossary#dharma)? We have to teach, because there is Sambhogakaya Buddha, which means you can reach at the stage of Buddha by your own virtuous quality, which you have accumulated in the past. You have planted good seeds in the past; this is your body and mind which exists now as a result. This is your existence. That’s why your existence is very valuable. 
 
-So, [we use] this virtuous quality and practice, which we can understand using our head: *knowledge*. Get some knowledge, and then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means [that] real dharma, explained by the human body, is completely no-dharma, not real dharma. There is already a contradictory structure [there]. But *through* no-dharma, there is dharma you can explain. The verbal explanation of dharma is no-dharma, not real dharma, but through the verbal explanation of dharma, you can reach real dharma. That’s why the verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That’s why words are important. 
+So, [we use] this virtuous quality and practice, which we can understand using our head: *knowledge*. Get some knowledge, and then we try to practice, and then we can reach the stage of Buddha. That is Sambhogakaya Buddha. That means that real dharma, explained by the human body, is completely no-dharma, not real dharma. There is already a contradictory structure there. But *through* no-dharma, there is dharma you can explain. The verbal explanation of dharma is no-dharma, not real dharma, but through the verbal explanation of dharma, you can reach real dharma. That’s why the verbal explanation of the dharma is very important for us, because through this we can experience, we can preach, and we can lead people to be fit to gain the truth, or [enlightenment](glossary#enlightenment), or Buddha. That’s why words are important. 
 
 This is Sambhogakaya. So using your head, knowledge, you have to study, one by one. That is Buddhist philosophy, Buddhist psychology as a background – behind the little switch of a TV set. In our daily living, we have to always turn on a ‘switch’. Get up in the morning, turn on switch. *[Click.]* If you go to work: go to work, turn on switch. *[Click.]* Every moment, we have to turn on a switch. That’s all we have to do. 
 
@@ -106,17 +106,17 @@ And then we have to learn [things] one by one; this is philosophy, psychology as
 
 ##### 34:05
 
-From this point, the real [dharma](glossary#dharma) is something which you cannot touch, [yet] you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore it, you try not to study or practice. So very naturally, no hope will be found in your life. But [that] is not a good way; because we are right in the middle of the truth, or dharma, or [Buddha](glossary#buddha). Regardless of whether you don’t like it or you are conscious of it or not, we *are* there. Even though you try to ignore it, you cannot ignore it, because you are right in the middle of truth. So you have to realize where you are. 
+From this point, the real [dharma](glossary#dharma) is something which you cannot touch, [yet] you cannot ignore it. Because, if the truth is beyond human speculation, well, sometimes you try to ignore it, you try not to study or practice. So very naturally, no hope will be found in your life. But that is not a good way; because we are right in the middle of the truth, or dharma, or [Buddha](glossary#buddha). Regardless of whether you don’t like it or you are conscious of it or not, we *are* there. Even though you try to ignore it, you cannot ignore it, because you are right in the middle of truth. So you have to realize where you are. 
 
 And then, through the virtuous quality you have had, you can realize what the truth is. And then if you realize the truth, you can explain what the truth is. At that time, very naturally, we try to attach to the truth, explained by our human body and mind. But it is not real truth. 
 
 So, real [dharma](glossary#dharma) is neither attachment nor dis-attachment. No detachment, no attachment. So, we have to always practice in the realm of the truth, regardless of whether we are conscious of it or not. This is our practice. Just the practice. 
 
-And then, through this practice, sooner or later you will reach at the stage of the [Buddha](glossary#buddha) – at the stage of the same experience which the Buddha experienced. That is individual religious life, [the] individual experience of religious life. But you can’t attach to individual experience, because it is *individual*, it is not universal truth. So, you cannot attach to individual experience of religious life. 
+And then, through this practice, sooner or later you will reach at the stage of the [Buddha](glossary#buddha) – at the stage of the same experience which the Buddha experienced. That is individual religious life, the individual experience of religious life. But you can’t attach to individual experience, because it is *individual*, it is not universal truth. So, you cannot attach to individual experience of religious life. 
 
 But through the individual experience of the truth you can explain what the truth is. So, you can explain. And by the explanation of the truth, you can lead the people to be fit to gain the core of human life. That’s why explanation is important, even though explanation of the dharma is not real dharma. But, it is dharma, because the dharma explained by you leads the people to be fit to gain the truth. 
 
-So, there is nothing to attach to; [not] to Sambhogakaya, [not] to Nirmanakaya, [not] to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to teach, just to preach. When the time comes to practice, just to practice. When the time comes to keep silent, just to keep silent. This is a simple practice.
+So, there is nothing to attach to; not to Sambhogakaya, not to Nirmanakaya, not to Dharmakaya Buddha – nothing. All you have to do is, at the stage of each moment, when the time comes to teach, just to preach. When the time comes to practice, just to practice. When the time comes to keep silent, just to keep silent. This is a simple practice.
 
 ##### 39:32
 
@@ -142,7 +142,7 @@ So sooner or later, you can touch the core of existence. And that is no-heap of 
 
 ##### 45:10
 
-Last Wednesday, I read a piece of a poem by Rilke, which occurs in the Duino Elegies. He’s in the later years of his life, [and] in this book, he really explains the oneness of life and death. Apparently that poem seems to be a pessimistic view of human life, but actually it is not. 
+Last Wednesday, I read a piece of a poem by Rilke, which occurs in the Duino Elegies. He’s in the later years of his life, and in this book, he really explains the oneness of life and death. Apparently that poem seems to be a pessimistic view of human life, but actually it is not. 
 
 I read just a piece of the poem. He points out the attitude of human life, what we do usually. He says, “Never, not for a single day, do we have pure space in which the flowers are always unfolded.” Never, not for a single day: because, if you get the merit, we stay with the merit. This is the very usual state of human life, always staying with the small world created by the individual. At that time, very naturally, we can fight, we can create problems. So he says, “That is what destiny is, to be face to face.” 
 
@@ -154,13 +154,13 @@ There is for every world, an opposed ...
 
 It is important to be face-to-face, but not *always* face-to-face. Without being face-to-face, we cannot experience individual life. If you want to practice, you have to face, you have to be present with [zazen](glossary#zazen), practice face to face directly. And then very naturally you can experience individual things. But at that time, there is no merit. That means, put it aside, and then why don’t you open your heart. Why don’t you throw away your heart to pure space. 
 
-Pure space means not face-to-face. Just be with zazen, if you do zazen. Just be present with gassho if you do gassho. Just have breakfast with breakfast, with mind and body. That means, we have to be sometimes behind breakfast, or side by side to the breakfast, not face to face. Or sometimes just be in [it], be right in [it]. Or sometimes, be just next to breakfast. Or just be nestling close to the breakfast. *[Some chuckles in the group.]* And walk hand in hand.
+Pure space means not face-to-face. Just be with zazen, if you do zazen. Just be present with gassho if you do gassho. Just have breakfast with breakfast, with mind and body. That means, we have to be sometimes behind breakfast, or side by side to the breakfast, not face to face. Or sometimes just be in it, be right in it. Or sometimes, be just next to breakfast. Or just be nestling close to the breakfast. *[Some chuckles in the group.]* And walk hand in hand.
 
 This is very important: without saying anything, without arguing, or whatever it is. Why is it we have to have breakfast every morning? We have to, when the time comes to have breakfast, just have breakfast. If you don’t want, don’t have breakfast. That’s all. No problem. But if you’re always present with breakfast face to face according to your intellectual sense, well you create lots of argument. *Why*? In India, they have just one meal a day. Why don’t you have one meal a day? If you want, you can have. 
 
-Well, lots of complaints, argument. But no matter how long you argue with any problem, any subject, the argument is going endlessly. Finally, all you have to do is, keep your mouth shut; just have breakfast with your [best]. That’s all we have to do.
+Well, lots of complaints, argument. But no matter how long you argue with any problem, any subject, the argument is going endlessly. Finally, all you have to do is, keep your mouth shut; just have breakfast with your best. That’s all we have to do.
 
-That’s why Rilke said to us what we do usually: “never not for a single day, [do we] have pure space in which the flowers are always unfolded,” but we are always face to face, fighting each other, arguing always. And this is a very usual attitude of human life. But you cannot do it in that way – because we are human beings. So, sometimes, sooner or later, you have to be in pure space, in which the flowers are always unfolded – even though you don’t like it. Because we are there always. Sooner or later, we have to realize [it]. 
+That’s why Rilke said to us what we do usually: “never not for a single day, do we have pure space in which the flowers are always unfolded,” but we are always face to face, fighting each other, arguing always. And this is a very usual attitude of human life. But you cannot do it in that way – because we are human beings. So, sometimes, sooner or later, you have to be in pure space, in which the flowers are always unfolded – even though you don’t like it. Because we are there always. Sooner or later, we have to realize it. 
 
 ##### 52:54
 
@@ -168,7 +168,7 @@ So, that is the explanation of the buddhadharma, or merit, in the negative sense
 
 If [Buddhism](glossary#buddhism) uses the negative sense, you will get a big shock. *Why*? “Life is characterized by [suffering](glossary#suffering).” – “*What’s that*?” We don’t like it. That is a really big shock to your mind. That’s very good medicine for you. It is bitter, but the bitterness of good medicine. That’s why Buddhism always uses unusual terms, in the negative sense. But it’s not a real negative. It’s positive, it’s very positive. 
 
-Because that is such a human [quality], humans are very stubborn with ego. Because, humans are pretty weak. If you’re strong, it’s not necessary to be stubborn; you can open pretty easily. But we are weak. That’s why in order to perfect weakness, we have to be stubborn. *[He chuckles.]* Do you understand? We always do this. 
+Because that is such a human quality, humans are very stubborn with ego. Because, humans are pretty weak. If you’re strong, it’s not necessary to be stubborn; you can open pretty easily. But we are weak. That’s why in order to perfect weakness, we have to be stubborn. *[He chuckles.]* Do you understand? We always do this. 
 
 That’s why in order to – not destroy – in order to *realize* stubbornness of ego, unfortunately we have to experience a big shock, physically and psychologically. We don’t like it. But we have to do it.
 
@@ -180,7 +180,7 @@ Okay. Do you have some questions?
 
 **Katagiri**: I think so. In other words, enlightenment is no-enlightenment, that is real enlightenment. 
 
-If you say enlightenment, what you think is the individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is the real picture of the truth. That’s why forgetfulness is real enlightenment. The term is different, but [it is] the same. 
+If you say enlightenment, what you think is the individual experience of enlightenment. That is not universal enlightenment. Universal enlightenment has no frame which is called enlightenment or which is called not-enlightenment. No frame. That is the real picture of the truth. That’s why forgetfulness is real enlightenment. The term is different, but it is the same. 
 
 So you must be free from the enlightenment that you have experienced – and then at that time, that is real enlightenment. I always tell you, if you gain a degree or PhD as a Doctor, you cannot always stay with the Ph.D. without working with the people. You have to forget the degree or Ph.D. And then, all you have to do is to be stupid, and work with the people. *[The group laughs.]* See the peoples’ bodies, and anyway, examine, day after day. There is no reason to stay with the title of the Ph.D. or Doctor. Always you have to be free from the experience you have had individually – not only enlightenment, but also whatever you do. Painter, or photographer, mountaineer, or dancer – whatever you want to do, this is the final goal you have to do. If you want to be a real great dancer or painter, you have to be [forgetful]. Continually, you must be stupid, and continually practice. That is real enlightenment.
 

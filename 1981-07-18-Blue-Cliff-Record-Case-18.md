@@ -53,7 +53,7 @@ Case 18 of Blue Cliff Record:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by Chinese emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by Chinese emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So the Emperor wanted to have something; that's why he asked, “What do you need after your death?”
 
 ##### 5:00
 
@@ -125,7 +125,7 @@ And then,
 
 > The Emperor said, “Please tell me, Master, what the monument would look like.”
 
-This is a very nice person. Because the National Teacher wants to build a seamless monument, [the Emperor asks,] “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
+This is a very nice person. Because the National Teacher wants to build a seamless monument, the Emperor asks, “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
 
 ##### 22:43
 
@@ -134,7 +134,7 @@ This is a very nice person. Because the National Teacher wants to build a seamle
 
 This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) said this also, when he was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
-This is also “I don’t know.” But [Bodhidharma] knows pretty well; he knows very clearly who he is: becoming one. At that time there is nothing to dichotomize, or contaminate. 
+This is also “I don’t know.” But Bodhidharma knows pretty well; he knows very clearly who he is: becoming one. At that time there is nothing to dichotomize, or contaminate. 
 
 ##### 23:55
 
@@ -284,7 +284,7 @@ So silence in pain is really aliveness, dynamically, in pain.
 
 ##### 54:47
 
-[The National Teacher] kept silence and sat down for a while and said, “Do you understand?” The emperor said, “I don’t understand.” And then the National Teacher said, “I have a disciple to whom I have transmitted the Teaching.” 
+The National Teacher kept silence and sat down for a while and said, “Do you understand?” The emperor said, “I don’t understand.” And then the National Teacher said, “I have a disciple to whom I have transmitted the Teaching.” 
 
 So finally the emperor said, “I don’t know.” But whatever kind of meaning of his answer, it doesn’t matter, because there is no way to approach to him. So he said, well, I have a disciple. So after my death, please ask my disciple what it means.
 
@@ -372,7 +372,7 @@ In Christian religion, always there is something we know. Wonderful spirit, halo
 
 The other day someone came to see me and told me about her life, because she was predicted by one of the great Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe, because his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. 
 
-[Those predictions she believed] must be something unwholesome, bad, because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in fearful conditions, you really pay attention to it. Then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction. 
+Those predictions she believed must be something unwholesome, bad, because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in fearful conditions, you really pay attention to it. Then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction. 
 
 Prediction is fine, because in a sense it is true, teaching you who you are. In astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe it. You should believe this, but, you shouldn't be stuck in there. You should be free from the prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically everyone is free. There is nothing to limit, nothing to bound your life, tied up with a certain idea. 
 

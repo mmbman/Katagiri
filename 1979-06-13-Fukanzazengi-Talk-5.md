@@ -14,9 +14,9 @@ description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 ##### 0:00 start of recording
 
-There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to 908. He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [Shobogenzo](dogen#shobogenzo) \[in the fascicle] ["The One Bright Pearl"](dogen#one-bright-pearl); you can find this story there.
+There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to 908. He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [Shobogenzo](dogen#shobogenzo) in the fascicle ["The One Bright Pearl"](dogen#one-bright-pearl); you can find this story there.
 
-[Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. You may know the story: Every day he went fishing with his father. One day, his father fell off the boat into the ocean, and [Gensha Shibi] tried to help, tried to save him, but he couldn't, so he died. At that time, [Gensha Shibi] attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that.
+[Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) used to be a fisherman. You may know the story: Every day he went fishing with his father. One day, his father fell off the boat into the ocean, and Gensha Shibi tried to help, tried to save him, but he couldn't, so he died. At that time, Gensha Shibi attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that.
 
 Then, in the history, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) practiced under the guidance of [Seppō](glossary#seppō-gison), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to [Shobogenzo](dogen#shobogenzo), alluded to by [Dogen](glossary#dogen), he finally went to Seppō mountain and placed himself under the guidance of Shinkaku – that is another name of [Seppō](glossary#seppō) [Zen Master](glossary#zen-master) – practicing day and night. One day, to visit masters widely in other areas and perfect his practice, he took up his traveling pouch and was leaving the mountain. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails off his toes. Of course, immediately blood appeared, and he screamed, “Ouch!” And then, amidst the intense pain, he had an abrupt self-realization, saying, “This body doesn’t exist. Where is the pain coming from?” And he returned immediately to [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master).
 
@@ -26,7 +26,7 @@ Anyway, he struck his toe on a rock. Blood appeared; immediately he screamed, an
 
 This is sort of like watching a film; you can imagine this. He walked down the street. Right before he struck his toes, peeling the nails off the toes, he is walking; and immediately he stumbles over, striking his toes on a rock. Then at that time, let’s imagine at this one moment: nothing happens. Nothing. And then, the movie is going on: right after that, he screams. The screaming and also striking his toes on the rock are simultaneous; but according to the time process, you can analyze it like this: before he struck his toe, and after he struck his toe. So we can see sort of a ‘film’.
 
-So, what is a scream? The scream is right after he struck [his toe] – a little gap there: previous moment, after moment, and following moment. According to our intellectual sense, that is simultaneous, we cannot see that; but actually, according to [Dogen](glossary#dogen) or the [Buddhistic](glossary#buddhistic) sense, or modern physics, maybe the shortest period of time is a moment, but this moment consists of 60 instants. So, still there is a chance to see the film of what you are doing, what you have done, what the result is. So, that’s why he screams, “Ouch!”
+So, what is a scream? The scream is right after he struck his toe – a little gap there: previous moment, after moment, and following moment. According to our intellectual sense, that is simultaneous, we cannot see that; but actually, according to [Dogen](glossary#dogen) or the [Buddhistic](glossary#buddhistic) sense, or modern physics, maybe the shortest period of time is a moment, but this moment consists of 60 instants. So, still there is a chance to see the film of what you are doing, what you have done, what the result is. So, that’s why he screams, “Ouch!”
 
 He said, "From where does the pain come?" Striking his toes, there is no pain, because striking the toes is exactly dynamic working. Becoming one with the rock, becoming one with his toes, and ears, and the road, and his consciousness, and the whole body; and he stumbles over – that's all. So, all [delusions](glossary#delusion) completely drop off. Nothing.
 
@@ -34,9 +34,9 @@ After that: a little moment... immediately you can hear the sound of raindrops..
 
 ##### 9:44
 
-I have a scar here. *[He probably indicates a place on his head]*. When I was a child, I struck my head on the corner of a rock. I was playing with one of my friends two years older than I, in the foundation of a house; [there were] almost more than ten square foundation rocks there, exactly square. So I played with him, jumping on them one by one. And then I missed, stumbled over, and hit here. But when I hit – I didn't feel anything. I couldn't cry; just hit. That means I felt just a big shock: *boom*, that's all, around here. Then a few minutes later I touch it here, and then I feel a big bump here, and also, blood comes out – and *then* I started crying. *[He laughs.]* I was nine years old or so. I touched it here because I got the big shock here; so, what happened? I touched it here, and then I realized a big bump was there, looked up, and blood came. So, I cried. 
+I have a scar here. *[He probably indicates a place on his head]*. When I was a child, I struck my head on the corner of a rock. I was playing with one of my friends two years older than I, in the foundation of a house; there were almost more than ten square foundation rocks there, exactly square. So I played with him, jumping on them one by one. And then I missed, stumbled over, and hit here. But when I hit – I didn't feel anything. I couldn't cry; just hit. That means I felt just a big shock: *boom*, that's all, around here. Then a few minutes later I touch it here, and then I feel a big bump here, and also, blood comes out – and *then* I started crying. *[He laughs.]* I was nine years old or so. I touched it here because I got the big shock here; so, what happened? I touched it here, and then I realized a big bump was there, looked up, and blood came. So, I cried. 
 
-This is like watching a slow-motion movie. When you experience it, [the] human experience simultaneously happens. But [Zen Buddhism](glossary#zen-buddhism ) always focuses on not before, not after: right in the middle of hitting the rock. At that time, there is no pain; completely no pain, no [suffering](glossary#suffering). [It] just happens.
+This is like watching a slow-motion movie. When you experience it, [the] human experience simultaneously happens. But [Zen Buddhism](glossary#zen-buddhism ) always focuses on not before, not after: right in the middle of hitting the rock. At that time, there is no pain; completely no pain, no [suffering](glossary#suffering). It just happens.
 
 That's why this is [shikantaza](glossary#shikantaza). [Shikantaza](shikantaza), which is [where] all [delusions](glossary#delusion) – [distraction](glossary#distraction) and also [dullness](glossary#dullness) – all delusions drop off. If you do [zazen](glossary#zazen) like this, that is [shikantaza](shikantaza). But you don't believe this, because you always see your life just like watching a slow motion movie. So right before zazen, you look at your life, you sketch your picture of your life. Again and again you draw a picture, and then you say, "I want to do that," find that other result. So you come here, you sit down. 
 
@@ -58,7 +58,7 @@ And also, sometimes, even though you don't understand what zazen is, you really 
 
 And also, the problem is, some Zen teacher says, "What's that feeling?" Through zazen, there are many kinds of feelings you can get. The teacher says, "What's that feeling?" Of course, you should practice [this], because you experience that – because you can see your life, in the past, in the future, in the present, right now; exactly that is your life. 
 
-And then, you are analyzing and synthesizing. If you feel good: "That's good; that is my life." If you don't feel good: "That is *not* my life." So, you're confused; so [you’re] analyzing and criticizing, always. But if you do [zazen](glossary#zazen) like this, that zazen is nothing but psychology and philosophy; science. I don't think [that kind of] zazen is [religious zazen](glossary#religious-zazen); I don't think [that kind of] zazen is the zazen which allows you to be free from psychology, philosophy, any kind of science – and human [suffering](glossary#suffering). 
+And then, you are analyzing and synthesizing. If you feel good: "That's good; that is my life." If you don't feel good: "That is *not* my life." So, you're confused; so you’re analyzing and criticizing, always. But if you do [zazen](glossary#zazen) like this, that zazen is nothing but psychology and philosophy; science. I don't think [that kind of] zazen is [religious zazen](glossary#religious-zazen); I don't think [that kind of] zazen is the zazen which allows you to be free from psychology, philosophy, any kind of science – and human [suffering](glossary#suffering). 
 
 Anyway, [shikantaza](shikantaza) is the zazen which allows you to be free from any kind of feeling you can see. You shouldn't attach to it. All you need to do is *see* that. There is no reason why you have to be tied up with the feelings you can see during zazen. From beginning to end, what you have to do is, in [shikantaza](shikantaza), all [delusions](glossary#delusion) – [dullness](glossary#dullness), [distraction](glossary#distraction), any kind of feeling – drop off. That is zazen, which you have to do; [which] we *have* to do. 
 
@@ -108,7 +108,7 @@ That is real zazen. But we don't understand; that's why we say, "Let's accumulat
 
 So, “[Gensha](glossary#gensha-shibi) said, ‘[Bodhidharma](glossary#bodhidharma) didn’t come to the East. The Second Patriarch didn’t go to the West.’ This gained [Seppō](glossary#seppō-gison)’s special praise.” Seppō praised Gensha, because Gensha really hit the bullseye. The bullseye, [zazen](glossary#zazen) itself, struck him, right in the middle of striking his toes. Before he sees his life before hitting or after hitting, he is really focused on right in the middle of hitting, striking his toes. That’s why there is nothing to cheat. 
 
-From this point, Bodhidharma didn’t come to the East, [or go to the] West. No. When you say Bodhidharma went to China, that is something you understand in the time process, the [dualistic](glossary#dualistic) world. All we have to do is focus on just right here. 
+From this point, Bodhidharma didn’t come to the East, or go to the West. No. When you say Bodhidharma went to China, that is something you understand in the time process, the [dualistic](glossary#dualistic) world. All we have to do is focus on just right here. 
 
 In [zazen](glossary#zazen), I told you before, if you see yourself in zazen with emotions, with anger, with [dullness](glossary#dullness), with indulgence, with boresom, with sleepiness – and lots of things happen – but remember, that is exactly your life. Not in a certain period of time which is called zazen; it is really your life, your whole life. In the past, in the present, you handle your life *just like this*. 
 
@@ -120,7 +120,7 @@ Do you have some questions?
 
 ##### 38:19
 
-**Question**: [Roshi](glossary#roshi)? Is there any value in, I have a thought? ... During [zazen](glossary#zazen) I have a thought, [about] what I'll have for dinner. And the next moment, I don't have that thought anymore. So I'm aware that I have a thought, and then I drop it; I don't have to spend any time judging it, just being with the moment. And if it comes up again, just put it down *[unintelligible]*
+**Question**: [Roshi](glossary#roshi)? Is there any value in, I have a thought? ... During [zazen](glossary#zazen) I have a thought about what I'll have for dinner. And the next moment, I don't have that thought anymore. So I'm aware that I have a thought, and then I drop it; I don't have to spend any time judging it, just being with the moment. And if it comes up again, just put it down *[unintelligible]*
 
 **Katagiri**: Do you mean in zazen?
 
@@ -134,7 +134,7 @@ Do you have some questions?
 
 **Same person**: Sometimes.
 
-**Katagiri**: Well, in most cases, a different idea comes up. If you continue to think that, you will get exhausted, so very naturally that idea drops off. And then next moment, a different idea comes up. And you can chase after the ideas. Maybe you can keep it up for a certain period of time – but you cannot continue for long, because zazen is quiet. When you do zazen, your body and mind are quiet, very quiet. That's why many ideas come up, not only one. That's why next after next, always comes up. But even then, [there is] nothing to do there. Forget it. All we have to do is, we have to do real zazen. That’s all [we have to do].
+**Katagiri**: Well, in most cases, a different idea comes up. If you continue to think that, you will get exhausted, so very naturally that idea drops off. And then next moment, a different idea comes up. And you can chase after the ideas. Maybe you can keep it up for a certain period of time – but you cannot continue for long, because zazen is quiet. When you do zazen, your body and mind are quiet, very quiet. That's why many ideas come up, not only one. That's why next after next, always comes up. But even then, there is nothing to do there. Forget it. All we have to do is, we have to do real zazen. That’s all [we have to do].
 
 If you are really involved in that feeling or idea, that is nothing but looking at your life *after* doing zazen. After. Can you imagine? Zazen *after* zazen, or before. 
 
@@ -164,11 +164,11 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: So thoughts themselves are not a problem.
 
-**Katagiri**: No. No problem. Only [when] you meddle with [it], it’s a problem. So, if you get the idea, what kind of a soup I should do for dinner – immediately you take a piece of paper and pencil and you take a note. That is creating new [karma](glossary#karma), don’t you think so? 
+**Katagiri**: No. No problem. Only when you meddle with it, it’s a problem. So, if you get the idea, what kind of a soup I should do for dinner – immediately you take a piece of paper and pencil and you take a note. That is creating new [karma](glossary#karma), don’t you think so? 
 
 **Same person**: Mmm hmm.
 
-**Katagiri**: And then [when you] write down the ideas ... then you already attach to this; “I got it.” This is another [delusion](glossary#delusion). We do this, always.
+**Katagiri**: And then when you write down the ideas ... then you already attach to this; “I got it.” This is another [delusion](glossary#delusion). We do this, always.
 
 **Same person**: So when the thought comes up, and I become aware, just be with it?
 
@@ -214,7 +214,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: But isn't the judgement itself empty?
 
-**Katagiri**: Well yes, no abode. Empty. Judgement itself has no abode. That's why the thoughts, judgements, whatever, just flow always in [zazen](glossary#zazen). So, if you don't meddle, it appears and disappears, because there is no abode from where it comes. But only when you meddle with it, and chasing after it, and escaping from it – at that time, the judgement you created creates another judgment. So, [it is] constantly snowballing. That is sort of the task you are involved with in the [dualistic](glossary#dualistic) world. In zazen, we shouldn't do that. 
+**Katagiri**: Well yes, no abode. Empty. Judgement itself has no abode. That's why the thoughts, judgements, whatever, just flow always in [zazen](glossary#zazen). So, if you don't meddle, it appears and disappears, because there is no abode from where it comes. But only when you meddle with it, and chasing after it, and escaping from it – at that time, the judgement you created creates another judgment. So, it is constantly snowballing. That is sort of the task you are involved with in the [dualistic](glossary#dualistic) world. In zazen, we shouldn't do that. 
 
 **Same person**: Do what?
 
@@ -238,7 +238,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: It's sort of company for us. 
 
-**Katagiri**: Sure. *[Someone laughs, and Katagiri laughs.]* Even though you hate it, [it’s] immediately there. That’s why when you sit down, you can catch any kind of ‘sound’ of thoughts, ideas, and views – because the surroundings are very calm. So we catch the sound [of] what we have never thought before; even a little sound comes up. That is the contents of your life. Any kinds of ‘sounds’ come from the contents of our life.
+**Katagiri**: Sure. *[Someone laughs, and Katagiri laughs.]* Even though you hate it, it’s immediately there. That’s why when you sit down, you can catch any kind of ‘sound’ of thoughts, ideas, and views – because the surroundings are very calm. So we catch the sound of what we have never thought before; even a little sound comes up. That is the contents of your life. Any kinds of ‘sounds’ come from the contents of our life.
 
 Is that okay? Okay.
 
@@ -266,7 +266,7 @@ Well, the pain. During the zazen, you can feel pain physically. And also, psycho
 
 That’s why [Dogen Zenji](glossary#dogen) says, “From the first, [dullness](glossary#dullness) and [distractions](glossary#distraction) are struck aside.” That means drop off, from the first. Sort of like striking [Gensha](glossary#gensha-shibi)’s toes on the rock. Can you imagine? Is that clear? You should understand *this*, okay?
 
-We get use [out] of looking at the *before* striking and *after* striking – that is very common. But we don’t pay attention to the striking itself. Striking itself is no striking, because no thought. Striking from where? From where does the striking come? “I hear the striking come” is already an idea. The idea comes as the result of you being present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely unified.
+We get use out of looking at the *before* striking and *after* striking – that is very common. But we don’t pay attention to the striking itself. Striking itself is no striking, because no thought. Striking from where? From where does the striking come? “I hear the striking come” is already an idea. The idea comes as the result of you being present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely unified.
 
 Okay ... you understand that, huh? And then, what is your question? I forgot.
 
@@ -278,7 +278,7 @@ Okay ... you understand that, huh? And then, what is your question? I forgot.
 
 Okay, go on.
 
-**Same person**: *[Unintelligible over the laughter.]* So, when the period ends, your legs should be very painful afterwards, right? Now that [zazen](glossary#zazen) is over, so you're looking at your body again. But sometimes, there isn't [any pain]; it's as though something changed, as though your muscles aren't sore at all. It's as though reality changed or something during that period of time.
+**Same person**: *[Unintelligible over the laughter.]* So, when the period ends, your legs should be very painful afterwards, right? Now that [zazen](glossary#zazen) is over, so you're looking at your body again. But sometimes, there isn't any pain; it's as though something changed, as though your muscles aren't sore at all. It's as though reality changed or something during that period of time.
 
 **Katagiri**: Well, don't worry. You will never die of that. Just take care, okay? Even though your legs have completely gone to sleep – it's not necessary to cut off your legs. Just stand up, and, well, sometimes give them a massage.
 
@@ -288,7 +288,7 @@ Okay, go on.
 
 **Katagiri**: *[Laughs loudly.]*
 
-[The] outside observer also disappears. 
+The outside observer also disappears. 
 
 *[Laughter.]*
 
@@ -316,7 +316,7 @@ Okay?
 
 The point is, if we see many thoughts with our consciousness, sometimes consciousness gets exhausted. But actually it’s not necessary to worry about it, because if you experience real exhaustion, exhaustion itself knows pretty well what to do next. So, if you get exhausted, it’s not necessary to be concerned about “that’s too much.” If you think “that’s too much,” it really makes you exhausted *more*, psychologically and physically. 
 
-So “I am exhausted”: if you do zazen, everyone [gets exhausted] physically, but mental exhaustion is a little bit complicated. If you see physical exhaustion: “Oh, tired.” And then it’s, “*Ooooh, tired*.” Very different, don’t you think so? *[The first one sounds more matter-of-fact; second one sounds more drawn out and perhaps melodramatic.]* And then: “I don’t want it.” That is already mental exhaustion. So you add to physical exhaustion something extra, always. 
+So “I am exhausted”: if you do zazen, everyone gets exhausted physically, but mental exhaustion is a little bit complicated. If you see physical exhaustion: “Oh, tired.” And then it’s, “*Ooooh, tired*.” Very different, don’t you think so? *[The first one sounds more matter-of-fact; second one sounds more drawn out and perhaps melodramatic.]* And then: “I don’t want it.” That is already mental exhaustion. So you add to physical exhaustion something extra, always. 
 
 Actually, physical exhaustion itself knows pretty well what to do next – because, exhaustion itself has no abode. No abode; [emptiness](glossary#śūnyatā). So, if you exhaust yourself in zazen, you never die. You never die; you feel good after that. Don't you think so?
 
@@ -324,17 +324,17 @@ Actually, physical exhaustion itself knows pretty well what to do next – becau
 
 **Same person**: Well, so maybe exhaustion isn't the right word, [Roshi](glossary#roshi). It's a state like, where I can be sitting, and pretty quiet, you know, not moving a lot, because I'm in a position where I'm not in a lot of pain, in an easier position. And, it's like the thoughts keep coming, and keep coming, and keep coming. And it's like how you live your everyday life; you know, you walk around on the street and all these thoughts keep coming. And I feel like I can go on like that for months, and that to stop that would take a lot of effort, but I just don't have it to put the effort out.
 
-**Katagiri**: But, mostly, even in your daily living, you cannot chase after each thought you have had. Don’t you think? You throw away most of the thoughts that you have had. For instance, if you walk down the street, maybe you are caught by some ideas: “Oh, I want to go to Japan.” But, sometimes: “Oh, it’s ridiculous.” Even if you don’t say it’s ridiculous, you completely forget [it]. And then another thought comes up; and then if you are interested in certain ideas, you just attach to them for a certain moment, a certain period of time. So you are always handling just the one thought, one view; that’s all. And then, another thought comes up; and if you are not interested, you can throw it away pretty easily. We do this always. But in [zazen](glossary#zazen), the problem is ... the surroundings are completely quiet. And also, the surroundings are limited in what is called zazen. It’s a small room. So the mind cannot stand up in a small room *[he chuckles]*, because the mind wants to run wild in the universe, completely beyond time and space. Going to Europe, going to Japan, always; this is characteristic of mind. But if you sit down and let the mind rest in the small room, which is called zazen: the mind cannot stand up. It’s very hard. That’s why the mind becomes more picky of its thoughts. Do you understand? 
+**Katagiri**: But, mostly, even in your daily living, you cannot chase after each thought you have had. Don’t you think? You throw away most of the thoughts that you have had. For instance, if you walk down the street, maybe you are caught by some ideas: “Oh, I want to go to Japan.” But, sometimes: “Oh, it’s ridiculous.” Even if you don’t say it’s ridiculous, you completely forget it. And then another thought comes up; and then if you are interested in certain ideas, you just attach to them for a certain moment, a certain period of time. So you are always handling just the one thought, one view; that’s all. And then, another thought comes up; and if you are not interested, you can throw it away pretty easily. We do this always. But in [zazen](glossary#zazen), the problem is ... the surroundings are completely quiet. And also, the surroundings are limited in what is called zazen. It’s a small room. So the mind cannot stand up in a small room *[he chuckles]*, because the mind wants to run wild in the universe, completely beyond time and space. Going to Europe, going to Japan, always; this is characteristic of mind. But if you sit down and let the mind rest in the small room, which is called zazen: the mind cannot stand up. It’s very hard. That’s why the mind becomes more picky of its thoughts. Do you understand? 
 
-But actually, you do always [let go of thoughts] in your daily living, exactly as in zazen. The difference is that [in zazen] your mind is more picky than [in] usual daily life. That's all. That's why you are confused pretty easily. But in daily living, very naturally, automatically, you throw away what you have to, even though you don't think [about it]. You throw [it] away, and you can pick up one thing; and immediately another thing comes up from outside, so you don't have enough time to meddle with it, so you handle another thing. But, strictly speaking, you always handle one thing. 
+But actually, you do always [let go of thoughts] in your daily living, exactly as in zazen. The difference is that [in zazen] your mind is more picky than in usual daily life. That's all. That's why you are confused pretty easily. But in daily living, very naturally, automatically, you throw away what you have to, even though you don't think [about it]. You throw it away, and you can pick up one thing; and immediately another thing comes up from outside, so you don't have enough time to meddle with it, so you handle another thing. But, strictly speaking, you always handle one thing. 
 
 **Same person**: I understand what you're saying. It doesn't feel to me like really doing zazen. It's not really doing zazen, and yet, it feels like I could do a 20-day sesshin this way. 
 
-**Katagiri**: That's why I told you, mind is more picky. That's why the mind doesn't believe that zazen [is] real zazen. 
+**Katagiri**: That's why I told you, mind is more picky. That's why the mind doesn't believe that zazen is real zazen. 
 
 **Same person**: I don't think I understand. 
 
-**Katagiri**: Mind. The mind is more picky of your thoughts and ideas in calm circumstances, surroundings, which is called zazen. That's why the mind doesn't believe. Mind *feels* always. Mind always pokes its head into many thoughts, many ideas. And then, the mind feels good if you let it go. But actually the surroundings are very quiet. And also, mind always sees something after and before – that means analyze, dichotomize, always. That's why what the mind can do is to pick up something after you have done [it]. That is the feeling and experience of zazen: [boredom] and enjoyment, lots of things. 
+**Katagiri**: Mind. The mind is more picky of your thoughts and ideas in calm circumstances, surroundings, which is called zazen. That's why the mind doesn't believe. Mind *feels* always. Mind always pokes its head into many thoughts, many ideas. And then, the mind feels good if you let it go. But actually the surroundings are very quiet. And also, mind always sees something after and before – that means analyze, dichotomize, always. That's why what the mind can do is to pick up something after you have done it. That is the feeling and experience of zazen: [boredom] and enjoyment, lots of things. 
 
 ##### 1:10:28
 
@@ -344,7 +344,7 @@ But actually, you do always [let go of thoughts] in your daily living, exactly a
 
 **Same person**: Are you saying that what I'm doing with my mind while I'm sitting, even though it seems like what I do when I'm not sitting, still it's different? 
 
-**Katagiri**: It’s different because you can see the mind a little clearer. That’s why you can see lots of things in [zazen](glossary#zazen). But in zazen, you are very confused because you have enough time to involve [yourself] in mind, because there is nothing to do and circumstances are very quiet, but in your daily living [there are] lots of things. So, the important point is whatever happens in zazen, in the ‘vomit’. [Yes,] vomit. “The vomit” means, anyway *[he chuckles]* – vomit of the mind. The mind has lots of things it’s attaching to. So, vomit. Mind feels good, mind doesn’t feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sitting here. *All* you have to do is, just sit.
+**Katagiri**: It’s different because you can see the mind a little clearer. That’s why you can see lots of things in [zazen](glossary#zazen). But in zazen, you are very confused because you have enough time to involve [yourself] in mind, because there is nothing to do and circumstances are very quiet, but in your daily living there are lots of things. So, the important point is whatever happens in zazen, in the ‘vomit’. Yes, vomit. “The vomit” means, anyway *[he chuckles]* – vomit of the mind. The mind has lots of things it’s attaching to. So, vomit. Mind feels good, mind doesn’t feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sitting here. *All* you have to do is, just sit.
 
 **Same person**: Yeah, I understand that. One thought that I had about it, [Roshi](glossary#roshi), is that sometimes it feels like building up bad habits in [zazen](glossary#zazen). That if I'm going to sit, I should sit with effort; I shouldn't get in the habit of sitting with no effort, that's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
 
@@ -378,7 +378,7 @@ Without mind, you cannot do zazen.
 
 **Question**: [Roshi](glossary#roshi). I think you told the story of [Gensha](glossary#gensha-shibi) several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
 
-**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because [his father] died. But he felt something deeper: why does he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on [impermanence](glossary#impermanence), transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. *[He laughs.]* Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this – but it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality that his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
+**Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because his father died. But he felt something deeper: why does he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on [impermanence](glossary#impermanence), transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. *[He laughs.]* Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this – but it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality that his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
 
 ##### 1:17:17
 
@@ -398,7 +398,7 @@ Without mind, you cannot do zazen.
 
 **Same person**: Yeah, sure. What do you do? About all this ‘zipping’. It doesn't feel like calm, centered anything; it feels like a mess.
 
-**Katagiri**: So I told you sometimes: pat your head. Pat your head, and [say], “Quiet, little girl. Quiet. Do it quietly.” It’s pretty good, don’t you think, if even for a moment you can do this. But zazen is a very good chance: you can do it very quietly, you are really centered. But in your daily living it’s pretty hard, that’s why, pat your head, and [say], “Let’s do it.” Even for a moment. 
+**Katagiri**: So I told you sometimes: pat your head. Pat your head, and say, “Quiet, little girl. Quiet. Do it quietly.” It’s pretty good, don’t you think, if even for a moment you can do this. But zazen is a very good chance: you can do it very quietly, you are really centered. But in your daily living it’s pretty hard, that’s why, pat your head, and say, “Let’s do it.” Even for a moment. 
 
 You can do it. That's all we have to do, because we have to do zazen itself, instead of being involved in the zipping and running, et cetera. Do you understand?
 
@@ -414,9 +414,9 @@ So, right in the middle of dance – nothing. No zipping, no [suffering](glossar
 
 **Katagiri**: Sure. [It’s the] same. 
 
-The atmosphere is different doing zazen; it's different. Dancing is total movement, dynamic, but zazen is stillness. That's a point: different appearance. But exactly [the] content is the same. And also, after dance there are different things: the pros and cons, failures and successes, many things. But zazen is completely zazen. That's quiet, always; no pros and cons, feelings, anything. That's a different point. 
+The atmosphere is different doing zazen; it's different. Dancing is total movement, dynamic, but zazen is stillness. That's a point: different appearance. But exactly the content is the same. And also, after dance there are different things: the pros and cons, failures and successes, many things. But zazen is completely zazen. That's quiet, always; no pros and cons, feelings, anything. That's a different point. 
 
-That's why we have to emphasize always zazen itself, dance itself. But the dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dance, and that means always looking at your life in the time process. This is a very common [dualistic](glossary#dualistic) world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform your dance. [The] quality of dance [is] completely beyond judgement; judgement is something you are involved in just on the surface. So just accept. 
+That's why we have to emphasize always zazen itself, dance itself. But the dancer as an artist, you have to deal with the dance itself, and also after dance, and also before dance, and that means always looking at your life in the time process. This is a very common [dualistic](glossary#dualistic) world. That's why life becomes busy. But, if you really want to be free – experience freedom as a dancer – actually, from the beginning to end, just perform your dance. The quality of dance is completely beyond judgement; judgement is something you are involved in just on the surface. So just accept. 
 
 That surface is sort of the weeds; but weeds will be wonderful fertilizer for you. That's why, accept. And then all you have to do is, basically, you must be freedom; you must get freedom of the dance. That means, practice dance itself. You have to find yourself right in the middle of dance itself. So, you can stand up. In the realm of criticism, and judgment, and lots of things – you can stand up there.
 
@@ -442,7 +442,7 @@ Your question is, what do I do right in the middle of zipping, and ...?
 
 *[Some laughter.]*
 
-Even “spit up” zazen – yes, it’s good. Because if you do zazen [like] “*I* did zazen,” that is also you creating something new. Whatever thing, you will spit [it] up. 
+Even “spit up” zazen – yes, it’s good. Because if you do zazen like “*I* did zazen,” that is also you creating something new. Whatever thing, you will spit it up. 
 
 Okay?
 
@@ -450,9 +450,9 @@ Okay?
 
 **Question**: [Roshi](glossary#roshi)? I don’t know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach [zazen](glossary#zazen) is what I would call a very pure point of view. Like, if you’re going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that’s the point you always emphasize. It seems like you really stay away from complicating us by saying that you work through these levels of consciousness, and you have to go through these various stages. But for me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, “Well yeah, my mind is wandering all over and I’m having all these problems,” if you could say well, I’m at a certain stage, or give some indication of where on the path I’m at, or where we’re at. Do you see what I’m trying to say? Like say in yoga, they’ll talk about the different levels of consciousness, and how you step-by-step work through them. Or in [Tibetan Buddhism](glossary#tibetan-buddhism ), how you step-by-step work toward that very pure state of mind. And it seems like you’re hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, “Just enter into it. Just sit; just enter nonduality.” 
 
-**Katagiri**: Well, I'm talking about the zazen in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. *[He laughs.]* Now ... I don't mean that I try to escape – because we have to be *centered*. If you're not centered, whatever kind of [thing] you do, you are confused. So [an] important point is, you must be *centered*. If you are centered, you can handle many things in a proper way. But my focus is the zazen in which we must be free, perfectly free. 
+**Katagiri**: Well, I'm talking about the zazen in which you are perfectly free. That's what I want to tell you, okay? I don't want to involve any complications. *[He laughs.]* Now ... I don't mean that I try to escape – because we have to be *centered*. If you're not centered, whatever kind of thing you do, you are confused. So an important point is that you must be *centered*. If you are centered, you can handle many things in a proper way. But my focus is the zazen in which we must be free, perfectly free. 
 
-*[He laughs.]* If you're involved in lots of things, [lots of] techniques – well, that's endless. Endlessly there are lots of techniques. So of course, [Buddhism](glossary#buddhism) teaches in that way, but the main focus of the Buddhist system is not being constantly involved in technique like this. So if you are interested in that sort of technique, you must go someplace [else]. Yoga [for example], because Yoga is better than Buddhism [for that].
+*[He laughs.]* If you're involved in lots of things, lots of techniques – well, that's endless. Endlessly there are lots of techniques. So of course, [Buddhism](glossary#buddhism) teaches in that way, but the main focus of the Buddhist system is not being constantly involved in technique like this. So if you are interested in that sort of technique, you must go someplace else. Yoga [for example], because Yoga is better than Buddhism [for that].
 
 **Same person**: But it seems like it would be encouraging to...
 
@@ -464,11 +464,11 @@ Okay?
 
 **Same person**: Okay.
 
-Well, how about, for instance, some [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize [that] having a distinct kensho experience is really important. But it seems like you would say, well, that’s satori from [dualism](glossary#dualism); that’s “me” having satori, and so that’s [dualistic](glossary#dualistic) satori, that’s not real satori.
+Well, how about, for instance, some [Rinzai](glossary#rinzai-zen ) teachers, like Kapleau and some of the others, emphasize that having a distinct kensho experience is really important. But it seems like you would say, well, that’s satori from [dualism](glossary#dualism); that’s “me” having satori, and so that’s [dualistic](glossary#dualistic) satori, that’s not real satori.
 
 **Katagiri**: Yes, yes. Okay, sure.
 
-**Same person**: But it might be encouraging to have [dualistic](glossary#dualistic) satori, just to understand it. In [Rinzai](glossary#rinzai-zen ) they say [that] it's important to have that understanding, to know what's going on.
+**Same person**: But it might be encouraging to have [dualistic](glossary#dualistic) satori, just to understand it. In [Rinzai](glossary#rinzai-zen ) they say it's important to have that understanding, to know what's going on.
 
 **Katagiri**: Right, right. Right.
 

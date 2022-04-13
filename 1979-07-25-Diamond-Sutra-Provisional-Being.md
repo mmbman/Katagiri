@@ -56,7 +56,7 @@ I became a monk when I was 18. So, why did I become a monk? I don’t know exact
 
 Fourth is, if it is indescribable, is the absolute completely indescribable? No. You can describe it. There is a term, ‘absolute’ – from where does it come? [The term exists] because, someone knows. Maybe in the past, someone knew the absolute, someone experienced the absolute. Someone experienced [emptiness](glossary#śūnyatā); someone experienced the original nature of existence. Someone. 
 
-For instance, if I am master of making miso or tofu. No one can imitate exactly the same as my tofu, okay? Exactly good tofu, in my way. No one can imitate it. So that is the master of tofu maker. Tofu maker, miso maker. But it’s pretty difficult to teach, making a [recipe]. (He says “menu”.) Of course I can make a recipe, but it’s pretty difficult to teach exactly the same tofu as I make. I try to teach it, but it doesn’t hit the mark. But I know; so, there is a master of tofu makers. That’s why you can get the title: Master of Tofu Makers. That is the absolute, real meaning of how to make tofu. It’s very difficult to describe. But as long as you have the title, Master of Tofu Makers – well, you are a person who experienced it. If it is true, you know that, so, you can describe it. Then, next, we have to write a recipe: items one, two, three, four; describe. But that description doesn’t hit the mark. That’s why the absolute is indescribable. But ‘absolute’ is, still there is a fact which you are describing. 
+For instance, if I am master of making miso or tofu. No one can imitate exactly the same as my tofu, okay? Exactly good tofu, in my way. No one can imitate it. So that is the master of tofu maker. Tofu maker, miso maker. But it’s pretty difficult to teach, making a recipe. (He says “menu”.) Of course I can make a recipe, but it’s pretty difficult to teach exactly the same tofu as I make. I try to teach it, but it doesn’t hit the mark. But I know; so, there is a master of tofu makers. That’s why you can get the title: Master of Tofu Makers. That is the absolute, real meaning of how to make tofu. It’s very difficult to describe. But as long as you have the title, Master of Tofu Makers – well, you are a person who experienced it. If it is true, you know that, so, you can describe it. Then, next, we have to write a recipe: items one, two, three, four; describe. But that description doesn’t hit the mark. That’s why the absolute is indescribable. But ‘absolute’ is, still there is a fact which you are describing. 
 
 Do you understand? This is no perception of soul, no perception of object. 
 
@@ -86,7 +86,7 @@ But it’s pretty hard to understand this. So, I want to explain this.
 
 Why do you believe a thing to be accurate? Even though [Buddha](glossary#buddha) says everything is provisional being, you don’t believe it, because, [for instance], here is a book. No one believes this is a provisional being. You say, this is a being which is real, or accurate. Here it is! You don’t believe it [is a provisional being].
 
-Well, for instance, if you see a movie. You know movies – what are you watching? You’re watching the screen, pictures on a screen. The world created by the pictures on the screen is not a real world; this is a provisional world. You believe pretty well [that] this is a provisional world. So, don’t worry about whatever happens. Whatever scary scene happens, or whatever thing happens, don’t cry, don’t be surprised, whatever. So you sit down on a chair and watch the screen. Finally, you cry. You cry, and you *jump up* when something happens. Did you see “Jaws”? *[Laughter.]* You scream, immediately.
+Well, for instance, if you see a movie. You know movies – what are you watching? You’re watching the screen, pictures on a screen. The world created by the pictures on the screen is not a real world; this is a provisional world. You believe pretty well that this is a provisional world. So, don’t worry about whatever happens. Whatever scary scene happens, or whatever thing happens, don’t cry, don’t be surprised, whatever. So you sit down on a chair and watch the screen. Finally, you cry. You cry, and you *jump up* when something happens. Did you see “Jaws”? *[Laughter.]* You scream, immediately.
 
 It is not a real being. The artificial shark, that is also a provisional being, created on the screen. But you scream, simultaneously. Why do you scream? Because you are participating in that provisional world. At that time, provisional world is no longer provisional; that is actual being. It turns into actual being. It completely turns into actual being.
 
@@ -96,7 +96,7 @@ So, always you are being with created pictures on a screen. Intellectually, you 
 
 So with this point, we are always moving toward object. Always. At that time, object is no longer provisional being. Because if you move toward object initiatively, object becomes actual being. Because object is no longer object; object is with you, and you are in object. So finally, there is no object for you, completely. You become a tree. Tree becomes you. 
 
-Initiatively, we are always moving toward the object, participating in [it], being engaged in [it]. At that time, the object [starts] working with you, pretty well, simultaneously.
+Initiatively, we are always moving toward the object, participating in it, being engaged in it. At that time, the object [starts] working with you, pretty well, simultaneously.
 
 On the other hand, this is one point, subject always moving toward object. Another aspect is, not always subject initiatively moving toward object: sometimes object moves toward subject. For instance, when you walk on the street, and a big rock is right in front of you, and then you stumble over it. To stumble over it means, rock exists. That rock gives you a sense of resistance, or a kind of antagonism. 
 
@@ -104,11 +104,11 @@ What is a being which seems to be very accurate, touching your consciousness, to
 
 So, object comes up to you, subject comes up to you. If you want to make a poem, or if you want to paint a picture of trees, you have to talk, you have to move initiatively to the trees and talk.
 
-If you go to the wilderness, you are surrounded by perfect quietness. In the first stage, you start to talk to yourself, because the surroundings are completely quiet, so [no way] to talk with somebody. So you talk with yourself. But even though you talk, for no matter how long you talk to yourself – in your heart, or sometimes with your mouth – still, [it is] quiet. So finally, you get exhausted, so you return to the quietness, completely. 
+If you go to the wilderness, you are surrounded by perfect quietness. In the first stage, you start to talk to yourself, because the surroundings are completely quiet, so no way to talk with somebody. So you talk with yourself. But even though you talk, for no matter how long you talk to yourself – in your heart, or sometimes with your mouth – still, it is quiet. So finally, you get exhausted, so you return to the quietness, completely. 
 
 So, second stage, you talk to nature, wilderness. At that time, if you talk to the wilderness initiatively, wilderness speaks to you. And finally, you enjoy, really enjoy. 
 
-So, two types of provisional being. Why do we believe that a thing seems to be accurate, not provisional? Because you are participating in or you are engaged in the provisional being, initiatively. Always, we do [this]. On the other hand, object always moves, comes up to you, giving a kind of resistance or antagonism. At that time, it is also a sense of being accurate, or [an] actual being. 
+So, two types of provisional being. Why do we believe that a thing seems to be accurate, not provisional? Because you are participating in or you are engaged in the provisional being, initiatively. Always, we do this. On the other hand, object always moves, comes up to you, giving a kind of resistance or antagonism. At that time, it is also a sense of being accurate, or [an] actual being. 
 
 ##### 35:50 
 
@@ -150,11 +150,11 @@ So, even though you participate, this participation is not *defiled* participati
 
 ##### 49:22
 
-That’s why, according to [Buddhism](glossary#buddhism), the subject is no perception of subject, [and the] object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means the object is nothing but provisional being. 
+That’s why, according to [Buddhism](glossary#buddhism), the subject is no perception of subject, and the object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means the object is nothing but provisional being. 
 
 But provisional being is not to defile the object, not to ignore the existence of your object. You should take care of your object. *How*? This is the practice, how. 
 
-So, in the common sense, we are always participating in *[unintelligible]*. At that time, provisional being turns into actual being, so there is no gap. But, without deep understanding, without wisdom, you can participate in [it] and also finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom. So there is some control, adjustment for your emotional expression or conscious pattern. There is a pattern of body and mind situation. 
+So, in the common sense, we are always participating in *[unintelligible]*. At that time, provisional being turns into actual being, so there is no gap. But, without deep understanding, without wisdom, you can participate in it and also finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom. So there is some control, adjustment for your emotional expression or conscious pattern. There is a pattern of body and mind situation. 
 
 That’s why [Buddha](glossary#buddha) always says, everything is [emptiness](glossary#śūnyatā). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But that doesn’t mean through that you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of it.
 
@@ -168,7 +168,7 @@ The simile of the raft occurs in Buddhist scriptures. If you have crossed the ri
 
 That means, if you study at school in order to get a masters degree or Ph.D. – get a degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud of yourself too much: “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
 
-That [makes it] pretty hard to communicate with each other. So – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
+That makes it pretty hard to communicate with each other. So – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
 
 Do you have questions?
 
@@ -202,13 +202,13 @@ Do you understand provisional being?
 
 No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
 
-So, if you believe all sentient beings as just provisional beings, intellectually – well, someone can come and chop your neck, [and you say,] “Okay, you’re a provisional being.” It’s ridiculous! *[Laughter.]* 
+So, if you believe all sentient beings as just provisional beings, intellectually – well, someone can come and chop your neck, and you say, “Okay, you’re a provisional being.” It’s ridiculous! *[Laughter.]* 
 
 Don’t you think so? 
 
 **Person**: Oh yes! *[Laughter.]*
 
-**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes [from now]. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to [Buddha](glossary#buddha)’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
+**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to [Buddha](glossary#buddha)’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
 
 **Person**: That’s like taking each moment as it comes [*unintelligible*]?
 

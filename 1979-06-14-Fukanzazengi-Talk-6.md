@@ -14,11 +14,11 @@ description: June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 ##### 0:00 start of recording
 
-[We] talked about [zazen](glossary#zazen) based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to [look at] this from a pretty different angle, that is sort of from the psychological point of view. 
+We talked about [zazen](glossary#zazen) based on body and mind dropping off. Which means that from the first, dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
 
 You know pretty well that in [primitive Buddhism](glossary#primitive-buddhism ), there are the categories of existence which are called the [Five Skandhas](glossary#skandha). Among the five skandhas, there is a very interesting concept which is called [samskara](glossary#samskara). In the [Prajnaparamita Sutra](glossary#prajnaparamita-sutra), it is translated as [impulses](glossary#impulses). According to [Doctor Conze](https://en.wikipedia.org/wiki/Edward_Conze) it is regarded as “together-maker”. That concept of samskara is a very interesting teaching. 
 
-With the development of [Buddhism](glossary#buddhism), this concept, samskara, is divided into many [things]. For instance, in [Abhidharmakosha](glossary#abhidharmakosha), we learned this year already [in a talk] given by [Reb Anderson](glossary#reb-anderson), that there are five psychological categories of existence:
+With the development of [Buddhism](glossary#buddhism), this concept, samskara, is divided into many [things]. For instance, in [Abhidharmakosha](glossary#abhidharmakosha), we learned this year already in a talk given by [Reb Anderson](glossary#reb-anderson), that there are five psychological categories of existence:
 
 One is elements of form; that is the six organs, the six objects. 
 
@@ -26,7 +26,7 @@ The second one is six consciousnesses.
 
 The third category is called function; the concomitant mental faculties. That means function of the mind: the wholesome functions and unwholesome functions concomitant with the six consciousnesses. There are many kinds of concomitant functions of the mind: for instance anger, hatred, et cetera; many things. 
 
-This is a very interesting point, the categories, because [the fourth one] is an element which is not associated with mind, not associated with mind of the six [sense] consciousnesses or concomitant mental faculties, or the elements of form, or the [fifth] one is the truth. This is the element which is completely not associated with the truth, and also the mind, and also form, and also the concomitant mental faculties. That is what is called [samskara](glossary#samskara).
+This is a very interesting point, the categories, because the fourth one is an element which is not associated with mind, not associated with mind of the six sense consciousnesses or concomitant mental faculties, or the elements of form, or the fifth one is the truth. This is the element which is completely not associated with the truth, and also the mind, and also form, and also the concomitant mental faculties. That is what is called [samskara](glossary#samskara).
 
 ##### 5:12
 
@@ -44,7 +44,7 @@ Anyway, force is not a real force, but a condition, a conditioned element which 
 
 For instance, yesterday I told you that story about [Gensha Shibi](glossary#gensha-shibi). On the way on his travels, he stumbled over [and] he struck his toes on a rock. Blood appeared, and he screamed, “Ouch!” And he had the question: “Body and mind does not exist; where does this pain come from?” So, he attained [enlightenment](glossary#enlightenment) from this point, and he went back to his temple and practiced under [Seppō](glossary#seppō-gison) Zen Master.
 
-Let’s recall this story. The rock, his toes, his body and mind, particularly his legs, and also his nails which came out by the hitting. They are simple objects. Rock. His toes. Between his toes and the rock, there is no function of human consciousness. Is there something there? If there is something, it is called a force, which means a ‘conditioned element’ which happens between two objects, on rock and toe. Something happens: that is [a] condition. Under the condition, the two objects are combined, unified, as just one. At that time, something happens; that is called event, fact. That’s why this author says, “simply as a condition, or a fact, upon which another fact arises”. There is a fact, which is called conditioned element between the two, and then, the two things are unified perfectly. And then, something happens; this is another fact. So, this is called event, occurrence. 
+Let’s recall this story. The rock, his toes, his body and mind, particularly his legs, and also his nails which came out by the hitting. They are simple objects. Rock. His toes. Between his toes and the rock, there is no function of human consciousness. Is there something there? If there is something, it is called a force, which means a ‘conditioned element’ which happens between two objects, on rock and toe. Something happens: that is a condition. Under the condition, the two objects are combined, unified, as just one. At that time, something happens; that is called event, fact. That’s why this author says, “simply as a condition, or a fact, upon which another fact arises”. There is a fact, which is called conditioned element between the two, and then, the two things are unified perfectly. And then, something happens; this is another fact. So, this is called event, occurrence. 
 
 So from this point, conditioned elements are sort of a ‘force’ – well sort of, actually not a force (in the physical sense), but some force to enable two beings to be combined or unified perfectly. That means, in other words, when [Gensha Shibi](glossary#gensha-shibi)’s toe is used perfectly, fitting into its object, which is called rock, at that time, it is called “something happens”. And on the other hand, when the rock completely is used perfectly, fitting into toe, at that time, that is called an event. “Ouch.” This is [samskara](glossary#samskara). 
 
@@ -96,9 +96,9 @@ So, what is oneness? Oneness appears, oneness manifests itself, only when your b
 
 We don’t understand yet, because – well, there is a good example. There is a saying, “[Like] a lump of clay.” However you use this clay, it depends on you. But let’s imagine we try to make a doll. A doll, or china, or a plate – whatever it is. Let’s make a plate, a dish, china – and also a doll. 
 
-When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot [say], “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t [see] it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll; no clay.” You cannot say [so].
+When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot say, “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t see it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll; no clay.” You cannot say so.
 
-On the other hand, turn [it around]. If you see the doll in terms of the clay: just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” So in terms of the clay, doll and dish are completely hidden behind the clay. Just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
+On the other hand, turn it around. If you see the doll in terms of the clay: just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” So in terms of the clay, doll and dish are completely hidden behind the clay. Just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
 
 The total picture of the dish as a being possesses a double face. But this double face is not a combination of the two things. Just like the moon reflected in the water: [that’s] not oneness. Oneness is, when you see the doll, just see the doll. At that time, clay doesn’t appear. [Dogen Zenji](glossary#dogen) says, “When one is bright, the other one is dark.” “The other one is dark” doesn’t mean the other one disappears. It’s there, but it doesn’t interact. One side, doll’s life and this life. It’s great support, which doesn’t appear *yet* on the surface of the doll’s world. 
 
@@ -108,7 +108,7 @@ So, this is oneness. The same applies to our zazen. First of all, mind is always
 
 So how can you stop the functioning of your mind? You cannot stop it. The all-important point is, let’s return to the origin, which is called [samskara](glossary#samskara)’s world, which is called elements which are not associated with mind and truth, completely nothing. Let’s return to conditioned elements. How can we return to conditioned elements? ... I told you before, conditioned elements are characterized by unifying two beings perfectly. That means, one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this, using your body and breath perfectly, fitting into [zazen](glossary#zazen). 
 
-At that time, something happens. That is zazen as an event. So mind immediately catches it. That’s, “I got it.” You catch it. The moment when you “catch” it, there is attachment. So, that’s why regulation of the mind is important. That is, [Dogen Zenji](glossary#dogen) says, “Throw away good or bad, right and wrong. Have no designs of becoming a [Buddha](glossary#buddha).” Through and through, we have to practice having no design of becoming Buddha. No reward there. Just return to conditioned element, using your body, perfectly fitting into object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. [It] *is* zazen. That’s all. 
+At that time, something happens. That is zazen as an event. So mind immediately catches it. That’s, “I got it.” You catch it. The moment when you “catch” it, there is attachment. So, that’s why regulation of the mind is important. That is, [Dogen Zenji](glossary#dogen) says, “Throw away good or bad, right and wrong. Have no designs of becoming a [Buddha](glossary#buddha).” Through and through, we have to practice having no design of becoming Buddha. No reward there. Just return to conditioned element, using your body, perfectly fitting into object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
 
 And then when we see just the [zazen](glossary#zazen), it is zazen. It is *just* zazen. When in your body, body is hidden behind zazen. But that body doesn’t bother zazen. Just zazen. Just like a doll, and also a dish.
 
@@ -122,13 +122,13 @@ And also, one of the elements which are not associated with mind is ‘obtaining
 
 There are sort of three kinds of obtaining and getting. Obtaining is to obtain and complete something. That is a characteristic of conditioned element: to get and complete. There are three kinds of getting and completing. 
 
-[One] is, you can sow a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sow a seed. A seed is completely a seed, not [prāpti](glossary#prāpti); seed.
+One is, you can sow a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sow a seed. A seed is completely a seed, not [prāpti](glossary#prāpti); seed.
 
-And also, [second], you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prāpti](glossary#prāpti). Even though you are in the [dualistic](glossary#dualistic) world, you can complete [Buddha](glossary#buddha)’s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
+And also, [second,] you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prāpti](glossary#prāpti). Even though you are in the [dualistic](glossary#dualistic) world, you can complete [Buddha](glossary#buddha)’s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
 
 On the other hand is seed. You don’t actualize, but you can sow a seed. For instance, [shikantaza](glossary#shikantaza) ... in the shikantaza, all [delusions](glossary#delusion) drop off and you don’t understand. But, if you do [zazen](glossary#zazen), anyway you can sow a seed – in your mind, in your life. But it doesn’t appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it’s actualization of zazen itself. So even though you don’t understand, you gain something and complete something, as a truth. Even though you are in the [dualistic](glossary#dualistic) world, you can do this. 
 
-The third one is, you are completely not interested. *[He chuckles.]* [You say,] “Well, Katagiri says [zazen](glossary#zazen) is important, so alright, let’s try to do zazen, you know how it is at Zen Center.” This is zazen, but it doesn’t appear. You can plant a seed. But someday, somewhere, real zazen will grow. So this is another opportunity, or possibility. 
+The third one is, you are completely not interested. *[He chuckles.]* You say, “Well, Katagiri says [zazen](glossary#zazen) is important, so alright, let’s try to do zazen, you know how it is at Zen Center.” This is zazen, but it doesn’t appear. You can plant a seed. But someday, somewhere, real zazen will grow. So this is another opportunity, or possibility. 
 
 ##### 44:00
 
@@ -144,7 +144,7 @@ The best way, that is...
 
 ... in the context of conditioned elements. How? Using your body, perfectly fitting into your object. At that time, your body becomes one with [zazen](glossary#zazen), zazen becomes one with you, very naturally. At that time, there is something that happens, that is called zazen. 
 
-The [problem] is, mind attaches to it. That’s why [Dogen Zenji](glossary#dogen) says, let’s practice regulation of the mind, no design of having reward. That is the problem. He have to understand, what is mind? Very tricky mind, very ‘monkey’ mind – always.
+The problem is, mind attaches to it. That’s why [Dogen Zenji](glossary#dogen) says, let’s practice regulation of the mind, no design of having reward. That is the problem. He have to understand, what is mind? Very tricky mind, very ‘monkey’ mind – always.
 
 Well, we have to make every possible effort to do that, because we have a mind. Mind is already here; that’s why we have to practice. 
 
@@ -162,7 +162,7 @@ So, this behavior which is called [zazen](glossary#zazen) is completely beyond h
 
 But, [Dogen Zenji](glossary#dogen) says, “Is it not the principle that is prior to one’s knowledge and perceptions?” Is it not the principle that is prior to one’s knowledge and perceptions? That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still [bowing](glossary#bowing), and being in accord with the function of knowledge and perception. How? Let’s use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
 
-And after that, mind associates. That’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach [to] it. But before mind, prior to the function of your mind, it’s really, just sit. It’s a very simple practice. That’s why [Dogen Zenji](glossary#dogen) says, “Is it not a principle that is prior to one’s knowledge and perceptions.” It’s [real]. You have to really fit into your knowledge and perceptions. 
+And after that, mind associates. That’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach to it. But before mind, prior to the function of your mind, it’s really, just sit. It’s a very simple practice. That’s why [Dogen Zenji](glossary#dogen) says, “Is it not a principle that is prior to one’s knowledge and perceptions.” It’s [real]. You have to really fit into your knowledge and perceptions. 
 
 Do you have questions?
 
@@ -192,7 +192,7 @@ But here is a very good example. One of my friends was on vacation that day, a d
 
 Do you understand? This is a very good example. *[The group laughs – perhaps because no one understands how this is a good example.]*
 
-One more person was on the train from Fukui City to [Eiheiji](glossary#eiheiji) monastery, because he thought also, “Oh, today is the particular day of performing a memorial service for [Dogen](glossary#dogen). So let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off [the track]. But he survived. Do you understand? This is a very good example.
+One more person was on the train from Fukui City to [Eiheiji](glossary#eiheiji) monastery, because he thought also, “Oh, today is the particular day of performing a memorial service for [Dogen](glossary#dogen). So let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off the track. But he survived. Do you understand? This is a very good example.
 
 **Same person**: Okay, how do these two terms then relate to [karma](glossary#karma)?
 
@@ -204,7 +204,7 @@ That is [karma](glossary#karma), maybe past life. Well, you can envision past li
 
 **Katagiri**: Sure. In many ways. 
 
-But only if the times and opportunities are ripe and conditions arranged. [Dogen](glossary#dogen)’s memorial day and his day off are set up, and then, [karma](glossary#karma) starts [to] work. Which would you like? You want to go to a movie, or you want go to [Eiheiji](glossary#eiheiji) monastery?
+But only if the times and opportunities are ripe and conditions arranged. [Dogen](glossary#dogen)’s memorial day and his day off are set up, and then, [karma](glossary#karma) starts to work. Which would you like? You want to go to a movie, or you want go to [Eiheiji](glossary#eiheiji) monastery?
 
 ##### 1:00:06
 
@@ -238,7 +238,7 @@ Philosophically speaking, that is interdependent co-production.
 
 **Same person**: Well I’m saying maybe he would have noticed the rock. Can we look at that and see that, or is that attaching to it?
 
-**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment: completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have [had] such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
+**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment: completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have had such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
 
 But how do they associate with each other? We don’t know. Because between the two, something connected. That connection is not something that happens right now. It’s really connected with the past, and the future. That’s why it’s broad. 
 
@@ -268,7 +268,7 @@ The universe includes moon, water, tree, birds; that is the real meaning of the 
 
 **Same person**: The two monks, your friends that you described. To go back; was that an expression of their life? Or were they picking and choosing? And what’s the difference?
 
-**Katagiri**: Oh of course, he chose. He chose. [It’s] his life. But by *what*? What part of his mind did he choose [with]? I don’t know. Maybe [karma](glossary#karma); it’s connected with the past life, present life, future life. 
+**Katagiri**: Oh of course, he chose. He chose. It’s his life. But by *what*? What part of his mind did he choose [with]? I don’t know. Maybe [karma](glossary#karma); it’s connected with the past life, present life, future life. 
 
 There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his – maybe – [karma](glossary#karma), he planted a seed in the past. And then many things combined, unified, and he can see. Something happened. 
 
@@ -290,7 +290,7 @@ So, toes, your body, are just the being as it is, beyond human speculation. Befo
 
 **Katagiri**: Yes. Pain is sort of the idea, image, of some of your experience. Real pain is no pain. But if your mind attaches to something, it is called, sometimes, pain, sometimes it is called pleasure. So your toe, your body, is just one with the rock, right in the middle of the event. No idea of body, no idea of rock, no idea of toe, no idea of pain. Just all things put together, combined. They combine and appear. In this realm, there is no confusion; just all things put together. And after that, immediately, mind attaches to it. And then you say, “Body. I have a toe.” And then you say, “Ouch!” 
 
-That’s why he said, “Body and mind doesn’t exist; from where does the pain come?” Actually, pain comes from no abode. “No abode” means just the functioning of the two things, rock and toe. Just the function, total dynamic working, that’s all. Within this, no pain. Sort of a death. If you become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and us. After that, immediately I say, “Ah, this is death!” But it’s too late. We do [this] always, in our daily living. “I died. Oh! This is death.” *[He laughs.]* 
+That’s why he said, “Body and mind doesn’t exist; from where does the pain come?” Actually, pain comes from no abode. “No abode” means just the functioning of the two things, rock and toe. Just the function, total dynamic working, that’s all. Within this, no pain. Sort of a death. If you become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and us. After that, immediately I say, “Ah, this is death!” But it’s too late. We do this always, in our daily living. “I died. Oh! This is death.” *[He laughs.]* 
 
 And then we say that [means] body and mind exist. But I don’t think so. But we cannot ignore that.... We have already mind, and also we have lots of customs we have accumulated in the past. That’s why we have to pay careful attention to our body and mind, how to use them, perfectly fitting into circumstances, environment: [zazen](glossary#zazen), or whatever. 
 
@@ -324,7 +324,7 @@ Do you understand? That is the meaning of no mind. No mind doesn’t mean to des
 
 ##### 1:20:44
 
-**Question**: ... In the past, you or [someone], \[perhaps] [Suzuki Roshi](glossary#suzuki-roshi), talked about big mind and small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
+**Question**: ... In the past, you or someone, perhaps [Suzuki Roshi](glossary#suzuki-roshi), talked about big mind and small mind. When you talk about mind here, Roshi, what are you referring to? Big mind, small mind?
 
 **Katagiri**: Both. I’m talking about both.
 
@@ -338,7 +338,7 @@ So picky mind, monkey mind, is small mind. But original nature of the mind is bi
 
 **Question**: [Roshi](glossary#roshi)? When I asked what the water was before, if I understood you, your explanation of what the water is. And what I wanted to know is, what the water is right now.
 
-**Katagiri**: That’s why I said the universe. [Which] is right now. 
+**Katagiri**: That’s why I said the universe. Which is right now. 
 
 Right now, right here, it doesn’t mean something limited by something which is called water. Right now, right here is what? Right now, right here is the universe. If you say universe, you are already tricked by the word ‘universe’. The universe is what? Total function of right now, right here. How can you see the real meaning of right now, right here, of the universe? Be alive, right now, right here. 
 
@@ -356,19 +356,19 @@ So, water is the universe. The self is the whole universe. Time is being.
 
 **Question**: *[unintelligible]*
 
-**Katagiri**: Well, because we have enjoyed our little, small mind for many years. So we have got used to enjoying it, for many, many years. Not only your [own] life; from the beginningless past. Anyway, we have done so always. That’s why it’s pretty hard to see the big mind immediately. It really depends on the individual. 
+**Katagiri**: Well, because we have enjoyed our little, small mind for many years. So we have got used to enjoying it, for many, many years. Not only your own life; from the beginningless past. Anyway, we have done so always. That’s why it’s pretty hard to see the big mind immediately. It really depends on the individual. 
 
 Maybe someone really can see big mind after practicing three years, or five years, maybe ten years. Maybe so. It doesn’t matter. 
 
 Is that okay? That’s why it’s pretty hard.
 
-But the important point is, when we practice, we have to practice [zazen](glossary#zazen) not as the being involved in the many things in the [dualistic](glossary#dualistic) world. Analyzing, synthesizing: “I like this,” “I don’t like this,” “I feel good,” “I don’t feel good,” “That’s why I want do this,” “I don’t want to do this”... This is very messy. [He laughs.] No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it’s not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
+But the important point is, when we practice, we have to practice [zazen](glossary#zazen) not as the being involved in the many things in the [dualistic](glossary#dualistic) world. Analyzing, synthesizing: “I like this,” “I don’t like this,” “I feel good,” “I don’t feel good,” “That’s why I want do this,” “I don’t want to do this”... This is very messy. *[He laughs.]* No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it’s not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
 
 ##### 1:27:50
 
 **Question**: [Roshi](glossary#roshi)? Is [aprāpti](glossary#aprāpti) always present when [prāpti](glossary#prāpti) is present? 
 
-**Katagiri**: That is a very conceptualized thing. There are lots of terms there; but in [Mahayana Buddhism](glossary#mahayana) we don’t believe [they are] really something which exist. If you say something which exists, it has substance. 
+**Katagiri**: That is a very conceptualized thing. There are lots of terms there; but in [Mahayana Buddhism](glossary#mahayana) we don’t believe they are really something which exist. If you say something which exists, it has substance. 
 
 **Same person**: Okay, well in the story that you gave us as an example of [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti), it seemed to me, if I understand it right, prāpti was the force that brought your friend back to the monastery, and aprāpti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
