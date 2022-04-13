@@ -26,7 +26,7 @@ The Buddha asked [Subhuti](glossary#subhuti): “Is there any dharma which the [
 
 ##### 3:52
 
-In Japanese, enlightenment is described by three different characters. One is ‘kaku’: awareness. The second is [satori](glossary#satori) – you are very familiar with this term, satori. The third is ‘sho’: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. The original nature of existence is, truth. 
+In Japanese, enlightenment is described by three different characters. One is *kaku*: awareness. The second is [*satori*](glossary#satori) – you are very familiar with this term, satori. The third is *sho*: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, original nature of existence. The original nature of existence is, truth. 
 
 According to the first term, kaku, awareness, this kind of [enlightenment](glossary#enlightenment) is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice [zazen](glossary#zazen) – or even though you don’t practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
 
@@ -44,19 +44,19 @@ That is satori. Usually people understand Zen as cultivating the experience of s
 
 ##### 11:27
 
-The final goal is that you must be free from the experience of satori. That is the third, the one which is called ‘sho’, which literally means ‘verification’. Verification which is called ‘sho’ is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
+The final goal is that you must be free from the experience of satori. That is the third, the one which is called *sho*, which literally means “verification”. Verification which is called *sho* is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
 
-That is the third one, which is called ‘sho’, usually translated as realization. This third [enlightenment](glossary#enlightenment) is the highest spiritual level, in which you can be free from awareness and satori. So, there is no trace of satori, no trace of awareness. That is called sho, verification, because you are already one with the original nature of existence, even though you don’t realize it. You are already right in the middle of the nature of existence. 
+That is the third one, which is called *sho*, usually translated as realization. This third [enlightenment](glossary#enlightenment) is the highest spiritual level, in which you can be free from awareness and satori. So, there is no trace of satori, no trace of awareness. That is called sho, verification, because you are already one with the original nature of existence, even though you don’t realize it. You are already right in the middle of the nature of existence. 
 
-By this ‘sho’, [enlightenment](glossary#enlightenment), your life is supported, helped, constantly, regardless of whether you like or dislike it. That is the total picture of [the] existence you have. 
+By this *sho*, [enlightenment](glossary#enlightenment), your life is supported, helped, constantly, regardless of whether you like or dislike it. That is the total picture of [the] existence you have. 
 
-This is enlightenment. That’s why [Buddha](glossary#buddha) says, “Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as ‘the utmost, right and perfect enlightenment’?” This is really pointing to the third enlightenment, which is called ‘sho’: perfect, right, supreme enlightenment. But if you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But, you can *be with it*, always, constantly. 
+This is enlightenment. That’s why [Buddha](glossary#buddha) says, “Is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as ‘the utmost, right and perfect enlightenment’?” This is really pointing to the third enlightenment, which is called *sho*: perfect, right, supreme enlightenment. But if you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But, you can *be with it*, always, constantly. 
 
 That is enlightenment, real enlightenment. That’s why, if you are called Buddha – does Buddha experience enlightenment, which he has known perfectly, as perfect, right, supreme enlightenment? [Subhuti](glossary#subhuti) says, “No.” 
 
 ##### 16:04
 
-So let’s see about this utmost, right, perfect [enlightenment](glossary#enlightenment), represented as ‘sho’ in Japanese.
+So let’s see about this utmost, right, perfect [enlightenment](glossary#enlightenment), represented as *sho* in Japanese.
 
 The commentary by [Conze](glossary#edward-conze) says: 
 
@@ -88,7 +88,7 @@ One of the German poets said, “A rose exists without any reason. A rose blooms
 
 Rose exists without any reason. I think so: rose exists without any reason. Why the rose blooms in a beautiful, big garden, or in a small garden, or wherever. Or you say to a rose, “How happy you are. Wonderful, happy rose, you are.” Whatever you say, this is coming from human speculation. 
 
-Human speculation doesn’t hit the mark, existence itself, *the rose*. Before you say whatever it is, rose exists! Rose exists. Tiny flowers, poppy seeds, bloom in the heart of the mountain. You say, “Oh, poor, beautiful flowers.” But this is something ‘extra’. Whatever you say to a flower: “You are okay,” or “Let’s bloom there.” Or you say, “I don’t care.” Or you say, “Thank you very much, blooming flower in front of me, in the heart of the mountain.” Whatever you say, it doesn’t hit the mark, the bullseye. Before you say, “Little flowers bloom in the heart of the mountain,” already the beautiful flower’s own life force blooms. This is the life of the little flower itself. So, the tiny flower exists, without any reason. 
+Human speculation doesn’t hit the mark, existence itself, *the rose*. Before you say whatever it is, rose exists! Rose exists. Tiny flowers, poppy seeds, bloom in the heart of the mountain. You say, “Oh, poor, beautiful flowers.” But this is something “extra”. Whatever you say to a flower: “You are okay,” or “Let’s bloom there.” Or you say, “I don’t care.” Or you say, “Thank you very much, blooming flower in front of me, in the heart of the mountain.” Whatever you say, it doesn’t hit the mark, the bullseye. Before you say, “Little flowers bloom in the heart of the mountain,” already the beautiful flower’s own life force blooms. This is the life of the little flower itself. So, the tiny flower exists, without any reason. 
 
 This is [emptiness](glossary#śūnyatā). Emptiness means, no reason. With no reason, everything exists as it really is. And then, when your consciousness starts work, and consciousness catches your existence objectively, at that time, you create lots of things: toward, like, dislike, good, bad; whatever it is. Many things come up. 
 
@@ -150,7 +150,7 @@ If you think, “I don’t like meditation,” or “I *like* meditation,” or 
 
 Then, maybe meditation hurts your body and mind. Well, it is not alright, it is not okay – but it is not bad. Still there is a chance to take care of your life with your best. Yes there is. Right in the middle of meditation, still there is a chance to take care of your life with your best, planting a good seed toward the future. At that time, there is no chance to create a psychic crack. You become one with your life. If it is true, you feel good. You feel relief. 
 
-That is the third one, “the marklessness of their suchness”. Here ‘suchness’ means ‘obedience’. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
+That is the third one, “the marklessness of their suchness”. Here *suchness* means *obedience*. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
 
 ##### 50:11
 
@@ -182,9 +182,9 @@ So emptiness is very important for us. A more positive, affirmative term is, I t
 
 > “It cannot be talked about; it is neither a [dharma](glossary#dharma) nor a no-dharma.”
 
-Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no ‘mark’ of its own, no mark. That is [emptiness](glossary#śūnyatā). 
+Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no “mark” of its own, no mark. That is [emptiness](glossary#śūnyatā). 
 
-Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something. It’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something ‘extra’. Emptiness is completely absolute.
+Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something. It’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something “extra”. Emptiness is completely absolute.
 
 Next, 
 

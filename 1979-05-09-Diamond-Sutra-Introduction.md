@@ -58,7 +58,7 @@ So those authors were really genuine religious persons, who understood the relig
 
 I want to tell you the fundamental thought of [Diamond Sutra](glossary#diamond-sutra). What does the Diamond Sutra want to teach us? There is only one point I want to tell you. 
 
-I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit ‘dry’. The Vimalakirti Sutra is more like beautiful Buddhist literature. But Diamond Sutra is sort of based on philosophical Buddhist teaching. So, it is a little ‘dry’. 
+I told you before, last week, the [Diamond Sutra](glossary#diamond-sutra) is quite different from the [Vimalakirti Sutra](glossary#vimalakirti-sutra), because the Diamond Sutra is a little bit “dry”. The Vimalakirti Sutra is more like beautiful Buddhist literature. But Diamond Sutra is sort of based on philosophical Buddhist teaching. So, it is a little “dry”. 
 
 The group of [Prajnaparamita sutras](glossary#prajnaparamita-sutra) were compiled in the beginning of the Common Era by Indian people. The Indian people like conceptualizing very much, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That’s why if you read the Buddhist scriptures written by the Indian people, they use lots of numbers. With modern people in our days, the number billions is maybe the top, but Indian people use more than billions. That is kalpas, eons; numbers that are completely beyond the measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called [*emptiness*](glossary#śūnyatā). But that emptiness is exactly expressed by conscious thought: *huge*.
 
@@ -78,7 +78,7 @@ In the latest Udambara, [Professor Abe](glossary#masao-abe) explains about the t
 
 ##### 22:51
 
-But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] a little bit practical. Buddhism becomes ‘practical’ in order to explain [Prajnaparamita](glossary#prajnaparamita) not conceptually, but very practically. 
+But when [Buddhism](glossary#buddhism ) is transmitted into China, [it becomes] a little bit practical. Buddhism becomes “practical” in order to explain [Prajnaparamita](glossary#prajnaparamita) not conceptually, but very practically. 
 
 For instance, you know the koan – [Zen Buddhists](glossary#zen-buddhism ) always use a koan, but this koan is really based on the Buddhist philosophy mentioned by Prajnaparamita sutra: “Mountain is mountain, mountain is not mountain, but mountain is mountain.” Very practically they explain [it using the example of] Zen monks, just like this, for instance:
 
@@ -96,13 +96,13 @@ Or, for instance, everything is [Buddha](glossary#buddha): human beings are budd
 
 ##### 26:46
 
-That’s sort of a [Zen](glossary#zen) puzzle, but this is really based on Buddhist philosophy: ‘A’ is ‘A’, but ‘A’ is not ‘A’, but ‘A’ is really ‘A’.
+That’s sort of a [Zen](glossary#zen) puzzle, but this is really based on Buddhist philosophy: *A* is *A*, but *A* is not *A*, but *A* is really *A*.
 
-This philosophy is not a matter of the ‘A’ itself, or the buffalo or cow itself. It doesn’t matter. But, the matter of existential fact or reality, that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
+This philosophy is not a matter of the *A* itself, or the buffalo or cow itself. It doesn’t matter. But, the matter of existential fact or reality, that is the point. [Katagiri](glossary#katagiri) is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
 
 The important point is the existential reality. What is the existential reality? If you say [Katagiri](glossary#katagiri), [it is] what his existential fact or reality is. That is a point. But usually we don’t believe that, we don’t say that, we don’t understand it in that way. If you see Katagiri, immediately you say “Katagiri.” This is very understandable – but it’s a very shallow understanding. 
 
-Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or ‘A’, or ‘B’, or ‘C’, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say? Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called [Katagiri](glossary#katagiri), or buffalo, or *A*, or *B*, or *C*, or mountain, or river. That is existential fact or reality. Because, completely – well, what would you say? Nothing to say. It is vastness. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
 In the very basic nature of existence, Katagiri really is interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why, first of all, we have to deny your understanding. But, to deny is not to destroy existence. To deny is to enable you to realize something else around the subject you have understood. 
 
@@ -116,7 +116,7 @@ Do you understand? This is a very simple explanation. Usually we don’t underst
 
 That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supported by ... nose, mouth, ears, body, and mind – all natures. That is why at that time, no eyes can emphasize their own existence based on egoistic sense. “I am eye,” they cannot say. So completely, eyes keep their own mouth shut. *[He chortles, and the group laughs.]* 
 
-Actually, eyes function or try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say ‘eyes’, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. 
+Actually, eyes function or try to communicate with nose, mouth, ears – practically. This is the function of eyes. But if you say “eyes”, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. 
 
 If you understand eyes are eyes, this is the first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How*? You should understand nose, mouth, ears – everything. And then at that time, eyes really work, pretty well. 
 
@@ -140,21 +140,21 @@ Sometimes you don’t know when you became a writer, or when you are a great mus
 
 ##### 40:46
 
-This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of contradictory expressions. “‘A’ is ‘A’, but ‘A’ is not ‘A’, that’s why we say ‘A’ is ‘A’.” 
+This is the very important point [Diamond Sutra](glossary#diamond-sutra) says. There are lots of contradictory expressions. “*A* is *A*, but *A* is not *A*, that’s why we say *A* is *A*.” 
 
-We don’t understand exactly. “‘A’ is ‘A’” – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already, because we originally are completely vastness, no confusion. But we are always thinking, “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say, you don’t like, or you like: what is life? What are you? You are still you, and your life is existent. How can you judge? 
+We don’t understand exactly. “*A* is *A*” – why is it we have to think that? It makes us confused. But *who* makes you confused? *You* make yourself confused, already, because we originally are completely vastness, no confusion. But we are always thinking, “I like this,” “I don’t like this,” or *[unintelligible]*. Even though you don’t like your life, or you like your life; a certain period of time, you like your life very much, but a certain period of time you don’t like it. But whatever you say, you don’t like, or you like: what is life? What are you? You are still you, and your life is existent. How can you judge? 
 
 So, who protects your life? Who makes it possible for your life to exist for twenty years? You? No. Something else. That is really vastness. This is called [emptiness](glossary#śūnyatā), philosophically speaking, and if you experience that emptiness it is called [Buddha Nature](glossary#buddha-nature). Or, plainly speaking, that is universal consciousness, or truth, or sometimes, vastness. 
 
 And sometimes, vastness is personalized, and it’s called [Buddha](glossary#buddha). We realize the vastness of the universe, your life, where there is no distraction, no dichotomies, no discrimination. Completely peace; perfectly peace and harmony. 
 
-So, who makes you confused? We ourselves make ourselves confused, that’s all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is the intellectual understanding of human existence. Immediately we analyze an existential fact. If we analyze the existential fact, we are at two contradictory aspects. ‘A’ is ‘A,’ but ‘A’ is not ‘A.’ [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must [work], must be alive with Zen Center. It is true, Katagiri is not Katagiri. And then ... I understand myself in all [features].
+So, who makes you confused? We ourselves make ourselves confused, that’s all. Why? Because we have a consciousness already. So, immediately, consciousness starts to pick. This is the intellectual understanding of human existence. Immediately we analyze an existential fact. If we analyze the existential fact, we are at two contradictory aspects. *A* is *A*, but *A* is not *A*. [Katagiri](glossary#katagiri) is Katagiri; of course Katagiri is Katagiri. But Katagiri is not Katagiri; Katagiri is [Minnesota Zen Meditation Center](glossary#minnesota-zen-meditation-center). Katagiri cannot exist alone, separate from Zen Center. Katagiri must be supported, must [work], must be alive with Zen Center. It is true, Katagiri is not Katagiri. And then ... I understand myself in all [features].
 
 ##### 45:23
 
 This is very important. That’s why we have to explain [ourselves] – because consciousness already analyzes existential fact. Existential fact itself is nothing: no waves, very calm. [Katagiri](glossary#katagiri) is just Katagiri; that’s all. That’s enough. If I say Katagiri is just Katagiri, that Katagiri is the broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. 
 
-This is very natural. If you understand in that way, it’s not necessary to have a complicated system of understanding: “‘A’ is ‘A’; ‘A’ is not ‘A’; that’s why ‘A’ is ‘A’” – it’s not necessary to say so. But we have to do so, because consciousness is already complicated. That’s why we have to explain. That’s it.
+This is very natural. If you understand in that way, it’s not necessary to have a complicated system of understanding: “*A* is *A*; *A* is not *A*; that’s why *A* is *A*” – it’s not necessary to say so. But we have to do so, because consciousness is already complicated. That’s why we have to explain. That’s it.
 
 That is characteristic of a human being. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[Laughter.]* 
 
@@ -172,7 +172,7 @@ Obviously we have to think like this. This is a beautiful, beautiful aspect of h
 
 ##### 49:42
 
-But finally, the final practice is very simple: ‘A’ is just ‘A.’ Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything. Nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
+But finally, the final practice is very simple: *A* is just *A*. Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina – that’s enough. But this ballerina is exactly interconnected, interpenetrated – [components], everything. Nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
 
 That’s why a [Zen Master](glossary#zen-master) said, “When you feel hungry, eat. When you feel sleepy, sleep.” But this is the third stage; this is the very profound, highest level of understanding. Not just like a dog, not just like a [cat](glossary#cat). We misunderstand the Zen saying, “When you feel hungry, eat. When you feel sleepy, sleep.” This is not the first stage, the first level of understanding; this is the very profound, highest level of understanding. 
 
@@ -210,7 +210,7 @@ Maybe it’s connected with a previous statement. *[Laughter.]* ... from one sen
 
 *[Laughter.]* 
 
-Because we have to understand something as a whole. “‘A’ is ‘A’; ‘A’ is not ‘A’.” *[Laughter.]* “‘A’ is ‘A’.”
+Because we have to understand something as a whole. “*A* is *A*; *A* is not *A*.” *[Laughter.]* “*A* is *A*.”
 
 It makes you confused sometimes, but this is very nice practice for you. *[Laughter.]* 
 

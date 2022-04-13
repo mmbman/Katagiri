@@ -108,7 +108,7 @@ But, you shouldn't lose sight of yourself, and also you shouldn't follow after t
 
 So, he doesn't stay there. He knows the sound of the raindrop is not the raindrop – he knows pretty well, that's why he doesn't stay there. If he doesn't stay with the sound of the raindrop, he doesn't lose himself. But without the sound of the raindrop, he cannot understand the raindrops as they are; that's why he loses sight of himself. Do you understand? That's why his activity, his relationship between the raindrop and his life, is always moving dynamically.
 
-So he said ‘almost’; “I almost don't lose myself.” ‘Almost’ means constantly he is free, between raindrops and his life. If you stay even for a moment, you lose. If you ignore the sound of raindrops, you burn out – you lose. If you completely keep away from sound of the raindrops, your life is frozen; it doesn't work. And then, if you attach to the sound of raindrops, your life burns up. What should you do? No answer. It really depends on you. But this is true.
+So he said “almost”; “I almost don't lose myself.” *Almost* means constantly he is free, between raindrops and his life. If you stay even for a moment, you lose. If you ignore the sound of raindrops, you burn out – you lose. If you completely keep away from sound of the raindrops, your life is frozen; it doesn't work. And then, if you attach to the sound of raindrops, your life burns up. What should you do? No answer. It really depends on you. But this is true.
 
 ##### 29:06
 

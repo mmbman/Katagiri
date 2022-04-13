@@ -60,7 +60,7 @@ At that time, you accept yourself as an immature person. Through zazen you want 
 
 That means you already accept your life as not sublime. Your life is unhappy, your life is not sublime; lack of sublimity there. 
 
-If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence; that's why you really want to do zazen. But no matter how long you do zazen like *this*, it's very difficult to realize real peaceful, harmonious life. Because, at that time zazen is a means; ‘means’ means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. 
+If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence; that's why you really want to do zazen. But no matter how long you do zazen like *this*, it's very difficult to realize real peaceful, harmonious life. Because, at that time zazen is a means; “means” means you are already creating something as a fixed idea. But the end itself is just actual movement-activity, which is called zazen. 
 
 So just *do* zazen. “Do zazen” means you are present from moment to moment within the actual dynamic working which is called doing zazen. Becoming one with doing zazen; not seeing zazen as a thing, objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the [dualistic](glossary#dualistic) world. 
 
@@ -86,23 +86,23 @@ Total personality is the exact center of your living, the core of your living. W
 
 There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
 
-*My* personality is something *I* can create, after my birth. So that is kind of like ‘character’. If you say ‘personality,’ psychologically speaking this is a little bit broad. So my personality is something I can create after my birth, but there is another personality I can create. I have carried that personality from before my birth; this is maybe my parents, and also maybe what I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. So that is total personality, the *whole* personality. 
+*My* personality is something *I* can create, after my birth. So that is kind of like “character”. If you say “personality”, psychologically speaking this is a little bit broad. So my personality is something I can create after my birth, but there is another personality I can create. I have carried that personality from before my birth; this is maybe my parents, and also maybe what I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. So that is total personality, the *whole* personality. 
 
 ##### 23:23
 
-So, if I see myself – here is Katagiri – immediately there is a certain kind of a sense; a ‘smell’. A part of this ‘smell’ consists of something I have created after my birth. The other aspect of my ‘smell’ is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a ‘smell’. If you see somebody, there is a smell. Katagiri smells. 
+So, if I see myself – here is Katagiri – immediately there is a certain kind of a sense; a “smell”. A part of this “smell” consists of something I have created after my birth. The other aspect of my “smell” is something I have carried before my birth; from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a “smell”. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri’s ‘smell’ is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, the original nature of existence. But psychologically speaking, that is called total personality. Total personality; or maybe trans-personality, whatever you say. 
+But Katagiri’s “smell” is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is no evaluation, something not evaluated. That is called [Buddha](glossary#buddha) – or, the original nature of existence. But psychologically speaking, that is called total personality. Total personality; or maybe trans-personality, whatever you say. 
 
 (Transcriber’s Note: “Trans-personality” may be referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
-But trans-personality immediately smells: “I smell something.” “I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense.  In a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes a ‘stink’.
+But trans-personality immediately smells: “I smell something.” “I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense.  In a sense, I feel good – but feeling good is not always feeling good, not always helping you. Sometimes, it becomes a stink.
 
-So, whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from a ‘stink’, what is called total personality. 
+So, whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad: whatever you say, that is a wave. Because that feeling comes from a “stink”, what is called total personality. 
 
 Because I don't know, what is my [karma](glossary#karma)? Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
-That is really ‘stink’... But where does that stink of Katagiri come from? No way. You have to really go back to the beginningless past, to the endless future. 
+That is really “stink”... But where does that stink of Katagiri come from? No way. You have to really go back to the beginningless past, to the endless future. 
 
 So finally, that stink of Katagiri, which is called total personality, becomes trans-personality. That is the original nature of existence. That is the core of your daily living.
 
@@ -244,7 +244,7 @@ Manifest simplicity; simplify your life. Because then you can offer yourself to 
 
 ##### 1:00:05
 
-And then, completely simplified, unified: that is what is called *harmonious*. Or ‘regulating’; we use the term regulating. Regulating is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept them. And [then], how to *arrange* them; how to use the circumstances; the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is [Buddha Nature](glossary#buddha-nature).
+And then, completely simplified, unified: that is what is called *harmonious*. Or *regulating*; we use the term regulating. Regulating is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept them. And [then], how to *arrange* them; how to use the circumstances; the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is [Buddha Nature](glossary#buddha-nature).
 
 And then this total personality, which is called [Buddha](glossary#buddha), is completely perfect, all-pervading. [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.” [It is] manifesting the original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain system, nervous system – very naturally, you can practice [samadhi](glossary#samadhi), you can offer yourself into zazen and you can practice [egolessness](glossary#egolessness). And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 

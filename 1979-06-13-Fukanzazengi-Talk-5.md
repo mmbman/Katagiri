@@ -7,7 +7,7 @@ description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6)
 
-#### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the “vomit” of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
+#### Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the “vomit” of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most “pure” way?
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-5" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -24,7 +24,7 @@ Then, in the history, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossar
 
 Anyway, he struck his toe on a rock. Blood appeared; immediately he screamed, and he thought: “From where does the pain come?” Because the body doesn’t exist – from where does the pain come? 
 
-This is sort of like watching a film; you can imagine this. He walked down the street. Right before he struck his toes, peeling the nails off the toes, he is walking; and immediately he stumbles over, striking his toes on a rock. Then at that time, let’s imagine at this one moment: nothing happens. Nothing. And then, the movie is going on: right after that, he screams. The screaming and also striking his toes on the rock are simultaneous; but according to the time process, you can analyze it like this: before he struck his toe, and after he struck his toe. So we can see sort of a ‘film’.
+This is sort of like watching a film; you can imagine this. He walked down the street. Right before he struck his toes, peeling the nails off the toes, he is walking; and immediately he stumbles over, striking his toes on a rock. Then at that time, let’s imagine at this one moment: nothing happens. Nothing. And then, the movie is going on: right after that, he screams. The screaming and also striking his toes on the rock are simultaneous; but according to the time process, you can analyze it like this: before he struck his toe, and after he struck his toe. So we can see sort of a “film”.
 
 So, what is a scream? The scream is right after he struck his toe – a little gap there: previous moment, after moment, and following moment. According to our intellectual sense, that is simultaneous, we cannot see that; but actually, according to [Dogen](glossary#dogen) or the [Buddhistic](glossary#buddhistic) sense, or modern physics, maybe the shortest period of time is a moment, but this moment consists of 60 instants. So, still there is a chance to see the film of what you are doing, what you have done, what the result is. So, that’s why he screams, “Ouch!”
 
@@ -238,7 +238,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: It's sort of company for us. 
 
-**Katagiri**: Sure. *[Someone laughs, and Katagiri laughs.]* Even though you hate it, it’s immediately there. That’s why when you sit down, you can catch any kind of ‘sound’ of thoughts, ideas, and views – because the surroundings are very calm. So we catch the sound of what we have never thought before; even a little sound comes up. That is the contents of your life. Any kinds of ‘sounds’ come from the contents of our life.
+**Katagiri**: Sure. *[Someone laughs, and Katagiri laughs.]* Even though you hate it, it’s immediately there. That’s why when you sit down, you can catch any kind of “sound” of thoughts, ideas, and views – because the surroundings are very calm. So we catch the sound of what we have never thought before; even a little sound comes up. That is the contents of your life. Any kinds of “sounds” come from the contents of our life.
 
 Is that okay? Okay.
 
@@ -344,7 +344,7 @@ But actually, you do always [let go of thoughts] in your daily living, exactly a
 
 **Same person**: Are you saying that what I'm doing with my mind while I'm sitting, even though it seems like what I do when I'm not sitting, still it's different? 
 
-**Katagiri**: It’s different because you can see the mind a little clearer. That’s why you can see lots of things in [zazen](glossary#zazen). But in zazen, you are very confused because you have enough time to involve [yourself] in mind, because there is nothing to do and circumstances are very quiet, but in your daily living there are lots of things. So, the important point is whatever happens in zazen, in the ‘vomit’. Yes, vomit. “The vomit” means, anyway *[he chuckles]* – vomit of the mind. The mind has lots of things it’s attaching to. So, vomit. Mind feels good, mind doesn’t feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sitting here. *All* you have to do is, just sit.
+**Katagiri**: It’s different because you can see the mind a little clearer. That’s why you can see lots of things in [zazen](glossary#zazen). But in zazen, you are very confused because you have enough time to involve [yourself] in mind, because there is nothing to do and circumstances are very quiet, but in your daily living there are lots of things. So, the important point is whatever happens in zazen, in the “vomit”. Yes, vomit. “The vomit” means, anyway *[he chuckles]* – vomit of the mind. The mind has lots of things it’s attaching to. So, vomit. Mind feels good, mind doesn’t feel good; mind creates emotions, angers, et cetera. Anyway, vomit. Spit up. And then, if you spit up, just spit up. Then all you have to do is, just sitting here. *All* you have to do is, just sit.
 
 **Same person**: Yeah, I understand that. One thought that I had about it, [Roshi](glossary#roshi), is that sometimes it feels like building up bad habits in [zazen](glossary#zazen). That if I'm going to sit, I should sit with effort; I shouldn't get in the habit of sitting with no effort, that's sitting sloppy zazen. Like if it just builds up bad habits in zazen, maybe it would be better to not sit so much until I am ready to sit with effort again.
 
@@ -396,7 +396,7 @@ Without mind, you cannot do zazen.
 
 **Katagiri**: What do I do? 
 
-**Same person**: Yeah, sure. What do you do? About all this ‘zipping’. It doesn't feel like calm, centered anything; it feels like a mess.
+**Same person**: Yeah, sure. What do you do? About all this “zipping”. It doesn't feel like calm, centered anything; it feels like a mess.
 
 **Katagiri**: So I told you sometimes: pat your head. Pat your head, and say, “Quiet, little girl. Quiet. Do it quietly.” It’s pretty good, don’t you think, if even for a moment you can do this. But zazen is a very good chance: you can do it very quietly, you are really centered. But in your daily living it’s pretty hard, that’s why, pat your head, and say, “Let’s do it.” Even for a moment. 
 
@@ -404,7 +404,7 @@ You can do it. That's all we have to do, because we have to do zazen itself, ins
 
 **Same person**: Well, I understand over here. Over here, I can't do it.
 
-**Katagiri**: Oh, you can *do* it. But you don’t believe it, that’s the point. For instance, dancing: you are dancing, don’t you think? You are dancing, and right in the middle of dancing – what is the dance? Dancing itself is just dancing itself: no pain, no [suffering](glossary#suffering), just dance going on. If you create the problem, at that time you immediately look at the after dance and before dance. And then immediately after dance, there are lots of beings that exist: the audience, your feelings, your emotions, and circumstances, orchestras; many things. And then your mind starts to attach to it, picking. And then you don’t feel good. That means immediately your life goes ‘zip’. To the right, to the left; zip, zip, zip. That’s busy. So, all you have to do is, just look at the dance. 
+**Katagiri**: Oh, you can *do* it. But you don’t believe it, that’s the point. For instance, dancing: you are dancing, don’t you think? You are dancing, and right in the middle of dancing – what is the dance? Dancing itself is just dancing itself: no pain, no [suffering](glossary#suffering), just dance going on. If you create the problem, at that time you immediately look at the after dance and before dance. And then immediately after dance, there are lots of beings that exist: the audience, your feelings, your emotions, and circumstances, orchestras; many things. And then your mind starts to attach to it, picking. And then you don’t feel good. That means immediately your life goes “zip”. To the right, to the left; zip, zip, zip. That’s busy. So, all you have to do is, just look at the dance. 
 
 After the dance – well, just practice dance. 
 

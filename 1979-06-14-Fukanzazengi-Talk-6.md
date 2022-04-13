@@ -30,7 +30,7 @@ This is a very interesting point, the categories, because the fourth one is an e
 
 ##### 5:12
 
-In [Abhidharmakosha](glossary#abhidharmakosha), [samskara](glossary#samskara) is [included in] many things. I am very interested in this element, which is not associated with the mind and not associated with the truth. A point is, that element is sort of a ‘force’. According to the book ["The Central Conception Of Buddhism"](books#central-conception), he said about this: 
+In [Abhidharmakosha](glossary#abhidharmakosha), [samskara](glossary#samskara) is [included in] many things. I am very interested in this element, which is not associated with the mind and not associated with the truth. A point is, that element is sort of a “force”. According to the book ["The Central Conception Of Buddhism"](books#central-conception), he said about this: 
 
 > A force, it must be recalled, shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. But, simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is [samskara](glossary#samskara) in the Buddhist system.
 >
@@ -44,9 +44,9 @@ Anyway, force is not a real force, but a condition, a conditioned element which 
 
 For instance, yesterday I told you that story about [Gensha Shibi](glossary#gensha-shibi). On the way on his travels, he stumbled over [and] he struck his toes on a rock. Blood appeared, and he screamed, “Ouch!” And he had the question: “Body and mind does not exist; where does this pain come from?” So, he attained [enlightenment](glossary#enlightenment) from this point, and he went back to his temple and practiced under [Seppō](glossary#seppō-gison) Zen Master.
 
-Let’s recall this story. The rock, his toes, his body and mind, particularly his legs, and also his nails which came out by the hitting. They are simple objects. Rock. His toes. Between his toes and the rock, there is no function of human consciousness. Is there something there? If there is something, it is called a force, which means a ‘conditioned element’ which happens between two objects, on rock and toe. Something happens: that is a condition. Under the condition, the two objects are combined, unified, as just one. At that time, something happens; that is called event, fact. That’s why this author says, “simply as a condition, or a fact, upon which another fact arises”. There is a fact, which is called conditioned element between the two, and then, the two things are unified perfectly. And then, something happens; this is another fact. So, this is called event, occurrence. 
+Let’s recall this story. The rock, his toes, his body and mind, particularly his legs, and also his nails which came out by the hitting. They are simple objects. Rock. His toes. Between his toes and the rock, there is no function of human consciousness. Is there something there? If there is something, it is called a force, which means a “conditioned element” which happens between two objects, on rock and toe. Something happens: that is a condition. Under the condition, the two objects are combined, unified, as just one. At that time, something happens; that is called event, fact. That’s why this author says, “simply as a condition, or a fact, upon which another fact arises”. There is a fact, which is called conditioned element between the two, and then, the two things are unified perfectly. And then, something happens; this is another fact. So, this is called event, occurrence. 
 
-So from this point, conditioned elements are sort of a ‘force’ – well sort of, actually not a force (in the physical sense), but some force to enable two beings to be combined or unified perfectly. That means, in other words, when [Gensha Shibi](glossary#gensha-shibi)’s toe is used perfectly, fitting into its object, which is called rock, at that time, it is called “something happens”. And on the other hand, when the rock completely is used perfectly, fitting into toe, at that time, that is called an event. “Ouch.” This is [samskara](glossary#samskara). 
+So from this point, conditioned elements are sort of a “force” – well sort of, actually not a force (in the physical sense), but some force to enable two beings to be combined or unified perfectly. That means, in other words, when [Gensha Shibi](glossary#gensha-shibi)’s toe is used perfectly, fitting into its object, which is called rock, at that time, it is called “something happens”. And on the other hand, when the rock completely is used perfectly, fitting into toe, at that time, that is called an event. “Ouch.” This is [samskara](glossary#samskara). 
 
 ##### 13:02
 
@@ -112,13 +112,13 @@ At that time, something happens. That is zazen as an event. So mind immediately 
 
 And then when we see just the [zazen](glossary#zazen), it is zazen. It is *just* zazen. When in your body, body is hidden behind zazen. But that body doesn’t bother zazen. Just zazen. Just like a doll, and also a dish.
 
-But on the other hand, if you see that zazen from the back, which is called ‘clay’, or your body, breath and mind: at that time, body appears. Zazen is completely hidden behind it. It doesn’t bother you. Then at that time, mind and all [delusions](glossary#delusion) completely drop off. This is zazen; [shikantaza](glossary#shikantaza). 
+But on the other hand, if you see that zazen from the back, which is called “clay”, or your body, breath and mind: at that time, body appears. Zazen is completely hidden behind it. It doesn’t bother you. Then at that time, mind and all [delusions](glossary#delusion) completely drop off. This is zazen; [shikantaza](glossary#shikantaza). 
 
 [Shikantaza](glossary#shikantaza), based on dropping off body and mind, is not a new idea mentioned by [Dogen](glossary#dogen). It’s really [Buddhism](glossary#buddhism). Well you can explain it according to Buddhist psychology, but we don’t understand the real meaning of [samskara](glossary#samskara), and also about the elements which are not associated with mind. That’s why we understand it just as a concept, apart from human life. That’s why we don’t understand.
 
 ##### 39:44 
 
-And also, one of the elements which are not associated with mind is ‘obtaining’ or ‘getting’. Between the two [objects] there is a conditioned element which is called obtaining, getting. In [Sanskrit](glossary#sanskrit) we say ‘[prāpti](glossary#prāpti)’ *[he spells it]*: meaning to get, to obtain.
+And also, one of the elements which are not associated with mind is *obtaining* or *getting*. Between the two [objects] there is a conditioned element which is called obtaining, getting. In [Sanskrit](glossary#sanskrit) we say [*prāpti*](glossary#prāpti): meaning to get, to obtain.
 
 There are sort of three kinds of obtaining and getting. Obtaining is to obtain and complete something. That is a characteristic of conditioned element: to get and complete. There are three kinds of getting and completing. 
 
@@ -144,7 +144,7 @@ The best way, that is...
 
 ... in the context of conditioned elements. How? Using your body, perfectly fitting into your object. At that time, your body becomes one with [zazen](glossary#zazen), zazen becomes one with you, very naturally. At that time, there is something that happens, that is called zazen. 
 
-The problem is, mind attaches to it. That’s why [Dogen Zenji](glossary#dogen) says, let’s practice regulation of the mind, no design of having reward. That is the problem. He have to understand, what is mind? Very tricky mind, very ‘monkey’ mind – always.
+The problem is, mind attaches to it. That’s why [Dogen Zenji](glossary#dogen) says, let’s practice regulation of the mind, no design of having reward. That is the problem. He have to understand, what is mind? Very tricky mind, very “monkey” mind – always.
 
 Well, we have to make every possible effort to do that, because we have a mind. Mind is already here; that’s why we have to practice. 
 
@@ -154,7 +154,7 @@ So [Dogen Zenji](glossary#dogen) says, that’s why “... it cannot be fully kn
 
 Or, Dogen Zenji says, “It must be deportment beyond one’s hearing and seeing.” If you see zazen *after* your zazen, that is an image of zazen, it is not real zazen. 
 
-‘Deportment’ means the behavior which is called zazen. In Japanese we call it [igi](glossary#igi) (pronounced “ee-gee”, more or less). The ‘i’ of igi means “majestic and awe-inspiring”. Majestic, very majestic. ‘Gi’ of igi means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says ‘deportment’, but originally we use ‘igi’. Usually we use ‘behavior’, but that behavior is ‘igi’ in [Buddhism](glossary#buddhism), because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the rhythm of the truth; that is your behavior.
+*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gee”, more or less). The *i* of *igi* means “majestic and awe-inspiring”. Majestic, very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says “deportment”, but originally we use *igi*. Usually we use *behavior*, but that behavior is *igi* in [Buddhism](glossary#buddhism), because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the rhythm of the truth, that is your behavior.
 
 ##### 50:30
 
@@ -340,7 +340,7 @@ So picky mind, monkey mind, is small mind. But original nature of the mind is bi
 
 **Katagiri**: That’s why I said the universe. Which is right now. 
 
-Right now, right here, it doesn’t mean something limited by something which is called water. Right now, right here is what? Right now, right here is the universe. If you say universe, you are already tricked by the word ‘universe’. The universe is what? Total function of right now, right here. How can you see the real meaning of right now, right here, of the universe? Be alive, right now, right here. 
+Right now, right here, it doesn’t mean something limited by something which is called water. Right now, right here is what? Right now, right here is the universe. If you say *universe*, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How can you see the real meaning of right now, right here, of the universe? Be alive, right now, right here. 
 
 So whatever you say – “that is water,” “that is a moon” – that’s okay, according to this. But when you come back to the [dualistic](glossary#dualistic) world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, the universe blooms. That is one. It is not a combination of the water and the moon. 
 
