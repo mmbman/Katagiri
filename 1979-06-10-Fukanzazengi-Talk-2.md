@@ -308,17 +308,17 @@ For instance, I will show you [calligraphy](glossary#calligraphy) written by a f
 
 (Transcriber’s Note: It sounds like no one understands.)
 
-**Katagiri**: ... A first grade child, who is master of [calligraphy](glossary#calligraphy). But a first grade child is a first grade child; it's not a perfect master of calligraphy. So, in the realm of first grade children, he is a master, an expert. But he is still, well, a childish calligrapher. 
+**Katagiri**: ... A first grade child, who is master of calligraphy. But a first grade child is a first grade child; it's not a perfect master of calligraphy. So, in the realm of first grade children, he is a master, an expert. But he is still, well, a childish calligrapher. 
 
-This is *interesting*, so I will give you this example. You should practice with this, day after day, you should write [[calligraphy](glossary#calligraphy)]. Finally, this professional person says to you, you have reached the highest level of calligraphy. What is that? Do you understand? 
+This is *interesting*, so I will give you this example. You should practice with this, day after day, you should write [calligraphy]. Finally, this professional person says to you, you have reached the highest level of calligraphy. What is that? Do you understand? 
 
 **Same person**: No, I still don't get your point.
 
-**Katagiri**: So is that the highest level of [calligraphy](glossary#calligraphy) you can reach? That is what? It's perfect?
+**Katagiri**: So is that the highest level of calligraphy you can reach? That is what? It's perfect?
 
 **Same person**: I don't see it. 
 
-**Another person**: Are you saying the highest [calligraphy](glossary#calligraphy) level is in the first grade?
+**Another person**: Are you saying the highest calligraphy level is in the first grade?
 
 **Katagiri**: Well...
 
@@ -326,17 +326,17 @@ This is *interesting*, so I will give you this example. You should practice with
 
 **Another person**: He means if a first grade child tells you that you're a master, that doesn't necessarily mean you're a master.
 
-**Katagiri**: No... If I practice, okay? If I practice [calligraphy](glossary#calligraphy) by looking at his calligraphy, written by a first grade child. But he is the best person in the realm of first grade children. Is that clear?
+**Katagiri**: No... If I practice, okay? If I practice calligraphy by looking at his calligraphy, written by a first grade child. But he is the best person in the realm of first grade children. Is that clear?
 
 **Another person**: Highest in the first grade class?
 
 **Katagiri**: Sure. Mmm hmm. *[Laughter.]* 
 
-So it is different from the ... second grade and third grade [calligraphy](glossary#calligraphy). And then, I believe that is interesting calligraphy; I like it. So, I want to practice it, again and again. And then finally, the kid says, "Katagiri, your calligraphy is good, so I will give you a certificate. You are a Master of Calligraphy." Then look at this: this is nothing but the calligraphy written by a first grade child. The same, don't you think? Do you understand?
+So it is different from the ... second grade and third grade calligraphy. And then, I believe that is interesting calligraphy; I like it. So, I want to practice it, again and again. And then finally, the kid says, "Katagiri, your calligraphy is good, so I will give you a certificate. You are a Master of Calligraphy." Then look at this: this is nothing but the calligraphy written by a first grade child. The same, don't you think? Do you understand?
 
 **Another person**: You're comparing that [to a] teacher ... of meditation.
 
-**Katagiri**: Yes, yes, that's right. Sure, it's a wonderful, wonderful [calligraphy](glossary#calligraphy) – but you don't understand. But it's universal – everyone understands this is good. [Or] even though you don't understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don't like it, anyway, look at this, and write it, again and again.
+**Katagiri**: Yes, yes, that's right. Sure, it's a wonderful, wonderful calligraphy – but you don't understand. But it's universal – everyone understands this is good. [Or] even though you don't understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don't like it, anyway, look at this, and write it, again and again.
 
 Maybe it takes time. Maybe tomorrow you could be a master, but maybe it takes time, too. But it doesn't matter. Whatever happens, always we have to look at that kind of example, and we have to write, again and again. Don't you think so?
 
@@ -346,13 +346,13 @@ That means, if you attain [enlightenment](glossary#enlightenment) in the [dualis
 
 But on the other hand, lots of the zazen, real zazen in the [dualistic](glossary#dualistic) world – psychological, philosophical – that's very fine. [Rinzai](glossary#rinzai), and Tibetan, and many things. I don't criticize them; it is okay, because it is still enlightenment. But that enlightenment is nothing but [the] dualistic world. 
 
-So even though you become a master of [calligraphy](glossary#calligraphy) under the guidance of the first grade child, well it is a master calligrapher; but it is nothing but master calligrapher under the guidance of a first grade child, that's all. 
+So even though you become a master of calligraphy under the guidance of the first grade child, well it is a master calligrapher; but it is nothing but master calligrapher under the guidance of a first grade child, that's all. 
 
 Is that clear? Is that okay?
 
 ##### 1:03:07
 
-**Question**: [Roshi](glossary#roshi)? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do [zazen](glossary#zazen) with a teacher ... and his teaching – [Dogen](glossary#dogen), [Buddha](glossary#buddha) – again and again you're doing the [calligraphy](glossary#calligraphy), until it's like the teacher's calligraphy?
+**Question**: [Roshi](glossary#roshi)? To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do [zazen](glossary#zazen) with a teacher ... and his teaching – [Dogen](glossary#dogen), [Buddha](glossary#buddha) – again and again you're doing the calligraphy, until it's like the teacher's calligraphy?
 
 **Katagiri**: Mmm hmm. I think so; that is the best way. 
 
@@ -492,15 +492,15 @@ Is that okay?
 
 *[Laughter.]*
 
-**Katagiri**: If you have a great teacher, your [calligraphy](glossary#calligraphy) becomes great. If you have a little, old teacher – *[he laughs]* – your calligraphy is little.
+**Katagiri**: If you have a great teacher, your calligraphy becomes great. If you have a little, old teacher – *[he laughs]* – your calligraphy is little.
 
-**Same person**: I said that, if your teacher of [calligraphy](glossary#calligraphy) is very great, probably you are less likely to feel that you can do calligraphy.
+**Same person**: I said that, if your teacher of calligraphy is very great, probably you are less likely to feel that you can do calligraphy.
 
 **Katagiri**: Hmm?
 
-**Same person**: If you have a very great [calligraphy](glossary#calligraphy) teacher, it seems to me that it's less likely that you feel that you can do calligraphy, than if you have a first grade teacher. 
+**Same person**: If you have a very great calligraphy teacher, it seems to me that it's less likely that you feel that you can do calligraphy, than if you have a first grade teacher. 
 
-**Different person**: If you have a very good teacher, always you feel like there's something lacking in yourself. You are living up to that great [calligraphy](glossary#calligraphy). 
+**Different person**: If you have a very good teacher, always you feel like there's something lacking in yourself. You are living up to that great calligraphy. 
 
 **Katagiri**: Ah, ah. I see. Right, right. [Dogen Zenji](glossary#dogen) says that in [Genjokoan](dogen#genjokoan), he always says [that]. So that's why you don't understand this. So, lack of “achievement”.
 
@@ -508,21 +508,21 @@ Is that okay?
 
 **Katagiri**: Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* 
 
-But how do you keep doing? That is excellent practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens ... then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally? That's pretty hard, in the practice of [calligraphy](glossary#calligraphy). That is very important.  
+But how do you keep doing? That is excellent practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens ... then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally? That's pretty hard, in the practice of calligraphy. That is very important.  
 
 ##### 1:23:27
 
-For instance in my past life at the temple, and the circumstances between my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of [calligraphy](glossary#calligraphy).” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D”; always. Always he said that to me, but I had *nothing*, no idea of [Buddhism](glossary#buddhism), as a monk or as a priest. So if I thought of the future, I was very scared; I wondered, "Can I do that? No, I can't do it."
+For instance in my past life at the temple, and the circumstances between my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of calligraphy.” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D”; always. Always he said that to me, but I had *nothing*, no idea of [Buddhism](glossary#buddhism), as a monk or as a priest. So if I thought of the future, I was very scared; I wondered, "Can I do that? No, I can't do it."
 
-But, no way, I cannot escape. So, let's do it. So I started to practice [calligraphy](glossary#calligraphy) by myself. My teachers took a nap from twelve to one, because in the summer it was very hot and humid. At noon, everybody took a nap, in the country. Instead of taking a nap, I practiced, by myself. So [I thought], “Continue; it's good for me.”
+But, no way, I cannot escape. So, let's do it. So I started to practice calligraphy by myself. My teachers took a nap from twelve to one, because in the summer it was very hot and humid. At noon, everybody took a nap, in the country. Instead of taking a nap, I practiced, by myself. So [I thought], “Continue; it's good for me.”
 
-So, I did it. But I don't know if my [calligraphy](glossary#calligraphy) is good or bad, right or wrong; I don't know. People say, “Oh, your calligraphy is pretty much the same as your master.” I didn't notice that. Every day, I looked at his calligraphy and wrote, but I didn't notice anything. But people told me, “Oh, your calligraphy is just the same as your master. It's wonderful.”
+So, I did it. But I don't know if my calligraphy is good or bad, right or wrong; I don't know. People say, “Oh, your calligraphy is pretty much the same as your master.” I didn't notice that. Every day, I looked at his calligraphy and wrote, but I didn't notice anything. But people told me, “Oh, your calligraphy is just the same as your master. It's wonderful.”
 
 ##### 1:25:50
 
 ... Here is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends was very enthusiastic; he was always present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is a particular gassho. His face is very – not rigid, a very wonderful face. And his [bow](glossary#bowing) is a particular bow. He is completely the same as the teacher: gassho, bow, exactly the same. But he didn't try to imitate [the teacher’s] gassho and bow; all he had to do was just to be present with it. So finally, his gassho and also calligraphy are the exact same. Is that helpful?
 
-So if you are always with a first grade child who is a master of [calligraphy](glossary#calligraphy), you become a first grade child. It's not bad; it's good. 
+So if you are always with a first grade child who is a master of calligraphy, you become a first grade child. It's not bad; it's good. 
 
 ##### 1:27:20
 
