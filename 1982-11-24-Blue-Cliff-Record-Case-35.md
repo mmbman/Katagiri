@@ -146,7 +146,7 @@ So how about you, Manjusri? How about your monastery?
 
 > Wu Cho said, “How numerous are the congregations?”  
 
-How big are you monasteries? 
+How big are your monasteries? 
 
 > Manjusri said, “In front, three by three; in back, three by three.”  
 
