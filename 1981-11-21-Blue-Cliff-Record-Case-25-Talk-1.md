@@ -9,7 +9,7 @@ description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is in rough draft stage.**
 
-#### What happens when we come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
+#### What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -32,7 +32,7 @@ The staff implies, in this case, what is real life, what is the real thing of li
 
 And in his whole life, he answered any kind of questions like this. Just like Gutei Zen Master: Gutei Zen Master always just showed one finger, without saying anything, whenever people asked him a question. Or another Zen Master named Roso (Luzu Baoyun) always sat in zazen whenever someone visited him to discuss some aspect of Zen Buddhism; he didn’t say anything, he immediately sat in zazen facing the wall. He carried that way in his whole life, without change. That’s fascinating. It’s pretty hard to do that, because human beings are pretty noisy, you know? If you always show one thing whatever anyone asks, [people put a certain label on you]: “He’s crazy.” Don’t you think so?
 
-You can have a good zazen; [but] if you are constantly doing zazen without any reward, you don’t believe this. So very naturally, it is very hard for a teacher to stand up before people who really are spiritually greedy. So the teacher gives them some candy, et cetera, in order to satisfy them. That is a very common type of so-called religion. 
+You can have a good zazen; [but] if you are constantly doing zazen without any reward, you don’t believe this. So naturally, it is very hard for a teacher to stand up before people who really are spiritually greedy. So the teacher gives them some candy, et cetera, in order to satisfy them. That is a very common type of so-called religion. 
 
 Well from now on, anyway, I don’t think that is real religion. I don’t want to call it religion, either. I don’t know what to call it, but forget the word “religion.” If I use “religion,” you really sort of consciously or unconsciously resist, don’t you think so? *[He chuckles.]* You resist immediately. So forget it, forget that term. For the future, the important point is that real religion is to realize what is real life. What is it? Regardless of whatever kind of religion you believe or not, you have to understand this, you have to research it forever. That is the point from now on. 
 
