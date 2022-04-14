@@ -44,23 +44,23 @@ In the *Lotus Sutra*, the Sun-Moon-Light Tathagata was born in this world as a B
 
 This is very important for us. What is real life? Real life never changes, from generation to generation. Life was born in this world, named Life Tathagata. And in the next generation, life was born, and it was named Life Tathagata. The same thing, generation after generation. Exactly the same, wonderful things.
 
-The famous French thinker and writer Rousseau says, “One is born with nothing, one dies with nothing.” It means we are born with nakedness, we die with nakedness. This is very nice, very nice. This is the same thing: whatever generation comes, it is exactly the same. 
+The famous French thinker and writer Rousseau says, “One is born with nothing, one dies with nothing.” It means we are born with nakedness, we die with nakedness. This is very nice, very nice. This [means] the same thing: whatever generation comes, it is exactly the same. 
 
 I don’t know how much Rousseau searched this real picture of human existence through and through. I don’t know; it’s still questionable. But he says wonderful things. So more or less, even though they don’t study Buddhism, some human beings feel in this way. They don’t want to research it, because there is nothing to excite them, but more or less they feel this way.
 
 We are born with nakedness, we die with nakedness: this is not something pensive or sad, this is the real picture of human existence. We have to *be* – not have to be, we *are*. Without exception, everybody. Or trees, birds, whatever it is. 
 
-Before you were born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is very close: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
+Before you are born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is very *close*: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
 
 ##### 15:45
 
-Also in the *Lotus Sutra*, Manjushri said to Maitreya Buddha, “You had practiced meeting myriad Buddhas in your past life, and your life is exactly the result of practicing in that way in your previous life. And then when you were born in this world, you completely forgot what you did.” I told you before, this is a wonderful thing – but it is not *always* wonderful. This means, briefly speaking, it is too close to understand or too close to think. This is completely beyond *you should think of it* or *you shouldn’t think of it*, because it is always with you. 
+Also in the *Lotus Sutra*, Manjushri said to Maitreya Buddha, “You had practiced meeting myriad Buddhas in your past life, and your life is exactly the result of practicing in that way in your previous life. And then when you were born in this world, you completely forgot what you did.” I told you before, this is a wonderful thing, but it is not *always* wonderful. This means, briefly speaking, it is too close to understand or too close to think. This is completely beyond *you should think of it* or *you shouldn’t think of it*, because it is always with you. 
 
 For instance, your stomach is completely perfect; it’s not necessary to think about it, it’s not necessary to say “you should” or “you shouldn’t.” If the stomach is perfectly becoming one with you, it is completely beyond “you should think” or “you shouldn’t think.” That is what is called real reality: completely beyond your thinking or not thinking. According to Buddhism, maybe we call that “absolute” reality. 
 
 “When you are born in this world, you completely forget what you did” means you already have the real picture of human existence which is very close to you. That is birth is coming with nakedness, death comes with nakedness. 
 
-For instance, “primitive” people. Maybe a thousand years ago, primitive people lived in nature, seeing and meeting the rhythm of nature: the sun coming up in the east, setting in the west. It is not something strange, or something they should think or they shouldn’t think. Primitive people completely accept and then live with it, without thinking – completely beyond *they should think* or *they shouldn’t think*, because it is very close to their life. 
+For instance, “primitive” people. Maybe a thousand years ago, primitive people lived in nature, seeing and meeting the rhythm of nature: the sun coming up in the east, setting in the west. It was not something strange, or something they should think or they shouldn’t think. Primitive people completely accept and then live with it, without thinking – completely beyond *they should think* or *they shouldn’t think*, because it is very close to their life. 
 
 So for many, many years, for century after century, it was not necessary for people to think or not to think: they were just face to face with the rhythm of nature, the rhythm of life. Because it is one. That rhythm of nature is exactly the rhythm of primitive peoples’ lives, so there is no gap. Century after century, we did it in that way. And then after many centuries, human beings “grew” very much, physically and psychologically, and then they started to think: “What is that? What do you mean, ‘The sun rises in the east’? Or ‘the sun sets in the west’? What do you mean?” And they started to think, “What is the purpose? What is the moon? What is the sun? How does the earth operate in relationship with the sun?” And then very naturally, they created lots of myths. And then with the development of human knowledge, human thinking, then they researched what the earth is. That is physics, [et cetera]. 
 
@@ -70,9 +70,7 @@ That’s why in the *Lotus Sutra* Manjushri says to Maitreya Buddha, “When you
 
 If you read the Bible, the Bible also says Adam and Eve didn’t think anything, just lived, with nakedness. And also finally they started to think, “What is this?” And then they finally ... well, you know that pretty well, huh? This is really true. It’s not a “myth,” it’s really human life. 
 
-And then we completely forget the real picture of human life. The real picture of human life is exactly the same as the rhythm of nature, beyond *you think* or *you shouldn’t think*. It’s just life. This is the real or absolute reality your life is present in. 
-
-And then you forget, and you start to live in your own way. And for many, many years, so far, we don’t know yet the real picture of human existence. And then finally we start to think, “What is this?” And then we think about our life. And then according to religion, physics, psychology, or the I-Ching, and many things, we can think of human life. 
+And then we completely forget the real picture of human life. The real picture of human life is exactly the same as the rhythm of nature, beyond *you think* or *you shouldn’t think*. It’s just life. This is the real or absolute reality your life is present in. And then you forget, and you start to live in your own way. And for many, many years, so far, we don’t know yet the real picture of human existence. And then finally we start to think, “What is this?” And then we think about our life. And then according to religion, physics, psychology, or the I-Ching, and many things, we can think of human life. 
 
 But when you think this, the real picture of life, and create many things – physics, psychology, religions – endlessly you can create many kinds of myths. So far we have created many myths, and from now on we could create more myths, the more human civilization is developed. 
 
@@ -96,17 +94,19 @@ But right before this, his body was paralyzed. Let’s imagine: If you were him,
 
 What is life? We always depend on lots of myths, and positions, and philosophy and psychology we have created, after we have knowledge to think enough. And then we create lots of things. And then finally we depend on this position, because we want to be happy. But already we forget what we did in the past, just like the *Lotus Sutra* says.
 
-So all we have to do is, try to create wonderful myths, and philosophy, psychology, building the big mansions. And people come together, looking at this, and then completely forget what they did in the past. That means we completely forget what is the real picture of life. 
+So all we do is, try to create wonderful myths, and philosophy, psychology, building the big mansions. And people come together, looking at this, and then completely forget what they did in the past. That means we completely forget what is the real picture of life. 
 
 ##### 36:00
 
-I read another example. During the Second World War, a person was in the highest positions of the army in Japan. During the war, the army officers lived pretty well; they had food and clothes. But most people were very poor, with no food, no clothes. And then the situation was completely inverted: he lost his official army position, and also the atmosphere in Japan was completely messed up. If you were the army officers, people didn’t like you. So it was very difficult for him to find a job and to support his life. He tried to find a job, and finally he found one, but that job was self-employment, so-called I’Ching. If you go to Japan, standing or sitting in front of every railroad station you can see lots of fortune tellers. In the evenings in Tokyo, more than ten fortune tellers sat in front of the stations, asking people to see their hands, to predict their life. He was pretty smart and sharp, so he studied this, and he got the happy life he had expected. And he lived wonderfully, for many years. And finally – he was also paralyzed. One of the Zen Teachers visited him in his home, because he knew him, and the man said: “I didn’t know there was such a big trap.” Do you understand?
+I read another example. During the Second World War, a person was in the highest positions of the army in Japan. During the war, the army officers lived pretty well; they had food and clothes. But most people were very poor, with no food, no clothes. And then the situation was completely inverted: he lost his official army position, and also the atmosphere in Japan was completely messed up. If you were the army officers, people didn’t like you. So it was very difficult for him to find a job and to support his life. He tried to find a job, and finally he found one, but that job was self-employment, so-called I’Ching. 
+
+If you go to Japan, standing or sitting in front of every railroad station you can see lots of fortune tellers. In the evenings in Tokyo, more than ten fortune tellers sat in front of the stations, asking people to see their hands, to predict their life. This man was pretty smart and sharp, so he studied this, and he got the happy life he had expected. And he lived wonderfully, for many years. And finally – he was also paralyzed. One of the Zen Teachers visited him in his home, because he knew him, and the man said: “I didn’t know there was such a big trap.” Do you understand?
 
 Let’s look at when you were born. When you were born, completely you forgot what you did; that means you forgot what is the real picture of human life. It is not necessary to think, or it is not necessary not to think, because that is the real picture of your life. Your life is completely becoming one with the rhythm of nature, so it’s not necessary. So that’s why *Lotus Sutra* says you forgot. 
 
 [...] Century after century, you didn’t think. And then you were born, and after your birth still you don’t think, because it’s already there. And recently you started to think. But already human beings have created lots of myths, et cetera. We start to think, “What is the real picture of human existence?” And then we explain the real picture of existence. 
 
-That is myth, that is philosophy, psychology. If you depend on this kind of stuff, you build up huge mansions. But remember, you still forgot what you did, which means what is the real picture of your life. And then you completely depend on this explanation of human existence. And then you believe, “I got a happy life.” But this happy life is what? There is still a big trap. He has to be paralyzed. 
+That is myth, that is philosophy, psychology. If you depend on this kind of stuff, you build up huge mansions. But remember, you still forgot what you did, which means what is the real picture of your life. And then you completely depend on this explanation of human existence. And then you believe, “I got a happy life.” But this happy life is what? There is still a big trap. The man has to be paralyzed. 
 
 It’s not just to be paralyzed. Let’s look at modern human life: cancer is exactly the same. More or less everyone is threatened by cancer, because there is no guarantee such as “I am immune from cancer.” And then when you get cancer, what do you do? It’s a real big trap, because we don’t believe this.
 
@@ -114,7 +114,7 @@ It’s not just to be paralyzed. Let’s look at modern human life: cancer is ex
 
 Well at that time, this is human life. You really want to scream. Because to be paralyzed is not something you can think; you understand *paralyzed* in your body. It’s not a matter of understanding or discussion, it is a real thing you have to experience directly. When you become paralyzed, right in bed every day, what do you do? Can you accept your life, saying, “This is my karma”? Words are beautiful. But behind the karma, still we are screaming, burning. Mind, emotions – lots of burning here.
 
-So you look at what you did, believing in your [great] position: happiness, or whatever it is. [What is that?]
+So you look at what you did, believing in your [great] position: happiness, or whatever it is. What is that?
 
 That’s why this Zen Master asks, “When the ancestors and the ancients got here, why didn’t they consent to stay?” It means, what are you seeking for? What is the purpose of your living? To live is what? You say, “To live is to live for all sentient beings.” Beautiful; but still idealistic. Real “to live” is what? It’s really something [tactile], completely beyond “you think” or “you shouldn’t think.” You have to be face to face with reality. At that time, it’s pretty hard. To be paralyzed is not something you have expected. Cancer is not something you have expected. You don’t expect it; it comes up. It’s reality. 
 
@@ -132,9 +132,11 @@ So that’s why this Zen Teacher always questions like this. But unfortunately t
 
 > so he himself answered for them, “Because they did not gain strength on the road.”
 
-“On the road” means practice. They didn’t get strength in the practice. [Practice] means when you were born, and since your birth, and then what you have done. After having enough capability to think for a human being, what is the real picture of human life? What do you mean by living? And then when we try to explain about this, from century after century, we create myths, philosophy, psychology. And then we depend on this. “Are you happy?” Is that the final goal we have to depend on? Well... Even though you are not paralyzed, right before you die, still you are not satisfied. 
+“On the road” means practice. They didn’t get strength in the practice. [Practice] means when you were born, and since your birth, and then what you have done. After having enough capability to think for a human being, what is the real picture of human life? What do you mean by living? And then when we try to explain about this, from century after century, we create myths, philosophy, psychology. And then we depend on this. “Are you happy?” Is that the final goal we have to depend on? Well... 
 
-So “because they didn’t gain strength on the road” [means it is] because finally you have to die, you have to march toward the grave with nakedness, [without] your position, money, parents, siblings, whoever they are. It’s pretty easy to say so in words. But when you are face to face with the naked situation of life and death, you really scream. Because there is nothing to depend on. 
+Even though you are not paralyzed, right before you die, still you are not satisfied. 
+
+So “because they didn’t gain strength on the road” [means it is] because finally you have to die. You have to march toward the grave with nakedness, [without] your position, money, parents, siblings, whoever they are. It’s pretty easy to say so in words. But when you are face to face with the naked situation of life and death, you really scream. Because there is nothing to depend on. 
 
 But we don’t believe this. That’s why century after century we have to say so, we have to give a question to you, like this Zen teacher, to answer the way to live. 
 
@@ -154,9 +156,9 @@ That real picture of life, where is it? Across your shoulder. Carry it, because 
 
 “I go straight into the myriad peaks.” That is *exactly* the real picture. I go straight toward this real picture of life and death. At that time, there are myriad peaks; that means lots of things come up, in your knowledge, in your mind, in your consciousness. Lots of mountain peaks exist. And also “myriad peaks” means vastness, great vastness, which causes human beings to be free. “I go straight into the myriad peaks,” and then you can understand that there are myriad aspects of human life, including trees, birds, et cetera. 
 
-So all we have to do is experience in the dualistic world, after your birth, having a job, taking care of your daily routine, and taking responsibility for your job, and whatever it is. Go to school, and get a position. Work with people. This is important for us. But this is nothing but the explanation of the real picture of life and death. We cannot stay with a position we have got. That is something that you have to take responsibility for for a certain period of time; you have to take responsibility for what you do. But you cannot stay with it, believing this is the final goal we have to depend on completely. 
+So all we have to do is experience the dualistic world, after your birth: having a job, taking care of your daily routine, and taking responsibility for your job, and whatever it is. Go to school, and get a position. Work with people. This is important for us. But this is nothing but the explanation of the real picture of life and death. We cannot stay with a position we have got. That is something that you have to take responsibility for for a certain period of time; you have to take responsibility for what you do. But you cannot stay with it, believing this is the final goal we have to depend on completely. 
 
-So you should get the position, or happiness. Whatever it is you are aiming at, you should get. But you must be free from it. And you have to recall what you did: that is, you have to recall the real problem of life and death. You have to recall, otherwise your life becomes very realistic: no dreams, no hope, no communication with the trees and birds. So then you just exist separately; you don’t want to live with people. You live with people, but you never think how to live in peace with people, and trees, birds. Even though you are interrupting and hurting others, tree, birds, nature, you don’t realize, you don’t awaken to it. That is *ignorance*; we call that ignorance. You still believe your selfishness: “This is *my* way. This is the final goal I should depend on.” 
+So you should get the position, or happiness. Whatever it is you are aiming at, you should get. But you must be free from it. And you have to recall what you did: that is, you have to recall the real problem of life and death. You have to recall, otherwise your life becomes very “realistic”: no dreams, no hope, no communication with the trees and birds. So then you just exist separately; you don’t want to live with people. You live with people, but you never think how to live in peace with people, and trees, birds. Even though you are interrupting and hurting others, tree, birds, nature, you don’t realize, you don’t awaken to it. That is *ignorance*; we call that ignorance. You still believe your selfishness: “This is *my* way. This is the final goal I should depend on.” 
 
 That’s why this is a wonderful teaching, just like Gutei Zen Master showing one finger. It is not imitating somebody’s teaching. It is not a matter of the philosophical world, not a matter of the metaphysical world, not a matter of the psychological world. [It is] in relation with human life, showing one thing that is something real. You have to return.
 
@@ -168,7 +170,7 @@ That’s why we have to practice zazen. In zazen you can directly experience thi
 
 But what do you mean, “to take care of your breath”? In the end, how is it? Can you see the good concentration? No way. That is a label which is called “good student.” In the world of “good student,” there is a trap, so-called *paralyzed*. We are paralyzed. When you are paralyzed, there is no way to take care of your life. You become crazy, scream, but no one helps. So still you have to take care of *paralyzed* in your life, by yourself. That’s pretty hard.
 
-That’s why zazen is not a means. Zazen is returning home, and sitting in peace and harmony. That is zazen itself. If by zazen you try to attain enlightenment, the enlightenment you try to attain is exactly the same as social status, and positions, or, well, “spiritual” social status. *[Laughter.]* So for me, it’s not ridiculous, but it’s *funny*. Spiritual social status is wonderful, but people believe that it is the best thing we should depend on, and it is the purpose of zazen. I don’t think so. 
+That’s why zazen is not a means. Zazen is returning home, and sitting in peace and harmony. That is zazen itself. If by zazen you try to attain enlightenment, the enlightenment you try to attain is exactly the same as social status, or positions, or, well, “spiritual” social status. *[Laughter.]* So for me, it’s not ridiculous, but it’s *funny*. Spiritual social status is wonderful, but people believe that it is the best thing we should depend on, and it is the purpose of zazen. I don’t think so. 
 
 *[He chuckles.]* I’m sorry for you. But this is the real picture. There is nothing to depend on. 
 
@@ -194,7 +196,7 @@ So real death is, *please, go ahead*. That’s all you have to do. If you want t
 
 ##### 1:10:32
 
-That’s why a Zen Teacher tells the students, “Please sit down.”
+That’s why a Zen Teacher tells students, “Please sit down.”
 
 “I got a good experience of zazen!”  
 “Oh, good. Please sit down.”
