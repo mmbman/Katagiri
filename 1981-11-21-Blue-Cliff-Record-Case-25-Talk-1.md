@@ -70,7 +70,7 @@ That’s why in the *Lotus Sutra* Manjushri says to Maitreya Buddha, “When you
 
 If you read the Bible, the Bible also says Adam and Eve didn’t think anything, just lived, with nakedness. And also finally they started to think, “What is this?” And then they finally ... well, you know that pretty well, huh? This is really true. It’s not a “myth,” it’s really human life. 
 
-And then we completely forget the real picture of human life. The real picture of human life is exactly the same as the rhythm of nature, beyond *you think *or *you shouldn’t think*. It’s just life. This is the real or absolute reality your life is present in. 
+And then we completely forget the real picture of human life. The real picture of human life is exactly the same as the rhythm of nature, beyond *you think* or *you shouldn’t think*. It’s just life. This is the real or absolute reality your life is present in. 
 
 And then you forget, and you start to live in your own way. And for many, many years, so far, we don’t know yet the real picture of human existence. And then finally we start to think, “What is this?” And then we think about our life. And then according to religion, physics, psychology, or the I-Ching, and many things, we can think of human life. 
 
