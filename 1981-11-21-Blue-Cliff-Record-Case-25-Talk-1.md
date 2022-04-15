@@ -46,9 +46,7 @@ The famous French thinker and writer Rousseau says, “One is born with nothing,
 
 I don’t know how much Rousseau searched this real picture of human existence through and through. I don’t know; it’s still questionable. But he says wonderful things. So more or less, even though they don’t study Buddhism, some human beings feel in this way. They don’t want to research it, because there is nothing to excite them, but more or less they feel this way.
 
-We are born with nakedness, we die with nakedness: this is not something pensive or sad, this is the real picture of human existence. We have to *be* – not have to be, we *are* already. Without exception, everybody. Or trees, birds, whatever it is. 
-
-Before you are born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is *very close*: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
+We are born with nakedness, we die with nakedness: this is not something pensive or sad, this is the real picture of human existence. We have to *be* – not have to be, we *are* already. Without exception, everybody; or trees, birds, whatever it is. Before you are born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is *very close*: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
 
 ##### 15:45
 
