@@ -121,6 +121,13 @@ Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Fac
 
 [Transcript](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
+## Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1
+November 21, 1981
+
+What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
+
+[Transcript](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
+
 ## Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”
 November 17, 1982
 
