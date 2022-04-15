@@ -26,9 +26,9 @@ The twenty-fifth case of the Blue Cliff Record:
 
 The Hermit of Lotus Flower Peak: according to the commentary, this Zen Master lived on the top of the mountain Lotus Flower Peak. He built his own hut on top of the mountain, and he constantly showed his teaching, holding up his staff and saying, “When the ancients got here” – ancients means the Buddhas and ancestors – “why didn’t they consent to stay here?” 
 
-The staff implies, in this case, what is real life, what is the real thing of life. We say “truth.” What is the ultimate, real thing of human life? There is a staff, anyway. *Staff* means this (short) kind of stick, or a long stick which is used for the monks or for Zen priests when they walk. Long one or short one, whatever it is, anyway that is a staff. 
+The staff implies, in this case, what is real life, what is the real thing of life. We say “truth.” What is the ultimate, real thing of human life? There is a staff, anyway. *Staff* means this (short) kind of stick, or a long stick which is used by monks or Zen priests when they walk. Long one or short one, whatever it is, anyway that is a staff. 
 
-And in his whole life, he answered any kind of questions like this. Just like Gutei Zen Master: Gutei Zen Master always just showed one finger, without saying anything, whenever people asked him a question. Or another Zen Master named Roso (Luzu Baoyun) always sat in zazen whenever someone visited him to discuss some aspect of Zen Buddhism; he didn’t say anything, he immediately sat in zazen facing the wall. He carried that way in his whole life, without change. That’s fascinating. It’s pretty hard to do that, because human beings are pretty noisy, you know? If you always show one thing whatever anyone asks, [people put a certain label on you]: “He’s crazy.” Don’t you think so?
+And in his whole life, he answered any kind of questions like this. Just like Gutei Zen Master: Gutei Zen Master always just showed one finger, without saying anything, whenever people asked him a question. Or another Zen Master named Roso (Luzu Baoyun) always sat in zazen whenever someone visited him to discuss some aspect of Zen Buddhism; he didn’t say anything, he immediately sat in zazen facing the wall. He carried that way in his whole life, without change. That’s fascinating. It’s pretty hard to do that, because human beings are pretty noisy, you know? If you always show one thing whatever anyone asks, people put a certain label on you: “He’s crazy.” Don’t you think so?
 
 You can have a good zazen; [but] if you are constantly doing zazen without any reward, you don’t believe this. So naturally, it is very hard for a teacher to stand up before people who really are spiritually greedy. People are greedy spiritually, so the teacher gives them some candy, et cetera, in order to satisfy them. That is a very common type of so-called religion. 
 
@@ -40,13 +40,13 @@ So you don’t understand very well a person who uses just one thing in his whol
 
 In the *Lotus Sutra*, the Sun-Moon-Light Tathagata was born in this world as a Buddha named the Sun-Moon-Light Tathagata... and the next generation, he was born as a Buddha named the Sun-Moon-Light Tatagatha. And in the next generation, there was a Buddha named the Sun-Moon-Light Tatagatha. For century after century, Buddha was born in this world, but the same person, same name.
 
-This is very important for us. What is real life? Real life never changes, from generation to generation. Life was born in this world, named Life Tathagata. And in the next generation, life was born, and it was named Life Tathagata. The same thing, generation after generation. Exactly the same, wonderful things.
+This is very important for us. What is real life? Real life never changes, from generation to generation. Life was born in this world, named Life Tathagata. And in the next generation, life was born, and it was named Life Tathagata. The same thing, generation after generation. Exactly the same, wonderful thing.
 
 The famous French thinker and writer Rousseau says, “One is born with nothing, one dies with nothing.” It means we are born with nakedness, we die with nakedness. This is very nice, very nice. This [means] the same thing: whatever generation comes, it is exactly the same. 
 
 I don’t know how much Rousseau searched this real picture of human existence through and through. I don’t know; it’s still questionable. But he says wonderful things. So more or less, even though they don’t study Buddhism, some human beings feel in this way. They don’t want to research it, because there is nothing to excite them, but more or less they feel this way.
 
-We are born with nakedness, we die with nakedness: this is not something pensive or sad, this is the real picture of human existence. We have to *be* – not have to be, we *are* already. Without exception, everybody; or trees, birds, whatever it is. Before you are born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is *very close*: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
+We are born with nakedness, we die with nakedness: this is not something pensive or sad, this is the real picture of human existence. We have to *be* – not have to be, we *are* already. Without exception, everybody, or trees, birds, whatever it is. Before you are born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is *very close*: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
 
 ##### 15:45
 
@@ -70,7 +70,7 @@ If you read the Bible, the Bible also says Adam and Eve didn’t think anything,
 
 And then we completely forget the real picture of human life. The real picture of human life is exactly the same as the rhythm of nature, beyond *you think* or *you shouldn’t think*. It’s just life. This is the real or absolute reality your life is present in. And then you forget, and you start to live in your own way. And for many, many years, so far, we don’t know yet the real picture of human existence. And then finally we start to think, “What is this?” And then we think about our life. And then according to religion, physics, psychology, or the *I Ching*, and many things, we can think of human life. 
 
-But when you think about the real picture of life, and create many things – physics, psychology, religions – endlessly you can create *many* kinds of myths. So far we have created many myths, and from now on we could create more myths, the more human civilization is developed. 
+But when you think about the real picture of life, and create many things – physics, psychology, religions – endlessly you can create *many* kinds of myths. So far we have created many myths, and from now on we could create more myths, the more human civilization is developed, more or less. 
 
 ##### 27:25
 
@@ -96,7 +96,7 @@ So all we do is, try to create wonderful myths, and philosophy, psychology, buil
 
 ##### 36:00
 
-I read another example. During the Second World War, a person was in the highest positions of the army in Japan. During the war, the army officers lived pretty well; they had food and clothes. But most people were very poor, with no food, no clothes. And then the situation was completely inverted: he lost his official army position, and also the atmosphere in Japan was completely messed up. If you were the army officers, people didn’t like you. So it was very difficult for him to find a job and to support his life. He tried to find a job, and finally he found one, but that job was self-employment, so-called *I Ching*. 
+I read another example. During the Second World War, a person was in the highest positions of the army in Japan. During the war, the army officers lived pretty well; they had food and clothes. But most people were very poor, with no food, no clothes. And then [after the war] the situation was completely inverted: he lost his official army position, and also the atmosphere in Japan was completely messed up. If you were the army officers, people didn’t like you. So it was very difficult for him to find a job and to support his life. He tried to find a job, and finally he found one, but that job was self-employment, so-called *I Ching*. 
 
 If you go to Japan, standing or sitting in front of every railroad station you can see lots of fortune tellers. In the evenings in Tokyo, more than ten fortune tellers sat in front of the stations, asking people to see their hands, to predict their life. This man was pretty smart and sharp, so he studied this, and he got the happy life he had expected. And he lived wonderfully, for many years. And finally – *he was also paralyzed*. One of the Zen Teachers visited him in his home, because he knew him, and the man said: “I didn’t know there was such a big trap.” Do you understand?
 
@@ -114,9 +114,7 @@ Well at that time, this is human life. You really want to scream. Because to be 
 
 So you look at what you did, believing in your [great] position: happiness, or whatever it is. What is this?
 
-That’s why this Zen Master asks, “When the ancestors and the ancients got here, why didn’t they consent to stay?” It means, what are you seeking for? What is the purpose of your living? To live is what? You say, “To live is to live for all sentient beings.” Beautiful; but still idealistic. Real “to live” is what? It’s really something tactile. You have to be face to face with reality, completely beyond “you think” or “you shouldn’t think.” At that time, it’s pretty hard. To be paralyzed is not something you have expected. Cancer is not something you have expected. You don’t expect it; it comes up. It’s reality. 
-
-This reality is completely beyond *you should think*, or *you should escape*, or *you shouldn’t think* – completely *there*. And then you have to be face to face with this. That’s pretty hard. It’s really hard. 
+That’s why this Zen Master asks, “When the ancestors and the ancients got here, why didn’t they consent to stay?” It means, what are you seeking for? What is the purpose of your living? To live is what? You say, “To live is to live for all sentient beings.” Beautiful; but still idealistic. Real “to live” is what? It’s really something tactile. You have to be face to face with reality, completely beyond “you think” or “you shouldn’t think.” At that time, it’s pretty hard. To be paralyzed is not something you have expected. Cancer is not something you have expected. You don’t expect it; it comes up. It’s reality. This reality is completely beyond *you should think*, or *you should escape*, or *you shouldn’t think* – completely *there*. And then you have to be face to face with this. That’s pretty hard. It’s really hard. 
 
 That’s why Buddhas and ancestors don’t consent to stay with a certain stage of spiritual experience, or mental experience, or physical experience. Whatever it is, constantly they have to come back to the real picture of life and death. That is very close. You have to be born with nakedness, you have to die with nakedness. 
 
@@ -124,7 +122,7 @@ That’s why Buddhas and ancestors don’t consent to stay with a certain stage 
 
 > There was no answer from the assembly, 
 
-“When the ancients got here, why didn’t they consent to stay here?” That is a question to you, to everybody. Why does Buddhism always teach us not to stay with a certain stage of human experience, or sweet candy, or emotions, whatever it is? “Be free from this, go forward, take a step further, day by day”; why does Buddhism emphasize this?
+“When the ancients got here, why didn’t they consent to stay here?” That is a question to you, to everybody. Why does Buddhism always teach us not to stay with a certain stage of human experience, or sweet candy, or emotions, whatever it is? “Be free from this, go forward, take a step further, day by day”: why does Buddhism emphasize this?
 
 It means not to stay. It doesn’t mean you should ignore a certain experience of human existence. You have to experience it, but you cannot stay with it. If you become a doctor, you should have the experience of having a Ph.D., et cetera. But you cannot stay with the position, so-called doctor. You have to be free from it, that is real reality. You have to help people, understanding people completely, because people will bring up various kind of cases which you have never thought of, which you have never studied at school. Day by day, different cases occur. So you should forget the Ph.D.; you have to keep your eyes open to see each case. 
 
@@ -148,9 +146,11 @@ Finally, what is a human life? What is it?
 
 “With my staff across my shoulder”: a staff means the truth, the real picture of your life. Being born with nakedness, dying with nakedness. This is absolute reality, which is called truth. Beyond *you have to think* or *you shouldn’t think*, beyond *you like* or *you dislike*. 
 
-That real picture of life, where is it? Across your shoulder. Carry it, because whether you are conscious of it or not, with your staff across your shoulder, “I pay no heed to people.” What is the purpose of living? What do you mean by *to live*? Is *to live* to get a certain good position? Is it being concerned about people? Or paying careful attention to how people feel about me, or always thinking about that? Is this the real purpose of living in this world? Of course it is part of your life, but it’s not the real picture – because you forgot already. But sooner or later, you have to remember this. That’s why Buddha tells you, “You have to recall what you did.” That means you have to recall what is the real picture of your life, what is the real problem of life and death. Because sooner or later, [that is] your whole life. 
+That real picture of life, where is it? Across your shoulder. Carry it, because whether you are conscious of it or not, with your staff across your shoulder, “I pay no heed to people.” 
 
-“I pay no heed to people”: All we have to is to come back to the original nature of life and death. 
+“I pay no heed to people”: What is the purpose of living? What do you mean by *to live*? Is *to live* to get a certain good position? Is it being concerned about people? Or paying careful attention to how people feel about me, or always thinking about that? Is this the real purpose of living in this world? Of course it is part of your life, but it’s not the real picture – because you forgot already. But sooner or later, you have to remember this. That’s why Buddha tells you, “You have to recall what you did.” That means you have to recall what is the real picture of your life, what is the real problem of life and death. Because sooner or later, [that is] your whole life. 
+
+All we have to is to come back to the original nature of life and death. 
 
 “I go straight into the myriad peaks”: That is *exactly* the real picture. I go straight toward this real picture of life and death. At that time, there are myriad peaks; that means lots of things come up, in your knowledge, in your mind, in your consciousness. Lots of mountain peaks exist. And also “myriad peaks” means vastness, [great] vastness, which causes human beings to be free. “I go straight into the myriad peaks,” and then you can understand that there are myriad aspects of human life, including trees, birds, et cetera. 
 
@@ -166,7 +166,7 @@ But we don’t understand it.
 
 That’s why we have to practice zazen. In zazen you can directly experience this *nothing to depend on*. Just taking care of your breath. 
 
-But what do you mean, “to take care of your breath”? In the end, how is it? Can you see the good concentration? No way. That is a label which is called “good student.” In the world of “good student,” there is a trap, so-called *paralyzed*. We are paralyzed. When you are paralyzed, there is no way to take care of your life. You become crazy, scream, but no one helps. So still you have to take care of *paralyzed* in your life, by yourself. That’s pretty hard.
+But what do you mean, to “take care of your breath”? In the end, how is it? Can you see the good concentration? No way. That is a label which is called “good student.” In the world of “good student,” there is a trap, so-called *paralyzed*. We are paralyzed. When you are paralyzed, there is no way to take care of your life. You become crazy, scream, but no one helps. So still you have to take care of *paralyzed* in your life, by yourself. That’s pretty hard.
 
 That’s why zazen is not a means. Zazen is returning home, and sitting in peace and harmony. That is zazen itself. If by zazen you try to attain enlightenment, the enlightenment you try to attain is exactly the same as social status, or positions, or, well, “spiritual” social status. *[Laughter.]* For me, it’s not ridiculous, it’s fine, it’s wonderful; but people believe that spiritual social status is the best thing we should depend on, and it is the purpose of zazen. I don’t think so. 
 
