@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35) ([1982](#1982)) – posted April 11, 2022.
+Latest transcript: [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) ([1981](#1981)) – posted April 15, 2022.
 
 # Table of Contents
 

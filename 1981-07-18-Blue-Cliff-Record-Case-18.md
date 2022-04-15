@@ -5,7 +5,7 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1981) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](1982-11-17-Blue-Cliff-Record-Case-34)
+[Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -395,4 +395,4 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 
 [Home](index#1981) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](1982-11-17-Blue-Cliff-Record-Case-34)
+[Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
