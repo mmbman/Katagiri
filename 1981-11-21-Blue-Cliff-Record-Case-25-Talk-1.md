@@ -132,9 +132,7 @@ So that’s why this Zen Teacher always questions like this. But unfortunately t
 
 > so he himself answered for them, “Because they did not gain strength on the road.”
 
-“On the road” means the practice. They didn’t get strength in the practice. [Practice] means when you were born, and since your birth, and then what you have done, after having enough capability to think for a human being. What is the real picture of human life? What do you mean by living? And then when we try to explain about this, from century after century, we create myths, philosophy, psychology. And then we depend on this. “Are you happy?” Is that the final goal we have to depend on? Well... 
-
-Even though you are not paralyzed, right before you die, still you are not satisfied. 
+“On the road” means the practice. They didn’t get strength in the practice. [Practice] means when you were born, and since your birth, and then what you have done, after having enough capability to think for a human being. What is the real picture of human life? What do you mean by living? And then when we try to explain about this, from century after century, we create myths, philosophy, psychology. And then we depend on this. “Are you happy?” Is that the final goal we have to depend on? Well... *[He pauses.]* Even though you are not paralyzed, right before you die, still you are not satisfied. 
 
 So “because they didn’t gain strength on the road” [means it is] because finally you have to die. You have to march toward the grave with nakedness, [without] your position, money, parents, siblings, whoever they are. It’s pretty easy to say so in words. But when you are face to face with the naked situation of life and death, you really scream. Because there is nothing to depend on. 
 
