@@ -76,20 +76,12 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 20 – Talk 2
 1. Blue Cliff Record, Case 22
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 1, Part 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 1, Part 2
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 2, Part 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 2, Part 2
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 3, Part 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 3, Part 2
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 3, Part 3
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 4, Part 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 4, Part 2
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 5, Part 1
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 6, Part 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 6, Part 2
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 6, Part 3
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 7, Part 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 7, Part 2
 1. Blue Cliff Record, Case 23 – Talk 1
 1. Blue Cliff Record, Case 23 – Talk 3
 1. Blue Cliff Record, Case 24
