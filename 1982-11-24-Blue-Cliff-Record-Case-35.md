@@ -132,7 +132,7 @@ The Last Age means the complicated, muddy period of time in the world, where the
 
 > Wu Cho said, “Some three hundred, some five hundred.”  
 
-In those days monasteries were very popular, so there were many monks there. Some monasteries had three hundred, some five hundred, some monasteries had a thousand monks, two thousand monks. Baso Zen Master’s and Setcho Zen Master’s monasteries, it is said, had a thousand, sometimes two thousand. They were really famous, popular Zen Masters. But on the other hand, some Zen Master has just four or five monks and practices seriously. The temple was not fancy, the rain was freezing, and they were very poor, but he also was one of the famous Zen teachers. But generally speaking, particularly Rinzai Zen was very popular in those days. 
+In those days monasteries were very popular, so there were many monks there. Some monasteries had three hundred, some five hundred, some monasteries had a thousand monks, two thousand monks. Baso Zen Master’s and Setcho Zen Master’s monasteries, it is said, had a thousand, sometimes two thousand. They were really famous, popular Zen Masters. But on the other hand, some Zen Master had just four or five monks and practiced seriously. The temple was not fancy, the rain was freezing, and they were very poor, but he also was one of the famous Zen teachers. But generally speaking, particularly Rinzai Zen was very popular in those days. 
 
 For instance, in the United States, Buddhism started from the West and then jumped to the East, you know, skipping the Midwest. And now, little by little, it’s in the Midwest – even though you don’t like it. *[Laughter.]*
 
