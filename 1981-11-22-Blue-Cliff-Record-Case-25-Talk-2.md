@@ -7,7 +7,7 @@ description: November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Next](1982-11-17-Blue-Cliff-Record-Case-34)
 
-#### Katagiri Roshi discusses the pointer to this case, and answers questions about it. What is our potential? What does it mean to be a “smoked dry fish,” and how can we avoid it? Why shouldn’t we become a Zen bank robber? Should we imitate the flashy language of the *Blue Cliff Record*? Also: “Wherever you may go, you can feel pain.”
+#### Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: how to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-25-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -178,7 +178,7 @@ I took care of a young man who was about to die. At that time he screamed and sh
 
 This is a wonderful world, depending on the myths and philosophy, psychology, but they are nothing but explanations of oneness with nature, the rhythm of nature. The rhythm of nature is exactly one with us, so it’s not necessary to think [about it]. Primitive people don’t have any ideas to think, they just tune in constantly, just like animals do. Animals are instinctively tuning in, so they’re happy, you know, compared to human beings anyway. Or completely beyond happy or unhappy – just tuning in, day by day. Human beings can do that, but human beings have consciousness, so we always tune in just like the animals but immediately we have to think and explain. That is culture coming up. And then we depend on just the culture, and myths, and philosophy, psychology, forgetting oneness with the rhythm of nature.
 
-And then we try to find out what is life and what is death. But life and death is [just] going, so finally we try to get something we can depend on very strongly – that is happiness, position, fame, power, and lots of things. And then if you get the power, if you get the social status, then you think, “This is all I wanted.” And then you say, “I am a happy boy,” you know? But finally, no one knows how they have to die. [A certain man] becomes paralyzed. That sickness paralyzing his body is something he didn’t expect before. But for an Abbot of Eiheiji monastery, he realizes because he practiced for a long time, that’s why he said, “It’s my karma.” He accepts it very quietly. But the other person is very confused, saying, “I didn’t know there was such a big trap to fall into,” because so far he believed that becoming happy, getting a better life, is the final thing we want to do. But finally there is sickness, or in this case paralyzation, and then he couldn’t do anything. So that was a big disappointment, a huge hole he had to fall into. 
+And then we try to find out what is life and what is death. But life and death is [just] going, so finally we try to get something we can depend on very strongly – that is happiness, position, fame, power, and lots of things. And then if you get the power, if you get the social status, then you think, “This is all I wanted.” And then you say, “I am a happy boy,” you know? But finally, no one knows how they have to die. [A certain man] becomes paralyzed. That sickness paralyzing his body is something he didn’t expect before. But for an Abbot of Eiheiji monastery, he realizes, because he practiced for a long time, that’s why he said, “It’s my karma.” He accepts it very quietly. But the other person is very confused, saying, “I didn’t know there was such a big trap to fall into,” because so far he believed that becoming happy, getting a better life, is the final thing we want to do. But finally there is sickness, or in this case paralyzation, and then he couldn’t do anything. So that was a big disappointment, a huge hole he had to fall into. 
 
 Yesterday I told you this point. So I told you we have to return to the original nature of the self, so-called “we are born with nakedness, we die with nakedness.” That means the self in absolute reality, just going, nothing to put into anything extra. This is the basic rhythm of life. 
 
@@ -208,7 +208,7 @@ So if you want to run a big business and make big money, you have to have big mo
 
 **Same person**: Alright, here’s the question, Hojo-san: if the whole mind is screaming, what do we tune into? And who does the tuning?
 
-**Katagiri**: Well, you do. *I* have to do it. 
+**Katagiri**: Well, *you* do. *I* have to do it. 
 
 **Same person**: Well, that’s the problem.
 
@@ -226,7 +226,7 @@ So if you want to run a big business and make big money, you have to have big mo
 
 **Katagiri**: Yes. But for instance, in Japan when I was in temples, it was very cold; the temperature was exactly the same as outside in the winter, no heating system. I didn’t feel happy or unhappy, because I had never experienced a wonderful house with perfect heating – I believed this is my life, so just accept. So, no trouble. But if I *know* this... *[Laughter.]* My goodness! Just two days ago, [the power goes out]: *Argh*! *[Laughter.]* So if you don’t know there is something different from the situation where you are, at that time there are no troubles, because you don’t know. But if you know, it’s big trouble. 
 
-Buddhism is not discussing about that. Buddhism is that you have to know that [real] happiness, no trouble, when you are right in the middle of unhappiness, [which is] because people don’t know what is real happiness. So right in the middle of unhappiness, [you] are not confused.
+But Buddhism is not discussing about that. Buddhism is that you have to know that [real] happiness, no trouble, when you are right in the middle of unhappiness, [which is] because people don’t know what is real happiness. So right in the middle of unhappiness, [you] are not confused.
 
 ##### 1:19:02 end of recording
 
