@@ -128,6 +128,13 @@ What happens when we unexpectedly come face-to-face with real life, such as bein
 
 [Transcript](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
+## Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2
+November 22, 1981
+
+Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: how to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
+
+[Transcript](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
+
 ## Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”
 November 17, 1982
 
