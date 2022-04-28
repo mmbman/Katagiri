@@ -87,8 +87,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 24
 
 1. [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
+1. [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 
-1. Blue Cliff Record, Case 25 – Talk 2
 1. Blue Cliff Record, Case 27 – Talk 1
 1. Blue Cliff Record, Case 27 – Talk 2
 
