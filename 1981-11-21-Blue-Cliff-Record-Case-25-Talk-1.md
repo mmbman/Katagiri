@@ -5,7 +5,7 @@ description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
-[Next](1982-11-17-Blue-Cliff-Record-Case-34)
+[Next](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 
 #### What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
 
@@ -216,4 +216,4 @@ Just like a music concert. Many beings exist in this world, but [as one], it mus
 
 [Home](index#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
-[Next](1982-11-17-Blue-Cliff-Record-Case-34)
+[Next](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
