@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Latest transcript: [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) ([1981](#1981)) – posted April 15, 2022.
+Latest transcript: [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) ([1981](#1981)) – posted April 28, 2022.
 
 # Table of Contents
 
