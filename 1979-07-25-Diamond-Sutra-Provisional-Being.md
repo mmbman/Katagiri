@@ -112,7 +112,7 @@ So, two types of provisional being. Why do we believe that a thing seems to be a
 
 ##### 35:50 
 
-You know the idea of empathy, according to psychology? You are projecting yourself into the tree. At that time, the tree becomes you. So if you want to talk with the tree, you have to target yourself into the tree. At that time, the tree speaks to you. This is very natural. 
+You know the idea of empathy, according to psychology? You are projecting yourself into the tree; at that time, the tree becomes you. So if you want to talk with the tree, you have to target yourself into the tree. At that time, the tree speaks to you. This is very natural. 
 
 For instance, if you feel melancholy, pensive, at that time the surrounding environment becomes completely melancholy. Whatever I tell you, you don’t accept, you don’t understand. If you feel sad, everything becomes sad. When it rains, the whole world becomes melancholy. Go up above the clouds with an airplane: it’s shiny. But rain – it’s rain. You don’t feel good, because we believe the whole world seems to be melancholy. 
 
