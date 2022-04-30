@@ -747,7 +747,7 @@ See [Ancestor](glossary#ancestor)
 
 ## Prajñā
 
-[Sanskrit](glossary#sanskrit): prajñā. Usually translated as "wisdom", not not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
+[Sanskrit](glossary#sanskrit): prajñā. Usually translated as "wisdom", not conventional wisdom, but rather the wisdom of boundlessness and interconnection.
 
 External links:
 
