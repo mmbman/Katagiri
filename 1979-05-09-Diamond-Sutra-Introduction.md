@@ -16,13 +16,7 @@ description: May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [*Diamond Sutra*](glossary#diamond-sutra). This is quite different from [*Vimalakirti Sutra*](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. 
 
-Most of the Mahayana Buddhist scriptures were compiled during the first and the second centuries [CE]. The completion of Mahayana *sutras* – Buddhist scriptures – is classified into three periods.
-
-The first period is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150 to 270 [CE].
-
-The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, and a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210 to 400. 
-
-The third is the period in which a group of [Yogachara](glossary#yogachara) sutras and a group of esoteric sutras were all compiled, after 480. 
+Most of the Mahayana Buddhist scriptures were compiled during the first and the second centuries (CE). The completion of Mahayana *sutras* – Buddhist scriptures – is classified into three periods. The first period is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150 to 270. The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, and a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210 to 400. The third is the period in which a group of [Yogachara](glossary#yogachara) sutras and a group of esoteric sutras were all compiled, after 480. 
 
 During the first and the second centuries, there were several great organizers and philosophers of [Mahayana](glossary#mahayana) Buddhist scriptures and Mahayana Buddhist teaching. The first person was [Nagarjuna](glossary#nagarjuna), who lived from 150 to 250. And the second person was [Aryadeva](glossary#aryadeva), who lived from 170 to 270. The third one is [Asanga](glossary#asanga), who lived from 310 to 390. Particularly Asanga compiled Buddhist psychology at that time. The fourth was [Vasubandhu](glossary#vasubandhu), who lived from 320 to 400. So, we can imagine all Buddhist scriptures were compiled by those four great organizers and philosophers. 
 
