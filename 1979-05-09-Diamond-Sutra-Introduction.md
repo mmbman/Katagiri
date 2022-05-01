@@ -82,7 +82,7 @@ This philosophy is not a matter of the *A* itself, or the buffalo or cow itself;
 
 The important point is the existential reality. What is existential reality? If you say Katagiri, [it is] what his existential fact or reality is. That is a point. But usually we don’t believe that, we don’t say that, we don’t understand it in that way. If you see Katagiri, immediately you say “Katagiri.” This is very understandable – but it’s a very shallow understanding. 
 
-Existential fact is vast, very vast, which is never limited by a certain thing called Katagiri, or buffalo, or *A*, or *B*, or *C*, or mountain, or river. That is existential fact, or reality. Because, completely – well, what would you say? Nothing to say. It’s *vastness*. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
+Existential fact is vast, very vast, which is never limited by a certain thing called Katagiri, or buffalo, or *A*, or *B*, or *C*, or mountain, or river. That is existential fact, or reality. Because [it’s] completely – well, what would you say? Nothing to say. It’s *vastness*. Nothing to touch, nothing to ignore, nothing to dichotomize; this is the basic nature of being. 
 
 In the basic nature of existence, Katagiri really is interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why first of all we have to deny your understanding. But to deny is not to destroy existence; to deny is to enable you to realize something else around the subject you have understood. 
 
@@ -98,7 +98,7 @@ Actually, eyes function or try to communicate with nose, mouth, and ears, practi
 
 ##### 35:44
 
-I told you always: Zen practice is very simple. I told you, very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
+I always tell you: Zen practice is very simple. Very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
 If you want to play the guitar, you cannot play the guitar with two hands, actually. Strictly speaking, you cannot play it with two hands: you have to play the guitar with two hands, your nose, your ears, your mouth, your consciousness, your head, your knowledge, your heart, your emotions, your past life, present life, future life; with composers, and audience, everything. And then, at that time, you can really play guitar. That is called playing guitar. 
 
