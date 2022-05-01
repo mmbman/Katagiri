@@ -46,7 +46,7 @@ I want to tell you the fundamental thought of *Diamond Sutra*. What does *Diamon
 
 I told you before, *Diamond Sutra* is quite different from *Vimalakirti Sutra*, because the *Diamond Sutra* is a little bit “dry.” The *Vimalakirti Sutra* is more like beautiful Buddhist literature, but *Diamond Sutra* is sort of based on philosophical Buddhist teaching. So, it is a little “dry.” 
 
-The group of Prajnaparamita sutras were compiled in the beginning of the Common Era by Indian people. The Indian people like conceptualizing very much, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That’s why if you read the Buddhist scriptures written by the Indian people, they use lots of numbers. With people in our days the number *billions* is maybe the top, but Indian people use more than billions: that is *kalpas*, *eons*; numbers that are completely beyond the measure of human speculation. And also, they try to express, try to teach the basic nature of human being, which is called *emptiness*. But that emptiness is exactly expressed by [conscious thought]: *huge*.
+The group of Prajnaparamita sutras were compiled in the beginning of the Common Era by Indian people. The Indian people like conceptualizing very much, everything conceptualized. Their conception is extending in all directions, beyond time and beyond space. That’s why if you read the Buddhist scriptures written by the Indian people, they use lots of numbers. With people in our days the number *billions* is maybe the top, but Indian people use more than billions: that is *kalpas*, *eons*; numbers that are completely beyond the measure of human speculation. And also, they try to teach the basic nature of human being, which is called *emptiness*. But that emptiness is expressed by [conscious thought]: *huge*.
 
 *Prajnaparamita* is what is called The Perfection of Wisdom. The Indian people try to explain what wisdom is according to *concept*. So, for instance, in *Diamond Sutra*, it says: 
 
@@ -136,9 +136,9 @@ Dogs bark at you. When you pass a certain home, immediately they appear and bark
 
 A dog, without any [doubt], just barks at you. This is a dog; no problem. But can you bark at people like that? *[Laughter.]* Of course, you can do it. I can bark at you like this. But immediately I say, “Why do I bark at them? What do I mean by barking?” You start to think, don’t you think so? 
 
-You should enjoy your life, of course. Let’s enjoy our life as we like. Of course, let’s enjoy it. But immediately we think, “What is the purpose of life? Why is it we have to work hard every day? Why is it that we have to practice with pain?” 
+You should enjoy your life, of course. Of course, let’s enjoy our life as we like. But immediately we think, “What is the purpose of life? Why is it we have to work hard every day? Why is it that we have to practice with pain?” 
 
-Obviously we have to think like this. This is a beautiful, beautiful aspect of human life. Because you are human – not dog, not bird. That’s why you can realize a universe in a broad [region], and understand people. We can figure out ways to live in peace and harmony with people. Not only under certain circumstances, under *all* circumstances we can live, because we think always like this. That’s why we have to think like this.
+Obviously we have to think like this. This is a beautiful, beautiful aspect of human life. Because you are human – not dog, not bird. That’s why you can realize a universe in a broad [region], and can understand people. We can figure out ways to live in peace and harmony with people – not only under certain circumstances, we can live under *all* circumstances, because we think always like this. That’s why we have to think like this.
 
 But the final practice is very simple: *A* is just *A*. Mountain is just mountain. River is just river. And until this, you have to *do*. When you are a ballerina, you are a ballerina, and just a ballerina; that’s enough. But this ballerina is exactly interconnected, interpenetrated – [performance], everything. Nothing to separate from her or him. At that time, this ballerina is called a great ballerina. So what is that? Ballerina is ballerina; that’s enough. River is green; flower is red. 
 
@@ -172,7 +172,7 @@ Do you have any questions?
 
 **Katagiri**: *[Quietly:]* Yeah. *[Laughter.]*
 
-Maybe it’s connected with a previous statement, *[Laughter.]* ... from one sentence before... *[unintelligible]*.
+Maybe it’s connected with a previous statement ... 
 
 *[Laughter.]* 
 
