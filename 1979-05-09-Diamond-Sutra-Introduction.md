@@ -106,9 +106,9 @@ But we don’t think that. We think, “Oh, I can play guitar.” So Buddhism sa
 
 Do you understand? So you say, “I am a guitar player,” “I am a musician.” You say it very simply: “I am a guitar player.” “I am a painter.” “I am a poet.” Of course, you are a poet; you are a guitar player, you are a musician, you are a painter. I understand. But it’s not good *enough*. You are *not* a poet. “How come?” *[He laughs.]* A simple question: “How come? I am a poet. I am a writer.” Of course you are a writer, you are a musician. But, *watch out* – okay? You are not a musician, you are not a writer: that means, you have to write something with all sentient beings. How? Practice. Continue to write, beyond like or dislike, until your writing is completely flowing just like water. If you see the pen, pencils, and your hands, and also your mind, your heart, your emotions, and your past life, present life, future life – all are going on, moving. All that [melds so] that your pen and hands move to write, very naturally. It is pretty hard. But at that time, you are called a great writer, a great painter. 
 
-That’s why we have to practice. We have to do fundamental practice: as a writer, as a painter, as a poet. If you really want to support your life as a poet, or painter, or musician, you have to practice. Not for a certain period of time – for *long*. From the beginning to end, you have to do it. 
+That’s why we have to practice. We have to do fundamental practice as a writer, as a painter, as a poet. If you really want to support your life as a poet, or painter, or musician, you have to practice. Not for a certain period of time – for *long*. From the beginning to end, you have to do it. 
 
-And then, at that time, you can say, “I am a guitar player, I am a musician.” Even if you don’t think so, people call you a guitar player. And then, people don’t tell you, very naturally people hire you, and people ask you to play guitar in public, before they put a certain name on you. So, that’s pretty good. Sometimes you don’t know when you become a writer, or when you are a great musician, but it’s not necessary. People ask you to play the guitar, or to write something. That is a great chance for you to practice, to continue to do it. 
+And then at that time, you can say, “I am a guitar player, I am a musician.” Even if you don’t think so, people call you a guitar player. And then, people don’t tell you, very naturally people hire you, and people ask you to play guitar in public, before they put a certain name on you. So, that’s pretty good. Sometimes you don’t know when you become a writer, or when you are a great musician, but it’s not necessary. People ask you to play the guitar, or to write something. That is a great chance for you to practice, to continue to do it. 
 
 ##### 40:46
 
@@ -166,7 +166,7 @@ Do you have any questions?
 
 *[Laughter.]*
 
-**Katagiri**: *[Quietly:]* Uh... before that, what did I say? 
+**Katagiri**: Uh... before that, what did I say? 
 
 **Same person**: Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I’m not sure, I’d have to listen to be sure. But that sentence really struck me. 
 
