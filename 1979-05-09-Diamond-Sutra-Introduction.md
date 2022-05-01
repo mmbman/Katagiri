@@ -76,9 +76,9 @@ Do you understand? Very practical, very practical. *[Laughter.]* How do you call
 
 For instance, there is a [Katagiri](glossary#katagiri). But this is not Katagiri, this is a cow. *[He laughs.]* But you say “cow” – it’s not a cow. Or, for instance, everything is [Buddha](glossary#buddha): human beings are Buddha, floors are Buddha, trees are Buddha, Dan is Buddha. If so, a monk says, “Shall I call you Dan?” *[The group laughs.]* So: Katagiri, Buddha, Dan. It’s not Katagiri, it’s Dan. But it’s not Dan; it’s Katagiri. How do you call it?
 
-That’s sort of a [Zen](glossary#zen) puzzle, but it is really based on Buddhist philosophy: *A* is *A*, but *A* is not *A*, but *A* is really *A*. 
+That’s sort of a Zen puzzle, but it is really based on Buddhist philosophy: *A* is *A*, but *A* is not *A*, but *A* is really *A*. 
 
-This philosophy is not a matter of the *A* itself, or the buffalo or cow itself; that doesn’t matter. But the matter of existential fact or reality, that is the point. Katagiri is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
+This philosophy is not a matter of the *A* itself, or the buffalo or cow itself; that doesn’t matter. But the matter of existential fact or reality, that is the point. *Katagiri* is one of the beings which is always floating in the stream of change. So, there is nothing to get. We are always chasing after something, but we cannot get it. 
 
 The important point is the existential reality. What is existential reality? If you say Katagiri, [it is] what his existential fact or reality is. That is a point. But usually we don’t believe that, we don’t say that, we don’t understand it in that way. If you see Katagiri, immediately you say “Katagiri.” This is very understandable – but it’s a very shallow understanding. 
 
