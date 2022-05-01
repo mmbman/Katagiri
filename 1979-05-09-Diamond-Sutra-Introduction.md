@@ -180,14 +180,13 @@ Because we have to understand something as a whole. “*A* is *A*; *A* is not *A
 
 It makes you confused sometimes, but this is very nice practice for you. *[Laughter.]* 
 
-But practically, it’s very simple, very simple, because you have to return home, and settle in peace and harmony. Where is home? That’s all. This is zazen. But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. If you seek something going out of yourself, out of your home, well it’s fine, but it makes you busy, that’s all. Running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is alright.” This is our point. That’s all. The basic practice is very simple, very simple.
+But practically, it’s very simple, very simple, because you have to return home, and settle in peace and harmony. Where is home? That’s all. This is zazen. But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. If you seek something going out of yourself, out of your home, well it’s fine, but it makes you busy, that’s all, running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony, and then you say, “Oh, this is alright.” This is our point, that’s all. The basic practice is very simple, very simple.
 
-But it takes time, returning to home and settling in the self. Until you understand this, penetrating the skin, muscle, bone, and marrow, it takes time. Intellectually, we understand pretty well: “Oh yes, that’s all. I want to go back to my home.” Everyone understands this. But it takes time until it penetrates and becomes one with your skin, muscle, bone, and marrow. It takes time. 
+But it takes time, returning to home and settling in the self. Until you understand this, penetrating the skin, muscle, bone, and marrow, it takes time. Intellectually, we understand pretty well: “Oh yes, that’s all. I want to go back to my home.” Everyone understands this. But it takes time until it penetrates and becomes one with your skin, muscle, bone, and marrow. 
 
 That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* But you are a lucky person, anyway. 
 
 ##### 58:09 end of recording
-
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
