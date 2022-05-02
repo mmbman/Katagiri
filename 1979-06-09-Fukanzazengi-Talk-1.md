@@ -96,9 +96,9 @@ When I became a monk and went to a monastery, at that time monastic life was com
 
 But for me, it was wonderful. I felt wonderful, but on the other hand, people called me crazy. Of course, maybe so! According to indulgence, maybe to practice hard was crazy. It might be crazy, but I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
 
-On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it that way? Why are you in the monastery? You want to learn laziness in the monastery? Well of course it's okay, but what is the purpose? Why are you here?” I didn't understand. On the other hand, the same applied to me. “Why are you practicing hard in zazen?” I don't know.
+On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it that way? Why are you in the monastery? You want to learn laziness in the monastery? Well of course it's okay, but what is the purpose? Why are you here?” I didn't understand. On the other hand, the same applied to me: “Why are you practicing hard in zazen?” I don't know.
 
-We can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels you to do. So, your daily living is in some aspect understandable, but your daily living is in some sense not understandable. So, life is *[unintelligible]*. That is called karma; that is called Buddha Nature. We don't understand, because the present – your life – comes from beginningless past, endless future. 
+We can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense not understandable. Life is *[unintelligible]*. That is called karma; that is called Buddha Nature. We don't understand, because the present – your life – comes from beginningless past, endless future. 
 
 We should be there. And finally, we should accept this, and we must be *present* there, constantly on the big tree. Psychologically speaking, this is called total personality.
 
@@ -106,7 +106,7 @@ We should be there. And finally, we should accept this, and we must be *present*
 
 *Circumstances*: In order to realize this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in Fukanzazengi, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
 
-If you meddle with our involvements or our affairs right in the middle of zazen, you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred of circumstances, or destroying circumstances, we just make arrangement. 
+If we meddle with our involvements or our affairs right in the middle of zazen, we cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred of circumstances, or destroying circumstances, we just make arrangement. 
 
 ##### 36:23
 
@@ -114,7 +114,7 @@ And next, our *sensory system*. We have a sensory system; it's not necessary to 
 
 That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](dogen#zazengi) chapter of [Shobogenzo](dogen#shobogenzo), which is distinct from [Fukan zazengi](dogen#fukanzazengi).)
 
-First of all, you should make a choice of circumstances. What kind of a room do you have to use? Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, you would see it completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
+So first of all, you should make a choice of circumstances. What kind of a room do you have to use? You have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, you would see it completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
 So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should [be aware].
 
@@ -124,9 +124,9 @@ And next, the *movement system*. The movement system comes from the unity of you
 
 You cannot destroy your movement. Sometimes movement comes from instinct; sometimes it comes from the sensory world; sometimes it comes from a higher level [of spirit]. Sometimes, we don't know. Karma? But anyway, there is always movement. 
 
-So, we have to make arrangement of movement. For this, Dogen Zenji says, that is the half lotus position or full lotus position. Or Dogen Zenji says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in zazen silently and immobile.” 
+So we have to make arrangement of movement. For this, Dogen Zenji says, that is the half lotus position or full lotus position. Or he says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in zazen silently and immobile.” 
 
-This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So: not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. This is movement simplified by our arrangement. 
+This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind, so not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. This is movement simplified by our arrangement. 
 
 ##### 42:38
 
@@ -142,13 +142,13 @@ But there is one thing that you can control, and that is the breath. And the bre
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-(Transcriber’s Note: It looks like the translation Katagiri Roshi is using may be Norman Waddell's, as it says, “Do not administer pros and cons.” See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations include “Do not judge true or false,” or, “Do not consider right and wrong.”)
+(Transcriber’s Note: It looks like the translation Katagiri Roshi is using may be Norman Waddell's, as it says, “do not administer pros and cons.” See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations include “do not judge true or false,” or, “do not consider right and wrong.”)
 
 That is the brain-nerve system. According to the brain-nerve system, we have to regulate the mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind ...
 
 *[Tape change.]*
 
-“... [Cease all the movements of the conscious mind, the gauging] of all thoughts and views. Have no design on becoming a Buddha.” Completely throw away any germination of wishes, thoughts, or views. Just you yourself spin with zazen. That's all you have to do. 
+... “[Cease all the movements of the conscious mind, the gauging] of all thoughts and views. Have no design on becoming a Buddha.” Completely throw away any germination of wishes, thoughts, or views. Just [you yourself spin] with zazen. That's all you have to do. 
 
 ##### 46:44
 
@@ -182,7 +182,7 @@ So, it’s a very simple practice. If you offer yourself, and then after that if
 
 So, there are three important points: samadhi, egolessness, and no design on becoming Buddha, no design of expecting reward. Those three points are very important. 
 
-Egolessness: that is to regulate the mind. How to regulate the mind? Egolessness. How to practice egolessness? Throw yourself away; in other words, offer yourself into zazen. How can you do that? By the help of samadhi, one-pointedness. With wholeheartedness, you can do it, very naturally. 
+Egolessness: that is to regulate the mind. How to regulate the mind? Egolessness. How to practice egolessness? Throw yourself away. In other words, offer yourself into zazen. How can you do that? By the help of samadhi, one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
 If you really want to accomplish one thing which you want to do, you have to cut off all involvements and all affairs. In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing; it seems to be good, but it's not the real achievement or accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with wholeheartedness, it is very natural that you keep away, you make arrangement of circumstances. This is a very natural attitude to our life. That's why Dogen Zenji says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; throw it away. 
 
@@ -202,13 +202,13 @@ And then, if you are under the huge tree, and saved, at that time that is called
 
 How can you experience enlightenment? Well first, practice egolessness. How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is no design on expecting any reward. Just do it; that is *shikantaza*. That is really helpful. That is really a way of helping people: offering your merit, the merit of your practice, to all sentient beings. 
 
-According to a narrow understanding of human life, first you cut off your weeds, the root of your weeds, [then] you want to be happy. That's nice; but it is a narrow understanding – because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
+According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice; but it is a narrow understanding – because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
 
 ##### 1:05:26
 
 So, that is the conclusion of the main subject in Fukanzazengi. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is the meaning of the zazen [we always do]. 
 
-If you believe by the zazen that “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony this way, because if you believe that, then zazen is always something far from you. And not only zazen: you accept yourself as an unhappy person. So you yourself are also a person far from the real person – opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult for you to deal with zazen and whatever you do. So, that is not the practice for us.
+If you believe by the zazen that “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony this way, because if you believe that, then zazen is always something far from you. And not only zazen: you accept yourself as an unhappy person. So you yourself are also a person far from the real person, [if you are] opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult for you to deal with zazen and whatever you do. So, that is not the practice for us.
 
 ##### 1:07:20 end of recording
 
