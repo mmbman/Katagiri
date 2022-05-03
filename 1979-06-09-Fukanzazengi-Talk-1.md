@@ -60,7 +60,7 @@ The important point is, you must accept zazen as total activity, which is vividl
 
 ##### 17:16
 
-Psychologically speaking, there are several component factors in living. One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system*. And also, the *gut system*: your guts. We have lots of guts. And also, the *brain-nerve system*.
+Psychologically speaking, there are several component factors in living. One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system*. And also, the *gut system*: your guts (the *internal organ system*). We have lots of guts. And also, the *brain-nerve system*.
 
 The sensory system is to get some information or to give some information to somebody, and to learn information from the outside. Through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera – that is the sensory world. 
 
