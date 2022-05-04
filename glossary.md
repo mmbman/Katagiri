@@ -121,7 +121,7 @@ External links:
 
 ## Auddhatya
 
-([Sanskrit](glossary#sanskrit)) Usually translated as "distraction". Restlessness or agitation, restlessness of mind, or frivolity. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
+([Sanskrit](glossary#sanskrit)) Usually translated as "distraction". Restlessness or agitation, restlessness of mind, or frivolity. One of the delusions in the list in [Abhidharmakosha](#abhidharmakosha).
 
 ## Avalokiteshvara
 
@@ -1002,7 +1002,7 @@ External links:
 
 ## Styāna
 
-([Sanskrit](glossary#sanskrit)) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abidharmakosha).
+([Sanskrit](glossary#sanskrit)) Usually translated as "dullness". Torpor, stiffness, obduracy, indifference, languor, torpor, sloth, lethargy. One of the delusions in the list in [Abhidharmakosha](#abhidharmakosha).
 
 ## Subhuti
 
