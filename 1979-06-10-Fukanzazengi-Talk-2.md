@@ -298,7 +298,7 @@ So, the teacher is important, but the teacher is a teacher – that *this* teach
 
 ##### 1:05:15
 
-**Question**: Roshi? Is that why you don’t see [Zen](glossary#zen ) emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva) and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that? And [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
+**Question**: Roshi? Is that why you don’t see Zen emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva) and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that? And [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
 
 **Katagiri**: Sure. Even though I don’t emphasize them, we are with them already, don’t you think so?
 
@@ -320,7 +320,7 @@ Can you see this? I want to ask you. I think so.
 
 **Katagiri**: I don’t understand exactly... 
 
-**Question**: Well, like at other [Zen](glossary#zen) centers, with training periods and sesshins, they’re very rigid, and if you don’t fit their schedule exactly, you don’t participate at all. Like, they would kick people out if they left during periods during sesshins, or, if you couldn’t fit to the training period schedule they would say just don’t do the training period. Whereas I see you being much more open and just encouraging people to keep coming even if they can’t do it totally. And it occurred to me that this is true not just for training periods and sesshin, but overall that you really seem to be trying to encourage *everybody* to do as much as possible.
+**Question**: Well, like at other Zen centers, with training periods and sesshins, they’re very rigid, and if you don’t fit their schedule exactly, you don’t participate at all. Like, they would kick people out if they left during periods during sesshins, or, if you couldn’t fit to the training period schedule they would say just don’t do the training period. Whereas I see you being much more open and just encouraging people to keep coming even if they can’t do it totally. And it occurred to me that this is true not just for training periods and sesshin, but overall that you really seem to be trying to encourage *everybody* to do as much as possible.
 
 **Katagiri**: Well, I don’t think it is *good*; I don’t think it is right. But what I can do is, to see the reality, okay? That’s all. And then, sometimes I give lots of rules; rigid rules, sometimes. Even though I give the rigid rules, the rigid rules are still open. So, again, a rigid rule; but still – *[he laughs]* – something happens within the rigid rule, so someone doesn’t appear. This is a training situation that I run into a lot. *[Laughter.]* I didn’t say anything to the students; but I look at it every day. I say the rules; I say “This is the rule. Do you want to attend a training session? Yes, you want to. If you want to, why don’t you follow this?” But – *[he laughs]* – something happens. I know that I don’t know.
 
@@ -384,15 +384,13 @@ Do you understand? That is the very sticky mind. You cannot get out! Immediately
 
 **Question**: Roshi? I have a question about the regulation of the breath. If I feel like I can’t breathe, is that my mind attaching to the difficulty?
 
-**Katagiri**: Yes, in a sense, the mind is connected with your breath and body. So, sometimes when your mind is very agitated and very unrestful, uneasy, it’s pretty hard to breathe smoothly. But sometimes breath is connected with the body, and also nerves; well, many ways. And also sometimes, circumstances, environment. So, we have to check. Okay?
+**Katagiri**: Yes, in a sense, the mind is connected with your breath and body. So, sometimes when your mind is very agitated and very uneasy, it’s pretty hard to breathe smoothly. But sometimes breath is connected with the body, and also nerves; well, many ways. And also sometimes circumstances, environment. So, we have to check. Okay?
 
 **Same person**: Check what?
 
 **Katagiri**: *[Laughing.]* Check what. Your body; and also your mind. 
 
-For instance, if you sit zazen *[strain in voice]* too hard, like this – you can’t breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe; immediately, it influences your breath. So you have to check: your body, your posture, and also your mind.
-
-Is that okay?
+For instance, if you sit zazen *[strain in voice]* too hard, like this – you can’t breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe; immediately, it influences your breath. So you have to check: your body, your posture, and also your mind. Is that okay?
 
 **Same person**: Well what if you check them all out and you still can’t breathe and don’t know why...
 
@@ -400,7 +398,7 @@ Is that okay?
 
 **Same person**: Well I can breathe enough to stay alive, I just can’t breathe from here up. It just – doesn’t come. So it’s very hard to find any equilibrium for a long time. You know, it doesn’t expand, it just goes “bleh” ...
 
-**Katagiri**: Hmm. Did you check your posture? If you change the posture: sometimes relax, sometimes a little tension; sometimes straighten more your back and straighten more your head; or sometimes, a little bit adjust your lower abdomen, et cetera. And then take a breath. In many ways, change a little bit the posture, and then breathe. Try. Okay? 
+**Katagiri**: Hmm. Did you check your posture? If you change the posture: sometimes relax, sometimes a little tension; sometimes straighten more your back and straighten more your head; or sometimes, a little bit adjust your lower abdomen, et cetera. And then take a breath. In many ways, change the posture a little bit, and then breathe. Try. Okay? 
 
 ##### 1:20:50
 
@@ -414,7 +412,7 @@ Is that okay?
 
 **Katagiri**: Hmm?
 
-**Same person**: If you have a very great calligraphy teacher, it seems to me that it’s less likely that you feel that you can do calligraphy, than if you have a first grade teacher. 
+**Same person**: If you have a very great calligraphy teacher, it seems to me that it’s less likely that you feel that you can do calligraphy than if you have a first grade teacher. 
 
 **Different person**: If you have a very good teacher, always you feel like there’s something lacking in yourself. You are living up to that great calligraphy. 
 
@@ -422,39 +420,29 @@ Is that okay?
 
 **Question**: You’d rather keep doing... 
 
-**Katagiri**: Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* 
+**Katagiri**: Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* But how do you keep doing? That [depends on your] practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens ... then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally, in the practice of calligraphy? That is very important.  
 
-But how do you keep doing? That is excellent practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens ... then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally? That’s pretty hard, in the practice of calligraphy. That is very important.  
+For instance in my life at the temple, the circumstances between my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of calligraphy.” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D”; always. Well he [didn’t] always say that to me, but I had *nothing*, no idea of [Buddhism](glossary#buddhism) as a monk or as a priest. So if I thought of the future, I was very scared. I wondered, “Can I do that? No, I can’t do it.” 
 
-##### 1:23:27
-
-For instance in my past life at the temple, and the circumstances between my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of calligraphy.” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D”; always. Always he said that to me, but I had *nothing*, no idea of [Buddhism](glossary#buddhism), as a monk or as a priest. So if I thought of the future, I was very scared; I wondered, “Can I do that? No, I can’t do it.”
-
-But, no way, I cannot escape. So, let’s do it. So I started to practice calligraphy by myself. My teachers took a nap from twelve to one, because in the summer it was very hot and humid. At noon, everybody took a nap, in the country. Instead of taking a nap, I practiced, by myself. So [I thought], “Continue; it’s good for me.”
+But, I had no way to escape. So, let’s do it. So I started to practice calligraphy by myself. My teachers took a nap from twelve to one, because in the summer it was very hot and humid. At noon, everybody took a nap, in the country. Instead of taking a nap, I practiced, by myself. So [I thought], “Continue; it’s good for me.”
 
 So, I did it. But I don’t know if my calligraphy is good or bad, right or wrong; I don’t know. People say, “Oh, your calligraphy is pretty much the same as your master.” I didn’t notice that. Every day, I looked at his calligraphy and wrote, but I didn’t notice anything. But people told me, “Oh, your calligraphy is just the same as your master. It’s wonderful.”
 
-##### 1:25:50
-
-... Here is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends was very enthusiastic; he was always present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is a particular gassho. His face is very – not rigid, a very wonderful face. And his [bow](glossary#bowing) is a particular bow. He is completely the same as the teacher: gassho, bow, exactly the same. But he didn’t try to imitate [the teacher’s] gassho and bow; all he had to do was just to be present with it. So finally, his gassho and also calligraphy are the exact same. Is that helpful?
+Here is another good example. When I was at [Eiheiji](glossary#eiheiji) monastery, one of my friends was very enthusiastic; he was always present with [Hashimoto Roshi](glossary#hashimoto-roshi), my second teacher. And his gassho is a particular gassho. His face is very – not rigid, a very wonderful face. And his [bow](glossary#bowing) is a particular bow. He is completely the same as the teacher: gassho, bow, exactly the same. But he didn’t try to imitate [the teacher’s] gassho and bow; all he had to do was just to be present with it. So finally, his gassho and also calligraphy are the exact same. Is that helpful?
 
 So if you are always with a first grade child who is a master of calligraphy, you become a first grade child. It’s not bad; it’s good. 
 
 ##### 1:27:20
 
-**Question**: Is that true on various levels? Like right now, we’re working at the level of discussion and lecture; but does the [Zen](glossary#zen ) teacher work with the students at deeper levels of mind as well? In other words, as we sit and practice with you year after year, are we talking about more subtle and deeper qualities too? 
+**Question**: Is that true on various levels? Like right now, we’re working at the level of discussion and lecture; but does the Zen teacher work with the students at deeper levels of mind as well? In other words, as we sit and practice with you year after year, are we talking about more subtle and deeper qualities too? For instance, psychic levels of awareness, or subconscious levels, deeper of levels of mind that we’re also working on. My inclination is to believe that that’s true; but I can’t prove it or I don’t really know that that’s true. 
 
-**Katagiri**: That means, the teacher... 
-
-**Same person**: For instance, psychic levels of awareness, or subconscious levels, deeper of levels of mind that we’re also working on. My inclination is to believe that that’s true; but I can’t prove it or I don’t really know that that’s true. 
-
-**Katagiri**: You mean the teacher is always in there? *[He is perhaps pointing to his head.]* Ah. Otherwise you cannot talk, *[he laughs]* you cannot express. Don’t you think so?
+**Katagiri**: You mean the teacher is always in there? Ah. Otherwise you cannot talk, *[he laughs]* you cannot express. Don’t you think so?
 
 **Same person**: I mean, just sitting with you in zazen, hour after hour, my feeling is that there are deeper levels of being that also go on during sesshin.
 
-**Katagiri**: Uh-huh. Uh, no. You cannot say that the teacher is always having the [Zen](glossary#zen ) exactness and wonderful zazen – no. Even the teacher has ... to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even for the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
+**Katagiri**: Uh, no. You cannot say that the teacher is always having the Zen exactness and wonderful zazen – no. Even the teacher has to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even for the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
 
-**Same person**: Yeah, I hear you saying that about your own zazen, it sounds like. But I’m asking, I guess: doesn’t the teacher, when you’re sitting with 30 of us, doesn’t the [Zen](glossary#zen ) teacher also work with the students at deeper levels of mind?
+**Same person**: Yeah, I hear you saying that about your own zazen, it sounds like. But I’m asking, I guess, when you’re sitting with 30 of us, doesn’t the Zen teacher also work with the students at deeper levels of mind?
 
 Or is that something that you don’t want to talk about?
 
@@ -466,16 +454,15 @@ Or is that something that you don’t want to talk about?
 
 **Same person**: Oh yeah...
 
-**Katagiri**: Don’t worry. If you sit, we are connected immediately, and working with each other [mutually], okay? But the moment when you start to think that, it’s pretty hard to work.
+**Katagiri**: Don’t worry. If you sit, we are connected immediately, and working with each other mutually, okay? But the moment when you start to think that, it’s pretty hard to work.
 
 **Same person**: It creates confusion.
 
-**Katagiri**: Yeah; confusion. That’s right.
+**Katagiri**: Yeah, confusion. That’s right.
 
 That’s why that is number six: total personality. Let’s be there. 
 
 ##### 1:30:30 end of recording
-
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
