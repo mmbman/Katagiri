@@ -10,13 +10,16 @@ $medium-breakpoint: 36em;
 $header-heading-color: #fff;
 // $header-bg-color: #128D50;
 // $header-bg-color: #159957;
-$header-bg-color: #1E6BB8;
-$header-bg-color-secondary: #1E6BB8;
+// $header-bg-color: #1E6BB8;
+// $header-bg-color-secondary: #1E6BB8;
+$header-bg-color: #314975;
+$header-bg-color-secondary: #314975;
 
 // Text
 $section-headings-color: #0C6B28;
 $body-text-color: #232323;
-$body-link-color: #1E6BB8;
+//$body-link-color: #1E6BB8;
+$body-link-color: #314975;
 $blockquote-text-color: #4B4B4B;
 
 @import "{{ site.theme }}";
