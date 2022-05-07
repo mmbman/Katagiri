@@ -12,7 +12,7 @@ description: May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [*Diamond Sutra*](glossary#diamond-sutra). This is quite different from [*Vimalakirti Sutra*](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. 
 
@@ -24,7 +24,7 @@ In the first period, when a group of [Prajnaparamita Sutras](glossary#prajnapara
 
 The number nine sutra among those sixteen sutras is the *Diamond Sutra*. It’s full name is the *Vajracchedikā Prajñāpāramitā Sūtra*. This sutra sets forth the doctrine of [śūnyatā](glossary#śūnyatā) and [prajñā](glossary#prajñā). It is a very popular scripture, and many commentaries have been written on it. It is highly esteemed as a basic sutra in Zen Buddhism.
 
-##### 8:30
+#### 8:30
 
 We don’t know who wrote this *Diamond Sutra*. We know in Buddhism, strictly speaking, no Buddhist scriptures are mentioned directly by Buddha Shakyamuni. All Buddhist scriptures were compiled indirectly, by his disciples and [patriarchs](glossary#ancestor). So absolutely no direct teachings of the Buddha are mentioned, even in the [*āgamas*](glossary#āgama) or [*Nikāyas*](glossary#nikāya).
 
@@ -40,7 +40,7 @@ But during the first and the second centuries, lots of the Mahayana Buddhist scr
 
 Even the *Vimalakirti Sutra*, we don’t know who wrote that one. Traditionally, Vimalakirti wrote it – but we are “suspicious” whether such a person existed or not. Well, anyway, we don’t know who wrote them, but huge Buddhist scriptures exist. So those authors were really genuine religious persons, who understood the religious spirit mentioned by Buddha, and also the tendency of the religious and philosophical thought of those days. 
 
-##### 17:40
+#### 17:40
 
 I want to tell you the fundamental thought of *Diamond Sutra*. What does *Diamond Sutra* want to teach us? There is only one point I want to tell you. 
 
@@ -62,7 +62,7 @@ So according to this, they understand wisdom and try to teach wisdom like this:
 
 In the latest *Udambara*, [Professor Abe](glossary#masao-abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything is conceptual. That is why they use lots of beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
-##### 22:51
+#### 22:51
 
 But when Buddhism is transmitted into China, it becomes a little bit practical, in order to explain Prajnaparamita not conceptually but very practically. 
 
@@ -86,7 +86,7 @@ Existential fact is vast, very vast, which is never limited by a certain thing c
 
 In the basic nature of existence, Katagiri really is interpenetrated, interconnected with others and all existence. But according to our consciousness, we really understand Katagiri separate from others. That is characteristic of consciousness: separation. That is why first of all we have to deny your understanding. But to deny is not to destroy existence; to deny is to enable you to realize something else around the subject you have understood. 
 
-##### 31:11 
+#### 31:11 
 
 For instance, here is a white paper. At that time you immediately say, “This is white paper.” But if we say “this is white paper,” you understand only white paper. Buddhism immediately says, “This is *not-white*.” *Not-white* means to bring the other colors into your mind. *Not-white* doesn’t mean to destroy white; *not-white* means to bring other colors into your mind. So, black, or yellow, and red – immediately. That means white color doesn’t exist alone; white color exists with the rest of the colors: black, yellow, red, and all the colors. That is negation. That is why we have to negate first: white is white, but white is not *white*. *White*. And then at that time, you can understand this white in the broad vision. At that time, this white is really *white*. Do you understand? This is a very simple explanation. 
 
@@ -96,7 +96,7 @@ That’s why eyes are eyes, but eyes are not eyes. That means, eyes are supporte
 
 Actually, eyes function or try to communicate with nose, mouth, and ears, practically. This is the function of eyes. But if you say eyes are eyes, that is really the idea of eyes, separate from nose, mouth, ears, body, heart. If you understand eyes are eyes, this is the first stage; this is very conceptualized. Everything is separate. This is not enough. So you should animate your eyes as they are. *How?* You should understand nose, mouth, ears – everything. And then at that time, eyes really work, pretty well. 
 
-##### 35:44
+#### 35:44
 
 I always tell you: Zen practice is very simple. Very practically, the compassionate attention penetrates from the top of the head to the tip of the toes. That means what? 
 
@@ -110,7 +110,7 @@ That’s why we have to practice. We have to do fundamental practice as a writer
 
 And then at that time, you can say, “I am a guitar player, I am a musician.” Even if you don’t think so, people call you a guitar player. And then, people don’t tell you, very naturally people hire you, and people ask you to play guitar in public, before they put a certain name on you. So, that’s pretty good. Sometimes you don’t know when you become a writer, or when you are a great musician, but it’s not necessary. People ask you to play the guitar, or to write something. That is a great chance for you to practice, to continue to do it. 
 
-##### 40:46
+#### 40:46
 
 This is the very important point *Diamond Sutra* says. There are lots of contradictory expressions: “*A* is *A*, but *A* is not *A*, that’s why we say *A* is *A*.” We don’t understand exactly. “*A* is *A*” – why is it we have to think that? It makes us confused. 
 
@@ -124,7 +124,7 @@ So, who makes you confused? We make ourselves confused, that’s all. Why? Becau
 
 This is very important. That’s why we have to explain like this: because consciousness already analyzes existential fact. Existential fact itself is nothing: no waves, very calm. Katagiri is just Katagiri; that’s all. That’s enough. If I say Katagiri is just Katagiri, that Katagiri is the broad scale of Katagiri, interconnected, interpenetrated with Zen Center, the people, Minnesota, Japan, and the universe. This is very natural. If you understand in that way, it’s not necessary to have a complicated system of understanding: “*A* is *A*; *A* is not *A*; that’s why *A* is *A*” – it’s not necessary to say so. But we have to do so, because consciousness is already complicated; that’s why we have to explain it like this.
 
-##### 46:37
+#### 46:37
 
 That is characteristic of human beings. Birds or dogs don’t think in that way. When they feel hungry, they just bite, just eat. *[Laughter.]* 
 
@@ -152,7 +152,7 @@ He also added his commentary [to the translations]. Those commentaries will be v
 
 Do you have any questions? 
 
-##### 53:00
+#### 53:00
 
 **Question**: [Roshi](glossary#roshi)? When you gave the year when the sutras were written, do those years correspond with the Christian years that we use ... or are they Buddhist years? 
 
@@ -160,7 +160,7 @@ Do you have any questions?
 
 **Katagiri**: Oh, yes – of course. I am talking about [the Western calendar], yes.
 
-##### 54:13
+#### 54:13
 
 **Question**: Roshi, two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. This came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
@@ -186,7 +186,7 @@ But it takes time, returning to home and settling in the self. Until you underst
 
 That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* But you are a lucky person, anyway. 
 
-##### 58:09 end of recording
+#### 58:09 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
