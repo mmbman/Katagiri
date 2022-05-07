@@ -16,10 +16,11 @@ $header-bg-color: #314975;
 $header-bg-color-secondary: #314975;
 
 // Text
-$section-headings-color: #0C6B28;
+// $section-headings-color: #0C6B28;
+$section-headings-color: #276865;
 $body-text-color: #232323;
 //$body-link-color: #1E6BB8;
-$body-link-color: #314975;
+$body-link-color: #204975;
 $blockquote-text-color: #4B4B4B;
 
 @import "{{ site.theme }}";
