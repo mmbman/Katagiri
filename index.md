@@ -3,17 +3,17 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-[About This Website](about)
+- [About This Website](about)
 
-[Talk Summaries](summaries)
+- [Talk Summaries](summaries)
 
-[Search](search)
+- [Search](search)
 
-Latest transcript: [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) ([1981](#1981)) – posted April 28, 2022.
+- Latest transcript: [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) ([1981](#1981)) – posted April 28, 2022.
 
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989) [Appendices](#end)
 
-## 1979
+### 1979
 
 1. [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 1. [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
@@ -30,7 +30,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 1. [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
-## 1980
+### 1980
 
 1. [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 1. [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
@@ -57,7 +57,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 7 – Talk 1
 1. Blue Cliff Record, Case 7 – Talk 2
 
-## 1981
+### 1981
 
 1. Blue Cliff Record, Case 8 – Talk 1
 1. Blue Cliff Record, Case 8 – Talk 2
@@ -92,7 +92,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 27 – Talk 1
 1. Blue Cliff Record, Case 27 – Talk 2
 
-## 1982
+### 1982
 
 1. Blue Cliff Record, Case 28
 1. Blue Cliff Record, Case 29 – Talk 1
@@ -109,7 +109,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 37
 1. Blue Cliff Record, Case 38 – Talk 1
 
-## 1983
+### 1983
 
 1. Blue Cliff Record, Case 38 – Talk 2
 1. Blue Cliff Record, Case 39 – Talk 1
@@ -136,7 +136,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 49 – Talk 1
 1. Blue Cliff Record, Case 49 – Talk 2
 
-## 1984
+### 1984
 
 1. Blue Cliff Record, Case 50
 1. Blue Cliff Record, Case 51 – Talk 1
@@ -199,7 +199,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Always There Is a Scream: Track 2 of 2
 1. Blue Cliff Record, Case 64: Case 64
 
-## 1985
+### 1985
 
 1. Buddha Nature: Something Universal
 1. True Heart is not Infactuation
@@ -232,7 +232,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Sharing Our Lives: The Practice of Attendance (Using the Selfish Self)
 1. Blue Cliff Record, Case 76
 
-## 1986
+### 1986
 
 1. [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 1. [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
@@ -303,7 +303,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Commentary on Shobogenzo Gabyo (Painted Rice Cake)
 1. Obedience
 
-## 1987
+### 1987
 
 1. Dogen Four Points: Track 1 of 2
 1. Dogen Four Points: Track 2 of 2
@@ -355,7 +355,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Chanting Practive: Chanting Practice
 1. Disporting with the Buddhas: Transformation through Play
 
-## 1988
+### 1988
 
 1. Lay Ordination Lecture (2nd Series: 1 of 3): Depending on the Dharma
 1. Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance
@@ -385,11 +385,11 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. [Devotion: Walking Alone with Open Heart](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 
-## 1989
+### 1989
 
 1. [Dealing With Death, Dealing With Life](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
-## Appendices
+### Appendices
 
 - [Glossary](glossary)
 
