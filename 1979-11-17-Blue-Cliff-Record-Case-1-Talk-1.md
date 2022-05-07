@@ -12,7 +12,7 @@ description: November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths" target="_blank">Listen to this talk on mnzencenter.org</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 I have never studied the [Blue Cliff Record](glossary#blue-cliff-record) with you since I moved to Minneapolis. We studied [Shōyōroku](glossary#book-of-serenity) (the “Book of Equanimity”) which is pretty similar to the Blue Cliff Record (“Hekiganroku” in Japanese). But the Blue Cliff Record is a little different, and pretty unique, from Shōyōroku we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this Blue Cliff Record so much. 
 
@@ -22,7 +22,7 @@ So each case in the Blue Cliff Record consists of five parts. In this book, the 
 
 This translation of the [Blue Cliff Record](glossary#blue-cliff-record) by Dr. Thomas Cleary is the best, a very nice translation. 
 
-##### 5:25
+#### 5:25
 
 The first case: “The Highest Meaning of the Holy Truths.”
 
@@ -42,7 +42,7 @@ That is the introduction, which is called pointer, to the main subject. Let me r
 
 That is the main subject. And the introduction or pointer is – I’ll read it again. *[He reads it again.]*
 
-##### 10:36
+#### 10:36
 
 In a Zen monastery, a very important position is sort of the attendant to the old monk, old priest, or your teacher. This is the attendant, or we call it [anja](glossary#anja) – the other attendant position is represented as [jisha](glossary#jisha) in Japanese. Anja is a kind of attendant, but this attendant is a person who takes care of many things: sort of a house maid, and food maid, and kitchen maid – lots of things that you have to do. Washing the clothes, cleaning the rooms, and the temple: that is anja for a particular old monk, an old priest.
 
@@ -52,7 +52,7 @@ So, when a guest comes, when a guest visited him, the anja and jisha has to know
 
 So, in [Eiheiji](glossary#eiheiji) Monastery, I learned a lot from this position, because there is no excuse. I have to always pay attention to him first; I am second to him. So I have to always pay attention to what happens around him. When the visitor gets to his room, immediately I have go to his room, open the door, and serve the tea. Before serving the tea, in summer, I gave a cold towel for cleaning the hands and face, and then after that, served the tea. I always took care of him and guests in that way. 
 
-##### 16:24
+#### 16:24
 
 One day, a guest came, and immediately I went to his room, and gave the cold towel in summer, and started to serve tea. By that time, I had got used to serving tea – very naturally, because I had had this position for six months, so I’d got used to taking care of everything. So I served tea – that is green tea, the tea ceremony. At that time, the cleaning cloth should be always on the tray; but that time I didn’t pay careful attention to the cleaning cloth. I was interested in talking with the guest, and the talk between the guest and the [Roshi](glossary#roshi). That was very interesting, because even in the chatting you can find very interesting, very wonderful conversation there. Even the ‘chat’ is wonderful; you become peaceful and joyful. Very nice. There is no fighting and such things; it’s really paradise. All movements in the room are completely peaceful. So in this room I was completely caught by their conversation. But my hand was moving like this. *[Laughter.]* And then I put the cloth on the floor. The roshi immediately said: “Mmmph.” *[Laughter.]* The cleaning cloth shouldn’t be on the floor. It should be on the tray.
 
@@ -74,7 +74,7 @@ So in the emergency, there is something you have to do. There is no discussion o
 
 That’s why in the introduction, [Engo Zen Master](glossary#engo-kokugon) says, “When you see smoke on the other side of the mountain, you already know there is a fire.” It’s very clear. When the Zen Master is leaving the temple, at that time I have to do something, even though he doesn’t ask me: put the shoes in order at the gate. 
 
-##### 26:07
+#### 26:07
 
 He could arrange his sandals himself very easily in the [zendo](glossary#zendo). Do you know the sandals? When you come down from the sitting platform to the floor, if you put the sandals like this, the toes are pointing away from you. And then the teacher comes down, and then his feet immediately slip into his sandals, and he gets up. But if you put sandals like this (turned inward), he has to turn them first, and then put the feet there. I did that once; at that time he scolded me. “So what should I do?” I asked. He said, “You should put the sandals like this.” So I did it. This is a very important thing, how you should put the sandals for him. So, you have to think. You have to think how he is going down to the floor, and putting his feet on the sandals. As much as possible, you should take care of him, so he is not wasting his energy too much. Take care of it, so immediately he puts his feet on the sandals, pretty easily. 
 
@@ -92,7 +92,7 @@ So, when the teacher gets up in the morning, immediately we have to go to his ro
 
 But really, if you behave in even a slightly “showy” way, it’s not real [Zen practice](glossary#zen-practice ) – because there is an egoistic sense, so it doesn’t fit to the Zen practice. So that’s why he said, “This is the everyday food and drink of a patch-robed monk.” 
 
-##### 34:15
+#### 34:15
 
 “Getting to where he cuts off the myriad streams” – the myriad streams means the worldly affairs. Getting up in the morning, and wash your face, and go to work, and going to [zazen](glossary#zazen), and performing the Buddhist service, and washing the clothes, and having breakfast; lots of streams there. 
 
@@ -108,7 +108,7 @@ Anytime, anywhere, you can go west, you can go east. But according to common sen
 
 (Transcriber’s Note: It is possible that Katagiri Roshi means ‘emergency’ instead of ‘emergent’ above, or vice versa. [‘Emergent’ generally means ‘emerging'](https://amastyleinsider.com/2013/01/23/emergency-emergent-urgent/); it is not properly the adjectival form of ‘emergency’. But ‘emergent’ may actually work better in this context.)
 
-##### 39:08
+#### 39:08
 
 “He is free to arise in the east and sink in the west, to go against or to go with”: sometimes it’s against, it’s wrong. I am not recommending you to do something wrong. As much as possible, you should do something *right*. But sometimes there is no time to discuss whether it is right or it is wrong; just do it. We have to take care of reality. So to go against, or to go with, in any and all directions: we have to do it. Wherever you may go, whatever the teacher or the old monks do, you can catch it, and do it, helping.
 
@@ -120,7 +120,7 @@ So, “To go against or to go with, in any and all directions, free to give or t
 
 For instance, somebody is immediately on the verge of life and death on the street – what should you do? There isn’t time to think, “Shall I go, or shall I stay?” or “Shall I move? Shall I take just one step toward him? Or shall I help?” “I am Buddhist,” or “I am Christian” – there is no chance [to think this]. Whoever you are – you’re Christian, you’re Buddhist, or whatever happens – you immediately rush into it and take him away.
 
-##### 44:03
+#### 44:03
 
 “... free to give or to take away. But say, at just such a time...” 
 
@@ -138,7 +138,7 @@ In the reality there are three things, at least: person, opportunity, and place.
 
 Immediately we dichotomize, and we are stuck there. That is a problem. Even dichotomization is also something which is going on in the stream of life, constantly changing and moving. So, when you dichotomize: put it aside. All you have to do is pay attention to reality, unified by time, person, and place. Just do it. At that time, your compassionate attention really penetrates from the top of your head to the tip of your toes, and you can handle it. Even though at that time you [aren’t] satisfied, it’s great [mud], which will [shoot] in the future. This is the best [way]. 
 
-##### 49:38
+#### 49:38
 
 That’s why, “Whos actions are these? Look into [Hsueh Tou](glossary#setchō-jūken)’s trailing vines.” 
 
@@ -150,7 +150,7 @@ If you really see good concentration, saying “I experience good concentration,
 
 Sometimes with trailing vines, there is something interrupted, so sometimes trees die. On the other hand, the vine is also one of the beings, so it grows. When vines grow with pine trees and other trees, it is beautiful, because it is one with nature. But if it grows too much, it’s very dangerous, because it kills the tree. Do you know that happens in California? In California, a family of vines sometimes kills the trees.
 
-##### 53:44 end of recording
+#### 53:44 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

@@ -14,7 +14,7 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 (Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* where he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* means *customary*, so it depends more on the context; for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*. Cleary’s translation of the Notes to the case uses the word *ordinary*.)
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 > Yang Shan asked a monk, “Where have you just come from?”  
 > The monk said, “Mount Lu.”  
@@ -35,7 +35,7 @@ If you get up in the morning, and see somebody on the street or in the house, an
 
 Yang Shan talks with this monk with the usual conversation. Zen always asks “where do you come from?” This monk answered in just the usual (ordinary) sense. “Where do you come from” is very common; everyone asks this. It’s just like a “good morning” when you see somebody in the morning. It is exactly construed in the usual way, but still we have to [consider it] again, a little carefully. That’s why this case brings up this very simple conversation. [...] Through the daily routine, through the usual conversation, there is something more that you don’t know; so you should pay careful attention once more to that broad scale of human life. That is the purpose of this case. 
 
-##### 12:20
+#### 12:20
 
 Anyway, the monk said, “Mount Lu.” Mount Lu means the mountains named Lu. So he came from Mount Lu. Yang Shan said, “Did you visit Five Elders Peak?” Maybe this Mount Lu has five old peaks. 
 
@@ -43,7 +43,7 @@ This mountain is located where this monk lives, so he can visit the mountain any
 
 So, “Did you visit the Five Elders Peak?” The monk says, “I didn’t get there.” 
 
-##### 14:28
+#### 14:28
 
 According to tradition, let’s study this conversation along with Yuan Wu’s notes. The notes really give a hint about how you understand or how you deal with this conversation. So first of all:
 
@@ -59,7 +59,7 @@ So that’s why it says, “Everyone in the world is the same,” for the questi
 
 “(The monk) will inevitably construe it in the ordinary way.” He just talks in the ordinary way. It’s very smooth going. His mind is not crooked; he makes the usual answer. 
 
-##### 16:37
+#### 16:37
 
 > The monk said, “Mount Lu.”  
 > 
@@ -73,7 +73,7 @@ But unfortunately, the form of dance is nothing but impermanent, so it’s appea
 
 So, the monk said, “Mount Lu.” That means, “from Japan.” So, “Are you a ballerina?” – Yes, sir. – “Why don’t you dance?” – Yes, I do just the performance. But within this performance of dance, it’s pretty hard to find the truth. 
 
-##### 19:31
+#### 19:31
 
 > Yang Shan said, “Did you visit Five Elders Peak?”  
 >
@@ -91,7 +91,7 @@ If you want to know the meaning of happiness, and enlightenment, et cetera, do y
 
 That’s why Yun Men says, “How could he have ever passed it by?” There is no way to be at a loss of what to do; just perform. Just wash your face; just get up in the morning. 
 
-##### 25:25
+#### 25:25
 
 > The monk said, “I didn’t get there.”  
 >
@@ -107,7 +107,7 @@ For instance, if Yang Shan asks you, “Did you visit Five Elders Peak,” maybe
 
 This is pretty good because in relationship with people, you cannot always criticize somebody, you cannot always put somebody down. If you criticize somebody, that’s alright, but the next moment you should see some good aspect of human life, and praise him or her. That’s good for you. But usually we don’t: if you see the criticism, or you just criticize somebody, you forget to praise them. So Zen always puts someone down first and then praises them, or praises them first then puts them down; always up and down. That’s pretty good; it means you have to see the total picture of human life. 
 
-##### 31:39
+#### 31:39
 
 > Yang Shan said, “You never visited the mountain at all.”
 > 
@@ -123,7 +123,7 @@ The point is, through the performance of dance what we have to do is to pay atte
 
 “What is this old fellow’s hurry?” Why is it you want to be hurried to say something? (Transcriber’s Note: For a different comment on being “hurried”, see the talk [“Devotion: Walking Alone with Open Heart” at 53:15](1988-12-24-Devotion-Walking-Alone-with-Open-Heart#5315).)
 
-##### 37:17
+#### 37:17
 
 > (Later,) Yun Men said, “These words were all for the sake of compassion; thus they had a conversation in the weeds.”  
 > 
@@ -151,7 +151,7 @@ I take as an example, sometimes, a mothers’ life toward her child. She scolds 
 
 Do you understand?
 
-##### 47:18
+#### 47:18
 
 **Question**: Mm-hm; I have another question. What if you really have a strong feeling about somebody, and you really don’t like that person, or something, and that’s the feeling that you feel. How can you be compassionate then?
 
@@ -173,7 +173,7 @@ For instance, let’s imagine I see somebody on the street by chance, and I don�
 
 Many times you can see somebody who doesn’t respond; that’s alright. That is a small thing. When you have to do it, just say, “Good morning.” That’s enough. If it is important things – you have to do something, but when, how, should you do it – well, this is also a question. 
 
-##### 56:09
+#### 56:09
 
 **Question**: Why did Yun Men say it was “a conversation in the weeds”?
 
@@ -191,7 +191,7 @@ I guess there are a lot of questions in there. Why was it dangerously steep? Why
 
 **Katagiri**: Oh, I see here, “It was nevertheless dangerously steep.” Dangerously steep means it’s very tricky… not tricky, very *delicate*. If you attach even a little bit to the form of the dance, it’s already nothing but impermanence, so it’s pretty hard to see the real beauty of the arts in it, because it’s appearing and disappearing. So behind this one you [meet] the real beauty of arts. But how can you know? Without the form of dance, you cannot see it. So that’s why you have to *perform* dance. But if you attach to it, it’s nothing but impermanent. On the other hand, you can see the beauty of performing dance within the impermanence of performing. At that time if you attach to the real beauty of arts, it’s also dangerous, because it is already “formed” by you, by your thought. That is very dangerous, very steep. Wheels like this. *[He indicates something, and chuckles.]*
 
-##### 1:01:37
+#### 1:01:37
 
 **Question**: Using the analogy of, let’s say, getting up in the morning and doing common things like brushing your teeth, washing up: it seems like it’s hard if you can’t see it as a dance or as a beautiful leaf turning both ways. Like the times when it’s just drudgery, you know, or the times when you don’t see it that way, at least when I don’t see it that way. And those are the difficult times, because it doesn’t seem like a dance anymore, it doesn’t seem like art. 
 
@@ -217,7 +217,7 @@ I experienced being an actor once. I wanted to be Devadatta, you know, who is a 
 
 I understand it’s pretty hard, because getting up in the morning is a very simple practice, but if you get up in the morning at four o’clock, and you carry this practice for thirty days, a hundred days… For instance, if you carry a small bucket of water for ten miles, twelve miles, a hundred miles, then you are really exhausted. I understand that. But anyway, you have to carry it! Still, in simple ways, spiritually, you can carry a small bucket of water every day, [and you feel it].
 
-##### 1:08:13 end of recording
+#### 1:08:13 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

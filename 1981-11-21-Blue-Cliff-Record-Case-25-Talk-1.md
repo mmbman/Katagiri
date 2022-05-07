@@ -12,7 +12,7 @@ description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 The twenty-fifth case of the Blue Cliff Record:
 
@@ -36,7 +36,7 @@ Well from now on, anyway, I don’t think that is real religion. I don’t want 
 
 So you don’t understand very well a person who uses just one thing in his whole life to answer any kind of question. That is fascinating; it’s a wonderful thing. For instance, if you just take care of your daily routine, without stumbling [around]: just wake up and wash your face, go to zazen, just work, and come back. If you can do *this* your whole life, believe it or not *[he laughs]*, it’s wonderful. Regardless of whether you believe in any kind of divinity, et cetera, if you can do this in your whole life, it’s great. But you cannot do this, don’t you think so?
 
-##### 10:13
+#### 10:13
 
 In the *Lotus Sutra*, the Sun-Moon-Light Tathagata was born in this world as a Buddha named the Sun-Moon-Light Tathagata... and the next generation, he was born as a Buddha named the Sun-Moon-Light Tatagatha. And in the next generation, there was a Buddha named the Sun-Moon-Light Tatagatha. For century after century, Buddha was born in this world, but the same person, same name.
 
@@ -48,7 +48,7 @@ I don’t know how much Rousseau searched this real picture of human existence t
 
 We are born with nakedness, we die with nakedness: this is not something pensive or sad, this is the real picture of human existence. We have to *be* – not have to be, we *are* already. Without exception, everybody, or trees, birds, whatever it is. Before you are born in this world, generation after generation, everybody is born and dies in that way. Maybe in your previous life, you did the same things. But this is *very close*: there is no gap between you and this real picture of life, they are exactly the same. You were born with nakedness, you die with nakedness. This is a very close thing. It is too close to understand. 
 
-##### 15:45
+#### 15:45
 
 Also in the *Lotus Sutra*, Manjushri said to Maitreya Buddha, “You had practiced meeting myriad Buddhas in your past life, and your life is exactly the result of practicing in that way in your previous life. And then when you were born in this world, you completely forgot what you did.” I told you before, this is a wonderful thing, but it is not *always* wonderful. This means, briefly speaking, it is too close to understand or too close to think. This is completely beyond *you should think of it* or *you shouldn’t think of it*, because it is always with you. 
 
@@ -72,7 +72,7 @@ And then we completely forget the real picture of human life. The real picture o
 
 But when you think about the real picture of life, and create many things – physics, psychology, religions – endlessly you can create *many* kinds of myths. So far we have created many myths, and from now on we could create more myths, the more human civilization is developed, more or less. 
 
-##### 27:25
+#### 27:25
 
 One of the Zen Teachers in Japan lived [his own] way, practicing zazen and studying Buddhism. And finally he got a degree, and a Ph.D., and he got the position of professor at a university, and finally he became Dean, and finally he became President of the University, and also he came to the United States and became Archbishop of Soto Zen. And then finally he was invited by many people to come back to Japan, and they put him in as the abbot of Eiheiji monastery. So his life was going very well. But... finally, half of his body was completely paralyzed. He couldn’t get up, so he was always in his bed. And he said, “This is my karma.” 
 
@@ -94,7 +94,7 @@ What is life? We always depend on lots of myths, and positions, and philosophy a
 
 So all we do is, try to create wonderful myths, and philosophy, psychology, building the big mansions. And people come together, looking at this, and then completely forget what they did in the past. That means we completely forget what is the real picture of life. 
 
-##### 36:00
+#### 36:00
 
 I read another example. During the Second World War, a person was in the highest positions of the army in Japan. During the war, the army officers lived pretty well; they had food and clothes. But most people were very poor, with no food, no clothes. And then [after the war] the situation was completely inverted: he lost his official army position, and also the atmosphere in Japan was completely messed up. If you were the army officers, people didn’t like you. So it was very difficult for him to find a job and to support his life. He tried to find a job, and finally he found one, but that job was self-employment, so-called *I Ching*. 
 
@@ -118,7 +118,7 @@ That’s why this Zen Master asks, “When the ancestors and the ancients got he
 
 That’s why Buddhas and ancestors don’t consent to stay with a certain stage of spiritual experience, or mental experience, or physical experience. Whatever it is, constantly they have to come back to the real picture of life and death. That is very close. You have to be born with nakedness, you have to die with nakedness. 
 
-##### 47:24
+#### 47:24
 
 > There was no answer from the assembly, 
 
@@ -136,7 +136,7 @@ So “because they didn’t gain strength on the road” [means it is] because f
 
 But we don’t believe this. That’s why century after century we have to say so, we have to give a question to you, like this Zen teacher, to answer the way to live. 
 
-##### 52:27
+#### 52:27
 
 > Again he said, “In the end, how is it?” 
 
@@ -160,7 +160,7 @@ So you should get the position, or happiness, or whatever it is you are aiming a
 
 That’s why this is a wonderful teaching, just like Gutei Zen Master showing one finger. It is not imitating somebody’s teaching. It is not a matter of the philosophical world, not a matter of the metaphysical world, not a matter of the psychological world. [It is] in relation with human life, showing one thing that is something real. You have to return.
 
-##### 1:00:27
+#### 1:00:27
 
 But we don’t understand it. 
 
@@ -180,7 +180,7 @@ That is real zazen. It’s very hard for you, for all you can see is pain and bo
 
 But we don’t understand this, because we have forgotten already. Right after you were born in this world, you forgot! Well, fine – it’s lucky for you. That’s why you can create lots of myths, et cetera. But in a sense it’s crazy, dangerous. So sooner or later, you have to recall what you did. That is the real picture of life and death. Recall, what is real life?
 
-##### 1:06:47
+#### 1:06:47
 
 Certain individuals are always saying to you, “Believe in God.” It’s wonderful, in a sense – but watch out! What is “God”?
 
@@ -190,7 +190,7 @@ And also, when you come to Buddhism, you don’t feel stable, because there is n
 
 So real death is, *please, go ahead*. That’s all you have to do. If you want to scream, please scream. If you want to smile, please smile, as you like. But the real picture of life and death is *please go ahead*. That’s all. 
 
-##### 1:10:32
+#### 1:10:32
 
 That’s why a Zen Teacher always tells students, “Please sit down.”
 
@@ -210,7 +210,7 @@ And then someday finally he attains enlightenment: “I got enlightenment!” He
 
 Just like a music concert. Many beings exist in this world, but [as one], it must be rhythm, music.
 
-##### 1:12:09 end of recording
+#### 1:12:09 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

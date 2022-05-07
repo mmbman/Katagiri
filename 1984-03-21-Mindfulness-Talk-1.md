@@ -32,7 +32,7 @@ For instance, I always tell people, the more you live out your life with very ha
 
 That’s why in ancient times Buddha Shakyamuni tells his disciples and followers to practice this mindfulness, contemplating the body as impure. Not only in Buddhism, but also in Christianity, in monasteries they practice this, looking at human skeletons. That is very common, not only in Buddhist practice. 
 
-##### 8:01
+#### 8:01
 
 But Dogen Zenji understands this practice very deeply, so his teaching is quite different. He gives this teaching in *Shobogenzo*. 
 
@@ -50,7 +50,7 @@ Let me first read the translation by Uchiyama:
 
 This paragraph says that practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. But Dogen also explains why we have to do it. In ancient times this practice was done by monks, contemplating the body as impure; why is it he has to say contemplating the body *beyond* the idea of purity or impurity? The explanation is here, so little by little, we want to study it.
 
-##### 16:00
+#### 16:00
 
 First of all, he says:
 
@@ -72,7 +72,7 @@ That’s why Dogen Zenji says immediately in the first sentence, “The observat
 
 If we try to practice this mindfulness traditionally, you always say, “observing the human body as impure, watching the human skeleton.” That’s fine. But it is nothing but the moral sense, moral practice; it’s not religious practice. If you do religious practice in the moral sense, you never get a peaceful mind, a peaceful life. Religious practice in the moral sense is just like usual life: always you have to go forward, always you have to get a better practice, you have to do it, always. Finally, such religious practice makes you irritated, restless; it doesn’t make sense for you. So very naturally we have to consider again and again what religious practice is. We have to go beyond religious practice in the moral sense. That is very important for us. 
 
-##### 26:16
+#### 26:16
 
 I use the word *observation* or *contemplation*; I don’t know. In Sanskrit we say *vipassana*; vipassana is *insight* or *discernment*. 
 
@@ -86,7 +86,7 @@ Tranquility means *samadhi*, we say, or one-pointedness. In other words, tranqui
 
 That is observation or contemplation.
 
-##### 32:56
+#### 32:56
 
 In zazen we practice facing the wall. According to Bodhidharma, facing the wall means observation of the wall, looking at the wall. Looking at the wall doesn’t mean *you* look at the wall. The wall is emptiness. The wall is the source of existence; there is nothing there. So doing zazen, facing the wall, means abiding firmly in zazen, right-now-right-here – and then, what can you experience? This is emptiness, nothing, but nothing doesn’t mean nothing, because simultaneously *vipassana* means you can touch very deeply the source of the human phenomenal world. That’s why in the Nirvana Sutra it says, “If you want to see suchness, the truth of the human world, you have to see it through meditation, zazen.” That’s why doing zazen is very important for us.
 
@@ -100,7 +100,7 @@ So that’s why you cannot pin down what is your human body. At that time, that 
 
 That’s why first he speaks like this. That’s why “the observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions.”
 
-##### 37:44
+#### 37:44
 
 [The next sentence is:]
 
@@ -130,7 +130,7 @@ That’s why Dogen Zenji says, “This is the true body.” Your body is nothing
 
 So, this is the *true* body, and therefore it is observing the body as impure, which is vividly living. 
 
-##### 2:26
+#### 2:26
 
 And next he says,
 
@@ -148,7 +148,7 @@ That’s why here it says that no detachment – but literally he said no *jumpi
 
 So, no observation. This is just like zazen; *samatha*. If you do it exactly, you experience tranquility. But the real pure sense of tranquility is *you don’t know*. All you have to do is constantly abide firmly in zazen; that’s it. That is called tranquility or quiescence, if you want to put a name on it. But actually, you don’t know. No observations, no contemplation there. 
 
-##### 5:40
+#### 5:40
 
 And also he says,
 
@@ -164,7 +164,7 @@ But we always make an effort to do zazen in terms of a result. We want to always
 
 Even if you don’t see it or you don’t notice this, our life is going just like this. So that’s why we have to explain this. But actually we don’t believe it, because we always first look at the result of what we have done, and then sometimes it is great encouragement for us, sometimes disappointment for us. So we give up, or we try to do it more... up and down, up and down, always. 
 
-##### 9:45
+#### 9:45
 
 So no body is no attainment of practice, no attainment of the teaching, no attainment of observation. *But*, he says:
 
@@ -182,7 +182,7 @@ What is the observation that has already been actualized? It is nothing but the 
 
 That’s why he says, “so you should know that it is attainment of jumping-around-ness”. That means *transcend*. We say transcend, but we don’t understand it. What does *transcendent* mean? It is not that you should keep away from something, going to something else; that’s not transcendent. It is that you are always there, but there is no place for you or your object. You are sick, but you are always right in the middle of sickness, so no trace of sickness is left; that is called transcendent. It’s not to escape from sickness. You have to really be watching constantly, just like spring water coming up. So that’s why it says it like this here. 
 
-##### 14:39
+#### 14:39
 
 > The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors. 
 
@@ -198,7 +198,7 @@ And then Ungan lifted the broom and said, “Which moon [sees] this?”
 
 That is the whole story. That’s why here it says, “The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors.”
 
-##### 17:10
+#### 17:10
 
 > Because of sweeping the grounds with “which moon?” ...
 
@@ -220,7 +220,7 @@ Doing zazen is exactly suchness, the vastness of the entire whole world. It’s 
 
 Just like sleep, exactly. If you sleep, you cannot perceive sleep, so no object. If there is no object, no subject. So *who* sleeps? You don’t know. But you sleep, clearly. So second moon, third moon is there. But practically, all you have to do is, lift your broom. And then, you have to say, “You sleep with which moon?” Just sleep. 
 
-##### 21:34
+#### 21:34
 
 So that is the first part of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”, where Dogen Zenji explains the meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
 
@@ -234,7 +234,7 @@ So that is what? That is nothing but everyday practice activities: sweeping the 
 
 Do you have some questions?
 
-##### 25:50
+#### 25:50
 
 **Question**: Roshi, when you say “no trace,” do you mean no conscious perception?
 
@@ -270,7 +270,7 @@ The same applies to [all] activities. Zazen is exactly [like] this; you can prac
 
 **Katagiri**: That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in Tenzo Kyōkun it says there are three minds: magnanimous mind, parental mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
 
-##### 30:10
+#### 30:10
 
 **Question**: *[Unintelligible]* *shikan* *[unintelligible]* is automatically leading to the right way and the bodhisattva way?
 
@@ -288,7 +288,7 @@ People always think, “That is zazen.” Sometimes even the Japanese believe it
 
 Real Zen penetrates every area of human life; never only a certain area like stealing money from a bank. [Beyond] stealing from the bank, washing your face, or walking on the street, *always* real Zen penetrates, helping. Or right in the middle of death, or after death, or before birth, wherever you may be – Zen helps. This is real Zen. 
 
-##### 36:03
+#### 36:03
 
 **Question**: Before you were saying that if we have a [busy] mind, like bank robberies, in doing your zen, that’s short range. How about in taking vows then, too; if we vow to save all sentient beings, is [that] in the short range?
 
@@ -300,7 +300,7 @@ That’s why, in a sense, consciousness always feels boring. Zazen is a little b
 
 Of course it is encouragement, but that encouragement really is available for a certain period of time. But no *[unintelligible]*. This is life and death. You just swim. 
 
-##### 38:56
+#### 38:56
 
 **Question**: Can zazen be used as an escape from obligations in life?
 
@@ -316,7 +316,7 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 **Katagiri**: Maybe so; maybe not. But in a sense you can get in too deeply. So it’s very difficult to live with people who are just right outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: it’s still a little difficult, because you already get in very deep. So the next experience is, you don’t feel good. In the beginning, you feel good, but on the other hand, you don’t. So you have to go beyond this. 
 
-##### 1:18
+#### 1:18
  
 **Question**: Roshi? When I was being raised Catholic, the terms *pure* and *impure* had very narrow and guilt-producing connotations. Is there some other word to say the same thing?
 
@@ -364,7 +364,7 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 
 **Katagiri**: [The self] is the entire whole world like this; that is the spirit of *shikan*. That is not an abstract idea, an abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
 
-##### 7:40
+#### 7:40
 
 **Question**: Also we say “nothing to attain.” Then it’s like the question always comes up, why do we practice?
 
@@ -378,7 +378,7 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 
 **Katagiri**: That is called very pure purity; beyond purity or impurity, beyond idea or trace of subject and object, exactly.
 
-##### 9:45
+#### 9:45
 
 **Question**: Instead of saying purity and impurity, could you also say complete and incomplete? 
 

@@ -12,7 +12,7 @@ description: April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 \[We will go through\] [Engo Zenji’s](glossary#engo-kokugon) notes [on this case].
 
@@ -30,7 +30,7 @@ Of course, Buddha Shakyamuni can dwell in nirvana, eternity. But when the time c
 
 Buddha Shakyamuni’s patriarchs, they have to die. At that time, you are – [Ānanda](glossary#ānanda), many of Buddha’s disciples are – confused. But the truth is confusion. They found a great opportunity to see the truth, which is the same enlightenment or truth as Buddha saw.
 
-##### 6:04
+#### 6:04
 
 The same applies to your practice. If you look around the human world, sometimes – not sometimes, probably pretty often – you have a big doubt: why is it that you have to practice like this? Because your practice is just like a dewdrop in a huge ocean, the universe. How much does this practice affect the human world, or help human beings? How much? 
 
@@ -46,7 +46,7 @@ Well, if you can [help], anyway, do it.
 
 Finally, no matter how long you discuss this point with yourself, there is no way to find any perfect solution. So finally what you have to do is, keep quiet. Why don’t you sit down when you have to sit down? That’s all that we have to do.
  
-##### 10:59
+#### 10:59
  
 In Zen, there are lots of scriptures explaining ‘no-mind’. Read “The Zen Doctrine of No-Mind” written by [D. T. Suzuki](glossary#d-t-suzuki). He is quoting the topic of no-mind from the words written by Bodhidharma; the title is “Discourse on the Absolute” *[He chuckles.]* This discourse really discusses “no-mind”. Again and again, it asks what no-mind is. If you really dwell in no-mind, how can you know no-mind? *[Laughter.]* Those questions are always coming up – and answers, and questions, and answers, and questions, always appear. Read that book; that’s interesting. 
 
@@ -60,7 +60,7 @@ Human beings are really interesting. We know pretty well, “Don’t do this. Do
 
 But still we have to go through bitterness. That’s an interesting point. That’s why this kind of question or koan comes up.
 
-##### 14:00
+#### 14:00
 
 If you attend [sesshin](glossary#sesshin), even for a day, the [sitting](glossary#sitting), I think you have a lot of questions. But whatever you think – if you see human beings who are really ignorant, who don’t understand this kind of practice, who don’t understand the depth of human life, or who are not interested in this kind of understanding – it doesn’t mean you should give up. It doesn’t mean you should be engaged in a normal human life, forgetting this kind of practice, forgetting the deep understanding of human beings. It doesn’t mean that. 
 
@@ -82,7 +82,7 @@ And also, when the time comes, whoever you are, you have to die. Regardless of w
 
 So, that’s why Engo Zen Master says, “This fellow has broken down quite a bit. He’s dragging in other people.”
 
-##### 21:33
+#### 21:33
 
 > The temple superintendent asked him, “Teacher, how has your venerable health been in recent days?” 
 >
@@ -106,7 +106,7 @@ It’s partly that you are a lucky person if you don’t crash during [zazen](gl
 
 Baso Zen Master doesn’t care what you say when he has to die. If that is true, why did this intendant ask him, “How have you been?” It’s not necessary to say “how have you been”; let him go! But Engo says, “This is in the course of humanity and righteousness.” It’s just like a “good morning”. “Hello, how are you?” “Good morning.” You cannot ignore this. “Hello, how are you?” “Good morning.” “Good afternoon.” “Good night.” This is really humanity. And also this is righteousness, in a sense. 
 
-##### 27:40
+#### 27:40
 
 > The Great Master said, “Sun Face Buddha, Moon Face Buddha.”
 
@@ -124,7 +124,7 @@ If it is true, where can he live? That is Buddha.
 
 “Sun Face Buddha, Moon Face Buddha.” If this is just to take care of young birds [so they can] fly in the sky, well, “Sun Face Buddha, Moon Face Buddha” is a really gentle, soft suggestion how to live, how to affect life and death. But we do this. It’s not always [stuck] in gentleness; there is a very strict, sharp suggestion there too.
 
-##### 30:10
+#### 30:10
 
 [Now] the Verse. This is [Setchō Zen Master](glossary#setchō-jūken)’s verse for the koan, and also [Engo Zen Master](engo-kokugon)’s comment on each verse. 
 
@@ -157,7 +157,7 @@ There is no image, just like [two facing mirrors]. If you see the mirror, immedi
 
 That is “Sun Face Buddha, Moon Face Buddha.” Engo Zen Master said it that way. The moment when you dive into the ocean, you can see the ocean’s guts, and the guts of interdependent co-origination, simultaneously. 
 
-##### 32:53
+#### 32:53
 
 The second verse says,
 
@@ -173,7 +173,7 @@ Engo says, “Too lofty.” That means, “Uh-oh, Setchō, you’re proud of you
 
 Engo Zen Master says to Setchō, do not be proud of Baso Zen Master. It is not desirable to insult Baso Zen Master. “What kind of people were the Ancient Emperors” means Setchō Zen Master understands immediately Baso’s feeling about his life and death; that’s why he said, “I don’t care.” Whatever person, whatever it is – life and death, delusion and [enlightenment](glossary#enlightenment), [nirvana](glossary#nirvana), paradise, the world after death, whatever you say – I don’t care. What is useful? All I have to do is to die, when the time comes. That is Setchō Zen Master’s feeling or understanding. That’s why Engo says, “Uh-oh, too lofty.” So it’s not criticism. 
 
-##### 35:41
+#### 35:41
 
 In the third verse, Setchō Zen Master explained his life:
 
@@ -191,7 +191,7 @@ But this mute has lots of words, because you know how bitter it is. In order to 
 
 That’s why Engo Zen Master *teased* Setchō: “This is none of my business; *you* did it. But on the other hand, your bitterness is just like a mute, nothing to say. How wonderful it is!”
 
-##### 40:20
+#### 40:20
 
 The next verse says, 
 
@@ -217,7 +217,7 @@ So this is coming from how many times? Many, many times of going into the Blue D
 
 If it is true, “just to die when the time comes” means just a simple practice: just to die when the time comes. But Engo says, “No, no – it’s not. Watch out! Because it comes from many, many thousand times of going to get the jewel from the Blue Dragon’s cave.” But behind this is Sun Face Buddha, Moon Face Buddha. There is lots of background, practically, philosophically, psychologically. This is the human world. 
 
-##### 45:17
+#### 45:17
 
 Next, 
 
@@ -241,7 +241,7 @@ Then if you explain your practice to the people who are called “sad man,” wh
 
 So that’s why Engo says, “To whom would you speak of it? If you speak of it to sad people, you will sadden them to death.” *[Laughter.]* Because you can cry pretty easily, and shake hands.
 
-##### 49:20
+#### 49:20
 
 The next verse says: 
 
@@ -263,7 +263,7 @@ Even though you attain enlightenment, it is not enough, because it must be somet
 
 In order to see this, we have to have clear eyes. Dogen really emphasizes that point. 
 
-##### 56:30
+#### 56:30
 
 After “clear eyed patch-robed monks shouldn’t take it lightly,” this is the last comment on the verse, which in English says:
 
@@ -283,7 +283,7 @@ That’s why we have to practice, we have to go to the Blue Dragon’s cave to g
 
 Do you have questions?
 
-##### 1:00:30
+#### 1:00:30
 
 **Question**: What is the Blue Dragon?
 
@@ -293,7 +293,7 @@ This dragon also has a jewel. We want to get that jewel. And if you don’t want
 
 This is the Blue Dragon’s cave. The human world. 
 
-##### 1:03:30
+#### 1:03:30
 
 **Question**: I have a question. I think I have some feel, when you talk about “when you walk, just walk, when you sit, just sit, when it’s time to die, just die,” without adding any other confusion to it, speculating about the mystical world or whatever. But I’m confused about different teachers saying different things. I mentioned to you a couple of weeks ago that this last Friday the American spiritual teacher Ram Daas was down in Iowa City, and so Friday night we went to see him. And a lot of what he was saying came I think from his Hindu training, and reincarnation, and different levels of consciousness – all these things are important. He talks about things like death as things that you can consciously know about as a human being. Like, if you’re an expert in meditation, he talks as though he can go into death and experience it, and come back out again as a human being and know about it. But you always say things like, how will Katagiri die, no way of knowing ahead of time; the only way to find out is to die. So I’m confused: teachers that stress the importance of the mystical thing – do they really know what they’re talking about?
 
@@ -337,7 +337,7 @@ For instance, the other day the poet Ginsburg talked about that, and he recommen
 
 So he said, “If you take this marijuana, you can go to see a wonderful high, a wonderful world you have never seen according to common state of consciousness. And that is good because it makes your life transform, turn over a new leaf.” Well of course, it’s so – but maybe not! There is no proof! *[Laughter.]*
 
-##### 1:15:05
+#### 1:15:05
 
 **Question**: But Roshi – you say the same thing to us about [zazen](glossary#zazen).
 
@@ -371,7 +371,7 @@ That’s why *[unintelligible]* for us. Why don’t you read “The Zen Doctrine
 
 *[Laughter.]*
 
-##### 1:17:28 end of recording
+#### 1:17:28 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

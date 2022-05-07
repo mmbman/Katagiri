@@ -24,7 +24,7 @@ So what is agreement? Oh yes, it is a form of a circle. This is nothing but the 
 So before time and space is completely normal sense of ignorance. This is birth of the Buddhas. That is the truth, regardless of the Buddha … in this world, or he describes the forms, or not. Anyway, this is before time and space arises. Okay.
 
 
-##### end of recording
+#### end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

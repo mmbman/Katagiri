@@ -12,7 +12,7 @@ description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 
 Case [Twenty] of Blue Cliff Record
@@ -20,7 +20,7 @@ Case [Twenty] of Blue Cliff Record
 
 
 
-##### end of recording
+#### end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

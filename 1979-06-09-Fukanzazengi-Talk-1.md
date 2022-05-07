@@ -12,7 +12,7 @@ description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 The last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
 
@@ -22,7 +22,7 @@ This is a sort of conclusion of the main subject in Fukanzazengi. If you do zaze
 
 When you yourself manifest, if you manifest yourself as you really are, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside” – because you are manifesting yourself as you really are, from moment to moment. In other words, you can stand up straight, right now, right here, [and] that means you can manifest yourself. So if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. From the first, they are struck aside.
 
-##### 4:00
+#### 4:00
 
 Particularly when you get angry, when you're confused, very naturally you really want to express anger and confusion through your daily living. But I don't know exactly whether the best way is to keep away from anger, or to understand anger, what it really is. 
 
@@ -34,7 +34,7 @@ When you do zazen, or when you pray to the gods, “Protect me” – even thoug
 
 So you don't believe, but in a sense you believe. Finally you don't know why you are doing it in that way. So finally you say, “I just pray, because I don't know what to do.” You pray to the bodhisattvas: “Avalokiteshvara, please.” Sit down in front of Avalokiteshvara, make your mind calm, and pray. That's pretty nice. At that time, there is no room to let the anger express, even for a moment. The anger, from the first, is struck aside. It's going away. That is alright.
 
-##### 8:43
+#### 8:43
 
 We have the practice of [bowing](glossary#bowing) to Buddha. Bowing to Buddha is to express the deepest appreciation to your existence: how sublime life is, how important your life is. 
 
@@ -46,7 +46,7 @@ Before you bow, you must be you, who has already accepted how sublime your life 
 
 So [the first point is], if you do zazen according to Dogen's mention, or what the [patriarchs](glossary#ancestor) mention, or Buddha's suggestions – if you do zazen like this, then as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, is manifest. And also, dullness and distraction from the first are struck aside, they’re going away. 
 
-##### 12:45
+#### 12:45
 
 But actually we don't do zazen like this. Zazen is used as a means. At that time, you accept yourself as an immature person. 
 
@@ -58,7 +58,7 @@ So just *do* zazen. *Do zazen* means you are present from moment to moment withi
 
 The important point is, you must accept zazen as total activity, which is vividly alive from moment to moment. Even though you don't understand what zazen is, accept zazen, which means, *do* zazen. Even though you don't understand how sublime your life is, anyway, bow to the Buddha. If you bow to the Buddha, selfish understanding from the first is struck aside. That is shikantaza – very naturally.
 
-##### 17:16
+#### 17:16
 
 Psychologically speaking, there are several component factors in living. One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system*. And also, the *gut system*: your guts (the *internal organ system*). We have lots of guts. And also, the *brain-nerve system*.
 
@@ -76,7 +76,7 @@ There is [Katagiri](glossary#katagiri); that core of Katagiri is really supporte
 
 *My* personality is something *I* can create, after my birth, so that is kind of like *character*. If you say *personality*, psychologically speaking this is a little bit broad. So my personality is something I can create after my birth, but there is another personality I [can’t] create. I have carried that personality from before my birth; this is maybe my parents, and also maybe what I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
-##### 23:23
+#### 23:23
 
 If I see myself – here is Katagiri – immediately there is a certain kind of a sense; a “smell.” A part of this “smell” consists of something I have created after my birth. The other aspect of my “smell” is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a “smell.” If you see somebody, there is a smell. Katagiri smells. 
 
@@ -90,7 +90,7 @@ So that is what is called [Buddha Nature](glossary#buddha-nature). If you want t
 
 Karma is completely beyond good or bad, right and wrong, but simultaneously, karma is something which is very powerful to carry your life in the [samsaric](glossary#samsara) world. If you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer to what karma is. But karma is with you. How do you know? In your daily living, you can know. 
 
-##### 30:00
+#### 30:00
 
 When I became a monk and went to a monastery, at that time monastic life was completely blooming for me, so it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. But some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] 
 
@@ -102,13 +102,13 @@ We can create our own everyday life, but on the other hand, there is another asp
 
 We should be there. And finally, we should accept this, and we must be *present* there, constantly on the big tree. Psychologically speaking, this is called total personality.
 
-##### 34:20
+#### 34:20
 
 *Circumstances*: In order to realize this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in Fukanzazengi, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
 
 If we meddle with our involvements or our affairs right in the middle of zazen, we cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred of circumstances, or destroying circumstances, we just make arrangement. 
 
-##### 36:23
+#### 36:23
 
 And next, our *sensory system*. We have a sensory system; it's not necessary to destroy it to keep away the human world, because we have it already. So instead of maligning or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
@@ -118,7 +118,7 @@ So first of all, you should make a choice of circumstances. What kind of a room 
 
 So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should [be aware].
 
-##### 39:42
+#### 39:42
 
 And next, the *movement system*. The movement system comes from the unity of your physical and mental organs. Your body and mind work, and then simultaneously movement comes up. 
 
@@ -128,7 +128,7 @@ So we have to make arrangement of movement. For this, Dogen Zenji says, that is 
 
 This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind, so not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. This is movement simplified by our arrangement. 
 
-##### 42:38
+#### 42:38
 
 And next, the *gut system*. For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
 
@@ -138,7 +138,7 @@ Actually, your heart, your lungs, and hormone system, or your intestines, your s
 
 But there is one thing that you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your breath is pretty good; the pulse is pretty good. And your heart is beating normally, very naturally.
 
-##### 44:56
+#### 44:56
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
@@ -150,7 +150,7 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 ... “[Cease all the movements of the conscious mind, the gauging] of all thoughts and views. Have no design on becoming a Buddha.” Completely throw away any germination of wishes, thoughts, or views. Just [you yourself spin] with zazen. That's all you have to do. 
 
-##### 46:44
+#### 46:44
 
 So Dogen says, “Do not think good or bad, right and wrong,” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of [egolessness](glossary#egolessness); selflessness. 
 
@@ -178,7 +178,7 @@ If you want to practice samadhi, one-pointedness, you have to arrange circumstan
 
 So, it’s a very simple practice. If you offer yourself, and then after that if there is no design on becoming a Buddha or expecting a reward, et cetera, at that time this practice is exactly to manifest the original nature of the Buddha: existence.
 
-##### 56:36
+#### 56:36
 
 So, there are three important points: samadhi, egolessness, and no design on becoming Buddha, no design of expecting reward. Those three points are very important. 
 
@@ -192,7 +192,7 @@ Manifest simplicity, simplify your life; because then you can offer yourself to 
 
 And then this total personality, which is called Buddha, is completely perfect and all-pervading. Dogen Zenji says, “The origin of the way is perfect and all-pervading.” [It is] manifesting the original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain system, nervous system, very naturally you can practice samadhi, you can offer yourself into [zazen], and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
-##### 1:02:05
+#### 1:02:05
 
 And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? This is *belief*. Belief really helps your activities, your practice.
 
@@ -204,13 +204,13 @@ How can you experience enlightenment? Well first, practice egolessness. How can 
 
 According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice; but it is a narrow understanding – because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
 
-##### 1:05:26
+#### 1:05:26
 
 So, that is the conclusion of the main subject in Fukanzazengi. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is the meaning of the zazen [we always do]. 
 
 If you believe by the zazen that “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony this way, because if you believe that, then zazen is always something far from you. And not only zazen: you accept yourself as an unhappy person. So you yourself are also a person far from the real person, [if you are] opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult for you to deal with zazen and whatever you do. So, that is not the practice for us.
 
-##### 1:07:20 end of recording
+#### 1:07:20 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

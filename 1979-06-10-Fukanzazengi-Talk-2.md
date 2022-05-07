@@ -12,7 +12,7 @@ description: June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 ... Whatever kind of questions you have about the subject I mentioned yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
 
@@ -36,7 +36,7 @@ That total personality has a double face. One face is karma; you have carried th
 
 And then if you do zazen, the original face of existence appears, manifests itself. That is, as Dogen mentions in Fukanzazengi, perfect. The origin of the way, the origin of existence, is perfect and all-pervading; that is Buddha Nature. If you do zazen, immediately it appears. That is what is called the original nature of existence manifesting itself. 
 
-##### 6:19
+#### 6:19
 
 That is really the total picture of our personal living, everyday life. That’s why for circumstances, all we have to do is, first, we have to throw away all involvements, and also cease all affairs. At that time, we cut [them] off; [sit]. Completely we are free from circumstances. But it doesn’t mean that we destroy circumstances; circumstances are existent, but they don’t bother you. Circumstances just exist. 
 
@@ -48,7 +48,7 @@ So, sit in the proper way, immobile. *Immobile* means just sit physically, and a
 
 So if you do zazen, immediately that is really closely connected with number six, total personality, because if you become one with zazen physically, there is no *sign* of oneness between zazen and you. Very naturally, there is no sign of concentration. That means you are connected with number six: manifestation of total personality. You can manifest very naturally. That’s why we do zazen physically first.
 
-##### 12:36
+#### 12:36
 
 And then fourth, if you do zazen concentrating with the breath, the regulation of the breath leads the internal organs to work smoothly, very naturally. The amount of oxygen spent is less than usual, and also carbonic acid gas is produced less than usual. Well, sort of like this, if you control the breath. “If you control” means if you pay careful attention to your breath, very naturally your breath is going to slow down a little bit. When you inhale, the inhale is a little faster, and the exhale is a little slower and longer. 
 
@@ -56,7 +56,7 @@ Because when you exhale it’s pretty easy to create a mental, psychological cra
 
 That’s why if you concentrate, which is called practicing [samadhi](glossary#samadhi) (one-pointedness), through the regulation of the body and the breath, you can very naturally experience calmness, tranquility. And then you experience enlightenment, the highest state of life. This is in both [Hinayana](glossary#hinayana) or [Mahayana](glossary#mahayana) [Buddhism]; everybody. All the [kinds of] [Buddhism](glossary#buddhism) emphasize this kind of zazen. 
 
-##### 16:13
+#### 16:13
 
 The [fifth] point is regulation of the mind; that is very important in [shikantaza](glossary#shikantaza).
 
@@ -74,7 +74,7 @@ If you concentrate on body and breath, that is samadhi. By the help of samadhi, 
 
 The regulation of the mind doesn’t connect with this. Of course, it connects, because regulation of the mind is really closely related with number three, regulation of the body. The body and mind are one; that’s why it’s very close. But if you completely practice the regulation of the mind based on samadhi and egolessness and no design on having any reward – at that time, you don’t know; you cannot perceive what total personality is, what is it that Buddha Nature is. You can experience it, but you don’t know what it is. It doesn’t connect. In a sense it connects, but it doesn’t connect totally, so you don’t know what it is.
 
-##### 22:51
+#### 22:51
 
 Usually, there is always some attachment. [People say,] “Zazen is [the total state of] having the experience of [enlightenment](glossary#enlightenment).” Any kind of book says it in that way: “Do zazen, and you can attain enlightenment.” Or “zazen makes you strong,” or “zazen makes you happy,” et cetera. It’s always [said so]: “By the regulation of the body and regulation of the breath, you can preserve physical and mental health.” That is, zazen is seen as a means. 
 
@@ -94,7 +94,7 @@ So, that’s why yesterday I said, as Dogen Zenji says, [dharma](glossary#dharma
 
 Do you have any questions?
 
-##### 28:15
+#### 28:15
 
 **Question**: I don’t understand circumstances; I don’t quite understand the idea. 
 
@@ -110,7 +110,7 @@ For instance, we are in America. We don’t know what’s happening in Japan. Bu
 
 So cut off all things. “Cut off” means, put them aside, in their place. You cannot destroy them. 
 
-##### 30:30
+#### 30:30
 
 **Question**: [Roshi](glossary#roshi), did [Pali scriptures](glossary#pali-cannon) or did pre-[Mahayana](glossary#mahayana) scriptures talk about these six categories?
 
@@ -136,7 +136,7 @@ But on the other hand, the problem is we have a mind. The mind is trying to atta
 
 So that’s why the regulation of the mind is very important. 
 
-##### 34:20
+#### 34:20
 
 **Question**: Roshi? We talk about and we chant that the natural condition of mind is to be free from clinging. Sometimes I wonder, I’m not clear about, if it’s our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it’s almost impossible to attain it. Why is this called the natural condition in life?
 
@@ -154,7 +154,7 @@ So basically, it’s very easy: just do it. Just, proper posture. But it’s not
 
 **Katagiri**: It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. Physical pain is in the mind, up here. Even though it is natural.
 
-##### 40:42
+#### 40:42
 
 **Question**: (Transcriber’s Note: This question is mostly unintelligible on the recording.) Roshi? ... [about] regulation ... if at some point you’re experiencing something that seems good, pleasant, then there’s a natural tendency to think you’re doing something right in terms of regulating your body ... Then maybe the next moment, you experience something [that seems like suffering], and there’s a natural tendency that you seem to be doing something wrong. Is that the correct way to look at it?
 
@@ -168,7 +168,7 @@ That’s why at that time, the mind is very sharp. The minute you catch somethin
 
 The mind is always there, interfering, judging good or bad. [Enlightenment, practice] – that is no design.
 
-##### 45:45
+#### 45:45
 
 **Question**: Roshi? It seems like that adjustment is constantly in the direction of samadhi – you constantly make that adjustment, but how do you – ?
 
@@ -192,7 +192,7 @@ Is that something wrong?
 
 **Same person**: I just wanted to make sure I heard you.
 
-##### 47:47
+#### 47:47
 
 **Question**: Roshi? Sometimes so many things come up, especially the first couple days of [sesshin](glossary#sesshin), it seems like it takes enormous effort to return to the breath. Should we use that enormous effort?
 
@@ -200,7 +200,7 @@ Is that something wrong?
 
 And while you take a breath, very naturally, as naturally as you can – then, your mind can calm. Maybe it takes an hour? Maybe two hours; maybe a day. It’s okay. And then if your mind is very relaxed, let’s return.
 
-##### 49:08
+#### 49:08
 
 **Question**: Roshi? Are you saying then that you should just go with whatever amount of effort you feel?
 
@@ -220,7 +220,7 @@ That’s a point, but in daily living, it’s a little different. For instance, 
 
 **Katagiri**: A minimum and maximum; it depends on the situation. 
 
-##### 52:56
+#### 52:56
 
 **Question**: Well, how does this compare with... Let’s say if you read [Kapleau Roshi](glossary#kapleau-roshi)’s books, and a [Rinzai](glossary#rinzai-zen) approach is to just force yourself continually to break through and find some kind of enlightenment. Do you see any merit in that, or are you saying that that isn’t necessary? 
 
@@ -230,7 +230,7 @@ Well of course, it is okay. But the final stage is not that zazen and subject an
 
 That means, finally, we have to do zazen with no design on having any reward. That means, offering yourself perfectly. 
 
-##### 54:47
+#### 54:47
 
 **Same person**: I was reading an account of [Tibetan Buddhism](glossary#tibetan-buddhism), and the author was talking about [Zen](glossary#zen), and they were talking about the purity of Zen. It sounds like you’re talking about Zen in a very pure sense of just entering [nondualism](glossary#nondualism). And they were saying that for very rare people, they can go into that very pure practice and get into it, but for say the typical American, who’s completely caught in [dualism](glossary#dualism), they can’t just step into that kind of purity, they have to work on it step by step, and Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that’s what you’re saying, that me as an individual striving for enlightenment is already [dualistic](glossary#dualistic), and so you’re being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn’t that awfully hard?
 
@@ -280,7 +280,7 @@ But on the other hand, lots of real zazen in the [dualistic](glossary#dualistic)
 
 Is that clear? Is that okay?
 
-##### 1:03:07
+#### 1:03:07
 
 **Question**: To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher and his teaching – Dogen, Buddha – again and again you’re doing the calligraphy, until it’s like the teacher’s calligraphy?
 
@@ -296,7 +296,7 @@ So, the teacher is important, but the teacher is a teacher – that *this* teach
 
 **Katagiri**: Sure. The teacher is Buddha, and Dogen, and [patriarch](glossary#ancestor), simultaneously. That’s why the teacher is also a student, who is continually learning, every day. Working like Dogen, and Buddhas, every day.
 
-##### 1:05:15
+#### 1:05:15
 
 **Question**: Roshi? Is that why you don’t see Zen emphasize other realms; you know, like having psychic experiences, or coming in contact with [Bodhisattvas](glossary#bodhisattva) and [Buddhas](glossary#buddha), or [demons](glossary#demon), things like that? And [Tibetan Buddhism](glossary#tibetan-buddhism), for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in [duality](glossary#dualism)?
 
@@ -314,7 +314,7 @@ Can you see this? I want to ask you. I think so.
 
 (Transcriber’s Note: Presumably, the point of the above exchange is that these “other realms” aren’t “somewhere else” but rather are right here. In other words, we’re having a “psychic experience” all the time called “daily living.” Katagiri Roshi might be gesturing to indicate this, which doesn’t come across on the audio recording.)
 
-##### 1:06:32
+#### 1:06:32
 
 **Question**: Roshi? It seems to me that you’re trying to do something a little different than most of the other teachers in the United States. It seems that you’re not so concerned with us fitting *exactly* to the older way of teaching, and that people who won’t fit exactly into it should leave and not participate, and you should either sit or go. It seems more like you’re trying to show us that anybody can practice, and they can fit their lives at least partially to practice; so that you’re more willing to have people fit as much as they can, and if they don’t fit a hundred percent, that’s okay. You know, just fit your life to practice as much as you can; just do that. Is that true? Is that what you see yourself doing?
 
@@ -350,7 +350,7 @@ I don’t know other teachers, so, I just follow the, well, [Buddhistic](glossar
 
 **Katagiri**: That’s why I told you, “open to everybody” is not always good – because you cannot say it in that way. “Katagiri is a different teacher from others” – it seems to be good, but it seems to be not good. I don’t know, *really*, what to do. So, whatever you say: “okay”. But I have to do it.
 
-##### 1:12:12
+#### 1:12:12
 
 **Question**: Can I ask a question about *[unintelligible]*? Does that process happen in certain stages? 
 
@@ -380,7 +380,7 @@ Then the teacher says, “If you think it is important for you to carry the noth
 
 Do you understand? That is the very sticky mind. You cannot get out! Immediately, your tail is stuck in the door. Well, your sleeve is stuck in the door. *[He laughs.]* That is the sticky nature of the mind. That’s why we have to continue practice with no design of having reward. It’s pretty hard, but we can do it.
 
-##### 1:17:37
+#### 1:17:37
 
 **Question**: Roshi? I have a question about the regulation of the breath. If I feel like I can’t breathe, is that my mind attaching to the difficulty?
 
@@ -400,7 +400,7 @@ For instance, if you sit zazen *[strain in voice]* *too hard*, like this – you
 
 **Katagiri**: Hmm. Did you check your posture? If you change the posture: sometimes relax, sometimes a little tension; sometimes straighten more your back and straighten more your head; or sometimes, a little bit adjust your lower abdomen, et cetera. And then take a breath. In many ways, change the posture a little bit, and then breathe. Try, okay? 
 
-##### 1:20:50
+#### 1:20:50
 
 **Question**: Roshi? *[Unintelligible]* It seems like the greater your teacher, the less likely it is that you’ll do everything [just right]. 
 
@@ -432,7 +432,7 @@ Here is another good example. When I was at [Eiheiji](glossary#eiheiji) monaster
 
 So if you are always with a first grade child who is a master of calligraphy, you become a first grade child. It’s not bad; it’s good. 
 
-##### 1:27:20
+#### 1:27:20
 
 **Question**: Is that true on various levels? Like right now, we’re working at the level of discussion and lecture; but does the Zen teacher work with the students at deeper levels of mind as well? In other words, as we sit and practice with you year after year, are we talking about more subtle and deeper qualities too? For instance, psychic levels of awareness, or subconscious levels, deeper of levels of mind that we’re also working on. My inclination is to believe that that’s true; but I can’t prove it or I don’t really know that that’s true. 
 
@@ -462,7 +462,7 @@ Or is that something that you don’t want to talk about?
 
 That’s why that is number six: total personality. Let’s be there. 
 
-##### 1:30:30 end of recording
+#### 1:30:30 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

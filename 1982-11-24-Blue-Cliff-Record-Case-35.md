@@ -11,7 +11,7 @@ description: November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-35" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 The thirty-fifth case of the *Blue Cliff Record*: “The Dialogue of Manjusri and Wu Cho”. 
 
@@ -55,7 +55,7 @@ So that’s why Manjushri said, “In front, three by three; in back, three by t
 
 That is the point this case teaches us. 
 
-##### 19:19
+#### 19:19
 
 The Pointer:
 
@@ -81,7 +81,7 @@ Finally, even though you stand silently in front of someone, it must be a kind o
 
 So that’s why here it says, “Determining dragons and snakes, distinguishing jewels and stones, separating the profound and the naive, to settle all uncertainty:”
 
-##### 24:18
+#### 24:18
 
 > if you haven’t an eye on your forehead and a talisman under your elbow, 
 
@@ -109,7 +109,7 @@ It means, when the object is very clear and your consciousness is very clear, at
 
 Nevertheless, this is not a “spiritual dimension” which makes you spaced out. Still you are you, object is object. Very clearly, we have to discriminate. You cannot mix it up. You are you, your object is your object; you have to see it there. So how will you discriminate? This is a bodhisattva practice. It’s pretty hard, but you can do it. 
 
-##### 34:10
+#### 34:10
 
 So let’s see the case.
 
@@ -152,7 +152,7 @@ How big are your monasteries?
 
 That means, my monastery is *immense*. That’s great, huh? My monastery is immense – huge, vast. Even though there are just the five monks, or three, or one, anyway it’s immense. And then you can practice very stably, *very* stably. But if you are always caught by the number of people who practice at the monasteries, comparing them with other monasteries, you become very unstable. 
 
-##### 42:05
+#### 42:05
 
 The verse:
 
@@ -171,7 +171,7 @@ I told you several years ago, in Zen there are three ways of thinking and unders
 
 (Transcriber’s Note: The conclusion of this talk seems to be missing.)
 
-##### 45:05 end of recording.
+#### 45:05 end of recording.
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

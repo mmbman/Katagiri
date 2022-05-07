@@ -12,7 +12,7 @@ description: November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-25-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 [The pointer to the case:]
 
@@ -44,7 +44,7 @@ And also, a point is that the people around you are important. If the people aro
 
 So that’s why it says here, “If your potential doesn’t leave it’s fixed position, you tumble down into the poison sea.”
 
-##### 11:27
+#### 11:27
 
 When you’re a child, it’s very easy to educate you: “You should believe *A*, *B*, *C*, *D*, *E*.” But then when you grow up, it’s pretty hard to escape from such education. It’s very hard to be free from it, because already such a way of life is rooted in the bottom of your life. To be free from it means to be face-to-face with your real life, regardless of whether you believe in something or not. We have to directly see what is real life. That is pretty hard, pretty hard.
 
@@ -84,7 +84,7 @@ So this silence is really affecting your life. But usually we plant the seed and
 
 So, “If your words don’t startle the crowd, you fall into the streams of the commonplace.” Commonplace means your words becomes very usual. Other people use them. 
 
-##### 27:16
+#### 27:16
 
 Language is very interesting. 
 
@@ -94,7 +94,7 @@ It’s very interesting: [pain is] just a simple, usual word, but it depends on 
 
 So we don’t know what are sharp, helpful, suggestive words. Any kinds of words can become suggestive and instructive, very good words. It depends on you, and it depends on the listener. That’s why Buddha always used words according to the individual’s personality and circumstances, et cetera. 
 
-##### 31:21
+#### 31:21
 
 > Suddenly, if you can distinguish initiate from lay in the light of sparks struck from stone, 
 
@@ -104,7 +104,7 @@ Zen, particularly the *Blue Cliff Record*, pretty often uses these kind of expre
 
 I told you, the truth is characterized by rebalancing your life, constantly rebalancing. Rebalancing means if you touch [the truth] you cannot stay with it, then immediately you have to rebalance your life. That means a spiritual shock. If you really try to, you can have a shock, but if you don’t, well, you don’t. Actually we are always touching [the truth], but our mind is very “dumb,” so we touch it but we don’t know. Always touching [the truth] and rebalancing our life. How dumb our mind is; that’s why we don’t know. Then you practice constantly, and someday you really touch it: *boom*. And then that is called *satori*, maybe. *[He laughs.]* But it’s very rare, very rare. You believe satori is a sort of [sneaky], coming into your life. *[Laughter.]* And then when you realize, “Oh – already I am!” – this is also satori, okay? Don’t worry. Never mind. *[Laughter.]*
 
-##### 35:16
+#### 35:16
 
 > if you can decide between killing and giving life in the light of a flash of lightning, then you can cut off the ten directions and tower up like a thousand fathom wall.
 
@@ -116,7 +116,7 @@ So, “you can decide between killing and giving life in the light of a flash of
 
 “Then you can cut off the ten directions and tower up like a thousand fathom wall.” You can really see the vastness of the human world without *[unintelligible]*. That means full aliveness of your life – not “dry fish.” 
 
-##### 39:10
+#### 39:10
 
 I told you yesterday, Descartes, one of the famous philosophers, said “I am thinking therefore I exist” ... *[Tape change.]* And also Dogen Zenji says to learn Buddhism is to learn the self. And Buddha says the self is something you can depend on. [He says] you can make yourself a light; you can make *a self* a light. So *self* is a light for you, a place for you to depend on.
 
@@ -132,7 +132,7 @@ And that self is what? Dogen Zenji says, you should believe the self is in no de
 
 So it’s very absolute. This is nothing but the rhythm of your life, just the rhythm. Rhythm is not that you should “catch” it, rhythm is that you must be tuned in on the dial to this rhythm and you should dance with it. That is your rhythm, completely beyond whether you like or you dislike, you should live or you should die. When you really tune in on the dial to this rhythm of the self, it is called *truth*. Truth is to follow the rhythm of the self in absolute reality, completely beyond your like or dislike. So if you want to die, you can die. If you want to live, you can live. 
 
-##### 47:26
+#### 47:26
 
 So you say, “So let’s do something that I like, because sooner or later we have to die.” Or, “Life is completely beyond good or bad, right or wrong – if so, why don’t I do as I like?” So is it alright to make a choice of an unwholesome way of life? It’s fine. Well, is it alright to become a bank robber? It’s fine. But if you become a bank robber, you have to accept something: that you must be in jail. Then in jail you say, “Sooner or later we all die, so at that time all I have to do is just die.” 
 
@@ -144,7 +144,7 @@ If you can choose many things, you can choose becoming a bank robber – but you
 
 So if you want to do zazen, you can do zazen. If you don’t want to do zazen, it’s not necessary to do zazen. There is nothing external to *force* you to live or to die, or to do zazen or not to do zazen. Nothing external to force you. That means, you can do anything. 
 
-##### 53:38
+#### 53:38
 
 > But do you know that such a time exists? To test I’m citing this old case: look!
 
@@ -152,7 +152,7 @@ So if you want to do zazen, you can do zazen. If you don’t want to do zazen, i
 
 Do you have any questions? 
 
-##### 54:30
+#### 54:30
 
 **Question**: When you are talking about following the rhythm of our life in the truth ... how deeply are you talking about? On what level?
 
@@ -166,7 +166,7 @@ Completely there is the absolute self going on. All we have to do is to tune the
 
 I took care of a young man who was about to die. At that time he screamed and shouted. He was very wild at that time, because he didn’t want to die. Well, right before he died, he became quiet, because there was nothing to do. And also I was by his bed, but I could not do anything, just be there. So I thought, there is something big that I cannot take care of, [which is] just going. And all he had to do was from moment to moment... I watched him, and he was just tuning the dial into real reality. On the other hand, his head was screaming – but totally screaming is also in the rhythm of just going. But he didn’t realize. So all is going in a big river, just going. If you realize it, it’s not giving up your life or death; we just jump into it, and realize it, and live fully. Instead of becoming “dry fish,” [we jump into] so-called death, or life. So we can do it, we can do it. 
 
-##### 1:00:05
+#### 1:00:05
 
 **Question**: Hojo-san? Yesterday when you talked about the abbot of the Asian monastery who became paralyzed, and he said, “Well, it’s my karma.” Had he become a dead fish or a dry fish, in saying that? 
 
@@ -186,7 +186,7 @@ Yesterday I told you this point. So I told you we have to return to the original
 
 The Zen terms *your original face*, *Buddha Nature*, *the original face of the self* – big terms there, but practically speaking, it’s very realistic. Practically, you have to do [something]. It’s not philosophical discussion. 
 
-##### 1:09:50
+#### 1:09:50
 
 **Question**: Yesterday you talked about the importance of having hopes ... and earlier this week you talked about less desire being full absorption in the present ... How do you have a big hope without having lots of desire and lots of distraction and lots of suffering? *[Laughter.]*
 
@@ -200,7 +200,7 @@ For instance, I always tell you about puffer fish. Puffer fish is very delicious
 
 So if you want to run a big business and make big money, you have to have big money, but simultaneously that money doesn’t stay with you constantly. Money is coming in and the next moment it’s leaving you. Coming in, leaving: that is the circulation of the money. At that time you can run a big business. Look at the Zen Center in San Francisco. Actually they are not rich, they are very poor. At the end of the month, they don’t have any money! At the beginning of the every month, money is coming in; at the end of the month, all the money is gone. *[Laughter.]* But they have great grocery stores, and green restaurants, and a bakery, bookstores; big business. So money is coming in, leaving, coming in, leaving. But when it leaves, it’s pretty painful. We don’t want the money to leave, we want to keep it, but at that time we cannot run a big business. If we want to have a big hope, we should accept this.
 
-##### 1:14:00
+#### 1:14:00
 
 **Question**: Hojo-san, in your example of yourself, you said in your mind you would like to sleep in, you said screaming I think. But it’s not your whole mind that screams, is it? Only part of your mind? *[Laughter.]*
 
@@ -228,7 +228,7 @@ So if you want to run a big business and make big money, you have to have big mo
 
 But Buddhism is not discussing about that. Buddhism is that you have to know that [real] happiness, no trouble, when you are right in the middle of unhappiness, [which is] because people don’t know what is real happiness. So right in the middle of unhappiness, [you] are not confused.
 
-##### 1:19:02 end of recording
+#### 1:19:02 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

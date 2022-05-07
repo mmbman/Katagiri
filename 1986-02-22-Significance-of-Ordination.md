@@ -12,7 +12,7 @@ description: "February 22, 1986 Dharma Talk by Dainin Katagiri Roshi"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Listen to this talk on mnzencenter.org</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 We will have lay ordination at the end of March. So I would like to talk about the significance of lay ordination for a couple of weeks, every Saturday. Today I would like to talk about just the significance of lay ordination. Then after that, from next Saturday, I will explain the contents of the ceremony, one by one. 
 
@@ -24,7 +24,7 @@ This capability is endowed with everyone. Everyone has this capability. That’s
 
 That is the ceremony of lay ordination. So let me explain the points one by one. 
 
-##### 06:06
+#### 06:06
 
 Number one: realization of the truth, we and all beings are Buddha. Realization: we already know this teaching, the truth, because Buddhas and ancestors already mentioned it. This is proof for us that we are great, beyond human speculation. This is a great proof for us, which the ancestors and the Buddhas showed, 2500 years ago. So all we have to do is, we should realize this truth. 
 
@@ -34,7 +34,7 @@ To realize means two activities. One is to know. Second, to accept. That is real
 
 That is called “to digest”. If knowledge is digested completely, there is no trace of knowledge, because knowledge turns into life energy. Just life. No trace of food; all you can see is just life energy in motion, every day. Is that clear? This is realization. 
 
-##### 10:34
+#### 10:34
 
 So let’s look at the “knowing”. What do you mean, “knowing”? Maybe some day I talked about this: the three kinds of knowledge. 
 
@@ -46,7 +46,7 @@ So all you can do is, when you have to help children, [for example] to teach mat
 
 That is the ordinary sense of human knowledge. 
 
-##### 14:30
+#### 14:30
 
 The second one is knowledge beyond an ordinary sense. It means to try to know something true in the world of impermanence. The ordinary sense means to know something *fixed*, in the world of fixed patterns of being.
 
@@ -56,7 +56,7 @@ So that is, I mentioned before: when you teach, when you help somebody, you must
 
 The same applies to the relationship between waves and the water. If you recognize the existence of the waves, what do you mean? Waves are completely something separate from the water? No. Waves and water are working together. So what do you mean, “the existence or the presence of the waves”? If you recognize it, that means the waves must be found in the water. In the river water, which is the bigger scale of the world than waves. But according to the first point, according to the usual type of knowledge, waves are separate. We see the waves in terms of waves; that’s it. 
 
-##### 18:55
+#### 18:55
 
 Dogen Zenji mentions that if you want to know deeply what human life is, first you should put your mind in the truth of impermanence. And then next, immediately we feel something from impermanence, or we experience it. And then next, we *attach* to it. If you attach to it, you think the word, and you think by means of attachment to your own experience, and your own *feeling*. So if you feel pensive from the teaching of impermanence, you say, “Don’t teach that the world is impermanent; it’s dangerous, because it’s pessimistic,” something like that. But it is not true. Even though you feel so or even though you don’t feel so, the world is impermanent. It’s very true. So even though you say, “Don’t teach that truth; it’s very dangerous for Americans,” *[he laughs, and people in the audience laugh]* ... Americans are human beings, same things as Japanese. 
 
@@ -70,7 +70,7 @@ Third, next, Dogen Zenji says, put value on the dharma. It means, not on individ
 
 That is the second point: knowledge beyond the usual sense. 
 
-##### 25:27
+#### 25:27
 
 The third knowing is “supreme knowledge”. 
 
@@ -86,7 +86,7 @@ If I say my existence is really helpful to everyone in the United States, partic
 
 That’s why we can help: because others are not others, others are the contents of my life. That’s why others are completely embraced by my life. At that time, my life can be found within the others. At that time, I can do something with full commitment. This is called compassion. And also, wisdom. This is called “supreme knowledge”.
 
-##### 33:38
+#### 33:38
 
 In the Dhammapada, Verse 228, Buddha says, “There never was, there never will be, nor is there now, a man who is always blamed, or a man who is always praised.” Do you understand? *[He chuckles.]* It’s true. I cannot say, “I am a great teacher” – no way! I cannot do it. Because I know already how my existence gives trouble to people. I cannot say, “good teacher.” But on the other hand, I cannot say, “Bad teacher, bad guy.” No, I cannot say that either. So you have to see one picture where two things are interchanging constantly. 
 
@@ -107,7 +107,7 @@ If you don’t understand, there is a way to experience this anyway. How? Dogen 
 
 That is knowledge: to know, to realize. That is the meaning of “to realize” the truth: all beings are Buddha. 
 
-##### 40:12
+#### 40:12
 
 The second point: “By the profound and steadfast aspiration for living our lives with all beings in peace and harmony in the light of the Buddha.” 
 
@@ -115,7 +115,7 @@ I mentioned, what is a place where you have to stand up constantly, in order to 
 
 Practically speaking, your mind, your life, is always “wriggling” and “wobbling,” always. Complaining, because there are too many hinderances. And also, the world is changing constantly; that’s why you feel constantly uneasy. But, basically, you have to constantly carry on profound steadfast aspiration. This is called Vow. Constantly vow. This vow is to try to live in peace and harmony, with all beings, in terms of the Buddha: Buddha’s teaching, Buddha’s life. Not in terms of individual ideas; in the light of the Buddha.
 
-##### 42:04
+#### 42:04
 
 The third point: “By helping all beings.” 
 
@@ -129,7 +129,7 @@ And if you don’t understand this, still let’s create this opportunity. And t
 
 Okay. Next Saturday, we’ll explain a little more about the concrete aspects of the ceremony, one by one. 
 
-##### 44:33 end of recording
+#### 44:33 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

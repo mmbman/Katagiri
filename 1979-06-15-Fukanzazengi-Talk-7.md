@@ -12,7 +12,7 @@ description: June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-7" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording 
+#### 0:00 start of recording 
 
 (Transcriber’s Note: A loud thunderstorm was going on during this talk. Katagiri Roshi’s words are occasionally punctuated by peals of thunder.)
 
@@ -34,7 +34,7 @@ In those days, the attainment of [samadhi](glossary#samadhi) with no consciousne
 
 So that was really the highest level of practice in those days, a practice [informed] by [Brahmanism](glossary#brahmanism). So, if people attained this, everybody respected it. But [Buddha](glossary#buddha) didn’t do this; Buddha did [zazen](glossary#zazen) with consciousness. Nevertheless, he didn’t hear the sound. His zazen was not disturbed by the sound of the thunder. This layman had never heard before about such a kind of zazen. So he said, “How wonderful, excellent it is!”
 
-##### 6:15
+#### 6:15
 
 [Dogen](glossary#dogen) commented – *[thunder]* – on this story with deepest respect, in the collection of Dogen’s short preachings. Dogen Zenji says:
 
@@ -46,7 +46,7 @@ So that was really the highest level of practice in those days, a practice [info
 
 “The thirty-four ways to sever [delusions](glossary#delusion) manifested themselves within it.” That is, in those days, there were thirty-four techniques to sever the delusions and ... attain [enlightenment](glossary#enlightenment), to enter [nirvana](glossary#nirvana). But if the [Buddha](glossary#buddha) did [zazen](glossary#zazen) with consciousness, at that time within it, the thirty-four ways to sever delusion and enter nirvana manifest themselves. That is [Dogen](glossary#dogen)’s understanding. So it’s [one]. That’s why the layman also said, “How excellent it is.” *[Thunder.]* 
 
-##### 9:14
+#### 9:14
 
 Also, [Dogen Zenji](glossary#dogen) said, in [Bendowa](dogen#bendowa): 
 
@@ -60,7 +60,7 @@ So in this case, the same applied to this. “Within the stillness of [samadhi](
 
 Well, I told you so far, if you do really real zazen – not before zazen, not after zazen – regardless of whether you are conscious of it or not, you are right there, you are right in the middle of zazen. No [delusions](glossary#delusion), no confusions. But consciousness is very picky. So immediately, you can pick up before zazen, after zazen. But if you stop the functioning of your mind, you can be there constantly. But always, consciously, our mind is picky. Even though you are right in the middle of zazen, you say, “Ah – I attain enlightenment.” And then immediately, you sleep. *[Someone chuckles.]* And then you wake up; the moment when you wake up, you say, “Oh – I attain enlightenment.” *[He laughs.]* I don’t think so. You sleep pretty well, in zazen. *[Laughter.]* And then, something happens and you wake up. *[Thunder.]* At that time, you don’t realize whether you were sleeping or you were entering [samadhi](glossary#samadhi). You don’t. So that’s why sometimes you misunderstand: “Oh, I attained enlightenment.” But it’s not actually. *[He laughs.]* 
 
-##### 14:31
+#### 14:31
 
 So sometimes, right in the middle of [zazen](glossary#zazen), still you can go in [enlightenment](glossary#enlightenment) or go out of enlightenment. But whatever you do – goes in, goes out – all are going on right in the middle of zazen. So, [Dogen Zenji](glossary#dogen) says, “Mind and its object both goes in, goes out of enlightenment within zazen itself, in the stillness of [samadhi](glossary#samadhi). Since it occurs within the sphere of jijuyu, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
 
@@ -76,7 +76,7 @@ At that time it is called *jijuyu* – [samadhi](glossary#samadhi) of jijuyu. *J
 
 So that’s why [Dogen Zenji](glossary#dogen) says, “Although in realization the mind and its object both arise and disappear within the stillness of [samadhi](glossary#samadhi), since it occurs within the sphere of jijuyu, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
 
-##### 22:34
+#### 22:34
 
 So from this point, what the [Buddha](glossary#buddha) said, not to hear the sound of the thunder doesn’t mean that he was in a state of no consciousness. He did [zazen](glossary#zazen) with consciousness. If you do zazen with no consciousness, hitting the bell, chanting the sutras – it doesn’t make sense, it’s useless. [Shijo](glossary#shijo), the sign of the beginning of zazen, or [kaijo,] the sign of the end of zazen – it’s ridiculous, it doesn’t make sense. Why do you have to hit the bell, if the main purpose of zazen is to reach the state of no consciousness? It’s not necessary to hit the bell, because even though you hit the bell, you cannot hear it. It’s not necessary to eat your breakfast, and lunch, and dinner, because you can stop your heart for a certain period of time, for seven days. You can do it; maybe so. 
 
@@ -88,7 +88,7 @@ So [zazen](glossary#zazen) is always working in your daily living from morning t
 
 That’s why [Dogen Zenji](glossary#dogen) says, “The [Buddha](glossary#buddha) uses this from morning to night – *[thunder]* – and culminates the quest of his body in the [zendo](glossary#zendo).” “Culminates the quest of his body” means, mind completely fits, fills his body. 
 
-##### 27:42
+#### 27:42
 
 In other words, I always use, “Your kind, compassionate attention must penetrate from the top of your head, to the tip of your toes.” That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can hold back; you can stand up with two hands; but usually you have to stand up with two feet. But that is not the real practice of [Zen](glossary#zen ). You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, your all-circumstances. At that time, you can really culminate the quest of your body. And then you say, “Oh. This is standing up, perfectly.” You feel good at that time. 
 
@@ -104,7 +104,7 @@ That’s why [Dogen Zenji](glossary#dogen) says, “[Buddha](glossary#buddha) us
 
 (Transcriber comment: That was helpful. I wasn’t totally sure if he was saying “culminates” either.)
 
-##### 31:33
+#### 31:33
 
 That’s why in [Fukanzazengi](dogen#fukanzazengi), [Dogen says] “[Zazen](glossary#zazen)  *[thunder]* must be deportment beyond one’s hearing and seeing.” But, of course there is hearing and seeing, because you cannot move even a single mote of dust, nor infringe upon a single phenomenon. So finally, you can manifest the beautiful flower of the total personality, right in the middle of zazen. So, at that time, “Is it not a principle that is prior to one’s knowledge and perceptions.” You have to use knowledge and perceptions – not no-mind. “No mind” means through and through, you have to use mind.
 
@@ -112,7 +112,7 @@ So, that is the practice of regulation of your body, breath, and mind. We should
 
 So, the final goal of the practice of regulating the mind is to be free from mind, because mind is picky. That’s why [Dogen Zenji](glossary#dogen) says, we have to practice [samadhi](glossary#samadhi), complete samadhi, becoming one; using your whole body and mind, in order to fit your object perfectly. Adjusting, regulating your body, and breath, and mind. And then, if everything is perfect at that time, very naturally, your body fits to your object. And then, something happens. Something happens. We don’t know what it is. And then when we see it, when your mind is immediately there and picking that, then we say, “Oh, that’s zazen.” But before your mind picks it up, that zazen is no-name. Just, something happens. So, very naturally, zazen blooms. And also you bloom, as total personality, there. 
 
-##### 35:18
+#### 35:18
 
 Yesterday I told you, between the two objects there is a kind of force, that is just a condition; condition or fact. That condition or conditioned element is a kind of force to unify two objects perfectly. That conditioned element is a kind of force which melds each object, used perfectly, in order to fit another object. That is conditioned element. Even if you don’t like and you try to escape a certain situation, or if you do something at random, immediately there is some problem there. But basically, there are two objects completely unified. By what? Conditioned elements. But this conditioned element, we don’t know what it is – because this is just dynamic working, that’s all. We don’t know how two objects are fit together. But anyway, conditioned elements can use one subject exactly perfectly in order to fit its own object. At that time, something happens. Striking the toe, and blood comes. 
 
@@ -126,7 +126,7 @@ That is called zazen, based on body and mind dropping off.
 
 Okay, do you have any questions?  
 
-##### 39:44
+#### 39:44
 
 **Question**: [Roshi](glossary#roshi)? Earlier on, you told us the story of the monk who asked the master, “Do you hear the raindrops?” And he said, “I almost hear the raindrops.” And you just mentioned that [Buddha](glossary#buddha) said he didn’t hear the thunder. Are they saying the same thing as ... ?
 
@@ -140,7 +140,7 @@ In the monastery, the Ino hits the *[unintelligible]* with a small piece of wood
 
 That’s why ... [Buddha](glossary#buddha) said, he didn’t hear the sound of the thunder. *[Unintelligible.]* But on the other hand, Buddha says, “I almost lose myself by the sound of the thunder.” *[He chuckles.]* That’s okay, because he is in the middle. Any time, anywhere, he can go in all directions. If you are always on the right side, it’s pretty hard to go to the left side. But in the middle, it’s pretty easy to go in all directions. 
 
-##### 46:10
+#### 46:10
 
 **Question**: Is that what we mean by the Middle Way?
 
@@ -152,7 +152,7 @@ Before, I told you always, there is a scale. Now why don’t you point out the *
 
 *[Tape change.]*
 
-##### 47:30
+#### 47:30
 
 (Transcriber’s Note: The following anecdote, at the end of the seven day sesshin, starts quietly, but is difficult to transcribe after a while because it’s hard to hear over all the laughter.)
 
@@ -172,7 +172,7 @@ Finally, all *[unintelligible]* gone. “Yes.” *[Laughter.]*
 
 Remember that story. That’s a beautiful story, isn’t it?
 
-##### 51:04 end of recording
+#### 51:04 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

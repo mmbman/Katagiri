@@ -12,7 +12,7 @@ description: December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/walking-alone-with-open-heart" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 Good morning. It seems like we haven’t had a talk on a Saturday for a long time. For me, it seems to be for many years. *[He laughs.]* Anyway, I am very glad to have this opportunity today. 
 
@@ -22,7 +22,7 @@ In Japanese, devotion is called *kie* or *kimyo*. The *ki* of kimyo is “return
 
 That is called *devotion* in English. I don’t know the original meaning of devotion in English, but in Japanese we call it *kimyo*: “return to life”. *Life* means the original, ultimate state of life – in other words *universal life*, covering a very wide range that you are connected with in some sense. You have to return to that life; this is called *kimyo* or *devotion*. Dogen Zenji mentions, “You have to return to something true”; this is called “taking refuge in Buddha, Dharma, and Sangha,” or “taking refuge in the Triple Treasure.” Very often we chant, “I take refuge in the Buddha, I take refuge in Dharma, I take refuge in Sangha.” Devotion is to return to something true, something ultimate. That’s why devotion is important for us.
 
-##### 06:22
+#### 06:22
 
 In general Buddhism, that something ultimate, or the truth, is called *dharma*. Generally, the idea of dharma [...] has two meanings: one is the principle of ultimate being, the second is all things in the phenomenal word. “In the phenomenal world” means not only the phenomenal world, but also including the ultimate nature of existence too – so, everything. 
 
@@ -30,7 +30,7 @@ In this case, we understand dharma in terms of these meanings – the principle 
 
 That’s why Shakyamuni Buddha says you should rely on the self, you should rely on the dharma. You should rely on the dharma, but simultaneously that is the principle of ultimate existence, common to everything. What does Buddhism believe in? Dharma. So you should believe in the dharma as a *principle* of ultimate existence, common to everyone, everything. But *faith*, so-called *belief*, is something alive. That is you; you have to make it alive. That’s why Buddha says, “rely on the self”.
 
-##### 10:33
+#### 10:33
 
 From this point, the meaning of the dharma connected with the self is not merely the idea of all things we have usually thought, but kind of everything without exception, which means the internal and external factors that your individual existence is constituted of. In other words, the dharma connected with you is something connected in the wide range. Because without you, “all things” doesn’t make sense. Even though you say “all things”, if “all things” are not connected with you, then “all things” doesn’t make sense, because that is nothing but an idea.
 
@@ -38,7 +38,7 @@ Does Japan exist? Japan exists, or an unknown planet exists, someone says, but y
 
 So the dharma connected with your individual life is not an idea of universal things, common to everything, in which you presume an idea of “all things” in advance. Is that clear? But it is all things which exist in the whole wide range, as long as your individual life is connected with it in some sense, or in many senses. That is called *dharma*, we say.
 
-##### 15:01
+#### 15:01
 
 So that dharma is what is called “something true you can depend on,” which means you can be right in it, beyond whether you are conscious of it or not. That dharma is very pure and simple. It is very tolerant, soft, and flexible – but very sharp, *very* sharp, because if you poke your head into it, it’s already dualistic. 
 
@@ -58,7 +58,7 @@ How can you receive and deal with and live in the dharma [in this way]? That is 
 
 That is a point: how you can receive it, and deal with it, and live in it. 
 
-##### 24:54
+#### 24:54
 
 The Buddha mentions this. In Sutta Nipāta, which are the oldest Buddhist scriptures, number 213 (1.12; also known as Muni Sutta or “The Sage”) says:
 
@@ -117,7 +117,7 @@ People are always struggling, fighting, screaming, and blaming – that’s pret
 
 If you receive the dharma, and deal with the dharma, and are living the dharma, it is just like this. This is not a dogmatic way of life (so to speak). It’s very strong: *you* are *you*. From the beginning to end, you have to be in the moment, you have to take care of the moment, day to day. This is not dogmatic, because next, that self is completely open to everything.
 
-##### 39:02
+#### 39:02
 
 Buddha says, 
 
@@ -147,7 +147,7 @@ You shouldn’t ignore anything of the world; you cannot be alone. “Unobstruct
 
 Walking alone is not dogmatic: walk alone *with* all sentient beings. If you walk alone, then you can share your life with all sentient beings. 
 
-##### 44:39
+#### 44:39
 
 And also, here is another thing which is very interesting.
 
@@ -192,7 +192,7 @@ And also he says:
 
 “As you stand, or walk, or sit, or lie, reflect with all your might on this” means even though you sleep, or stand, sit, or walk on the street, you try to practice believing in the dharma, receiving the dharma, and living the dharma. Anyway, try. This is the practice. 
 
-##### 49:45
+#### 49:45
 
 Devotion must be practiced in terms of two points. One is that you have to walk alone, because the dharma you believe in is the simplest expression of ultimate existence. So you have to walk alone; steadfast, not pessimistically; tranquil and positively. In this way of life, there is no excuse. When the morning comes, morning is morning. When breakfast comes, breakfast is breakfast. When winter comes, winter is winter. So you have to meet winter, and receive it, and live it, without being tossed away so much. A little tossed away is fine. *[He laughs.]* Because you’re a human being. If you think, “I hate winter,” that’s fine. But you should stop as soon as possible, not creating hatred again and again. Then, finally, you really appreciate winter. That is our practice. No excuse, and no commentary. That is one point.
 
@@ -200,7 +200,7 @@ The other point is that devotion must be compassionate, open to everything. You 
 
 So, devotion is that you have to return to the dharma which is the simplest expression of ultimate existence, and then this dharma must be alive in your life because you deal with it. You have to receive it, and deal with it, and live in it. So *you* must be simple. That is belief in the dharma: you are a very simple human being that is walking alone. Simultaneously, you are very compassionate, open-hearted. Open-hearted means not to be much tossed away by blame or by praise. This is devotion. Under all circumstances, from the beginning to end, you should devote to dharma. 
 
-##### 53:15
+#### 53:15
 
 But as long as you live in the human world, many things occur, as you know pretty well. Not only good things; sometimes bad, or more than bad. There are many things which leave you in bewilderment. At that time, most people quit devoting to dharma, or they have doubts about the truth, about the dharma mentioned by Buddhas and ancestors. Whether you quit or continue depends on you; that’s fine. But if you quit, you never know something deeply; because if you go and change ways, and then get something else, you become a beginner again. So the practice of devotion is to go deeply, from the beginning to the end. Go deeply under all circumstances, and then through the dharma you can see what human beings are. And the human beings which you have tasted through the dharma can show what the dharma is. That’s why Buddha says, “If you see me, you can see dharma; if you see the dharma, you can see me.” This is important for us. 
 
@@ -220,7 +220,7 @@ Do you have questions?
 
 *[Silence.]*
 
-##### 1:03:02
+#### 1:03:02
 
 Buddhism has been handed down to different countries: China, Korea, Tibet, and Japan, et cetera. But when Buddhism becomes part of the culture in each different country, the cultural aspects of Buddhism has lots of complicated stuff. *[He chuckles.]* That makes you confused. 
 
@@ -234,7 +234,7 @@ So I can accept your problems and your complaints, but... I cannot do anything. 
 
 Anyway, we have to deal with human problems in the sangha – but first, standing in the dharma. Then you can deal with human problems.
 
-##### 1:07:30
+#### 1:07:30
 
 In January we will have a “community building workshop”. That’s interesting. I think you will see lots of complaints from individuals at that workshop. But don’t be confused, okay? Just listen. And you should realize, that is human. If you open your heart, how many complaints are there? Millions. *[Laughter.]* How many satisfactions are there? Just a little bit. *[He laughs.]* Myriad dissatisfactions there. But you don’t know what the dissatisfactions are. You don’t know from where the dissatisfactions come. That’s why you’re confused. Satisfaction is just a little amount.
 
@@ -260,7 +260,7 @@ Do you have some questions? Anything is fine.
 
 **Katagiri**: May be; but that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this “family workshop”, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this particular kind of workshop. Most of those who are asked see a little more the negative aspect of the sangha than the positive. That’s why we try to have the workshop. So if you have this workshop, I think the negative is coming up. But I don’t think we’re always negative; positive things come up. If positive things are always coming up, that’s lucky – real lucky. I hope for that.
 
-##### 1:12:11
+#### 1:12:11
 
 **Question**: You were talking about criticism earlier. How does one criticize without criticism leading to conflict? Because sometimes it’s probably necessary to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
 
@@ -270,7 +270,7 @@ I think it is not necessary to criticize, basically. If it is necessary, I think
 
 In order to walk, you need a peaceful way of life, more or less; because you don’t walk alone, you have to walk with people. And then, conflict comes out not as an idea, conflict comes out as something real; you have to deal with them right now. If they stumble over the rock, then give them a hand, instead of saying, “Your walking is careless.” Give a hand to him or her, and spring back again, and walk.
 
-##### 1:16:23 end of recording
+#### 1:16:23 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

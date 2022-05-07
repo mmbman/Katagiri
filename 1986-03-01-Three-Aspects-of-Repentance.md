@@ -12,7 +12,7 @@ description: "March 1, 1986 Dharma Talk by Dainin Katagiri Roshi"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/three-aspects-of-repentance" target="_blank">Listen to this talk on mnzencenter.org</a>
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 Last week, we studied the significance of lay ordination. Today, I would like to talk about *repentance*, because lay ordination begins with the ritual of repentance. Sometimes Buddhist repentance is translated as *formless repentance* (transcriber’s note: or *formless atonement*). But anyway, let’s use the usual term *repentance*.
 
@@ -22,7 +22,7 @@ I think repentance in Buddhism is to be present right in the middle of peace and
 
 If you always deal with repentance in dualism, whatever kind of object you try to make repentance with, you create more and more a big gap between. So I think repentance itself is perfect [...] reposing. Reposing means making your life exactly peaceful. This is repentance.
 
-##### 4:23
+#### 4:23
 
 So what is the significance of repentance in Zen Buddhism? Let’s consider it as three conditions. 
 
@@ -50,7 +50,7 @@ The Buddha mentions, “I and heaven and earth are [of] the same one root.” Or
 
 From the first condition, all sentient beings are allowed to live, exactly. Whatever you think, you are, from the beginning, forgiven for living your life in this world. That’s why, if you see something, whatever it is, it has some reason why it exists. Even evil, even good, even the neutral sense – you cannot destroy them. Even though you don’t like devils, even though you don’t like monsters, still they have some reason why they exist. Everything is entitled to live in this world in peace and harmony, beyond your judgement and evaluation. This is the first condition which we have to realize: all are Buddha. 
 
-##### 20:19
+#### 20:19
 
 The second condition for this repentance: we should realize that the self accepts this Buddha’s compassion with readiness. 
 
@@ -64,7 +64,7 @@ So, not only the passive. Someone says, “the universe takes care of me.” Of 
 
 What do you mean? Is that practice a matter of discussion? No, I don’t think so. If you do it in that way, discussion comes after. Ideas and teachings come up; teachings or ideas are exactly the contents of your life, if you take care of your life like this. So very naturally, you can teach, you can get thoughts, if you live like this. 
 
-##### 27:32
+#### 27:32
 
 The founder of Buddhism is Shakyamuni Buddha. In Chinese, *shakya* is translated as *no-nin*. In Chinese, *no* means “subjectivity”. The *nin* of *no-nin* is “human”. So the *shakya* of Shakyamuni is “the self as subjectivity”. You cannot lose the subjectivity. 
 
@@ -76,7 +76,7 @@ That’s why Shakyamuni is the person who attains the self as subjectivity who p
 
 So this the second condition.
 
-##### 32:02
+#### 32:02
 
 One more thing: technically, Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” “Passing through a thicket of brambles” means complicated troubles in the human world. It’s very complicated, but you have to pass through anyway, you have to always carry on despite the troubles. I don’t think you should ignore the troubles, you have to take care of the troubles, but you cannot stay with them. So that means passing through, constantly. 
 
@@ -84,7 +84,7 @@ And also, “cutting down a thicket of sandalwood” means something good, somet
 
 And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to the purity *and to impurity*, too. This is the essential nature of repentance. 
 
-##### 34:09
+#### 34:09
 
 So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert which I mentioned a couple of years ago: “How To Make A Portrait Of A Bird”. Do you remember? That’s very beautiful for children. 
 
@@ -158,7 +158,7 @@ So, those are the three conditions which are necessary for repentance.
 
 Do you have a question?
 
-##### 48:49
+#### 48:49
 
 **Question**: When you were talking about entering the life of the brambles and cutting down the sandalwood: why do you have to cut down the sandalwood?
 
@@ -170,7 +170,7 @@ So I cannot say, “I am a teacher,” attaching to my position; but on the othe
 
 “Cut down” doesn’t mean to destroy. Because you already experience it! So you should appreciate it, but you cannot stay with it. Always two things: you hold it, and also you cannot hold it, so you have to let go, you have to pass through. These two practices are always with us. If the sutra uses “cut off” in the negative sense, we always feel pensive, because we are ignoring something completely. No. You cannot ignore anything, because you are already there.
 
-##### 53:06 end of recording
+#### 53:06 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

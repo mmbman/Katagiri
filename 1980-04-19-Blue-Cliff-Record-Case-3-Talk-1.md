@@ -12,7 +12,7 @@ description: April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 Blue Cliff Record, Case 3, “Master Ma is Unwell”:
 
@@ -36,7 +36,7 @@ So that is the meaning of Sun Face Buddha, Moon Face Buddha. This is a feeling o
 
 That is the case, or story. 
 
-##### 5:32
+#### 5:32
 
 [Setchō Zen Master](glossary#setchō-jūken) wrote a Pointer, so first let me read the Pointer:
 
@@ -54,7 +54,7 @@ Zazen is the “one object”. Whatever you do, there are always two objects, an
 
 Shakyamuni Buddha showed the flowers with his hand, and [Mahākāśyapa](glossary#mahākāśyapa), one of his disciples, smiled when he saw the Buddha’s flowers. “Mahākāśyapa smiled” is exactly one device; one opportunity, one action of Mahākāśyapa’s life. And the flowers shown by Buddha are “one object.”
 
-##### 9:50
+#### 9:50
 
 “One word, one phrase”: You know this pretty well. This is the explanation of existence in a word. Without words and phrases, we cannot find the opportunity to communicate with each other. So if you want to teach something to people, we need four circumstances: one device, one object, one word, one phrase. Time, opportunity, action of your life, and your object. And also there is action: verbal action, or sometimes not verbal action. Even though you don’t use words, still there is [utterance]. 
 
@@ -62,7 +62,7 @@ So, “One device, one object; one word, one phrase – the intent is that you w
 
 That’s why the intent is that you will have a place to enter. Through these four – the device, object, word, phrase – we can communicate the universal life, and we can communicate human life to each other. Understanding, living in peace and harmony. It is ... to guide people to realize a place to enter [nirvana](glossary#nirvana): a peaceful life, a peaceful world. How to live; how to exist. 
 
-##### 13:44
+#### 13:44
 
 “Still this is gouging a wound in healthy flesh”: “Healthy flesh” means human body, human mind. “Still this is gouging a wound” means always there is human consciousness, poking our head into a hole, just like a [cat](glossary#cat). We really make a hole, and stay in it, because we are interested in seeing what is in it. 
 
@@ -76,7 +76,7 @@ This [spirit of] question is always within the human being: how to use modern ci
 
 That’s why Setchō Zen Master says, “Still this is gouging a wound in healthy flesh.” We are, our body and mind are, originally [very fleshy].
 
-##### 18:52
+#### 18:52
 
 “It can become a nest or den.” If you poke your head into modern civilization, or the atomic bomb, or whatever it is, we really try to stay with it, believing, “That is my den. That is modern civilization; we should depend on it.” But if you think modern civilization is best, rather than ‘primitive’ peoples – well, that is a little bit dangerous. What is modern civilization? [It is] creating ideas [about] human beings; it’s not better, it’s not ‘good’. 
 
@@ -88,7 +88,7 @@ I told you sometimes: if you’re always selling fish, your body and mind have a
 
 So, the same applies to human life. 
 
-##### 21:33
+#### 21:33
 
 ... The second section is:
 
@@ -104,7 +104,7 @@ The second section is completely opposite to the first section. In the second se
 
 Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#buddha) and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to [face it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
 
-##### 27:19
+#### 27:19
 
 In other words, as I told you before: modern civilization is pretty good for us, and consciousness is pretty good for us, but we have to transcend the function of consciousness. 
 
@@ -116,7 +116,7 @@ We really believe individual life, we really believe in modern civilization, bec
 
 We should appreciate modern civilization, because we can live in a better way. On the other hand, we should transcend, we should go beyond. That means, watch modern civilization – where we are going, what’s going on.
 
-##### 30:30
+#### 30:30
 
 Secondly, regardless of whether you like or dislike, we have to transcend. We must transcend. That means, completely speaking, we have to reflect upon ourselves and move toward the future, for future generations, day after day, in order to transmit human life in a proper way, in order to transmit human knowledge in a proper way, not in a wrong way. For this, we have to *practice*, to reflect upon ourselves and what we have done in the world of modern civilization, with gratitude for consciousness and modern civilization. And [helping]; and transmit how important human life is to future generations. 
 
@@ -128,7 +128,7 @@ That’s why here it says that the Great Function appears constantly without abi
 
 What is spring? Basically, spring is free from your ideas, the principles or rules you have set up. Spring is something transcendent, completely transcendent. 
 
-##### 34:15
+#### 34:15
 
 > This great function covers the sky, covers the earth.
 
@@ -140,7 +140,7 @@ That wind which is coming – I don’t know from where. From fan, or from wind?
 
 That’s why Setchō Zen Master says, “It covers the sky, covers the earth, yet it cannot be grasped.”
 
-##### 36:55 
+#### 36:55 
 
 The third section says:
 
@@ -168,7 +168,7 @@ But before “just do”, consciousness is always poking it’s own head into th
 
 But you cannot do this always. Of course, you can make a hole. And if you believe it’s your den, that’s okay; next, let it go. Get out from the den. That means, *just do*. Just *shikan* taza. 
 
-##### 45:00
+#### 45:00
 
  > This way will do, not this way will do too—this is too diffuse.
   
@@ -192,7 +192,7 @@ And then you experience something bitter. So you say, “My life is bitter.” B
 
 So, that is “diffuse”. 
 
-##### 52:11
+#### 52:11
 
 > This way won’t do, not this way won’t do either – this is too cut off. 
 
@@ -212,7 +212,7 @@ Intellectual understanding is really pretty strange; but in a sense, wonderful. 
 
 So, interdependent co-origination is something you have to experience directly from interdependent co-origination itself. How? Why don’t you dive into the ocean. That’s enough. And then, your body starts to work. 
 
-##### 59:36
+#### 59:36
 
 It’s just like my brother, I told you before – do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim! If you enter the Navy, you should learn swimming, you should be a master swimmer. But he couldn’t. So one day a sergeant threw him out of the boat into the ocean. He was very surprised. “Oh no!” *[Laughter.]* No way to escape. But his other friends were watching carefully; if something happened, somebody would help him. But for him, for my brother, there was no way to escape, no way to know somebody was watching him. Already there!
 
@@ -230,7 +230,7 @@ That’s why Setchō Zen Master says, “This way will not do, not this way will
 
 [This is true] even for the Buddha; because that interdependent co-origination is really something without discipline or rules. That’s why this is “too cut off”: no communication. But, we can *be*. 
 
-##### 1:04:29
+#### 1:04:29
 
 That is the fourth section; the fifth section is: 
 
@@ -252,7 +252,7 @@ This is “right”: Right View, Right Thinking, according the Buddha’s [Noble
 
 That’s why this is what would be right. In terms of this activity, you cannot say “this way is good” or “not this way is good”; you cannot say so completely. This is the Great Function.
 
-##### 1:12:12
+#### 1:12:12
 
 So, “Please test; I cite this for you to see.” 
 
@@ -278,7 +278,7 @@ So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha
 
 But if you see sort of a face that you can depend on, that face is really [a trick]. It’s not the real face. This is very important, through the face you can see the real face. But that face always leaves you with a question, “What is your face,” constantly. *[Unintelligible.]*
 
-##### 1:19:37 end of recording
+#### 1:19:37 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

@@ -12,7 +12,7 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 ... This morning I would like to say the karmas which is ... individual and simultaneously is not individual. Completely beyond our individual control; this is also [karma](glossary#karma). With karma, we can realize very contradictory state of situation. Karma is always within individual life from this point. There is there is no other way that we [can] take responsibility for our actions for our individual life. On the other hand, karma is completely beyond individual control. Regardless of whether you like or dislike; regardless of whether you control or not; regardless of [whether] it is something created by somebody else, or whatever it is, anyway, it is completely beyond your control. As long as it is within you, that is something we have to take responsibility [for]. So that is very contradictory. That is also important point: we have to understand karma and how we should be free from karmas. It takes time. It really takes time. But if you study [Buddhism](glossary#buddhism), you understand, very well. 
 
@@ -20,7 +20,7 @@ And because, in the bulletin, we have a certain system of  ...  dhyāna, meditat
 
 Yesterday I told you, [karma](glossary#karma) is, according to twelve chain causation, karma is [samskara](glossary#samskara), and also bhava. Samskara is first stage of human movement. This is called samskara. And the other one is bhava, existence. Existence is present situation, what you are, or what *[unintelligible]* is, what consciousness is. Whatever it is. Anyway, that is existence. Something existent is alive in the [dualistic](glossary#dualistic) world. That is existence, being. 
 
-##### 4:26
+#### 4:26
 
 The [karma](glossary#karma) as [samskara](glossary#samskara), meaning ... the quality of karma under samskara is avidyā, I told you before, yesterday. Avidyā, ignorance. Ignorance is a state that one is doomed not to know the truth as it is, exactly. Although, one is always present in it. We are present, constantly present in the truth. But, we are doomed not to know it as such. 
 
@@ -42,7 +42,7 @@ From this point, [karma](glossary#karma) is exactly within us. And simultaneousl
 
 Through this human body and mind, we have to know what [karma](glossary#karma) is, what is the basis of human existence. That is really, no other better way. No other way; just to meditate, do zazen, and then you can understand this. 
 
-##### 15:00
+#### 15:00
 
 There is one question. 
 
@@ -124,7 +124,7 @@ And then, ... but the other karma is individual karma. That is, you are American
 
 Do you have questions? 
 
-##### 48:30
+#### 48:30
 
 **Question**: When you stopped smoking, did will figure into that as well as all the circumstances being right? Or could you always come back, at any time, if the time is right?
 
@@ -140,7 +140,7 @@ So even though you smoke or whatever, under all circumstances, always, there is 
 
 **Katagiri**: Sure, you can say ‘envision’, you can ... ‘image’. Whatever it is. 
 
-##### 52:15
+#### 52:15
 
 
 **Question**: Roshi, what is the relationship of will to karma. The first day, you said something about karma being ... freedom.... In order to change your life. 
@@ -157,13 +157,13 @@ For instance, if I behave in a strange way, then you say, “You are strange.”
 
 So, that is nothing but movement, vitality. If you understand this karma, completely no control. And often this ... But if you understand karma just like this, you fall into pessimism, or petulism. But just because you understand it intellectually, this is not something you should understand intellectually. Your karma and you have carried for many many years is ... no, not a matter of understanding, but a matter of penetrating the [bones,] skin and marrow. That means total ... And then, at that time, you can turn a new leaf. That turning a new leaf is exactly connected with teaching, which is called dynamism, or energy. Nothing but energy, many streams of creating vitality. 
 
-##### 58:55
+#### 58:55
 
 **Question**: Hojo-san? ... the will ... go against karma. Do you think it’s still necessary ... You say you vow to quit smoking, yet you continue to smoke. Do you think ... is necessary in order to reach that point of ...
 
 **Katagiri**: Maybe so. It depends on the individual; it’s different. But anyway, we have to use the will, and your determination, your consciousness, et cetera. Because you are already [an] existent being, okay? So, being is constantly change, and also beings are also right in the middle of the dualistic world. So we have to use.
 
-##### 59:58
+#### 59:58
 
 **Question**: Hojo-san, when we act on our consciousness and our will, are there – unless it’s in your karma, then you will not be able to change your karma, right? You’ll just... you can’t change your karma by your will?
 
@@ -177,7 +177,7 @@ So, that is nothing but movement, vitality. If you understand this karma, comple
 
 **Katagiri**: That is good karma. If you turn it again, give it back, that is good karma anyway. Even though after this. But this karma is also the unmanifested karma you can store in your life. So any good karmas, evil karmas, anyway [they are] stored in your life. It doesn’t appear. So, only when the time and conditions are arranged, or ... And then at that time it can up. But if you don’t, very naturally, it disappears. Unmanifested karma disappears. And then if you always create good karmas every day, you can store good karmas. Do you understand? 
 
-##### 1:03:00
+#### 1:03:00
 
 **Question**: Hojo-san? You were saying when the time is right it happens, like you can let go of smoking. Well how about great determination, or we talk about great determination. How does that fit in? 
 
@@ -191,7 +191,7 @@ So, that is nothing but movement, vitality. If you understand this karma, comple
 
 **Katagiri**: Yes I think so, determination. Environment, and also sesshin, and people encouraging me, and et cetera. So all things put together and just ... But if I try by myself, using my little will, that is pretty hard. That’s why we need environment, and friends, and many things. 
 
-##### 1:04:21
+#### 1:04:21
 
 **Question**: Hojo-san? Unmanifested karma carries through from life to life, ... But yet ... transforms from one life to the next? You know your smoking habit probably because you smoked in your last life? That could be because you were in a fire or something like that?
 
@@ -205,7 +205,7 @@ So, that is nothing but movement, vitality. If you understand this karma, comple
 
 **Katagiri**: You mean that karma can be carried on toward the future? From the past, to the future? Well, sure. Even though I talk with you, now I don’t smoke. But there is no guarantee! I have quite. Of course I have quit now, but there is not guarantee. Probably I could smoke again. Do you understand? So still I carried my karmas. Any time the door is opened, so no one can touch it, only the time and conditions can touch it, open that door. They come up. So that’s why if you understand karma and human life very deeply through the meditation, you become more careful of taking care of your life. Because time and conditions. Even though you say “I am a great person,” good person, mature person, whatever you say – that’s just your understanding. It is not guarantee. But if you are mature, that fact is okay, we should take care of. You can be proud of yourself. But that pride is not final thing you can depend on. The path sometimes goes to hell. *[Laughter.]* It’s very true.
 
-##### 1:07:00
+#### 1:07:00
 
 **Question**: Hojo-san? Does the form the you act out your karma in, to take another example, ... If I or if I don’t have any ability in this life to control my eating ... Does that mean that in a previous life it was an eating issue? Or could it have been ...? How are the karmas in different lives carried over? Does it mean that my ancestors maybe were starving and so they didn’t have enough food, so now in my life I am not able to control my eating and I eat a lot? Is it that connection? Or could it be that they have the same problems, were they overeaters in their lives, and that’s passed on? Is it passed on in the exact same form, or how does it change? 
 
@@ -217,13 +217,13 @@ So, that is nothing but movement, vitality. If you understand this karma, comple
 
 For instance, maybe a few days ago if a person died when he walked on the bridge, immediately the bridge broke and he died. If someone survived right on the edge of the broken bridge – what’s the difference? Is there some reason? No way. *Why*? We don’t [know]. Maybe he did something wrong in the past. The survived person, maybe he did something good in the past. That’s one theory. *[He chuckles.]* But it’s not necessary to put a certain label on it, okay? This is a pretty good attitude toward human life, without arrogance. You can be really humble, modest toward human life, because you can see that long range of life. If you really understand that just the present life and then if he died on the bridge like this, you really get out if, “Why [did] only I have to die?” Well you died already from the story, anyway. *[He laughs.]* But this is something that happens always. So only why I have to have a pain in zazen like this. Well you really are confused. That is, even though good or bad, it’s really a narrow understand. Narrow understanding really makes people arrogant. 
 
-##### 1:12:42
+#### 1:12:42
 
 **Question**: Roshi? If you’re constantly subject to the result of your earlier actions, how is it possible to be free from birth and death? If any time you’re alive, you’re constantly creating karma for the future, and there’s no way to be free from that, how is it that we can be free from birth and death? 
 
 **Katagiri**: That’s why toward the future we have to store unmanifested karma, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves impression to your life, and we can carry on, toward the future. At that time, we can carry this good karma as unmanifested karma. So very naturally, you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage. And then, good karma is stored in your life, for the future. The moment when you store good karma, at that time unmanifested karma, but this completely turns into neutral nature. So, nothing to fix. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good. Then the karma appears. 
 
-##### 1:15:03 end of recording
+#### 1:15:03 end of recording
 
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).

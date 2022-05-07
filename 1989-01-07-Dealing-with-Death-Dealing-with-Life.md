@@ -14,7 +14,7 @@ description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-11365083" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 (The recording begins with the community chanting the Verse of Opening the Sutras:)
 
@@ -34,7 +34,7 @@ I think not only I but also most of you have to face this kind of reality, and w
 
 One point is that we have to really deeply understand human suffering and pain. Suffering and pain never go away. Even though you attain enlightenment, or even though you become a Buddha – or bodhisattva, or saint, whatever you call it – suffering and pain never go away. The more deeply you are a bodhisattva, the more you really see the minute vibration of suffering coming up from the depth of your heart.
 
-##### 6:10
+#### 6:10
 
 Even in Japan, I think we have a certain preconception that when you become a Zen priest, you have to die in sitting position, in zazen, or that you have to die peacefully. But I think, strictly speaking, there is no particular pattern how to die. It’s completely free. I don’t think you should have a certain pattern of how to die peacefully or happily. You can have an idea of how to die, of what is a happy death. You can have that. But there is no guarantee. When you really face death itself directly, there are no guarantees, because [at that time] death is not something objectified. You want to see it, but you are *right there*; there is no space for you to look at death objectively. No way. You are there, and [...] you must be alive there. So still you have to understand how to live from moment to moment, instead of looking at death objectively. That is not so easy for us. 
 
@@ -46,7 +46,7 @@ I mentioned a little bit about silence in my book (*Returning to Silence*), in t
 
 Human suffering, human pain, is not something you try to create or you try to remove. It’s already there. Particularly at the last moment, that pain really comes up and is very conspicuous for you. That’s why it’s very difficult to be with it. So you should understand this. I don’t mean you shouldn’t give any words to him or her who is going to die; I don’t mean that. If there is something you want to give, you should give it. But a point is, you have to understand what is suffering. At peoples’ last moment, you should know this. 
 
-##### 12:58
+#### 12:58
 
 I think there are many complicated emotions in the person who is going to die. The feeling of resignation, and anger, and despair, and also sentimental feelings. Most people go back to the past, or to the future, or to parents and native countries. I am here, but naturally I am going back to Japan, and being intimate with my parents – well my parents have already died, but still my memories and my imagination are going to my past life. That’s natural. 
 
@@ -58,7 +58,7 @@ I think if you go to the hospital, the doctor always tries to cure the sickness.
 
 One Zen teacher, when one of his disciples asked him, “What do you think about death?” he said, “I don’t want to die.” The disciple didn’t expect such a statement, because they believed their teacher was exactly a great Zen Master, and a Zen Master should say, “I am happy.” *[Some laughter.]* I don’t think it is happy. Zen teachers are very straightforward toward death. I think that means you should understand really deep human suffering and pain. Otherwise you cannot be there; otherwise you cannot explain; otherwise you cannot say anything about suffering or pain. 
 
-##### 19:22
+#### 19:22
 
 Another point is, I think you should have a feeling of togetherness. Of course in terms of the idea of death, between you and the patient there is a separation. That is an idea. When you see the idea of death, there is a separation between you and the patient. But in terms of *reality*, true reality, there is no separation; you and the patient who is dying are exactly one. That’s why you want to be there with him or her, and also you want to serve him or her. If she wants to have a cup of water, you can give it, you know? You can serve her or him. 
 
@@ -72,7 +72,7 @@ That everyday practice seems to be small, trifling things; very small things you
 
 Psychologists maybe won’t say it in that way. They might say, “If you are angry, you should express anger.” Maybe so. But you should think about the appropriate place or time, how you express your anger. You cannot express your feeling of anger recklessly. So I think this is a practice for us as Buddhists. 
 
-##### 27:12
+#### 27:12
 
 One more point is that I think you should be constantly in the realm of oneness. 
 
@@ -86,7 +86,7 @@ In the Buddhistic view, if I say “this is one being,” at that time this one 
 
 For example: if the people call me crazy. Let’s imagine that I am actually behaving in a certain crazy way, and at that time people say, “You are crazy.” But at that time, I don’t know it. I don’t say, “I’m not crazy.” If you are exactly one, you don’t know it. You don’t know it, but really say, “Yes, I am crazy, but I am doing something in a crazy way.” That is one being, one being exactly. In my knowledge, I don’t know it, how crazy I am. But reality is exactly clear. I know it, you know it, trees know it, skies know it ... all sentient beings know me, how much I am crazy. Is that clear, a little? *[Some laughter.]*
 
-##### 33:32
+#### 33:32
 
 In terms of Buddhistic ideas, I think in the beginning I mentioned that you shouldn’t have a particular way of death, a particular happy way of dying. It’s not necessary to have this. Whatever kind of way of dying, it’s alright, because you are in the huge realm of existence, the universe. 
 
@@ -110,7 +110,7 @@ If you need source, so-called dharma or truth, then naturally truth or dharma ne
 
 And then, [if you are practicing,] even though you see a person who is senile, or a person who is vegetative, or a person with cerebral death, you can deal with them as Buddha from the beginning to end. 
 
-##### 45:58
+#### 45:58
 
 I think always there is some problem when you deal with a person who is vegetative or senile, because we always deal with one being in terms of separation first. Separation means we analyze all sentient beings intellectually. So we say cerebral death is the definition of death; we say a senile person is already kind of not a human being. And then very naturally, if your expenses of medication are getting high, we don’t take care of it, and also we think a person who is vegetative shouldn’t be taken care of for a long time, because he or she is not a human being. 
 
@@ -122,7 +122,7 @@ That’s why Dogen Zenji says, in the chapter Birth and Death, “This birth and
 
 The opportunity to see a person who is senile or vegetative does not always occur in your life, it’s very rare. But even though it is rare, your life is exactly the same as a person who is senile or vegetative. So you should take care of your life exactly according to Buddha’s understand of human suffering, the human world. That is your [personal] responsibility. 
 
-##### 52:05
+#### 52:05
 
 If you have something to say, or if you want to send a card to him, I am willing to bring them with me and give them to him. 
 
@@ -152,7 +152,7 @@ I vow to attain it.
 
 *[Closing bows with bells.]*
 
-##### 54:55 end of recording
+#### 54:55 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 

@@ -12,7 +12,7 @@ description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-5" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
-##### 0:00 start of recording
+#### 0:00 start of recording
 
 There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi) who lived from 835 to 908. He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [Shobogenzo](dogen#shobogenzo) in the fascicle ["The One Bright Pearl"](dogen#one-bright-pearl); you can find this story there.
 
@@ -20,7 +20,7 @@ There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossa
 
 Then, in the history, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) practiced under the guidance of [Seppō](glossary#seppō-gison), who was also one the outstanding Zen Masters in China. It is a very interesting story. According to [Shobogenzo](dogen#shobogenzo), alluded to by [Dogen](glossary#dogen), he finally went to Seppō mountain and placed himself under the guidance of Shinkaku – that is another name of [Seppō](glossary#seppō) [Zen Master](glossary#zen-master) – practicing day and night. One day, to visit masters widely in other areas and perfect his practice, he took up his traveling pouch and was leaving the mountain. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails off his toes. Of course, immediately blood appeared, and he screamed, “Ouch!” And then, amidst the intense pain, he had an abrupt self-realization, saying, “This body doesn’t exist. Where is the pain coming from?” And he returned immediately to [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master).
 
-##### 5:14
+#### 5:14
 
 Anyway, he struck his toe on a rock. Blood appeared; immediately he screamed, and he thought: “From where does the pain come?” Because the body doesn’t exist – from where does the pain come? 
 
@@ -32,7 +32,7 @@ He said, "From where does the pain come?" Striking his toes, there is no pain, b
 
 After that: a little moment... immediately you can hear the sound of raindrops... and then that is “ouch”. That is really “ouch”. But, I told you yesterday, that is nothing but one drop of dew, after squeezing sixty [instants]. Squeezing the rock, and his body and nails, and his consciousness, squeezing [all that] simultaneously – and then you can get one drop of dew; that is the result. And then you *scream*.
 
-##### 9:44
+#### 9:44
 
 I have a scar here. *[He probably indicates a place on his head]*. When I was a child, I struck my head on the corner of a rock. I was playing with one of my friends two years older than I, in the foundation of a house; there were almost more than ten square foundation rocks there, exactly square. So I played with him, jumping on them one by one. And then I missed, stumbled over, and hit here. But when I hit – I didn't feel anything. I couldn't cry; just hit. That means I felt just a big shock: *boom*, that's all, around here. Then a few minutes later I touch it here, and then I feel a big bump here, and also, blood comes out – and *then* I started crying. *[He laughs.]* I was nine years old or so. I touched it here because I got the big shock here; so, what happened? I touched it here, and then I realized a big bump was there, looked up, and blood came. So, I cried. 
 
@@ -42,7 +42,7 @@ That's why this is [shikantaza](glossary#shikantaza). [Shikantaza](shikantaza), 
 
 So before you do zazen, you saw a picture of your life. When you sit zazen – you miss something. You don't pay attention to zazen itself. You always focus on *after*; after doing zazen. *After zazen* is what's happened – do you know that? But at the moment of doing zazen, there are lots of pictures. 
 
-##### 13:38
+#### 13:38
 
 From this point, the [zazen](glossary#zazen) you do is just like a clean mirror: you can see your life reflected in it. So zazen is exactly a mirror: you can see your life, and how you handled your life, or how you have handled your life, how you will handle your life. You can see your picture. 
 
@@ -54,7 +54,7 @@ And also, sometimes, even though you don't understand what zazen is, you really 
 
 ... Well, just do zazen. Not hard, not easy; just do zazen. I don't care; just sit down. This is really just your life. It's really your life. Whatever you can see, that is *exactly* your life. 
 
-##### 17:47
+#### 17:47
 
 And also, the problem is, some Zen teacher says, "What's that feeling?" Through zazen, there are many kinds of feelings you can get. The teacher says, "What's that feeling?" Of course, you should practice [this], because you experience that – because you can see your life, in the past, in the future, in the present, right now; exactly that is your life. 
 
@@ -66,7 +66,7 @@ But we don't see that. Always we see [zazen](glossary#zazen) before zazen and af
 
 So, that's why we have to see [zazen](glossary#zazen) directly, zazen itself. This is [shikantaza](shikantaza). If you don't do this, you cannot educate any person. You cannot grow; you cannot deepen your personality. If you handle zazen just as a means, you are still tied up with the [dualistic](glossary#dualistic) world; you create *more* confusion. For a certain period of time, you will be happy; but after that, I don't think you will be happy. Because time is going on; change.
 
-##### 22:10
+#### 22:10
 
 That’s why in that story, [Gensha Shibi](glossary#gensha-shibi) [Zen Master](glossary#zen-master) immediately had an abrupt self realization, saying, “This body doesn’t exist; where is the pain coming from?” And then he returned immediately to [Seppō](glossary#seppō-gison)’s temple, and Seppō asked him, “What is this, mendicant Pei?” “Mendicant Pei” [is another name for Gensha Shibi]. And then, Gensha replied, “I will never deceive others.” If you really are involved in before [zazen](glossary#zazen) or after zazen, you are always deceived, you are taken in. That [is the meaning of], “I never deceive.” 
 
@@ -78,7 +78,7 @@ So no one cheats. Even [Gensha](glossary#gensha-shibi) himself cannot cheat, he 
 
 That’s why if [Seppō](glossary#seppō-gison) asked him, “Who are you? What is this monk?” then [Gensha](glossary#gensha-shibi) says, “I never cheat others.” It means, “I understand.” “I” is really “I”. This “I” doesn’t come from rock, this “I” doesn’t come from pain; this “I” doesn’t come from any particular place. Nothing to cheat myself; just be here.
 
-##### 26:10
+#### 26:10
 
 And then, this answer greatly pleased [Seppō](glossary#seppō-gison), who said: “There is no one who doesn’t harbor those words; yet no one could utter them but Pei.” 
 
@@ -90,7 +90,7 @@ According to common sense, in history, Bodhidharma went to China to teach [Buddh
 
 So completely the answer is, all of the questions. Because [Buddhism](glossary#buddhism) is focused on zazen itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly the intrinsic value of pure human activities, [where] all [delusions](glossary#delusion) drop off. Nothing. No pain. 
 
-##### 29:06
+#### 29:06
 
 We don’t understand. But “we don’t understand” doesn’t mean we should stop. We have to [cultivate], we have to plant a good seed. For what? For now? For you? No. For future generations, for the long range. For all sentient beings. Even though you don’t understand, all we have to do is, we have to do [zazen](glossary#zazen) based on *freedom*, perfect freedom. There is no chance to be involved in after zazen or before zazen. If you are involved in after or before, that is nothing but human life with which you are completely tied in the [dualistic](glossary#dualistic) world. 
 
@@ -102,7 +102,7 @@ But we should know that; we should know that. We should realize it, we should aw
 
 That is real zazen. But we don't understand; that's why we say, "Let's accumulate merit and virtue." Merit and virtue is something completely beyond human evaluation, good or bad, right, wrong. What is merit? What is value? [The] real intrinsic value of human purity.
 
-##### 33:44
+#### 33:44
 
 [Dogen Zenji](glossary#dogen) really admired [Gensha Shibi](glossary#gensha-shibi) and [Seppō](glossary#seppō-gison) [Zen Master](glossary#zen-master) in this story. 
 
@@ -118,7 +118,7 @@ This is [shikantaza](shikantaza).
 
 Do you have some questions?
 
-##### 38:19
+#### 38:19
 
 **Question**: [Roshi](glossary#roshi)? Is there any value in, I have a thought? ... During [zazen](glossary#zazen) I have a thought about what I'll have for dinner. And the next moment, I don't have that thought anymore. So I'm aware that I have a thought, and then I drop it; I don't have to spend any time judging it, just being with the moment. And if it comes up again, just put it down *[unintelligible]*
 
@@ -156,7 +156,7 @@ You don't understand?
 
 Is that okay? No? *[He laughs.]*
 
-##### 43:24
+#### 43:24
 
 **Question**: *[unintelligible]* thoughts come up. So, does real [zazen](glossary#zazen) happen right in the middle of thoughts?
 
@@ -174,7 +174,7 @@ Is that okay? No? *[He laughs.]*
 
 **Katagiri**: Well, there is no chance to be there, or wherever – because, I told you, any thought, any idea, is just a thought – it blooms and disappears in zazen. Poof!
 
-##### 45:10
+#### 45:10
 
 **Question**: [Roshi](glossary#roshi)? What if you’re working with [zazen](glossary#zazen) – sometimes the thoughts come up, and then, sometimes there's a judgement... *[unintelligible]*. Then there is effort to throw that away. Does that happen right in the middle of your zazen too?
 
@@ -242,7 +242,7 @@ Is that okay? No? *[He laughs.]*
 
 Is that okay? Okay.
 
-##### 52:33
+#### 52:33
 
 **Question**: [Roshi](glossary#roshi)? It's been my experience a lot of times during sesshin, and other people have said this sort of thing too, that they'll be struggling along maybe for several periods, having a lot of pain. And then, apparently you slip into concentration with [samadhi](glossary#samadhi), and all of a sudden there's a period that's very nice, and time sort of disappears, and the pain disappears, and you're able to sit there very quietly. And I guess I can understand how from concentration, pain wouldn't bother you. But sometimes, the period ends, and it's time to straighten your legs out, and your legs aren't even stiff. You know, it's as though I wasn't sitting at all. It's as though something changed in my body. I don't understand; it seems like the muscles should still be sore afterwards, but sometimes they're not. It's as though that period of [zazen](glossary#zazen) didn't even exist. Can you explain what happens, or... can you explain that at all? 
 
@@ -282,7 +282,7 @@ Okay, go on.
 
 **Katagiri**: Well, don't worry. You will never die of that. Just take care, okay? Even though your legs have completely gone to sleep – it's not necessary to cut off your legs. Just stand up, and, well, sometimes give them a massage.
 
-##### 58:06
+#### 58:06
 
 **Same person**: Well... It's a complicated question, I don't want to take up the whole discussion trying to pursue it, but... Let's say the man who strikes his toe – say, at the moment he strikes his toe, he's totally involved in the striking, so there's no subject and no object, there's no person there striking the toe. And so he doesn't feel any pain, okay? But how about an outside observer? Wouldn't an outside observer still see the man striking the toe, and the damage he's done to the toe, and the blood and everything? It's as though, say, if you've entered [samadhi](glossary#samadhi), the world disappears. Well it disappears for me, because I'm in samadhi – but how about an outside observer?
 
@@ -308,7 +308,7 @@ The world is there. Thoughts, views, emotions, angers are there. That's why I to
 
 Okay?
 
-##### 1:02:14
+#### 1:02:14
 
 **Question**: [Roshi](glossary#roshi)? I have a question on what is the best thing to do when you're feeling burned out from doing really concentrated [zazen](glossary#zazen). Like when you sit and you see all thoughts coming, and you know that you can really put effort, and really get with the zazen and from the thoughts, but you're just not willing to put the effort out. Or, you could put your body in a position where there was a lot of pain...
 
@@ -320,7 +320,7 @@ So “I am exhausted”: if you do zazen, everyone gets exhausted physically, bu
 
 Actually, physical exhaustion itself knows pretty well what to do next – because, exhaustion itself has no abode. No abode; [emptiness](glossary#śūnyatā). So, if you exhaust yourself in zazen, you never die. You never die; you feel good after that. Don't you think so?
 
-##### 1:05:02  
+#### 1:05:02  
 
 **Same person**: Well, so maybe exhaustion isn't the right word, [Roshi](glossary#roshi). It's a state like, where I can be sitting, and pretty quiet, you know, not moving a lot, because I'm in a position where I'm not in a lot of pain, in an easier position. And, it's like the thoughts keep coming, and keep coming, and keep coming. And it's like how you live your everyday life; you know, you walk around on the street and all these thoughts keep coming. And I feel like I can go on like that for months, and that to stop that would take a lot of effort, but I just don't have it to put the effort out.
 
@@ -336,7 +336,7 @@ But actually, you do always [let go of thoughts] in your daily living, exactly a
 
 **Katagiri**: Mind. The mind is more picky of your thoughts and ideas in calm circumstances, surroundings, which is called zazen. That's why the mind doesn't believe. Mind *feels* always. Mind always pokes its head into many thoughts, many ideas. And then, the mind feels good if you let it go. But actually the surroundings are very quiet. And also, mind always sees something after and before – that means analyze, dichotomize, always. That's why what the mind can do is to pick up something after you have done it. That is the feeling and experience of zazen: [boredom] and enjoyment, lots of things. 
 
-##### 1:10:28
+#### 1:10:28
 
 **Same person**: So are you saying then that even though it seems like what I do outside,  in fact because I'm sitting zazen and doing this, it's different, what I'm doing with my mind?
 
@@ -358,7 +358,7 @@ So just spit up. Because this is the mind; your mind, your life. So, don’t fee
 
 Okay? *[He laughs.]*
 
-##### 1:14:34
+#### 1:14:34
 
 **Question**: You said mind has a tendency to go before [zazen](glossary#zazen) and after zazen.
 
@@ -374,13 +374,13 @@ Okay? *[He laughs.]*
 
 Without mind, you cannot do zazen.
 
-##### 1:15:12
+#### 1:15:12
 
 **Question**: [Roshi](glossary#roshi). I think you told the story of [Gensha](glossary#gensha-shibi) several months ago. And at that time, you said that Gensha was fishing with his father, and his father fell in and drowned. And he couldn't save him, and he felt very bad about it, and decided he wanted to be a monk, and then went to the monastery. And today you said that he experienced [enlightenment](glossary#enlightenment) at that time. 
 
 **Katagiri**: Ah. I don't think he felt bad; maybe according to common sense, he felt bad because his father died. But he felt something deeper: why does he have to die now, for stumbling on the boat? Why? That is, maybe he really felt strongly the true picture of human life, based on [impermanence](glossary#impermanence), transiency. He tried to help. But in the history, well, some history says Gensha pushed his father into the water. *[He laughs.]* Well I don't think so; but maybe it is possible. Yes, it's okay, I understand this – but it's not necessary to think that; maybe someone added it to the story. Anyway, it was reality that his father all of a sudden fell into the water and drowned. He tried to help; he couldn't. I think it was reality. 
 
-##### 1:17:17
+#### 1:17:17
 
 **Question**: [Roshi](glossary#roshi)? *[Unintelligible]* when so much mental stuff, but lots of emotion, and thought, and “I want to escape from [zazen](glossary#zazen),” and too much uncomfortableness, and just everything, so that everything is just zipping around – so you feel like, squeezed. *[She laughs.]*
 
@@ -446,7 +446,7 @@ Even “spit up” zazen – yes, it’s good. Because if you do zazen like “*
 
 Okay?
 
-##### 1:25:31
+#### 1:25:31
 
 **Question**: [Roshi](glossary#roshi)? I don’t know, kind of relating to what [the previous person] is saying.... The feeling I get about the way you teach [zazen](glossary#zazen) is what I would call a very pure point of view. Like, if you’re going to enter into nonduality, you just enter into it. You just sit down and do zazen; you enter into nonduality. And it seems like, to me, that’s the point you always emphasize. It seems like you really stay away from complicating us by saying that you work through these levels of consciousness, and you have to go through these various stages. But for me, the way I was raised, it would be helpful if you could say something like, well, the different stages that you have to work through. Like certainly, the different people here must be at different levels of attainment, or whatever you want to call it. And to me it would be helpful, you know, if I could say, “Well yeah, my mind is wandering all over and I’m having all these problems,” if you could say well, I’m at a certain stage, or give some indication of where on the path I’m at, or where we’re at. Do you see what I’m trying to say? Like say in yoga, they’ll talk about the different levels of consciousness, and how you step-by-step work through them. Or in [Tibetan Buddhism](glossary#tibetan-buddhism ), how you step-by-step work toward that very pure state of mind. And it seems like you’re hesitant to tell us those specific kinds of steps. Like say maybe the Oxherding pictures, the ten different steps that one has along the path? I wonder if it would be helpful for me if I knew where on the path I was. You see? It seems like you always say, “Just enter into it. Just sit; just enter nonduality.” 
 
@@ -486,7 +486,7 @@ Well, how about, for instance, some [Rinzai](glossary#rinzai-zen ) teachers, lik
 
 *[He sighs.]* I'm sorry.
 
-##### 1:32:00
+#### 1:32:00
 
 **Question**: [Roshi](glossary#roshi)? How is the [zazen](glossary#zazen) that we do for future generations?
 
@@ -496,7 +496,7 @@ Well, how about, for instance, some [Rinzai](glossary#rinzai-zen ) teachers, lik
 
 **Katagiri**: Why? Because you can transmit. You can transmit yourself, how sublime your life is, through that zazen. You can see the picture of life, existence. You can transmit how important the problem of life and death is, to future generations.
 
-##### 1:32:54
+#### 1:32:54
 
 **Question**: [Roshi](glossary#roshi)? Is pain during [zazen](glossary#zazen) – does it exist at all?
 
@@ -514,7 +514,7 @@ For instance, I always tell you that talking like this, and doing zazen like the
 
 *[Tape change.]*
 
-##### 1:34:28
+#### 1:34:28
 
 **Question**: [Roshi](glossary#roshi)? When [Dogen](glossary#dogen) says, “From the beginning, [dullness](glossary#dullness) and [distraction](glossary#distraction) are going,” what does he mean, “From the beginning”? 
 
@@ -532,7 +532,7 @@ That is from the first.
 
 **Katagiri**: Hmm-hmm.
 
-##### 1:35:31 end of recording
+#### 1:35:31 end of recording
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
