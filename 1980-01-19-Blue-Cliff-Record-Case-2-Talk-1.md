@@ -26,7 +26,7 @@ At this time, I would like to study with you the second case of The [Blue Cliff 
 >
 > [Jōshū](glossary#jōshū-jūshin) said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
 > 
-> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR). '[Jōshū](glossary#jōshū-jūshin)' is substitued for 'Chao Chou', since Katagiri Roshi uses the Japanese name.)
+> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR). '[Jōshū](glossary#jōshū-jūshin)' is substitued for 'Chao Chou', since Katagiri Roshi uses the Japanese name.)
 
 This is the main case. This morning I would like to read the pointer, before the main case, which is pointing out the most important keys in the main case *[unintelligible]*. The pointer is written by [Engo Zen Master](glossary#engo-kokugon).
 

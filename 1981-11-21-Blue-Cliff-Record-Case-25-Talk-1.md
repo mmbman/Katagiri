@@ -22,7 +22,7 @@ The twenty-fifth case of the Blue Cliff Record:
 >
 > Again he said, “In the end, how is it?” And again he himself answered in their place, “With my staff across my shoulder, I pay no heed to people — I go straight into the myriad peaks.”
 >
-> (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 The Hermit of Lotus Flower Peak: according to the commentary, this Zen Master lived on the top of the mountain Lotus Flower Peak. He built his own hut on top of the mountain, and he constantly showed his teaching, holding up his staff and saying, “When the ancients got here” – ancients means the Buddhas and ancestors – “why didn’t they consent to stay here?” 
 

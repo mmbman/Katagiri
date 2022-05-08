@@ -18,7 +18,7 @@ Blue Cliff Record, Case 3, “Master Ma is Unwell”:
 
 > Great Master Ma was unwell. The temple superintendent asked him, “Teacher, how has your venerable health been in recent days?” The Great Master said, “Sun Face Buddha, Moon Face Buddha.”
 > 
-> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
+> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
 
 Great Zen Master Ma, [Baso Zen Master](glossary#baso-dōitsu), was the second [patriarch](glossary#patriarch) after [Huineng Zen Master](glossary#huineng).
 

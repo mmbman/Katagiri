@@ -23,7 +23,7 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 > Yang Shan said, “You never visited the mountain at all.”  
 > (Later,) Yun Men said, “These words were all for the sake of compassion; thus they had a conversation in the weeds.”  
 >
-> (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 This case doesn’t have a pointer, just a case and verse. The conversation between Yang Shan and the monk in this case is construed in a very common or usual (ordinary) way, to all intents and purposes. But sometimes we don’t understand why [in Zen we have to] think again about these usual (ordinary) conversations. In a sense, the Zen spirit is a little bit cryptic, it’s not the usual way. But in a good sense, I think the Zen spirit is very compassionate to us. That’s why it’s pretty hard to understand why it doesn’t matter to this conversation whether it is valuable or not; the important point is that we have to have open eyes to see the human world, visible and also invisible, in a little bigger scale. You have to see it. If you understand just the surface of human life, it’s not good enough for us to live in peace and harmony. 
 

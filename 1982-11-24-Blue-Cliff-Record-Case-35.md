@@ -33,7 +33,7 @@ The Case:
 > Wu Cho said, “How numerous are the congregations?”  
 > Manjusri said, “In front, three by three; in back, three by three.”  
 >
-> (From “The Blue Cliff Record”, translated by Thomas Cleary & J.C. Cleary.)
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 We couldn’t find Wu Cho’s history, but it is said that Wu Cho was one of the *[unintelligible]* Zen Masters, who lived from 594 to 657. In this story, he went to Mount Wutai in China. It is said that Mount Wutai was the spiritual abode of Manjushri; anyway the Chinese people believed that Mount Wutai was a place where Manjushri lived in those days. Wu Cho visited Mount Wutai and talked with Manjushri, but actually, as you know, Manjushri is not a real person. So in this case, Wu Cho was entirely intimate with the spirit of Manjushri, and talked with spiritual Manjushri. He could imagine him in his heart. So in other words, he talked with himself. 
 

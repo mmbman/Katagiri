@@ -137,7 +137,7 @@ If it is true, where can he live? That is Buddha.
 > This distress is worth recounting;  
 > Clear-eyed patchrobed monks should not take it lightly.  
 >
-> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
+> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
 
 **Katagiri Roshi:** 
   
