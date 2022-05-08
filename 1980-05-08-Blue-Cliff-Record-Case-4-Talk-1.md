@@ -34,7 +34,7 @@ Let me first read the case:
 >
 >> Setchō added the comment, “He adds frost to snow.”
 >
-> (From ["The Blue Cliff Record" translated by Thomas Cleary](books#BCR))
+> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
 
 That is the whole story. Let me first talk simply about this story, and then I would like to read the pointer. 
 
