@@ -13,7 +13,7 @@ On close listening, it becomes apparent that Katagiri Roshi often backed up and 
 
 Words where I am unsure of the best transcription, or where I am adding words to make the meaning more clear, are usually presented in brackets, [like this]. Significant nonverbal sounds are noted *[in brackets with italics]*. (And transcriber comments adding additional information are placed in parentheses.) 
 
-The talks convey Katagiri Roshi’s energy, his enthusiasm, and particularly, his sense of humor. But also, they are a treasure trove of [dharma](glossary#dharma) teaching, most of which is not included in the excellent [books](resources#katagiri-books) that have been compiled from his lectures. I am transcribing the talks as a way of studying them myself. I've already found much here that is personally meaningful, even revolutionary. I hope you find something useful or inspiring here as well.
+The talks convey Katagiri Roshi’s energy, his enthusiasm, and particularly, his sense of humor. But also, they are a treasure trove of [dharma](glossary#dharma) teaching, most of which is not included in the excellent [books](resources#katagiri-books) that have been compiled from his lectures. I am transcribing the talks as a way of studying them myself. I've already found much here that is personally meaningful, even revolutionary. I hope you find something inspiring here as well.
 
   – Kikan Michael Howard
 
