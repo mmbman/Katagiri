@@ -7,7 +7,7 @@ description: December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
-#### This talk is in rough draft state.
+#### This transcript is in rough draft state.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-36-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
