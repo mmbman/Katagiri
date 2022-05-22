@@ -149,6 +149,13 @@ Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure
 
 [Transcript](1982-11-24-Blue-Cliff-Record-Case-35)
 
+## Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1
+December 1, 1982
+
+Wandering in the mountains, life going very freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is beyond saints and ordinary people? Movement and practice responding to the rhythm of life, day by day. Also: how to get fired from a bookshop in the human world. The caution against falling into the weeds is ironic commentary.
+
+[Transcript](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
+
 ## Introduction to Buddhism
 June 22, 1985
 
