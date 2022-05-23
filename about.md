@@ -5,7 +5,7 @@ description:
 
 [Home](index) \| 
 [Previous](index) \| 
-[Next](summaries)
+[Next](list)
 
 Jikai Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. Audio recordings of his talks from 1979 to 1989 are made available by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html), but since Katagiri Roshi was a non-native English speaker, and the recordings vary in quality, he can be difficult to understand. On this website, I carefully transcribe these talks as an aid to understanding them. You can read these transcripts on their own, or, ideally, follow along while listening to the recordings, which are referenced at the top of each talk. 
 
@@ -25,4 +25,4 @@ If you have comments or questions, you can [email me](mailto:michaelhoward@mac.c
 
 [Home](index) \| 
 [Previous](index) \| 
-[Next](summaries)      
+[Next](list)      
