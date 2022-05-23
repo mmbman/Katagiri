@@ -3,11 +3,9 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-[About This Website](about)
+[About This Website](about) \| [List of Talks](list) \| [Search](search)
 
-[List of Talks](list)
-
-[Search](search)
+# Latest Posted Talks
 
 ## Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1
 December 1, 1982 Dharma Talk by Dainin Katagiri Roshi  
