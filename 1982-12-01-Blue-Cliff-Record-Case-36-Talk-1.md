@@ -7,7 +7,7 @@ description: December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
-#### Wandering in the mountains, life going very freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is beyond saints and ordinary people? Movement and practice responding to the rhythm of life, day by day. Also: how to get fired from a bookshop in the human world. The caution against falling into the weeds is ironic commentary.
+#### Wandering in the mountains, life going very freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is beyond saints and ordinary people? Movement and practice responding to the rhythm of life, day by day. Also: spiritual response between you and the mountain. How to get fired from a bookshop in the human world. The caution against falling into the weeds is ironic commentary.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-36-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
