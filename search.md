@@ -9,4 +9,4 @@ Search the Katagiri Transcripts site using the Google search engine. (Skip past 
 <div class="gcse-search"></div>
 </div>
 
-[List](list)
+[Home](index)
