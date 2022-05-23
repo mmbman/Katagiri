@@ -3,7 +3,7 @@ title: Resources
 description: 
 ---
 
-[Home](index#appendices) \| 
+[List](list#appendices) \| 
 [Previous](books)
 
 These are miscellaneous links that I don’t have another place for yet.
@@ -32,4 +32,4 @@ These are miscellaneous links that I don’t have another place for yet.
 - [terebess.hu: Japanese-English Glossary of Zen Terms](https://terebess.hu/zen/szoto/szotar/szotar.html)
 
 ---
-[Home](index#resources)
+[List](list#resources)

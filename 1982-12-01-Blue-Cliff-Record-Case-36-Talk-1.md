@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – 
 description: December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#1982) \| 
+[List](list#1982) \| 
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
@@ -228,6 +228,6 @@ And then if you become a master of dance, both are working very smoothly. Withou
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[Home](index#1982) \| 
+[List](list#1982) \| 
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)

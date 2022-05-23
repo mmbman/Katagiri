@@ -3,7 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4"
 description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Next](1979-06-13-Fukanzazengi-Talk-5)
 
@@ -275,6 +275,6 @@ And then all you have to do is, be one with death when death comes. That is shik
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[Home](index#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Next](1979-06-13-Fukanzazengi-Talk-5)

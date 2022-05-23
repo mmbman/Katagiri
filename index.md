@@ -3,7 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-[About This Website](about) \| [List of Talks](list) \| [Search](search)
+[List of Talks](list) \| [About This Website](about) \| [Search](search)
 
 # Latest Posted Talks
 
@@ -29,4 +29,4 @@ Posted April 15, 2022
 
 What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
 
-[Go to top](https://katagiritranscripts.net)
+[List of Talks](list) \| [About This Website](about) \| [Search](search)

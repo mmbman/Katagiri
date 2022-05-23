@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – T
 description: January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#1980) \| 
+[List](list#1980) \| 
 [Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
 [Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 
@@ -221,6 +221,6 @@ That is the pointer. And then, the main case: ...
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[Home](index#1980) \| 
+[List](list#1980) \| 
 [Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
 [Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)

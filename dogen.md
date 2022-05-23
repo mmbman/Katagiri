@@ -3,7 +3,7 @@ title: Dogen Index
 description:
 ---
 
-[Home](index#appendices) \| 
+[List](list#appendices) \| 
 [Previous](glossary) \| 
 [Next](BCR)
 
@@ -106,4 +106,4 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 ---
 [Next: Blue Cliff Record Index](BCR)
 
-[Home](index#dogen)
+[List](list#dogen)

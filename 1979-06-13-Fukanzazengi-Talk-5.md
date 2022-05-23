@@ -3,7 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5"
 description: June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6)
 
@@ -536,6 +536,6 @@ That is from the first.
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[Home](index#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6)

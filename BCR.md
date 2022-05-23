@@ -3,7 +3,7 @@ title: Blue Cliff Record Index
 description:
 ---
 
-[Home](index#appendices) \| 
+[List](list#appendices) \| 
 [Previous](dogen) \| 
 [Next](books)
 
@@ -35,4 +35,4 @@ Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas C
 ---
 [Next: Books](books)
 
-[Home](index#BCR)
+[List](list#BCR)

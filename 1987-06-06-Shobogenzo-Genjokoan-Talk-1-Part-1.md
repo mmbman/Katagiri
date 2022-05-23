@@ -3,7 +3,7 @@ title: "Shobogenzo: Genjokoan – Talk 1, Part 1"
 description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#1987) \| 
+[List](list#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 
@@ -230,6 +230,6 @@ Is that okay? Do you have any other questions? We will have discussion (later?).
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[Home](index#1987) \| 
+[List](list#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)

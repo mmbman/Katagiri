@@ -3,9 +3,7 @@ title: "List of Talks"
 description: 
 ---
 
-[Home](index) \| 
-[Previous](about) \| 
-[Next](1979-05-09-Diamond-Sutra-Introduction)
+[List](list) \| [About This Website](about) \| [Search](search)
 
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989) [Appendices](#end)
 
@@ -402,6 +400,4 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 <a name="end">
 
-[Home](index) \| 
-[Previous](about) \| 
-[Next](1979-05-09-Diamond-Sutra-Introduction)
+[List](list) \| [About This Website](about) \| [Search](search)

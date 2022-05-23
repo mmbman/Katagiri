@@ -3,7 +3,7 @@ title: "Diamond Sutra: Provisional Being"
 description: July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
 [Next](1979-08-01-Diamond-Sutra-Emptiness)
 
@@ -231,6 +231,6 @@ Finally, self is broad, but what is that? I cannot explain. But, it’s there. I
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[Home](index#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
 [Next](1979-08-01-Diamond-Sutra-Emptiness)

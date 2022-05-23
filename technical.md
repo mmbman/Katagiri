@@ -3,7 +3,7 @@ title: Technical
 description: 
 ---
 
-[Home](index#technical)
+[List](list#technical)
 
 The [Katagiri Transcripts](https://katagiritranscripts.net) website is written in [Markdown](https://guides.github.com/features/mastering-markdown/) using [BBEdit for Mac](https://www.barebones.com/products/bbedit/), and is hosted on [GitHub Pages](https://pages.github.com).
 
@@ -35,5 +35,5 @@ all brackets 2				|	`\[[^\]\n]*\]`					|
 Glossary Link With Selection	|	`[#SELECT#](glossary##SELECT#)#INSERTION#`
 Markdown Link Insert	|	`[#SELECT#](#CLIPBOARD#)#INSERTION#`
 
-[Home](index#technical)
+[List](list#technical)
 

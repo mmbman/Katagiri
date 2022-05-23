@@ -3,7 +3,7 @@ title: "Talk Summaries"
 description: 
 ---
 
-[Home](index) \| 
+[List](list) \| 
 [Previous](about) \| 
 [Next](1979-05-09-Diamond-Sutra-Introduction)
 
@@ -192,6 +192,6 @@ Katagiri Roshi discusses how we should practice with those who are ill or dying.
 
 [Transcript](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
-[Home](index) \| 
+[List](list) \| 
 [Previous](about) \| 
 [Next](1979-05-09-Diamond-Sutra-Introduction)
