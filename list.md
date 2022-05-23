@@ -1,15 +1,11 @@
 ---
-title: Katagiri Transcripts
-description: Zen Dharma Talks by Dainin Katagiri Roshi
+title: "List of Talks"
+description: 
 ---
 
-[About This Website](about)
-
-[Talk Summaries](summaries)
-
-[Search](search)
-
-Latest transcript: [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) ([1981](#1981)) – posted May 22, 2022.
+[Home](index) \| 
+[Previous](about) \| 
+[Next](1979-05-09-Diamond-Sutra-Introduction)
 
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989) [Appendices](#end)
 
@@ -406,4 +402,6 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 <a name="end">
 
-[Go to top](https://katagiritranscripts.net)
+[Home](index) \| 
+[Previous](about) \| 
+[Next](1979-05-09-Diamond-Sutra-Introduction)
