@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His
 description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[List](list#1981) \| 
+[Home](index) \| [List](list#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
 [Next](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 
@@ -214,6 +214,6 @@ Just like a music concert. Many beings exist in this world, but [as one], it mus
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[List](list#1981) \| 
+[Home](index) \| [List](list#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
 [Next](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)

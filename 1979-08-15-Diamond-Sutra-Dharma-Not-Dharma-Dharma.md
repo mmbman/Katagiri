@@ -3,7 +3,7 @@ title: "Diamond Sutra: Dharma / Not Dharma / Dharma"
 description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[List](list#1979) \| 
+[Home](index) \| [List](list#1979) \| 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
@@ -189,6 +189,6 @@ So you must be free from the enlightenment that you have experienced – and the
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[List](list#1979) \| 
+[Home](index) \| [List](list#1979) \| 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)

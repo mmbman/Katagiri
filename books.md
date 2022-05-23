@@ -3,7 +3,7 @@ title: Books
 description: 
 ---
 
-[List](list#appendices) \| 
+[Home](index) \| [List](list#appendices) \| 
 [Previous](BCR) \| 
 [Next](resources)
 
@@ -54,4 +54,4 @@ By [D. T. Suzuki](glossary#d-t-suzuki)
 ---
 [Next: Resources](resources)
 
-[List](list#resources)
+[Home](index) \| [List](list#resources)

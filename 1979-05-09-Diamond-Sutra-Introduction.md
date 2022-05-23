@@ -3,7 +3,7 @@ title: "Diamond Sutra: Introduction"
 description: May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[List](list#1979) \| 
+[Home](index) \| [List](list#1979) \| 
 [Previous](list) \| 
 [Next](1979-06-09-Fukanzazengi-Talk-1)
 
@@ -190,6 +190,6 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[List](list#1979) \| 
+[Home](index) \| [List](list#1979) \| 
 [Previous](list) \| 
 [Next](1979-06-09-Fukanzazengi-Talk-1)

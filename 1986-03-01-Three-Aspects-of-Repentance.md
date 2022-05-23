@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 2 of 7: Three Aspects of Repentance"
 description: "March 1, 1986 Dharma Talk by Dainin Katagiri Roshi"
 ---
 
-[List](list#1986) \| 
+[Home](index) \| [List](list#1986) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
@@ -174,6 +174,6 @@ So I cannot say, “I am a teacher,” attaching to my position; but on the othe
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[List](list#1986) \| 
+[Home](index) \| [List](list#1986) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)

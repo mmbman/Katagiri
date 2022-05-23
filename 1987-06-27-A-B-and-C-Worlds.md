@@ -3,7 +3,7 @@ title: "A, B, and C Worlds"
 description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[List](list#1987) \| 
+[Home](index) \| [List](list#1987) \| 
 [Previous](1987-06-20-Manas) \| 
 [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 
@@ -119,6 +119,6 @@ But practically speaking, for instance, if you want to master downhill skiing, a
 
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-[List](list#1987) \| 
+[Home](index) \| [List](list#1987) \| 
 [Previous](1987-06-20-Manas) \| 
 [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
