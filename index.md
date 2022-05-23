@@ -63,4 +63,6 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 
 ---
 
+[All Summaries](summaries)
+
 [List of Talks](list) \| [About This Website](about) \| [Search](search)

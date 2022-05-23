@@ -3,9 +3,9 @@ title: "Talk Summaries"
 description: 
 ---
 
-[List](list) \| 
-[Previous](about) \| 
-[Next](1979-05-09-Diamond-Sutra-Introduction)
+[Home](index) \| [List of Talks](list) \| [Search](search)
+
+---
 
 ## 1. Diamond Sutra: Introduction
 
@@ -13,11 +13,15 @@ Katagiri Roshi begins a series of talks on the Diamond Sutra by discussing the f
 
 [Transcript](1979-05-09-Diamond-Sutra-Introduction)
 
+---
+
 ## 2. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1
 
 Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
 [Transcript](1979-06-09-Fukanzazengi-Talk-1)
+
+---
 
 ## 3. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2
 
@@ -25,11 +29,15 @@ Katagiri Roshi expands on the six-component system for understanding zazen that 
 
 [Transcript](1979-06-10-Fukanzazengi-Talk-2)
 
+---
+
 ## 4. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3
 
 Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
 
 [Transcript](1979-06-11-Fukanzazengi-Talk-3)
+
+---
 
 ## 5. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4
 
@@ -37,11 +45,15 @@ Katagiri Roshi discusses the meaning of the line, “In surveying the past, we f
 
 [Transcript](1979-06-12-Fukanzazengi-Talk-4)
 
+---
+
 ## 6. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5
 
 Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen”, using the example of Gensha Shibi in “One Bright Pearl”. In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the “vomit” of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most ‘pure’ way?
 
 [Transcript](1979-06-13-Fukanzazengi-Talk-5)
+
+---
 
 ## 7. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6
 
@@ -49,11 +61,15 @@ Katagiri Roshi talks about “body and mind dropping off” from a psychological
 
 [Transcript](1979-06-14-Fukanzazengi-Talk-6)
 
+---
+
 ## 8. Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7
 
 The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
 [Transcript](1979-06-15-Fukanzazengi-Talk-7)
+
+---
 
 ## 9. Diamond Sutra: Provisional Being
 
@@ -61,11 +77,15 @@ Why should we not be disappointed with this world, if there seems to be nothing 
 
 [Transcript](1979-07-25-Diamond-Sutra-Provisional-Being)
 
+---
+
 ## 10. Diamond Sutra: Emptiness
 
 What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
 [Transcript](1979-08-01-Diamond-Sutra-Emptiness)
+
+---
 
 ## 11. Diamond Sutra: Giving and Non-Covetousness
 
@@ -73,11 +93,15 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 
 [Transcript](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
+---
+
 ## 12. Diamond Sutra: Dharma / Not Dharma / Dharma
 
 If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *Nirmanakaya*, *Sambhogakaya*, and *Dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
 [Transcript](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+
+---
 
 ## 13. Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1
 
@@ -85,11 +109,15 @@ Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Reco
 
 [Transcript](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
+---
+
 ## 14. Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2
 
 Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
 
 [Transcript](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+
+---
 
 ## 15. Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1
 
@@ -97,11 +125,15 @@ Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Pat
 
 [Transcript](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
+---
+
 ## 16. Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2
 
 Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called *shikantaza*. But this simplicity is not simple as we usually understand it: this simplicity is to do something with no choice, on the edge of life and death.
 
 [Transcript](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+
+---
 
 ## 17. Save All Sentient Beings
 
@@ -109,17 +141,23 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 
 [Transcript](1980-03-15-Save-All-Sentient-Beings)
 
+---
+
 ## 18. Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1
 
 What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is fleeting, ephemeral. What is the opportunity of this human body and mind? How can we communicate human life to each other, in order to enter a peaceful world? Even though body and mind are going on in the rhythm of the universe, we are always poking our head into a hole, like a cat. Do we need to stay in the hole, turning it into a den? Katagiri Roshi discusses what is *right*, in the sense of *Right Thought* and *Right View* in Buddha’s Noble Eightfold Path. He also discusses how we should relate to modern civilization, and there is a story about his brother learning to swim in the Navy.
 
 [Transcript](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 
+---
+
 ## 19. Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2
 
 Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
 
 [Transcript](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+
+---
 
 ## Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1
 November 21, 1981
@@ -128,12 +166,16 @@ What happens when we unexpectedly come face-to-face with real life, such as bein
 
 [Transcript](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
+---
+
 ## Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2
 November 22, 1981
 
 Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: how to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
 
 [Transcript](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
+
+---
 
 ## Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”
 November 17, 1982
@@ -142,12 +184,16 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 
 [Transcript](1982-11-17-Blue-Cliff-Record-Case-34)
 
+---
+
 ## Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho
 November 24, 1982
 
 Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: does it matter how many people come to our Zen Center?
 
 [Transcript](1982-11-24-Blue-Cliff-Record-Case-35)
+
+---
 
 ## Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1
 December 1, 1982
@@ -156,12 +202,25 @@ Wandering in the mountains, life going very freely: how very like the sense of s
 
 [Transcript](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 
+---
+
+## Mindfulness – Talk 1
+### March 21, 1984 dharma talk by Katagiri Roshi
+
+Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on the “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”. Along the way, he discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
+
+[Transcript](1984-03-21-Mindfulness-Talk-1)
+
+---
+
 ## Introduction to Buddhism
 June 22, 1985
 
 An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
 
 [Transcript](1985-06-22-Introduction-to-Buddhism)
+
+---
 
 ## Lay Ordination Lecture 1 of 7: Significance of Ordination
 February 22, 1986
@@ -170,6 +229,8 @@ Katagiri Roshi introduces a series of seven lectures on lay ordination (Jukai). 
 
 [Transcript](1986-02-22-Significance-of-Ordination)
 
+---
+
 ## Lay Ordination Lecture 2 of 7: Three Aspects of Repentance
 March 1, 1986
 
@@ -177,6 +238,8 @@ Katagiri Roshi explains *repentance* in Buddhism, which is also sometimes called
 
 [Transcript](1986-03-01-Three-Aspects-of-Repentance)
   
+---
+
 ## Devotion: Walking Alone with Open Heart
 
 December 24, 1988
@@ -185,6 +248,8 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
   
 [Transcript](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 
+---
+
 ## Dealing with Death, Dealing with Life
 January 7, 1989
 
@@ -192,6 +257,6 @@ Katagiri Roshi discusses how we should practice with those who are ill or dying.
 
 [Transcript](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
-[List](list) \| 
-[Previous](about) \| 
-[Next](1979-05-09-Diamond-Sutra-Introduction)
+---
+
+[Home](index) \| [List of Talks](list) \| [Search](search)
