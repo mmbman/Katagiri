@@ -3,7 +3,7 @@ title: "Talk Summaries"
 description: 
 ---
 
-[Home](index) \| [List of Talks](list) \| [Search](search)
+[Home](index) \| [List of Talks](list) \| [About](about) \| [Search](search)
 
 ---
 
@@ -259,4 +259,4 @@ Katagiri Roshi discusses how we should practice with those who are ill or dying.
 
 ---
 
-[Home](index) \| [List of Talks](list) \| [Search](search)
+[Home](index) \| [List of Talks](list) \| [About](about) \| [Search](search)
