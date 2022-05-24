@@ -7,7 +7,7 @@ description: November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 
-#### Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: does it matter how many people come to our Zen Center?
+#### Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: Does it matter how many people come to our Zen Center?
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-35" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
