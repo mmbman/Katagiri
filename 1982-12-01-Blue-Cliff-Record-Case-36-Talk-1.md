@@ -5,7 +5,7 @@ description: December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
 
 #### Wandering in the mountains, life going very freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. Spiritual response between you and the mountain; movement and practice responding to the rhythm of life. Also: How to get fired from a bookshop in the human world. And: The caution against falling into the weeds is ironic commentary.
 
@@ -229,5 +229,5 @@ And then if you become a master of dance, both are working very smoothly. Withou
 #### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 [Home](index) \| [List](list#1982) \| 
-[Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
+[Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
