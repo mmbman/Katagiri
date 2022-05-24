@@ -5,7 +5,7 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 [List of Talks](list) \| [Summaries](summaries) \| [About](about) \| [Search](search)
 
-Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to understanding them. Audio recordings of Katagiri Roshi are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html). [More about this site](about).
+Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to understanding them. Audio recordings of Katagiri Roshi are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html). – [More about this site](about).
 
 # Latest Posted Talks
 
