@@ -14,7 +14,7 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 #### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted May 22, 2022.
 
-Wandering in the mountains, life going very freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. Spiritual response between you and the mountain; movement and practice responding to the rhythm of life. Also: How to get fired from a bookshop in the human world. And: The caution against falling into the weeds is ironic commentary.
+Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: How to get fired from a bookshop in the human world. And: The caution against falling into the weeds is ironic commentary.
 
 ---
 
