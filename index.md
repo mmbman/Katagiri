@@ -3,20 +3,18 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-[List of Talks](list) \| [Summaries](summaries) \| [About](about) \| [Search](search)
-
 Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks. [More about this site](about).
+
+[List of Talks](list) \| [Summaries](summaries) \| [About](about) \| [Search](search)
 
 # Latest Posted Talks
 
 ---
 
-## Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1
+## [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 ### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi; transcript posted May 22, 2022.
 
 Wandering in the mountains, life going very freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. Spiritual response between you and the mountain; movement and practice responding to the rhythm of life. Also: How to get fired from a bookshop in the human world. And: The caution against falling into the weeds is ironic commentary.
-
-[Transcript](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 
 ---
 
