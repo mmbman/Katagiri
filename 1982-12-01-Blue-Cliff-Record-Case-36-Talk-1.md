@@ -150,7 +150,7 @@ So both are together working simultaneously, very smoothly. That’s why next,
  
 > The head monk said, “How very much like the sense of springtime.”  
 
-How wonderful it is! Just like Springtime. It’s very warm feelings. It’s wonderful, isn’t it? Because you can see something shooting up, and the full aliveness of human life, with all sentient beings. Wonderful, isn’t it? That means exactly so-called Buddha. And then next,
+How wonderful it is! Just like Springtime. It’s very warm feelings, because you can see something shooting up, and the full aliveness of human life, with all sentient beings. It’s wonderful, isn’t it? That means exactly so-called Buddha. And then next,
 
 > Sha said, “It even surpasses the autumn dew dripping on the lotuses.” 
 
