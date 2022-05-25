@@ -21,14 +21,14 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 #### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted May 22, 2022.
 
-Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: How to get fired from a bookshop in the human world. And: The caution against falling into the weeds is ironic commentary.
+Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: how to get fired from a bookshop in the human world. And: the caution against falling into the weeds is ironic commentary.
 
 ---
 
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 #### November 22, 1981 Dharma Talk by Dainin Katagiri Roshi. Transcript posted April 28, 2022.
 
-Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: Wherever you may go, you can feel pain.
+Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
 
 ---
 
