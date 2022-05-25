@@ -205,7 +205,7 @@ In zazen, in a sense you commit suicide with zazen, otherwise you cannot do zaze
 
 #### 1:04:48
 
-**Question**: Hojo-san? The four conclusions that I drew this morning were all ways of intellectually trying to understand whether you [did] something or not. Are you saying that that whole process is wrong, basically?
+**Question**: Hojo-san? The four conclusions that I drew this morning were all ways of intellectually trying to understand whether you [get] something or not. Are you saying that that whole process is wrong, basically?
 
 **Katagiri**: *[He laughs.]* [Not] wrong. But actually, what is the practice of egolessness? Even though you analyze and think, understanding much better by your analysis, it is still [just] your understanding. But actually practicing egolessness is not so easy, particularly under difficult conditions. So that is nothing but practice.
 
