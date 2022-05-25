@@ -175,6 +175,13 @@ Wandering in the mountains, life flowing freely: how very like the sense of spri
 
 ---
 
+### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
+#### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse. He especially focuses on the first line, “The earth is clear of any dust.” This is Buddha’s world, which is identical with the original nature of existence. But also, “A mad monkey cries on the ancient terrace”: this is us looking through the telescope of our karmic perceptions. Buddhist practice is not to destroy all human delusions and *then* you can have Buddha’s world; we need both. Good or bad are nothing but time, but time is not good or bad. A monk walks in the snow, just going, without leaving a trace. 
+
+---
+
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 #### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
