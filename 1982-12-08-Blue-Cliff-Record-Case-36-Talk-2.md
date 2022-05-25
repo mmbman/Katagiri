@@ -7,10 +7,7 @@ description: December 8, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
-#### Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse, especially the first line, 
-
-
-“The earth is clear of any dust.” Good or bad are nothing but time, but time is not good or bad. A weary crane alights on a withered tree, a mad monkey cries on the ancient terrace. A monk walking in the snow, just going, without leaving a trace. 
+#### Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse, especially the first line, “The earth is clear of any dust.” Good or bad are nothing but time, but time is not good or bad. A monk walking in the snow, just going, without leaving a trace. 
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-36-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
