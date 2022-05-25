@@ -171,7 +171,7 @@ Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 #### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: how to get fired from a bookshop in the human world. And: the caution against falling into the weeds is ironic commentary.
+Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: how to get fired from a bookshop in the human world. The caution against falling into the weeds is ironic commentary.
 
 ---
 
