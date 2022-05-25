@@ -15,7 +15,7 @@ The talks convey Katagiri Roshi’s energy, his enthusiasm, and particularly, hi
 
   – Kikan Michael Howard
 
-For more information about Katagiri Roshi, visit [The Katagiri Project Home Page](https://www.mnzencenter.org/katagiri-project.html).
+The talks are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org). For more information, visit [The Katagiri Project Home Page](https://www.mnzencenter.org/katagiri-project.html).
 
 For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
