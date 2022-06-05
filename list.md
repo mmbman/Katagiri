@@ -99,8 +99,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
 1. [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 1. [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
+1. [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
 
-1. Blue Cliff Record, Case 37
 1. Blue Cliff Record, Case 38 – Talk 1
 
 ### 1983

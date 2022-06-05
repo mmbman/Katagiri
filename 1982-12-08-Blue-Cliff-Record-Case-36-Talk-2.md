@@ -5,7 +5,7 @@ description: December 8, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1982-12-15-Blue-Cliff-Record-Case-37)
 
 #### Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse. He especially focuses on the first line, “The earth is clear of any dust.” This is Buddha’s world, which is identical with the original nature of existence. But also, “A mad monkey cries on the ancient terrace”: this is us looking through the telescope of our karmic perceptions. Buddhist practice is not to destroy all human delusions and *then* you can have Buddha’s world; we need both. Good or bad are nothing but time, but time is not good or bad. A monk walks in the snow without leaving a trace. 
 
@@ -227,4 +227,4 @@ Whatever you judge, evaluate, think, it is nothing but understanding human life 
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1982-12-15-Blue-Cliff-Record-Case-37)
