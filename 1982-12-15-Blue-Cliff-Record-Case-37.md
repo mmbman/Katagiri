@@ -13,9 +13,7 @@ description: December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 #### 0:00 start of recording
 
-*(Transcriber’s Note: This audio file has problems. The beginning and ending are missing, and what exists appears to be a single tape side repeated three times. The audio restarts at 39:00 and 1:18:31.)*
-
-... That’s why there is no longer anything else – exactly no longer anything else.
+*(Transcriber’s Note: This audio file for this talk has problems. The beginning and ending of the talk are missing, and what exists appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.)*
 
 > P’an Shan imparted the words which said, “There is nothing in the triple world; where can mind be found?”
 > 
