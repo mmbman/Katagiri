@@ -11,21 +11,23 @@ description: December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-27" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
+*(Transcriber’s Note: This audio file for this talk has problems. The beginning and ending of the talk are missing, and what exists appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.)*
+
 #### 0:00 start of recording
 
-*(Transcriber’s Note: This audio file for this talk has problems. The beginning and ending of the talk are missing, and what exists appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.)*
+[...]
 
 > P’an Shan imparted the words which said, “There is nothing in the triple world; where can mind be found?”
 > 
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-*The triple world* means... well there are lots of meanings, but in this case you may understand that the *triple world* is the vast expanse of the universe. In the vast expanse of the universe there is nothing, so-called emptiness. How can you learn emptiness, this “nothing in the universe”? [There is only one] way: we have to be absolutely open, we have to be absolutely simple. At that time, we can really learn. 
+“The triple world” means... well there are lots of meanings, but in this case you may understand that *the triple world* is the vast expanse of the universe. In the vast expanse of the universe there is nothing, so-called *emptiness*. How can you learn emptiness, this “nothing in the universe”? [There is only one] way: we have to be absolutely open, we have to be absolutely simple. At that time, we can really learn. 
 
 “Where can mind be found?” Everything is nothing, basically nothing. *Nothing* means nothing to pin down, nothing to [comment on]. If so: where is the mind? 
 
-The world is understood by maybe two [aspects]: materialistic object, and also spiritual stuff. Mind and thing. Mind and body. Subject and object. So object is [like the] tape recorder, microphone. According to the Heart Sutra we say, “Form is emptiness, emptiness is form,” so from this point the microphone, tape recorder, radio, and the floor, all are emptiness. All are nothing in the vast expanse of the universe, nothing. If objects are present in the state of nothingness, where is the mind? Very naturally, no mind. Mind can be seen only when object is seen.
+The world is understood by maybe two [aspects]: materialistic objects, and also spiritual stuff. Mind and thing. Mind and body. Subject and object. So object is [like the] tape recorder, microphone. According to the Heart Sutra we say, “Form is emptiness, emptiness is form,” so from this point the microphone, tape recorder, radio, and the floor – all are emptiness. All are nothing in the vast expanse of the universe. If objects are present in the state of nothingness, where is the mind? Very naturally, no mind. Mind can be seen only when object is seen.
 
-For instance, when you make an English sentence, you might say, “Katagiri dies.” “Katagiri dies” is a perfectly grammatical sentence, but spiritually it has a very contradictory quality. It doesn’t make sense, because the subject [must] come first: *Katagiri*. So the subject is something *existent*; there is a subject there: Katagiri. And then the verb: *die*. You have to bring the subject, and then [bring] *die*. Well what [does it mean] when you put them together: “Katagiri dies?” Do you understand this? *[He laughs.]* It doesn’t make sense! Katagiri is here. You bring something *existent*, and then you have to bring the verb *die*. *Who* dies? Katagiri? No, Katagiri is here, as the subject! [But] you cannot bring only *die*, you know? “Die.” *Who* dies? No one understands that sentence or that situation. So first of all you have to bring the subject – Katagiri is *here* – and then *die*. So this sentence doesn’t make sense. *Who* dies? I don’t understand. Well, *die* doesn’t make sense, so take out the word *die* from this sentence, *[he laughs,]* and then the subject doesn’t make sense. If there is no object, then the subject very naturally drops off, because it doesn’t make sense. The subject cannot exist alone, separate from the object, and the object cannot exist alone, [separate from the subject]. So object and subject are always there; mind and thing are always there. 
+For instance, when you make an English sentence, you might say, “Katagiri dies.” “Katagiri dies” is a perfect, grammatical sentence, but spiritually it has a very contradictory quality. It doesn’t make sense, because the subject comes first: *Katagiri*. So the subject is something *existent*; there is a subject there: Katagiri. And then the verb: *dies*. You have to bring the subject, and then [bring] *dies*. Well what [does it mean] when you put them together: “Katagiri dies?” Do you understand this? *[He laughs.]* It doesn’t make sense! Katagiri is here. You bring something *existent*, and then you bring the verb *dies*. *Who* dies? Katagiri? No, Katagiri is here, as the subject! [But] you cannot bring only *dies*, you know? [Like,] “Dies.” *Who* dies? No one understands that sentence or that situation. So first of all you have to bring the subject – Katagiri is *here* – and then *dies*. So this sentence doesn’t make sense. *Who* dies? I don’t understand. Well, *dies* doesn’t make sense, so take out the word *dies* from this sentence, *[he laughs,]* and then the subject doesn’t make sense. If there is no object, then the subject very naturally drops off, because it doesn’t make sense. The subject cannot exist alone, separate from the object. And the object cannot exist alone, [separate from the subject]. So object and subject are always there; mind and thing are always there. 
 
 So if things are emptiness, where is the mind? Very naturally, no mind. If there is no mind, where should Buddha go? Where is the place Buddha should depend on? 
 
@@ -40,7 +42,7 @@ The verse:
 > One tune, two tunes; no one understands.  
 > When the rain has passed, the autumn water is deep in the evening pond.  
 
-Engo Zenji has brought the same sentence in his verse as in the case: “There is nothing in the triple world; where can mind be found?” That is completely “where can mind be found”: if everything is empty, where can mind be found? Because mind is also empty: if so, mind is nothing. The mind is nothing, but the mind is *there* – because in your daily living, can you ignore your mind? You cannot. But what is the mind? Where is your mind? In your brain? This is already you setting up an idea; mind is a certain idea. [Is mind in] your heart? No; this is also a certain idea. From where does the mind come, is the mind inside or outside? No way, because mind is emptiness, if so, mind is nothing. Does *mind is nothing* mean completely nothing? No, you cannot say that, because always mind is here. *Where is the mind*?
+Engo Zenji has brought the same sentence in his verse as in the case: “There is nothing in the triple world; where can mind be found?” That is completely “where can mind be found”: if everything is empty, where can mind be found? Because mind is also empty; if so, mind is nothing. The mind is nothing, but the mind is *there* – because in your daily living, can you ignore your mind? You cannot. But what is the mind? Where is your mind? In your brain? This is already you setting up an idea; mind is a certain idea. [Is mind in] your heart? No; this is also a certain idea. From where does the mind come, is the mind inside or outside? No way, because mind is emptiness, if so, mind is nothing. Does *mind is nothing* mean completely nothing? No, you cannot say that, because always mind is here. *Where is the mind*?
 
 This is a question. *Where is mind* means mind is not occupying a certain place and time. Under certain circumstances, mind is alive. Just *mind is alive*: this is called *where is mind*. Just the question comes up, because it’s always alive. Under certain circumstances, mind is alive. 
 
@@ -54,9 +56,9 @@ In the next line, Engo Zen Master is talking about this real state of the truth,
 
 > The white clouds form a canopy;  
 
-Clouds cover the whole sky, and then those clouds are not clouds, those clouds become a *canopy*. That means wherever you may go, the truth is omnipresent, just like a canopy, just clouds. [Truth] doesn’t occupy a certain time and place. According to conditions, clouds appear and disappear – but it’s there. Clouds are empty, but still clouds are clouds, under [certain] conditions. So clouds are not something you hate or love; they are something more than that, a so-called canopy. 
+Clouds cover the whole sky, and then those clouds are not clouds, those clouds become a *canopy*. That means wherever you may go, the truth is omnipresent, just like a canopy [is just clouds]. [Truth] doesn’t occupy a certain time and place. According to conditions, clouds appear and disappear – but it’s there. Clouds are empty, but still clouds are clouds, under [certain] conditions. So clouds are not [the clouds] you hate or love; they are something more than that, a so-called canopy. 
 
-When the clouds become a canopy, it’s really good for us. Through the canopy, we can learn something. So we have to know clouds, what the clouds are. The clouds are not the clouds you hate or love.
+When the clouds become a canopy, it’s really good for us. Through the canopy, we can learn something. So we have to know clouds, what the clouds are.
 
 > The flowing spring makes a lute—  
 
@@ -64,7 +66,7 @@ It’s a beautiful scene: this flowing spring makes a lute, [or a musical instru
 
 > One tune, two tunes; no one understands.  
 
-You can learn from one tune, two tunes: open yourself and become simple, and then you can learn. When you see grandparents and great persons, be open, and be simple, and just do it, and then you can learn. That is the chance or opportunity to make your life ready to be simple and open. But if you don’t, *you* always comes first, and [you are] criticizing, judging, evaluating – so you never learn openness, simplicity itself; you never learn how to live in peace and harmony.
+You can learn from one tune, two tunes: open yourself and become simple, and then you can learn. When you see grandparents and great persons, be open, and be simple, and just do it, and then you can learn. That is the chance or opportunity to make your life ready to be simple and open. But if you don’t, *you* always comes first, and [you are] criticizing, judging, evaluating; so you never learn openness, simplicity itself; you never learn how to live in peace and harmony.
 
 You can learn something from this one tune. That one tune is ten tunes, a hundred tunes... a million tunes. From the one tune coming from the mountains, you can learn a hundred tunes, which birds have, which trees have. A hundred thousand million tunes come up. No one knows. You don’t understand. What is this?
 
