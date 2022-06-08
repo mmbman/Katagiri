@@ -11,6 +11,13 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 ---
 
+### [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
+#### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted June 8, 2022.
+
+If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is always raising, just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
+
+---
+
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
 #### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted May 25, 2022.
 
