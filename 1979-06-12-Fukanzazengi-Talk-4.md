@@ -22,7 +22,7 @@ Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen
 
 The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about dying while either sitting or standing: “It is written in [Keitoku Dentō-roku](glossary#keitoku-dentō-roku) that [Bodhidharma](glossary#bodhidharma) and the fourth, fifth and sixth Chinese Zen [patriarchs](glossary#ancestor) died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the [Zen](glossary#zen) histories.” 
 
-So [according to] this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while they were giving a lecture. Anyway, there are examples in Buddhist history; but it doesn't mean you should die in sitting or standing, it doesn't mean that. The point is how important shikantaza is. Because they died in sitting, in standing; wherever they were, they died in peace and harmony. Whatever they did, wherever they were, they died.
+So [according to] this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while they were giving a lecture. Anyway, there are examples in Buddhist history. But it doesn't mean you should die in sitting or standing, it doesn't mean that. The point is how important shikantaza is. Because they died in sitting, in standing; wherever they were, they died in peace and harmony. Whatever they did, wherever they were, they died.
 
 Dogen Zenji really wants to speak about how important zazen is. That zazen is shikantaza. In shikantaza, all [delusions](glossary#delusion) drop off from the first. That is dropping off body and mind – body and mind dropping off. That is zazen itself. 
 
@@ -30,13 +30,13 @@ Dogen Zenji really wants to speak about how important zazen is. That zazen is sh
 
 Usually in the world, we constantly persist in our selfishness, [ego consciousness](glossary#ego-consciousness), in order to accomplish our own purpose in life. We kick out everybody; adhering to our egoistic sense. And finally, we may be disinterested in human life. 
 
-There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because no one pays attention to you if you do that. Finally, those kind of people are completely isolated, and also, they cannot live in the human world in peace and harmony. So finally, it is really true that you are disinterested in human life. 
+There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because no one pays attention to you if you do that. Finally, those kind of people are completely isolated, and also, they cannot live in the human world in peace and harmony. So finally, it is really true that you are disinterested in human life. So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they could keep their life longer, they take their own life. 
 
-So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they could keep their life longer, they take their own life. There are some that death compels to die, even though they don't want to die. There are some that scream right before their death, because they don't like it. I know lots of examples. 
+There are some that death compels to die, even though they don't want to die. There are some that scream right before their death, because they don't like it. I know lots of examples. 
 
 I took care of a young man who served in the army. At that time he was 30 years old. At his house, for many, many years, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, he was kicking out everybody; he did everything as he liked. Finally, there was nothing to do which caused him to be interested, so he was disinterested in his usual daily life. So he went and entered the army. 
 
-Well, he found the army a little bit interesting, a little bit “fun,” because there are lots of chances to kill a person, and kill animals, and use guns; lots of fun there, which he had never experienced before. So he enjoyed it very much. But unfortunately, one day he fell down from a tree while he was trimming it with a Japanese hand saw. He fell down from the high tree, and the bottom of his body was completely numb. He couldn't walk. So, he was in the army hospital.
+He found the army a little bit interesting, a little bit “fun,” because there are lots of chances to kill a person, kill animals, and use guns; lots of fun there, which he had never experienced before. So he enjoyed it very much. But unfortunately, one day he fell down from a tree while he was trimming it with a Japanese hand saw. He fell down from the high tree, and the bottom of his body was completely numb. He couldn't walk. So, he was in the army hospital.
 
 He was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself; still he expressed his ego in order to accomplish his purpose of his life. He was always screaming at the nurses, and hitting somebody, and fighting, even though he [was in a wheelchair]. He screamed at the nurses, and was fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. “Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch,” I always told him. But he enjoyed it very much; it was a part of his life. 
 
@@ -44,9 +44,9 @@ And then in three years, he got another disease... maybe a kidney didn't work. I
 
 But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do, because there is death. He screamed. And then, when I visited there, he immediately grabbed me, held me here, and he said, “I don't want to die!”
 
-That was his last scene. He had for so long persisted in his egoistic sense, in order to pursue his purpose, the purpose of his life. That was concluded.
+That was his last scene. He had for so long persisted in his egoistic sense, in order to pursue the purpose of his life. That was concluded.
 
-This is very common. Very common. For such people, they never thought of the significance of zazen, which causes all delusions to drop off from the first. They never thought of glancing even once at such a wonderful world. They don't care. 
+This is very common, very common. For such people, they never thought of the significance of zazen, which causes all delusions to drop off from the first. They never thought of glancing even once at such a wonderful world. They don't care. 
 
 That is okay. 
 
@@ -72,13 +72,13 @@ There is a [Zen](glossary#zen) story in [The Blue Cliff Record](BCR), the [46th 
 
 [Kyosei Zen Master](glossary#kyosei)’s question is something with which he raked the monk’s mind to see how much his practice was going on. He asked, “What sound is that outside the gate?” The monk said, “The sound of raindrops.” The teacher didn’t ask for the sound of the raindrops; he asked for the raindrops themselves. But he used the words, “What’s the sound outside of the gate?” So the monk said, “That is the sound of raindrops.” 
 
-You know the sound of raindrops. The sound is not the raindrops. Raindrops are raindrops. But the sound comes from where? Raindrops. But the sound is not raindrops. It’s very clear, don’t you think so? Because raindrops are, anyway, *raindrops*. I cannot say. Raindrops are active, moving, very active. Becoming one, or the merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, “some raindrops.” That is already something *extra*, don’t you think so? 
+You know the sound of raindrops: the sound is not the raindrops. Raindrops are raindrops. The sound comes from raindrops, but the sound is not raindrops. It’s very clear, don’t you think so? Because raindrops are, anyway, *raindrops*. I cannot say. Raindrops are active, moving, very active. Becoming one, or the merging of raindrops and Earth and Universe – at that time, this is raindrops. Before you hear the sound of raindrops, that is raindrops. But you say, “some raindrops.” That is already something *extra*, don’t you think so? 
 
-You hear the sound. How long does it take to hear the sound from the raindrop? It takes time. Even the sound of a jet airplane. Can you hear the sound? I always hear the sound of a jet airplane, and then maybe I realize: “Oh, [there is an] airplane up there, right above my head,” because the sound of the jet airplane comes right above my head. So I look up – but there is no airplane. The airplane is far from me, already. Do you experience this? So how long does it take, to hear the sound? That is the sound; and then we say, “Oh, that is a jet airplane.” I don’t think so! The real jet airplane has gone already!
+You hear the sound. How long does it take to hear the sound from the raindrop? It takes time. Even the sound of a jet airplane – can you hear the sound? I always hear the sound of a jet airplane, and then maybe I [think], “Oh, [there is an] airplane up there, right above my head,” because the sound of the jet airplane comes right above my head. So I look up – but there is no airplane. The airplane is far from me already. Do you experience this? So how long does it take, to hear the sound? That is the sound; and then we say, “Oh, that is a jet airplane.” I don’t think so! The real jet airplane has gone already!
 
-So, the Zen Master asked, “What sound is that outside the gate?” The monk said, “sound of the raindrops.” This is a very straightforward, honest monk. We do this always. Maybe I would say it in the same way – yes, “Rain. The sound of raindrops.” 
+So, the Zen Master asked, “What sound is that outside the gate?” The monk said, “sound of the raindrops.” This is a very straightforward, honest monk. We always do this. Maybe I would say it in the same way, yes: “Rain. The sound of raindrops.” 
 
-And then the Zen Master points out: “Well, pay attention! That [answer] is okay, because without this experience you cannot understand real rain drops. So that's alright; but pay more careful attention to the sound of the raindrops again.”
+And then the Zen Master points out: “Well, pay attention! That [answer] is okay, because without this experience you cannot understand real rain drops. So that's alright. But pay more careful attention to the sound of the raindrops again.”
 
 #### 21:32
 
@@ -88,7 +88,7 @@ That’s why the Zen teacher says,
 
 Yes, we are inverted. This is really true, don't you think so? 
 
-You’re sitting here; how much can you sit? What is the sound of your shikantaza? You say, “Yes! Sound; that is a sound.” What is the sound, in you? You say, “the sound of shikantaza” – but it’s too late, because real shikantaza has gone already! And then you catch the sound from the shikantaza, and when you grasp it, [you say,] “that is shikantaza.” It’s not shikantaza. You are already inverted; don’t you think so? And then you judge it immediately; and then finally, you follow after that, again and again. What happens after that, after following after things? “After things” means, sound.
+You’re sitting here; how much can you sit? What is the sound of your shikantaza? You say, “Yes, sound! That is a sound.” What is the sound, in you? You say, “the sound of shikantaza” – but it’s too late, because real shikantaza has gone already! And then you catch the sound from the shikantaza, and when you grasp it, [you say,] “that is shikantaza.” It’s not shikantaza. You are already inverted; don’t you think so? And then you judge it immediately; and then finally, you follow after that, again and again. What happens after that, after following after things? “After things” means, sound.
 
 I tell you often that Dogen Zenji says a moment consists of 60 instants. (Transcriber’s Note: Katagiri Roshi says “instances,” but “instants” might be the better translation.) So what you can hear, the moment, is the sound of the moment. *[He snaps his fingers.]* Like this. But, this one moment – *[finger snap]* – consists of 60 instants. If it is true – what did you hear? What in the moment have you heard? *[Snap.]* This sound, don’t you think so? But this sound, the moment, is nothing but sort of dregs, after you squeeze the 60 instants. And then you got the one grip of the raindrops, just the raindrops: “I’ve got it.” But that is one moment – already, you have missed 60 instants! So how can you know? 
 
@@ -108,13 +108,9 @@ So, he doesn't stay there. He knows the sound of the raindrop is not the raindro
 
 So he said *almost*; “I almost don't lose myself.” *Almost* means constantly he is free, between raindrops and his life. If you stay even for a moment, you lose. If you ignore the sound of raindrops, you burn out – you lose. If you completely keep away from sound of the raindrops, your life is frozen; it doesn't work. And then, if you attach to the sound of raindrops, your life burns up. What should you do? No answer. It really depends on you. But this is true.
 
-The same applies to death. If you attach to death, if you sit down in the chair of death, that death is something extra coming upside; it really scares you. So at that time, you really burn up. So we don't like it. We say, "I hate death." But if you completely keep away from death, you forfeit. Your life doesn't work. 
+The same applies to death. If you attach to death, if you sit down in the chair of death, that death is something extra coming upside; it really scares you. So at that time, you really burn up. We don't like it. We say, "I hate death." But if you completely keep away from death, you forfeit. Your life doesn't work. 
 
-Just imagine if you could live full on, like a heavenly being. Finally you could be disinterested in human life, because it’s no fun; because fun is always, constantly there. There is no need to try to get your desires to have fun; fun is always there. So finally, no fun; you are disinterested in fun. Do you understand?
-
-Well, it is really true. You are supported by air, hydrology; carbonic acid gas, and also oxygen. Your life is supported constantly; and you are disinterested in it. You don't pay careful attention to it – because you are always basking in it. 
-
-Only [when] something happens which is called a gap or crack, you are really confused. When the continuity is broken up, there is a gap, so you are very confused. But [when] the air and you are communicating very smoothly day after day, [there is] no interest there; you are disinterested in that. Or, you have no idea [what] you are interested in or are disinterested in – [it is] completely going on. 
+Just imagine if you could live full on, like a heavenly being. Finally you could be disinterested in human life, because it’s no fun, because fun is always constantly there. There is no need to try to get your desires to have fun; fun is always there. So finally, [there is] no fun; you are disinterested in fun. Do you understand? Well, it is really true. You are supported by air: carbonic acid gas, and also oxygen. Your life is supported constantly... and you are disinterested in it. You don't pay careful attention to it – because you are always basking in it. Only [when] something happens which is called a gap or crack, you are really confused. When the continuity is broken up, there is a gap, so you are very confused. But [when] the air and you are communicating very smoothly day after day, [there is] no interest there; you are disinterested in that. Or, you have no idea [what] you are interested in or are disinterested in – [it is] completely going on. 
 
 #### 32:16
 
@@ -136,9 +132,9 @@ For instance, you and the air are communicating smoothly, working in themselves 
 
 The same applies to shikantaza. Shikantaza is just shikantaza. When you merge yourself in zazen itself, very naturally, all [dualisms](glossary#dualism) drop off. All verbal explanations drop off. Nothing to say. “Sound of raindrops” or “real raindrops” or “not real raindrops” – nothing to say. So, all you have to do is just be one with shikantaza itself. At that time, very naturally, your body and mind are really basking in shikantaza, and shikantaza is basking in your body and mind. They don't bother each other. Just be there, constantly. 
 
-But if you for a moment come out of this shikantaza, you can look at yourself and also many things around you – and then immediately, the mind starts to attach, making noise. That's why this morning I told you: *cease fire*. Completely cease fire. (Transcriber’s Note: This talk was given during a seven-day sesshin or meditation retreat. Katagiri Roshi may have offered this guidance during a zazen period or at another time.) 
+But if you for a moment come out of this shikantaza, you can look at yourself and also many things around you – and then immediately, the mind starts to attach, making noise. 
 
-*Cease fire* doesn't mean throw away. There is nothing to do. It's not necessary to do anything particular; only to stop firing, stop shooting. Nothing to do; all you have to do is, here is shikantaza. Shikantaza – well, arranging the circumstances, and regulating the body and breath, and also regulating mind, based on no design of becoming [Buddha](glossary#buddha), or whatever it is. Just sit down there. And then finally, you can stop shooting. If you do it, you can stop shooting, very naturally. Stop shooting immediately, okay? 
+That's why this morning I told you: *cease fire*. Completely cease fire. *Cease fire* doesn't mean throw away. There is nothing to do. It's not necessary to do anything particular; only to stop firing, stop shooting. Nothing to do; all you have to do is, here is shikantaza. Shikantaza – well, arranging the circumstances, and regulating the body and breath, and also regulating mind, based on no design of becoming [Buddha](glossary#buddha), or whatever it is. Just sit down there. And then finally, you can stop shooting. If you do it, you can stop shooting, very naturally. Stop shooting immediately, okay? 
 
 On the other hand, stop shooting “catches” many things. Even a small sound, even the tiny sound of a needle falling onto the floor, you can catch it. So that is completely ceasing fire. [When your] surroundings are perfectly calm; at that time, you can *catch* it – everything. All you have to do is, you shouldn’t fire. After thinking “sound of raindrops,” all you have to do is, just be one with the raindrops. 
 
@@ -148,7 +144,7 @@ If you create a gap between you and zazen, immediately you can catch the sound y
 
 #### 40:16
 
-I always use the example of death, because death is a very good example in order to explain shikantaza, in which all delusions completely drop off. Right in the middle of death, all delusions drop off. Whether you are qualified to accept death or you are not qualified to accept death, or you are stupid or you are not stupid – it doesn't matter; just death. Don't you think so? 
+I always use the example of death, because death is a very good example to explain shikantaza, in which all delusions completely drop off. Right in the middle of death, all delusions drop off. Whether you are qualified to accept death or you are not qualified to accept death, or you are stupid or you are not stupid, it doesn't matter: just death. Don't you think so? 
 
 If you hear the sound from zazen, from [the] practicer, you say, “I am qualified to be a good Zen student,” or, “I am not qualified,” “I am stupid,” “I am not stupid; I am excellent” – but whatever you say, it’s really sounds. Right in the middle of shikantaza itself, it is really exactly the same as death itself. No way; exactly no way. 
 
