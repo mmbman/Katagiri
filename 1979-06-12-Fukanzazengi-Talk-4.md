@@ -14,9 +14,7 @@ description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn this.
-
-[Dogen writes,]
+Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn this. [Dogen writes,]
 
 > In surveying the past, we find that transcendence of both unenlightenment and [enlightenment](glossary#enlightenment), and dying while either [sitting](glossary#sitting) or standing, have all depended entirely on the strength of [zazen](glossary#zazen).
 
@@ -46,7 +44,7 @@ But right before he died, he really screamed. He really screamed, with a big voi
 
 That was his last scene. He had for so long persisted in his egoistic sense, in order to pursue the purpose of his life. That was concluded.
 
-This is very common, very common. For such people, they never thought of the significance of zazen, which causes all delusions to drop off from the first. They never thought of glancing even once at such a wonderful world. They don't care. 
+This is very common, very common. For such people, they never think of the significance of zazen, which causes all delusions to drop off from the first. They never think of glancing even once at such a wonderful world. They don't care. 
 
 That is okay. 
 
