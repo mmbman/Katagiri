@@ -126,23 +126,19 @@ For instance, you and the air are communicating smoothly, working in themselves 
 
 The same applies to shikantaza. Shikantaza is just shikantaza. When you merge yourself in zazen itself, very naturally, all [dualisms](glossary#dualism) drop off. All verbal explanations drop off. Nothing to say. “Sound of raindrops” or “real raindrops” or “not real raindrops” – nothing to say. So, all you have to do is just be one with shikantaza itself. At that time, very naturally, your body and mind are really basking in shikantaza, and shikantaza is basking in your body and mind. They don't bother each other. Just be there, constantly. 
 
-But if you for a moment come out of this shikantaza, you can look at yourself and also many things around you – and then immediately, the mind starts to attach, making noise. 
+But if you for a moment come out of this shikantaza, you can look at yourself and also many things around you – and then immediately, the mind starts to attach, making noise. That's why this morning I told you: *cease fire*. Completely cease fire. 
 
-That's why this morning I told you: *cease fire*. Completely cease fire. *Cease fire* doesn't mean throw away. There is nothing to do. It's not necessary to do anything particular; only to stop firing, stop shooting. Nothing to do; all you have to do is, here is shikantaza. Shikantaza – well, arranging the circumstances, and regulating the body and breath, and also regulating mind, based on no design of becoming [Buddha](glossary#buddha), or whatever it is. Just sit down there. And then finally, you can stop shooting. If you do it, you can stop shooting, very naturally. Stop shooting immediately, okay? 
+*Cease fire* doesn't mean throw away. There is nothing to do. It's not necessary to do anything particular; only to stop firing, stop shooting. Nothing to do; all you have to do is, here is shikantaza. Shikantaza – well, arranging the circumstances, and regulating the body and breath, and also regulating mind, based on no design of becoming [Buddha](glossary#buddha), or whatever it is. Just sit down there. And then finally, you can stop shooting. If you do it, you can stop shooting, very naturally. Stop shooting immediately, okay? 
 
 On the other hand, stop shooting “catches” many things. Even a small sound, even the tiny sound of a needle falling onto the floor, you can catch it. So that is completely ceasing fire. [When your] surroundings are perfectly calm; at that time, you can *catch* it – everything. All you have to do is, you shouldn’t fire. After thinking “sound of raindrops,” all you have to do is, just be one with the raindrops. 
 
-What are the raindrops? The raindrops are you. The raindrops are zazen. 
-
-If you create a gap between you and zazen, immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe “that is raindrops” or “that is shikantaza.” That is confusion. So, completely cease firing. For this, no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just *do*, okay?
+What are the raindrops? The raindrops are you. The raindrops are zazen. If you create a gap between you and zazen [or raindrops], immediately you can catch the sound you create and raindrops create, and then follow after this sound, and believe “that is raindrops” or “that is shikantaza.” That is confusion. So, completely cease firing. For this, no way, completely nothing to do. All you have to do is, there is one [thing], which is called shikataza – just do it. Just *do*.
 
 #### 40:16
 
 I always use the example of death, because death is a very good example to explain shikantaza, in which all delusions completely drop off. Right in the middle of death, all delusions drop off. Whether you are qualified to accept death or you are not qualified to accept death, or you are stupid or you are not stupid, it doesn't matter: just death. Don't you think so? 
 
-If you hear the sound from zazen, from [the] practicer, you say, “I am qualified to be a good Zen student,” or, “I am not qualified,” “I am stupid,” “I am not stupid; I am excellent” – but whatever you say, it’s really sounds. Right in the middle of shikantaza itself, it is really exactly the same as death itself. No way; exactly no way. 
-
-The gap is something which causes you to see something objectively. While you are seeing something objectively, it creates lots of things: fear, enjoyment, criticism; judgement, good and bad; many things. But if you are one with exactly death itself – nothing to say. If you're one. 
+If you hear the sound from zazen, from [the] practicer, you say, “I am qualified to be a good Zen student,” or, “I am not qualified,” “I am stupid,” “I am not stupid; I am excellent” – but whatever you say, it’s really sounds. Right in the middle of shikantaza itself, it is really exactly the same as death itself. No way; exactly no way. The gap is something which causes you to see something objectively. While you are seeing something objectively, it creates lots of things: fear, enjoyment, criticism; judgement, good and bad; many things. But if you are one with exactly death itself – nothing to say. If you're one. 
 
 For instance, if I die: before dying, I can see my death. It really scares me. I say, “I don’t want to die.” Or I say, “Okay, okay; I can die.” On the other hand, I don’t want to die – but death is coming up to me. So, always I discuss with death: 
 
@@ -158,7 +154,7 @@ So, if I continue to ask myself, “Are you sure?” – I don’t like it. But 
 
 But right before, until death reaches me, death is still not real death. It is the sound of death; I always hear the sound of death. Then after the sound of death, always it makes me confused: “I like it,” “I don’t like it,” “I like it,” “I don’t like it”... “Oh, I don’t care.” Whatever you say, this is nothing but hearing the sound of death, that’s all. It’s not real death. 
 
-But if death reaches me perfectly – there is no death. No [suffering](glossary#suffering), no prison, no delusions. Completely all delusions drop off. 
+But if death reaches me perfectly – there is no death. No [suffering](glossary#suffering), no [person], no delusions. Completely all delusions drop off. 
 
 And then immediately, there is a moment that comes up, which is called “after death”. And then [Katagiri](glossary#katagiri) says, “Oh! I died.” But if I died... *[He laughs.]* I cannot see [it if I] died. 
 
@@ -166,7 +162,7 @@ But anyway, let’s see the movie. So, I look at death, and then lots of sounds 
 
 So finally, whatever I say, that is a [dualistic](glossary#dualistic) world. Lots of things come up. Stumbling over whatever I say, finally, what happens? All I have to do is to merge myself in death as it really is, because it’s *real*. 
 
-So finally, death says, “Hi.” If he says, “Hi,” I can answer, “Hi” – because it’s already one. No delusions about what I have to say or what I shouldn’t say; whether I should give an answer to death – “Hi” – or not. No delusions; completely all delusions drop off, if I become one with death exactly. 
+So finally, death says, “Hi.” If he says, “Hi,” I can answer, “Hi” – because it’s already one. No delusions about what I have to say or what I shouldn’t say; whether I should give an answer to death – “Hi” – or not. Completely all delusions drop off, if I become one with death exactly. 
 
 And then, the movie is still going on. That is life. And then ...
 
