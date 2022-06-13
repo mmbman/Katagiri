@@ -7,7 +7,7 @@ description: June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Next](1979-06-13-Fukanzazengi-Talk-5)
 
-#### Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
+#### What does is mean to die sitting in zazen? Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -18,41 +18,39 @@ Toward the end of [Fukanzazengi](glossary#fukanzazengi), as a conclusion, [Dogen
 
 > In surveying the past, we find that transcendence of both unenlightenment and [enlightenment](glossary#enlightenment), and dying while either [sitting](glossary#sitting) or standing, have all depended entirely on the strength of [zazen](glossary#zazen).
 
-The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about dying while either sitting or standing: “It is written in [Keitoku Dentō-roku](glossary#keitoku-dentō-roku) that [Bodhidharma](glossary#bodhidharma) and the fourth, fifth and sixth Chinese Zen [patriarchs](glossary#ancestor) died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the [Zen](glossary#zen) histories.” 
+The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about *dying while either sitting or standing*: 
 
-So [according to] this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while they were giving a lecture. Anyway, there are examples in Buddhist history. But it doesn't mean you should die in sitting or standing, it doesn't mean that. The point is how important shikantaza is. Because they died in sitting, in standing; wherever they were, they died in peace and harmony. Whatever they did, wherever they were, they died.
+> It is written in [Keitoku Dentō-roku](glossary#keitoku-dentō-roku) that [Bodhidharma](glossary#bodhidharma) and the fourth, fifth and sixth Chinese Zen [patriarchs](glossary#ancestor) died sitting in zazen, while the third patriarch died while standing under a large tree. Examples of both are common in the [Zen](glossary#zen) histories.
 
-Dogen Zenji really wants to speak about how important zazen is. That zazen is shikantaza. In shikantaza, all [delusions](glossary#delusion) drop off from the first. That is dropping off body and mind – body and mind dropping off. That is zazen itself. 
+So [according to] this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while they were giving a lecture. Anyway, various examples from Buddhist history. But it doesn't mean you should die in sitting or standing; it doesn't mean that. The point is how important shikantaza is, because they died in sitting, in standing, wherever they may have been; they died in peace and harmony. Whatever they did, wherever they were, they died.
+
+Dogen Zenji really wants to speak about how important zazen is. That zazen is shikantaza. In shikantaza, all [delusions](glossary#delusion) drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself. 
 
 #### 4:37
 
-Usually in the world, we constantly persist in our selfishness, [ego consciousness](glossary#ego-consciousness), in order to accomplish our own purpose in life. We kick out everybody; adhering to our egoistic sense. And finally, we may be disinterested in human life. 
+Usually in the human world, we constantly persist in our selfishness, [ego consciousness](glossary#ego-consciousness), in order to accomplish our own purpose of life. We kick out everybody, adhering to our egoistic sense. And finally, we may be disinterested in human life. 
 
-There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because no one pays attention to you if you do that. Finally, those kind of people are completely isolated, and also, they cannot live in the human world in peace and harmony. So finally, it is really true that you are disinterested in human life. So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they could keep their life longer, they take their own life. 
+There are some who commit suicide on the verge of life and death, because they are disinterested in human life after persisting in their own selfishness. Because no one pays attention to you if you do that. Finally, those kind of people are completely isolated, and also, they cannot live in the human world in peace and harmony. So finally, it is really true that they are disinterested in human life. So, on the verge of life and death, there are some who commit suicide, kill themselves. Even though they could keep their life longer, they take their own life. 
 
-There are some that death compels to die, even though they don't want to die. There are some that scream right before their death, because they don't like it. I know lots of examples. 
+There are some that death compels to die, even though they don't want to die. There are some that scream right before their death, because they don't [like it]. I know lots of examples. 
 
-I took care of a young man who served in the army. At that time he was 30 years old. At his house, for many, many years, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, he was kicking out everybody; he did everything as he liked. Finally, there was nothing to do which caused him to be interested, so he was disinterested in his usual daily life. So he went and entered the army. 
+I took care of a young man who served in the army. At that time he was 30 years old. At his house, for many, many years, he really adhered to his egoistic sense, and he did as he liked. Whatever happened, he was kicking out everybody; he did everything as he liked. Finally, there was nothing to do which caused him to be interested, so he was disinterested in usual daily life. So he went and entered the army. 
 
 He found the army a little bit interesting, a little bit “fun,” because there are lots of chances to kill a person, kill animals, and use guns; lots of fun there, which he had never experienced before. So he enjoyed it very much. But unfortunately, one day he fell down from a tree while he was trimming it with a Japanese hand saw. He fell down from the high tree, and the bottom of his body was completely numb. He couldn't walk. So, he was in the army hospital.
 
-He was pretty young, 30 years old, so he had lots of energy. Still, he couldn't awaken to himself; still he expressed his ego in order to accomplish his purpose of his life. He was always screaming at the nurses, and hitting somebody, and fighting, even though he [was in a wheelchair]. He screamed at the nurses, and was fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. “Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch,” I always told him. But he enjoyed it very much; it was a part of his life. 
+He was pretty young, 30 years old, so he had lots of energy. Still he couldn't awaken to himself; still he expressed his ego in order to accomplish his purpose of his life. He was always screaming at the nurses, and hitting somebody, and fighting, even though he [was in a wheelchair]. He screamed at the nurses, and was fighting the nurses and doctors. Whenever I visited there, I always made every possible effort to make him calm. “Keep your mouth shut. Sit down here. Eat breakfast. Eat lunch,” I always told him. But he enjoyed it very much; it was a part of his life. 
 
 And then in three years, he got another disease... maybe a kidney didn't work. If a kidney didn't work, he couldn't have urine, so all of a sudden, the poisons went around his whole body. Three days after starting to suffer from this, he died.
 
-But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do, because there is death. He screamed. And then, when I visited there, he immediately grabbed me, held me here, and he said, “I don't want to die!”
+But right before he died, he really screamed. He really screamed, with a big voice. No one knew what to do, because here is death. He screamed. And then, when I visited there, he immediately grabbed me, held me here, and he said, “I don't want to die!”
 
-That was his last scene. He had for so long persisted in his egoistic sense, in order to pursue the purpose of his life. That was concluded.
+That was his last scene. He had for so long persisted in his egoistic sense, in order to pursue the purpose of his life. That was concluded. This is very common, very common. 
 
-This is very common, very common. For such people, they never think of the significance of zazen, which causes all delusions to drop off from the first. They never think of glancing even once at such a wonderful world. They don't care. 
-
-That is okay. 
-
-But it is not bad to glance at that wonderful world. If you glance at it even once in your whole life, that's great. Even if you cannot have the chance to glance at this wonderful world once in your whole life, still, if you want to pursue this, it's not bad for us. Because life is going on; so life after life, we can do it. 
+For such people, they never think of the significance of zazen, which causes all delusions to drop off from the first. They never think of glancing even once at such a wonderful world. They don't care. That is okay. But it is not bad to glance at that wonderful world. If you glance at it even once in your whole life, that's great. Even if you cannot have a chance to glance at this wonderful world once in your whole life, still, if you want to pursue this, it's not bad for us. Because life is going on; so life after life, we can do it. 
 
 #### 15:14
 
-There is a [Zen](glossary#zen) story in [The Blue Cliff Record](BCR), the [46th case](BCR#case-46); this is a very famous Zen [koan](glossary#koan): 
+There is a [Zen](glossary#zen) story in [The Blue Cliff Record](BCR), the [46th case](BCR#case-46). This is a very famous Zen [koan](glossary#koan): 
 
 > “[Kyosei](glossary#kyosei) [Zen Master](glossary#zen-master) asked a monk, “What sound is that outside the gate?” 
 > 
@@ -67,6 +65,8 @@ There is a [Zen](glossary#zen) story in [The Blue Cliff Record](BCR), the [46th 
 > The monk said, “What is the meaning of ‘I almost don’t lose myself’?”
 > 
 > Kyosei said, “Though it should be easy to come out of freedom and say something about it, to merge oneself in freedom and say something about it has to be difficult.”
+>
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 [Kyosei Zen Master](glossary#kyosei)’s question is something with which he raked the monk’s mind to see how much his practice was going on. He asked, “What sound is that outside the gate?” The monk said, “The sound of raindrops.” The teacher didn’t ask for the sound of the raindrops; he asked for the raindrops themselves. But he used the words, “What’s the sound outside of the gate?” So the monk said, “That is the sound of raindrops.” 
 
@@ -168,9 +168,7 @@ And then, the movie is still going on. That is life. And then ...
 
 *[Tape change.]*
 
-... death, coming out of enlightenment. So I can say, “Ah. That is death.” But still, it’s not real death. Do you understand? It’s not real death.
-
-That's why the Zen Master says, it's not so easy to say death itself, raindrops itself. While you merge yourself in themselves – exactly there, you cannot say anything at all. 
+... death, coming out of enlightenment. So I can say, “Ah. That is death.” But still, it’s not real death. Do you understand? It’s not real death. That's why the Zen Master says, it's not so easy to say death itself, raindrops itself. While you merge yourself in themselves – exactly there, you cannot say anything at all. 
 
 But the mind is pretty picky. Mind is very picky, always picking up; that's why you don't know, you're confused. Death is a very good example; that's why I always use the example of death. 
 
