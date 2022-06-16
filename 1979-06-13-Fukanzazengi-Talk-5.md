@@ -80,8 +80,6 @@ Gensha said, “[Bodhidharma](glossary#bodhidharma) didn’t come to the East. T
 
 So completely the answer is, all of the questions. Because [Buddhism](glossary#buddhism) is focused on zazen itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly the intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
 
-#### 29:06
-
 We don’t understand. But *we don’t understand* doesn’t mean we should stop. We have to plant a good seed. For what? For now? For you? No. For future generations, for the long range. For all sentient beings. Even though you don’t understand, all we have to do is, we have to do zazen based on *freedom*, perfect freedom. There is no chance to be involved in *after zazen* or *before zazen*. If you are involved in after or before, that is nothing but human life with which you are completely tied in the dualistic world. 
 
 Of course, we *are* in the dualistic world; that’s why we want to be free. But how can we be free? We have [karma](glossary#karma); of course we have karma. In the past, in the present, we are creating karma from moment to moment. This is really thought; we cannot escape [it]. How can you be free? If you deal with your life in the dualistic world, no matter how long you walk, whatever kind of final goal you get, it’s not a real goal. So, constantly there is dullness and distraction. That’s why shikantaza, the zazen we do, is nothing to be involved in the dualistic world. This is a zazen which is completely different from other meditations. Completely different. 
@@ -142,8 +140,6 @@ You don’t understand?
 
 Is that okay? No? *[He laughs.]*
 
-#### 43:24
-
 **Question**: *[unintelligible]* thoughts come up. So, does real zazen happen right in the middle of thoughts?
 
 **Katagiri**: Thoughts are just a piece of [froth], right in the middle of zazen. That’s all. 
@@ -154,11 +150,11 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: Mmm hmm.
 
-**Katagiri**: And then when you write down the ideas ... then you already attach to this; “I got it.” This is another delusion. We do this, always.
+**Katagiri**: And then when you write down the ideas, then you already attach to this; “I got it.” This is another delusion. We do this, always.
 
 **Same person**: So when the thought comes up, and I become aware, just be with it?
 
-**Katagiri**: Well, there is no chance to be there, or wherever – because, I told you, any thought, any idea, is just a thought – it blooms and disappears in zazen. Poof!
+**Katagiri**: Well, there is no chance to [be aware], or whatever – because, I told you, any thought, any idea, is just a thought – it blooms and disappears in zazen. Poof!
 
 #### 45:10
 
@@ -180,11 +176,11 @@ Is that okay? No? *[He laughs.]*
 
 *[Tape change.]*
 
-... regulation of the mind means no design of having any reward. Becoming [something], or whatever I want to do or I don’t want to do. Or “this is good,” or “this is bad” – any kind of thought that comes up. We don’t say, “this is good,” “this is bad.” 
+... regulation of the mind means no sign of having any reward; becoming [something], or whatever I want to do or I don’t want to do, or “this is good,” or “this is bad” – any kind of thought that comes up. We don’t say, “this is good,” “this is bad.” 
 
 **Same person**: What would you say, “This is there”? “This is nothing”?
 
-**Katagiri**: Just [this]. Immediately you can see, “Oh!” – that’s all. But when you say “Oh,” there is a thought. It is already the life *after* something happens. 
+**Katagiri**: Just [this]. Immediately you can see, *Oh!* – that’s all. But when you say “Oh,” there is a thought. It is already the life *after* something happens. 
 
 **Same person**: That’s [a thought]...
 
@@ -196,7 +192,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: But it’s real too, isn’t it? 
 
-**Katagiri**: Well yes, the real one is no judgement. If you’re real judgement, there is no judgement. Because, judgement is what? Just like a pain. Just like when your body, and your consciousness, your nose, your eyes, all circumstances are completely unified – at that time you have a judgement. But if you say “that judgement”: that is already sort of the sound of the raindrops. “I hear that.”
+**Katagiri**: Well yes, the real one is no judgement. If you’re real judgement, there is no judgement. Because, judgement just like a [tree]. Just like when your body, and your consciousness, your nose, your eyes, all circumstances are completely unified – at that time you have a judgement. But if you say “that judgement,” that is already sort of the sound of the raindrops: “I hear that.”
 
 **Same person**: But isn’t the judgement itself empty?
 
@@ -204,7 +200,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: Do what?
 
-**Katagiri**: We shouldn’t involve in. 
+**Katagiri**: We shouldn’t *involve in*. 
 
 **Same person**: We shouldn’t *continue* to involve in. But we’re already involved in it.
 
@@ -212,7 +208,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: So we don’t say “I just made a judgment” *[unintelligible]*
 
-**Katagiri**: Beyond judgment or not, thought incoming. Thoughts and judgement come up because *you* do zazen. Let’s return to the point, the root. You do zazen, that’s why thoughts come up, judgement comes up. So the important point is, not to involve in thoughts and ideas; let’s involve in zazen itself. According to the Gensha story, not being involved in the sound of the raindrops, which is called “Ouch.” 
+**Katagiri**: Beyond judgment or not, thought is coming [up]. Thoughts and judgement come up because *you* do zazen. Let’s return to the point, the root. You do zazen, that’s why thoughts come up, judgement comes up. So the important point is, not to involve in thoughts and ideas; let’s involve in zazen itself. According to the Gensha story, [this is] not being involved in the sound of the raindrops, which is called *ouch*. 
 
 **Same person**: You’re saying the thoughts and judgements are a result of doing zazen, but they are not zazen itself?
 
@@ -220,7 +216,7 @@ Is that okay? No? *[He laughs.]*
 
 **Same person**: But because we do zazen, thoughts come up?
 
-**Katagiri**: Yes; because we have had lots of thoughts and ideas already. So we have to do zazen *with* the thoughts; let the thoughts and ideas do zazen, together. We cannot separate them. 
+**Katagiri**: Yes; because we have had lots of thoughts and ideas already. So we have to do zazen *with* the thoughts; let the thoughts and ideas do zazen together. We cannot separate them. 
 
 **Same person**: It’s sort of company for us. 
 
