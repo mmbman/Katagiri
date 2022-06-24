@@ -7,13 +7,13 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 [List of Talks](list) \| [Summaries](summaries) \| [About](about) \| [Search](search)
 
-## Latest Posted Talks
+## Cleanup Sweep
 
 ---
 
-### Cleanup Sweep
-
 I am currently going back through the older talks to improve the transcription once again. The latest updated transcript is [Fukanzazengi Talk 5](1979-06-13-Fukanzazengi-Talk-5).
+
+## Latest Posted Talks
 
 ---
 
