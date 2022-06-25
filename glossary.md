@@ -852,13 +852,15 @@ One-pointedness. Often the kind achieved in meditation, but it can refer to comp
 [Sanskrit](glossary#sanskrit): saṃskāra संस्कार<br>
 Pali: Saṅkhāra सङ्खार<br>
 
-One of the [five skandhas](glossary#skandha); often translated as 'formations', 'mental formations', or 'impulses'. 
+One of the [five skandhas](glossary#skandha); often translated as *formations* or *impulses*. 
 
 As "together-maker": see [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
 As "original nature of action": see [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
 
 External links:
+
+- [Article: “What are ‘Conditioned Things’ in Buddhism?” by Bikkhu Bodhi](https://www.lionsroar.com/it-all-depends/)
 
 - [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
