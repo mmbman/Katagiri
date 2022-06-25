@@ -54,15 +54,15 @@ In the process of combining and unifying two objects, there is no mind. It is pe
 
 And then, something happens. And when the something happens, that is event or occurrence. At that time, mind associates with this event. That is what is called *after* something. Something happens *after*: mind associates with this occurrence which happened. And it’s okay – that is very natural. Simultaneously this happens. But the point is, at that time, when the mind attaches to events, this is called the conditioned world, the [dualistic](glossary#dualistic) world. But when mind doesn’t attach to this event, it turns into the truth. That is the unconditioned world. That’s why samskara is sort of a bridge, which enables you to take it to the dualistic world or the not-dualistic world. That is completely a bridge, or door. 
 
-The door is free, always free. No [delusions](glossary#delusion), no confusions. Always the door exists. But something happens, and at the moment when it happens, mind associates and attaches to something. At that time, you can enter into the [dualistic](glossary#dualistic) world. But when mind doesn’t attach to [something] – oh! – immediately you can go there, go to the truth. 
+The door is free, always free. No delusions, no confusions. Always the door exists. But something happens, and at the moment when it happens, mind associates and attaches to something. At that time, you can enter into the dualistic world. But when mind doesn’t attach to [something] – oh! – immediately you can go there, go to the truth. 
 
-Unfortunately, mind is always characterized by dichotomy, as I told you. So more or less, we immediately enter into the dualistic world. But a point is, it’s not necessary to be confused. We have to awaken to the nature of the mind, as much as possible, as best as we can. What is the characteristic of mind? [The characteristic of] mind is to immediately associate with occurrence and attach to it; at that time, you can get into the gate of the [dualistic](glossary#dualistic) world. So you should awaken to it. If you awaken to it perfectly, through and through, that is a very good chance to enter, to move to ... truth. 
+Unfortunately, mind is always characterized by dichotomy, as I told you. So more or less, we immediately enter into the dualistic world. But a point is, it’s not necessary to be confused. We have to awaken to the nature of the mind, as much as possible, as best as we can. What is the characteristic of mind? [The characteristic of] mind is to immediately associate with occurrence and attach to it; at that time, you can get into the gate of the dualistic world. So you should awaken to it. If you awaken to it perfectly, through and through, that is a very good chance to enter, to move to ... truth. 
 
 How? We have to use our bodies and minds. They must be used perfectly. For what? Zazen. Or for what? For the rock. When your toe is completely used perfectly for the rock, something happens. So in other words, we have to return to the origin of the existential situation, conditions. Let’s return to the origin. That is, something happens. There is a force between the two; that conditioned element is kind of a force to combine, to unify, to concert two things. Within this: no mind. Completely nothing. But unfortunately we have a mind, so we cannot ignore the mind; we have to use the mind. 
 
 But first, we have to use our body. In other words: toe, or rock. The rock corresponds to zazen; the toe is your body. When your body is perfectly used for the rock, or zazen, without mind associated with this condition, [then it is] just a condition. Let’s use the body perfectly, fitting into zazen. At that time, something happens. That is called zazen; we call it zazen. That is an occurrence we can see. 
 
-Immediately mind attaches to it: “Oh, that is mind.” This is too late! *[He laughs.]* We see zazen; that is not real zazen, that is a picture of zazen, an image of zazen. So we attach to it, and if we attach to it your zazen is already in the [dualistic](glossary#dualistic) world, so it’s not real zazen. But if we don’t attach to this occurrence, your zazen turns into the gate of the truth, which is called the unconditioned world. This really beautiful zazen blooms. 
+Immediately mind attaches to it: “Oh, that is mind.” This is too late! *[He laughs.]* We see zazen; that is not real zazen, that is a picture of zazen, an image of zazen. So we attach to it, and if we attach to it your zazen is already in the dualistic world, so it’s not real zazen. But if we don’t attach to this occurrence, your zazen turns into the gate of the truth, which is called the unconditioned world. This really beautiful zazen blooms. 
 
 #### 21:38
 
@@ -92,75 +92,83 @@ So, what is oneness? Oneness appears, manifests itself, only when your body is p
 
 #### 30:24
 
-We don’t understand yet, because – well, there is a good example. There is a saying, “[Like] a lump of clay.” However you use this clay, it depends on you. But let’s imagine we try to make a doll. A doll, or china, or a plate – whatever it is. Let’s make a plate, a dish, china – and also a doll. 
+We don’t understand yet, because... Well, there is a good example. There is a saying, “[Like] a lump of clay.” However you use this clay, it depends on you, but let’s imagine we try to make a doll. A doll, or china, or a plate – whatever it is. Let’s make a plate, a dish, china – and also a doll. 
 
-When you use this lump of clay perfectly, fitting into dish: at that time, where is the clay? You cannot say, “That is clay.” You say “dish”. When you see the dish ... clay is completely hidden behind the dish. Perfect. When you make a doll with this clay, you don’t call that “clay”, you call it “doll”. A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t see it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [It is] support, great support. But you cannot always say, “That is a doll; no clay.” You cannot say so.
+When you use this lump of clay perfectly, fitting into *dish*: at that time, where is the clay? You cannot say, “That is clay.” You say “dish.” When you see the dish ... clay is completely hidden behind the dish. Perfect. 
 
-On the other hand, turn it around. If you see the doll in terms of the clay: just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” So in terms of the clay, doll and dish are completely hidden behind the clay. Just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
+When you make a doll with this clay, you don’t call that “clay,” you call it “doll.” A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It’s not disappeared; it’s always there. But we don’t [see] it; always we see the doll. When you just see the doll, that’s enough. If so, the lump of clay is hidden behind the doll. [The clay is] support, great support. But you cannot always say, “That is a doll; no clay.” You cannot say so.
 
-The total picture of the dish as a being possesses a double face. But this double face is not a combination of the two things. Just like the moon reflected in the water: [that’s] not oneness. Oneness is, when you see the doll, just see the doll. At that time, clay doesn’t appear. Dogen Zenji says, “When one is bright, the other one is dark.” “The other one is dark” doesn’t mean the other one disappears. It’s there, but it doesn’t interact. One side, doll’s life and this life. It’s great support, which doesn’t appear *yet* on the surface of the doll’s world. 
+On the other hand, turn it around. If you see the doll in terms of the clay: just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” In terms of the clay, doll and dish are completely hidden behind the clay. Just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
 
-So, this is oneness. The same applies to our zazen. First of all, mind is always associating with events, which is called “practice of zazen”. So at the time you attach to your zazen ... you enter into [dualistic](glossary#dualistic) zazen. At that time, zazen is used as a means. But when your mind doesn’t attach to it, your zazen enters into the truth.
+The total picture of the dish as a being possesses a double face. But this double face is not a combination of the two things. Just like the moon reflected in the water: that’s not oneness. Oneness is, when you see the doll, just see the doll. At that time, clay doesn’t appear. Dogen Zenji says, “When one is bright, the other one is dark.” “The other one is dark” doesn’t mean the other one disappears. It’s there, but it doesn’t *interrupt*. One side, doll’s life, and this life, this great support, which doesn’t appear *yet* on the surface of the doll’s world. This is oneness. 
+
+The same applies to our zazen. First of all, mind is always associating with events, which is called “practice of zazen.” So at the time you attach to your zazen ... you enter into dualistic zazen. At that time, zazen is used as a means. But when your mind doesn’t attach to it, your zazen enters into the truth.
 
 #### 35:32
 
-So how can you stop the functioning of your mind? You cannot stop it. The all-important point is, let’s return to the origin, which is called samskara’s world, which is called elements which are not associated with mind and truth, completely nothing. Let’s return to conditioned elements. How can we return to conditioned elements? ... I told you before, conditioned elements are characterized by unifying two beings perfectly. That means, one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this, using your body and breath perfectly, fitting into zazen. 
+So how can you stop the functioning of your mind? You cannot stop it. The all-important point is, let’s return to the origin, which is called samskara’s world. Which is called elements which are not associated with mind and truth – completely nothing. Let’s return to conditioned elements. How can we return to conditioned elements? Because I told you before, conditioned elements are characterized by unifying two beings perfectly. That means, one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this, using your body and breath perfectly, fitting into zazen. 
 
-At that time, something happens. That is zazen as an event. So mind immediately catches it. That’s, “I got it.” You catch it. The moment when you “catch” it, there is attachment. So, that’s why regulation of the mind is important. That is, Dogen Zenji says, “Throw away good or bad, right and wrong. Have no designs of becoming a [Buddha](glossary#buddha).” Through and through, we have to practice having no design of becoming Buddha. No reward there. Just return to conditioned element, using your body, perfectly fitting into object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
+At that time, something happens. That is zazen as an event. So mind immediately catches it. That’s, “I got it.” You catch it. The moment when you “catch” it, there is attachment. So, that’s why regulation of the mind is important. That is, Dogen Zenji says, “Throw away good or bad, right or wrong. Have no design of becoming a [Buddha](glossary#buddha).” Through and through, we have to practice having no design of becoming Buddha. No rewards there. Just return to conditioned element, using your body, perfectly fitting into the object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
 
-And then when we see just the zazen, it is zazen. It is *just* zazen. When in your body, body is hidden behind zazen. But that body doesn’t bother zazen. Just zazen. Just like a doll, and also a dish.
+And then when we see just the zazen, it is *zazen*. It is *just* zazen. Where is your body? Your body is hidden behind the zazen. That body doesn’t bother zazen. Just zazen. Just like a doll, and also a dish. But on the other hand, if you see that zazen from the *back*, which is called “clay,” or your body, breath and mind: at that time, the body appears. Zazen is completely hidden behind it; it doesn’t bother you. Then at that time, mind and all delusions completely drop off. This is zazen; shikantaza. 
 
-But on the other hand, if you see that zazen from the back, which is called “clay”, or your body, breath and mind: at that time, body appears. Zazen is completely hidden behind it. It doesn’t bother you. Then at that time, mind and all [delusions](glossary#delusion) completely drop off. This is zazen; shikantaza. 
-
-Shikantaza, based on dropping off body and mind, is not a new idea mentioned by Dogen. It’s really [Buddhism](glossary#buddhism). Well you can explain it according to Buddhist psychology, but we don’t understand the real meaning of samskara, and also about the elements which are not associated with mind. That’s why we understand it just as a concept, apart from human life. That’s why we don’t understand.
+Shikantaza, based on body and mind dropping off, is not a new idea mentioned by Dogen. It’s really Buddhism. Well you can explain it according to Buddhist psychology, but we don’t understand the real meaning of *samskara*, and also about the element which is not associated with mind. We understand it just as a concept, apart from human life; that’s why we don’t understand [the real meaning].
 
 #### 39:44 
 
-And also, one of the elements which are not associated with mind is *obtaining* or *getting*. Between the two [objects] there is a conditioned element which is called obtaining, getting. In [Sanskrit](glossary#sanskrit) we say [*prāpti*](glossary#prāpti): meaning to get, to obtain.
+And also, one of the elements which are not associated with mind is *obtaining* or *getting*. Between the two [objects] there is a conditioned element which is called obtaining, getting. In [Sanskrit](glossary#sanskrit) we say [*prāpti*](glossary#prāpti), meaning to get, to obtain. Obtaining is to obtain and complete something. That is a characteristic of conditioned element: to get and complete. There are three kinds of getting and completing. 
 
-There are sort of three kinds of obtaining and getting. Obtaining is to obtain and complete something. That is a characteristic of conditioned element: to get and complete. There are three kinds of getting and completing. 
+One is, you can sow a seed of the truth. Even though your body and mind exist in the dualistic world, you can sow a seed. A seed is completely a seed, not [prāpti](glossary#prāpti); seed.
 
-One is, you can sow a seed of the truth. Even though your body and mind exist in the [dualistic](glossary#dualistic) world, you can sow a seed. A seed is completely a seed, not [prāpti](glossary#prāpti); seed.
+And also, [second,] you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prāpti](glossary#prāpti). Even though you are in the dualistic world, you can complete [Buddha](glossary#buddha)’s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
 
-And also, [second,] you can manifest; your actions are actualized. In other words, you can manifest your actions in your daily living. That is complete [prāpti](glossary#prāpti). Even though you are in the [dualistic](glossary#dualistic) world, you can complete [Buddha](glossary#buddha)’s world right now, right here, actualized in your daily living. This is the second obtaining and completion. 
+On the other hand is seed. You don’t actualize, but you can sow a seed. For instance, shikantaza: in the shikantaza, all delusions drop off and you don’t understand, but if you do zazen, anyway you can sow a seed, in your mind, in your life. It doesn’t appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it’s actualization of zazen itself. So even though you don’t understand, you gain and complete something, [as the truth]. Even though you are in the dualistic world, you can do this. 
 
-On the other hand is seed. You don’t actualize, but you can sow a seed. For instance, shikantaza ... in the shikantaza, all [delusions](glossary#delusion) drop off and you don’t understand. But, if you do zazen, anyway you can sow a seed – in your mind, in your life. But it doesn’t appear. No. But, someday. If you do it, if you really do zazen, using perfectly your body, fitting into zazen, at that time it’s actualization of zazen itself. So even though you don’t understand, you gain something and complete something, as a truth. Even though you are in the [dualistic](glossary#dualistic) world, you can do this. 
+The third one is, you are completely not interested. *[He chuckles.]* You say, “Well, Katagiri says zazen is important, so alright, let’s try to do zazen, you know how it is at Zen Center.” This is zazen, but it doesn’t appear. You can plant a seed; someday, somewhere, real zazen will grow. So this is another opportunity, or possibility. 
 
-The third one is, you are completely not interested. *[He chuckles.]* You say, “Well, Katagiri says zazen is important, so alright, let’s try to do zazen, you know how it is at Zen Center.” This is zazen, but it doesn’t appear. You can plant a seed. But someday, somewhere, real zazen will grow. So this is another opportunity, or possibility. 
+So, three possibilities. One possibility is to plant a seed. The second possibility is to actualize, in order to complete in your daily living; you can do it. And the third possibility is, no interest. That means, “This zazen, I don’t know. But, just do.” *[He laughs.]* No spirit of zazen; but Katagiri says let’s do zazen, that’s why just do zazen. 
 
-#### 44:00
+But this is also pretty good, because that is a possibility which will bloom in the future. That is called completion of liberation, completion of freedom. In other words, you are free. No particular [level], good or bad or neutral. Your life is “so-so.” Are you happy? No. Are you unhappy? No. Are you neutral? No. Well, how do you feel? So-so. That’s okay. Still there is a possibility. So that is one of the conditioned elements which is called obtaining or getting. 
 
-So, three possibilities. One possibility is to plant a seed. The second possibility is to actualize, in order to complete in your daily living; you can do it. And the third possibility is, no interest. That means, “This zazen, I don’t know. But, just do.” *[He laughs.]* No spirit; no spirit of zazen. But Katagiri says let’s do zazen, that’s why just do zazen. 
-
-But this is also pretty good, because that is a possibility which will bloom in the future. That is called completion of liberation, completion of freedom. In other words, you are free. No particular realm, good or bad or neutral. Your life is “so-so”. Are you happy? No. Are you unhappy? No. Are you neutral? No. Well, how do you feel? So-so. That’s okay. Still there is a possibility.
-
-So that is one of the conditioned elements, which is called obtaining or getting. So between the two objects, zazen and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility exist. You can plant a seed, right now, with your body, completely. According to instructions, you can plant seeds, even though you don’t understand. Or, you can completely actualize; actualize completion. According to suggestions and instructions, you can find, you can realize. If you actualize exactly, even though intellectually you cannot reach it, it’s really actualized. You can actualize. So, you can complete something in your daily living. But also between zazen and you there is another possibility: “Well, I don’t understand.” “Well, I don’t want to do it, but I will just do it... so-so.”
+So between the two objects, zazen and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility exist. You can plant a seed, right now, with your body, completely. You can plant seeds according to instructions, even though you don’t understand. Or, you can completely *actualize*; actualize completion. According to suggestions and instructions, you can find, you can realize. If you actualize exactly, even though intellectually you cannot reach it, it’s really actualized. So, you can complete something in your daily living. But also between zazen and you there is another possibility: “Well, I don’t understand.” “Well, I don’t want to do it, but I will just do it... so-so.”
 
 The best way, that is...
 
 *[Tape change.]*
 
-... in the context of conditioned elements. How? Using your body, perfectly fitting into your object. At that time, your body becomes one with zazen, zazen becomes one with you, very naturally. At that time, there is something that happens, that is called zazen. 
+... in the context of conditioned elements. How? Using your body, perfectly fitting into your object. At that time, your body becomes one with zazen, zazen becomes one with you, very naturally. At that time, there is something that happens. That is called zazen. 
 
-The problem is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the problem. He have to understand, what is mind? Very tricky mind, very “monkey” mind – always.
+The [problem] is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the problem. We have to understand, what is mind? Very tricky mind, very “monkey” mind – always.
 
 Well, we have to make every possible effort to do that, because we have a mind. Mind is already here; that’s why we have to practice. 
 
 #### 48:25
 
-So Dogen Zenji says, that’s why “... it cannot be fully known by the practicing or realizing of supernatural power either.” Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[He chuckles.]* 
+So Dogen Zenji says, that’s why 
 
-Or, Dogen Zenji says, “It must be deportment beyond one’s hearing and seeing.” If you see zazen *after* your zazen, that is an image of zazen, it is not real zazen. 
+> ... it cannot be fully known by the practicing or realizing of supernatural power either.
 
-*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gee”, more or less). The *i* of *igi* means “majestic and awe-inspiring”. Majestic, very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior. That is deportment. Here it says “deportment”, but originally we use *igi*. Usually we use *behavior*, but that behavior is *igi* in [Buddhism](glossary#buddhism), because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the rhythm of the truth, that is your behavior.
+Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[He chuckles.]* 
+
+Or, Dogen Zenji says,
+
+> It must be deportment beyond one’s hearing and seeing.
+
+If you see zazen *after* your zazen, that is an image of zazen, it is not real zazen. 
+
+*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gee”, more or less). The *i* of *igi* means “majestic and awe-inspiring.” Majestic, very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior; that is deportment. Here it says “deportment,” but originally we use *igi*. Usually we use *behavior*, but that behavior is *igi* in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Fitting into the rhythm of the truth, that is your behavior.
 
 #### 50:30
 
 So, this behavior which is called zazen is completely beyond hearing or seeing through the six consciousnesses. Let’s return to conditioned elements, that’s all. 
 
-But, Dogen Zenji says, “Is it not the principle that is prior to one’s knowledge and perceptions?” Is it not the principle that is prior to one’s knowledge and perceptions? That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still [bowing](glossary#bowing), and being in accord with the function of knowledge and perception. How? Let’s use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
+But, Dogen Zenji says, 
 
-And after that, mind associates. That’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach to it. But before mind, prior to the function of your mind, it’s really, just sit. It’s a very simple practice. That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions.” It’s [real]. You have to really fit into your knowledge and perceptions. 
+> Is it not the principle that is prior to one’s knowledge and perceptions?
+
+That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still [bowing](glossary#bowing), and being in accord with the function of knowledge and perception. How? Let’s use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
+
+And after that, mind associates. That’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach to it. But before mind, prior to the function of your mind, it’s really, just sit. It’s a very simple practice. That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions.” It’s [there]. You have to really *fit* into your knowledge and perceptions. 
 
 Do you have questions?
 
@@ -316,7 +324,7 @@ And then we say that [means] body and mind exist. But I don’t think so. But we
 
 **Same person**: We can’t talk about *[unintelligible]*?
 
-**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in the [dualistic](glossary#dualistic) world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. That’s why Prajnaparamita says “no mind”; “no eyes, no ears, [etc.]”. But how can we know no-mind? That’s why Dogen Zenji says, in the \[[Shobogenzo](dogen#shobogenzo)] [chapter [on the Prajnaparamita Sutra]](dogen#prajnaparamita) he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
+**Katagiri**: If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in the dualistic world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. That’s why Prajnaparamita says “no mind”; “no eyes, no ears, [etc.]”. But how can we know no-mind? That’s why Dogen Zenji says, in the \[[Shobogenzo](dogen#shobogenzo)] [chapter [on the Prajnaparamita Sutra]](dogen#prajnaparamita) he said, there is mind, there is eyes, nose, ears, and et cetera. That means, use eye, ear, nose, mind, body, perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
 
 Do you understand? That is the meaning of no mind. No mind doesn’t mean to destroy. So, using your mind perfectly. How? Fitting into a single object, zazen. At that time, there is no mind. 
 
@@ -340,7 +348,7 @@ So picky mind, monkey mind, is small mind. But original nature of the mind is bi
 
 Right now, right here, it doesn’t mean something limited by something which is called water. Right now, right here is what? Right now, right here is the universe. If you say *universe*, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How can you see the real meaning of right now, right here, of the universe? Be alive, right now, right here. 
 
-So whatever you say – “that is water,” “that is a moon” – that’s okay, according to this. But when you come back to the [dualistic](glossary#dualistic) world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, the universe blooms. That is one. It is not a combination of the water and the moon. 
+So whatever you say – “that is water,” “that is a moon” – that’s okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using right now, right here, perfectly fitting into your object. At that time, the universe blooms. That is one. It is not a combination of the water and the moon. 
 
 So that’s why Dogen Zenji says, the self is the whole universe. And also, time is being. Time is not time; time is *being*. Time is space. Space is time.
 
@@ -360,7 +368,7 @@ Maybe someone really can see big mind after practicing three years, or five year
 
 Is that okay? That’s why it’s pretty hard.
 
-But the important point is, when we practice, we have to practice zazen not as the being involved in the many things in the [dualistic](glossary#dualistic) world. Analyzing, synthesizing: “I like this,” “I don’t like this,” “I feel good,” “I don’t feel good,” “That’s why I want do this,” “I don’t want to do this”... This is very messy. *[He laughs.]* No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it’s not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
+But the important point is, when we practice, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing: “I like this,” “I don’t like this,” “I feel good,” “I don’t feel good,” “That’s why I want do this,” “I don’t want to do this”... This is very messy. *[He laughs.]* No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is that; it’s not necessary to destroy or hate or like [those thoughts]. Let them be alone. All you have to do is, just right zazen, if you want to do zazen.
 
 #### 1:27:50
 
