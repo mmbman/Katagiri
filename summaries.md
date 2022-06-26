@@ -46,6 +46,7 @@ What does is mean to die sitting in zazen? Katagiri Roshi discusses the meaning 
 #### June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi talks about the difference between zazen itself and seeing zazen “before zazen” or “after zazen,” using the example of Gensha Shibi in “One Bright Pearl.” In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the “vomit” of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most “pure” way?
+
 ---
 
 ### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
