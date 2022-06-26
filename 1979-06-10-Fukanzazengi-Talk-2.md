@@ -7,7 +7,11 @@ description: June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1979-06-09-Fukanzazengi-Talk-1) \| 
 [Next](1979-06-11-Fukanzazengi-Talk-3)
 
-#### Katagiri Roshi expands on the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, *samadhi* (one-pointedness), egolessness, “no design on having a reward”, and *shikantaza* (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
+### Summary
+
+Katagiri Roshi expands on the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, *samadhi* (one-pointedness), egolessness, “no design on having a reward”, and *shikantaza* (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
+
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

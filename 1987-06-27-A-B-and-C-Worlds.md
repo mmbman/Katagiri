@@ -7,6 +7,8 @@ description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1987-06-20-Manas) \| 
 [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 
+### Transcript
+
 **This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Listen to this talk on mnzencenter.org</a> 

@@ -7,6 +7,8 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
+### Transcript
+
 **This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Listen to this talk on mnzencenter.org</a> 

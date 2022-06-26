@@ -7,6 +7,8 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-03-Karma-Unmanifested) \| 
 [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
+### Transcript
+
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>

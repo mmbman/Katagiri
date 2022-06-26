@@ -7,6 +7,8 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1) \| 
 [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
+### Transcript
+
 **This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Listen to this talk on mnzencenter.org</a> 

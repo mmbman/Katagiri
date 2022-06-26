@@ -7,6 +7,8 @@ description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 [Previous](unfinished-1981-1) \| 
 [Next](unfinished-1981-2) 
 
+### Transcript
+
 **This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>

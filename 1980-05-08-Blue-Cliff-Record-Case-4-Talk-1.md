@@ -7,6 +7,8 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
 [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 
+### Transcript
+
 **This transcript is in rough draft stage.**
 
 (Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
