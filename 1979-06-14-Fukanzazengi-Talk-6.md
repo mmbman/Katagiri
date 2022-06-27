@@ -36,7 +36,7 @@ In *Abhidharmakosha*, samskara is [included in] many things. I am very intereste
 
 > A force, it must be recalled, shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. But, simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara in the Buddhist system.
 >
-> (From ["The Central Conception of Buddhism and the Meaning of the Word Dharma"](books#central-conception) by Theodore Stcherbatsky
+> (From [*The Central Conception of Buddhism and the Meaning of the Word Dharma*](books#central-conception) by Theodore Stcherbatsky
 
 So, samskara as a force shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects. But mainly these conditions are what is called origination and decay. According to [primitive Buddhism](glossary#primitive-buddhism ), that is [impermanence](glossary#impermanence) or constant change. Appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 
@@ -178,7 +178,7 @@ Do you have questions?
 
 #### 52:33
 
-**Question**: [Roshi](glossary#roshi)? In “Central Conception of Buddhism,” I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and, well not exactly its opposite, but the similar force aprāpti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
+**Question**: [Roshi](glossary#roshi)? In *Central Conception of Buddhism*, I remember reading in a couple places where he talked about [prāpti](glossary#prāpti) and, well not exactly its opposite, but the similar force aprāpti. And he talked about prāpti different than you. He called it a force that keeps positives together in one being. 
 
 **Katagiri**: Positives, yes.
 
@@ -188,7 +188,7 @@ Do you have questions?
 
 **Same person**: Could you say a little more about that?
 
-**Katagiri**: Well that is, changing: function of change, stream of change, broadly speaking. We analyze that function of change, dividing it into several things. Again, [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti) – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
+**Katagiri**: Well that is changing: the function of change, the stream of change, broadly speaking. We analyze that function of change, dividing it into several things – again, [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti) – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
 
 **Same person**: Could you develop a specific example, of something in everyday life that comes up and where...
 
@@ -196,47 +196,41 @@ Do you have questions?
 
 For instance... Well, here is a good example, okay? 
 
-When I was at [Eiheiji](glossary#eiheiji) monastery, we had a big earthquake. It was evening of the day on which we performed the memorial service for Dogen’s death. That is 5:00 pm. And then, right after the service, all the monks are about to leave the [zendo](glossary#zendo), and several people in the end of the line stepped out from the zendo, and then the earthquake happened. Fortunately there was no damage to Eiheiji monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that’s all. No damage. 
+When I was at [Eiheiji](glossary#eiheiji) monastery, we had a big earthquake. It was evening of the day on which we performed the memorial service for Dogen’s death. That is 5:00 pm. And then, right after the service, all the monks are about to leave the [zendo](glossary#zendo), several people in the end of the line stepped out from the zendo, and then the earthquake happened. Fortunately there was no damage to Eiheiji monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that’s all. No damage. 
 
-But here is a very good example. One of my friends was on vacation that day, a day off for him. So he took a day off, and went to Fukui City. It’s a little far from [Eiheiji](glossary#eiheiji) monastery ... now it’s pretty quick, but at that time it took about 70 minutes from Eiheiji monastery to Fukui city. So, he went there, and, I don’t know what he did, but anyway he went. He told me he wanted to see a movie at that time. But he thought, “Oh, tonight, is the memorial service. This is the particular day of performing the memorial service for Dogen’s death. Let’s go back.” So he returned. And then at that time, the whole movie theater completely crashed; everybody died. Because there were several tiers – no posts. If you have a big earthquake, exactly, “boom”. All the people died; but he was saved. (Transcriber’s Note: The earthquake killed 3,769 people. See [Wikipedia: 1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))
+But here is a very good example. One of my friends was on vacation that day, a day off for him. So he took a day off, and went to Fukui City. It’s a little far from Eiheiji monastery ... now it’s pretty quick, but at that time it took about thirty minutes or so from Eiheiji monastery to Fukui city. So, I don’t know what he did there, but anyway he went. He told me he wanted to see a movie, but he thought, “Oh, tonight is the memorial service; it’s the particular day of performing the memorial service for Dogen’s death. Let’s go back.” So he returned. And then at that time, the whole movie theater completely crashed; everybody died. Because there were several tiers, no posts; if you have a big earthquake, exactly, “boom.” All the people died; but he was saved. (Transcriber’s Note: The earthquake killed 3,769 people. See [Wikipedia: 1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))
 
 Do you understand? This is a very good example. *[The group laughs – perhaps because no one understands how this is a good example.]*
 
-One more person was on the train from Fukui City to [Eiheiji](glossary#eiheiji) monastery, because he thought also, “Oh, today is the particular day of performing a memorial service for Dogen. So let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off the track. But he survived. Do you understand? This is a very good example.
+One more person was on the train from Fukui City to Eiheiji monastery, because he too thought, “Oh, today is the particular day of performing a memorial service for Dogen, so let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off the track. But he survived. Do you understand? This is a very good example.
 
 **Same person**: Okay, how do these two terms then relate to [karma](glossary#karma)?
 
 **Katagiri**: I don’t know. I don’t know. *[There is some laughter.]*
 
-That is [karma](glossary#karma), maybe past life. Well, you can envision past life, and also, his karma in the past might be good. He planted good karma in the past. That’s why he wanted to see the movie, but he thought, “Oh, no, let’s go back to [Eiheiji](glossary#eiheiji) monastery.” So that is pretty good karma. From where that good sense comes – maybe from a past life. 
+That is karma, maybe past life. Well, you can envision his past life, and also, his karma in the past might be good, he planted good karma in the past. That’s why he wanted to see the movie but he thought, “Oh, no, let’s go back to Eiheiji monastery.” So that is pretty good karma. From where that good sense comes, maybe from a past life. 
 
-**Same person**: So the [karma](glossary#karma) in life influences how strong these forces...
+**Same person**: So the karma in life influences how strong these forces are enacting?
 
-**Katagiri**: Sure. In many ways. 
+**Katagiri**: Sure. In many ways. But only if the times and opportunities are ripe and conditions arranged. Dogen’s memorial day and his day off are set up, and then, karma starts to work. Which would you like? You want to go to a movie, or you want go to Eiheiji monastery?
 
-But only if the times and opportunities are ripe and conditions arranged. Dogen’s memorial day and his day off are set up, and then, [karma](glossary#karma) starts to work. Which would you like? You want to go to a movie, or you want go to [Eiheiji](glossary#eiheiji) monastery?
+ **Same person**: How then are those conditions separate from the body, if karma is involved? I mean, things don’t happen randomly. 
 
-#### 1:00:06
-
- **Same person**: How then are those conditions separate from the body, if [karma](glossary#karma) is involved? I mean, things don’t happen randomly. 
-
-**Katagiri**: How [karma](glossary#karma)... What is your question? 
+**Katagiri**: What is your question? 
 
 **Same person**: Well, you talked about conditioned elements ... not relating to the truth or the mind? Did you say that? Well how is that so, if... ?
 
-**Katagiri**: Well, conditioned elements are very broad. Past, present, future. So, conditioned elements [are] associated with [karma](glossary#karma). 
+**Katagiri**: Well, conditioned elements are very broad. Past, present, future. So, conditioned elements [are] associated with karma. 
 
 **Same person**: But isn’t that associated with mind?
 
-**Katagiri**: No. Because that [karma](glossary#karma) is completely beyond good or bad, right and wrong. If you judge the karma – it’s good, it’s bad – that is the mind associated with karma. But karma is just karma. That is a conditioned element. 
+**Katagiri**: No. Because that karma is completely beyond good or bad, right and wrong. If you judge the karma – it’s good, it’s bad – that is the mind associated with karma. But karma is just karma. That is a conditioned element. 
 
-That’s why something happens. Rock, Gensha Shibi’s toes; something happens. But I don’t know; you cannot say it is bad, or it is good. Why can’t you do this? Well, we don’t know. For instance, if you walk on a bridge, and the bridge immediately crashes, and you die: why is it you have to die? No one knows. 
+That’s why something happens. Rock, Gensha Shibi’s toes; something happens. But I don’t know; you cannot say it is bad or it is good. Why can’t you do this? Well, we don’t know. For instance, if you walk on a bridge, and the bridge immediately crashes, and you die: why is it you have to die? No one knows. 
 
-Well, that is a good example. Someone dies in that way, and that is conditioned elements, always. Good and bad – that is a matter of the mind. So whether it is associated with [karma](glossary#karma), or not associated – completely beyond. Just conditioned elements. But anyway, conditioned elements are related with the past, present, future. That is conditioned elements. 
+Well, that is a good example. Someone dies in that way, and that is conditioned elements, always. Good and bad – that is a matter of the mind. So whether it is associated with karma or not associated – completely beyond. Just conditioned elements. But anyway, conditioned elements are related with the past, present, future. That is conditioned elements. 
 
 Philosophically speaking, that is interdependent co-production. 
-
-#### 1:02:55
 
 **Same person**: Well then, we can still see the instant without attaching to it, and learning from that? Because, perhaps if he’d have noticed the rock an instant before, he wouldn’t have bumped his toe on it.
 
@@ -248,9 +242,7 @@ Philosophically speaking, that is interdependent co-production.
 
 **Same person**: Well I’m saying maybe he would have noticed the rock. Can we look at that and see that, or is that attaching to it?
 
-**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment: completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock – just there. If his mind was working before he struck his toes, maybe he wouldn’t have had such an event. But already here, something. That means, rock as a being, beyond function of human mind. 
-
-But how do they associate with each other? We don’t know. Because between the two, something connected. That connection is not something that happens right now. It’s really connected with the past, and the future. That’s why it’s broad. 
+**Katagiri**: That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment, [they are] completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock: just there. If his mind was working before he struck his toes, maybe he wouldn’t have had such an event. But already [something is there]; that means rock as a being, beyond function of human mind. But how do they associate with each other? We don’t know. Because between the two, something connects. That connection is not something that happens right now; it’s really connected with the past and the future. That’s why it’s *broad*. 
 
 That’s why if you don’t pay careful attention to your life, well, many things come up. That’s why all we have to do is, to use perfectly, with our best, fitting into the object. zazen, if we want to do zazen. And become one. 
 
@@ -264,11 +256,11 @@ So, according to my talk yesterday, we are always seeing before zazen and after 
 
 **Question**: [Roshi](glossary#roshi)? In Dogen’s writings, the water reflects the Moon? What is the water right now?
 
-**Katagiri**: Water is, according to Dogen’s understanding, that is the whole universe. That water is occupying a certain space; water is the universe. When the water becomes one with the moon, when the water reflects the moon, at that time, water is not water, water is the whole universe. At that time, there is no combination of water and moon.
+**Katagiri**: Water, according to Dogen’s understanding, is the whole universe. That water is occupying a certain space; water is the universe. When the water becomes one with the moon, when the water reflects the moon, at that time, water is not water, water is the whole universe. At that time, there is no combination of water and moon.
 
 So, if you see the water, immediately there is the moon. But that moon doesn’t appear. That’s why Dogen Zenji says, “When one is bright, the other one is dark.” That means water appears. That water is really the blooming of the universe. Not water; the universe.
 
-The universe includes moon, water, tree, birds; that is the real meaning of the water’s life. 
+The universe includes moon, water, tree, birds. That is the real meaning of the water’s life. 
 
 #### 1:08:19
 
@@ -278,9 +270,9 @@ The universe includes moon, water, tree, birds; that is the real meaning of the 
 
 **Same person**: The two monks, your friends that you described. To go back; was that an expression of their life? Or were they picking and choosing? And what’s the difference?
 
-**Katagiri**: Oh of course, he chose. He chose. It’s his life. But by *what*? What part of his mind did he choose [with]? I don’t know. Maybe [karma](glossary#karma); it’s connected with the past life, present life, future life. 
+**Katagiri**: Oh of course, he chose. He chose. It’s his life. But by *what*? What part of his mind did he choose [with]? I don’t know. Maybe karma; it’s connected with the past life, present life, future life. 
 
-There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his – maybe – [karma](glossary#karma), he planted a seed in the past. And then many things combined, unified, and he can see. Something happened. 
+There are many conditions there, many things there. So in the future, the monastery is there, and in the past, his – maybe – karma, he planted a seed in the past. And then many things combined, unified, and he can see. Something happened. 
 
 And then his mind catches that event. Monastery, and movies, and his karmas: all things put together, and then something happens. And then the mind catches it. And then the mind chooses, “Let’s go there.”
 
@@ -382,7 +374,7 @@ But the important point is, when we practice, we have to practice zazen not as t
 
 **Same person**: Okay, well in the story that you gave us as an example of [prāpti](glossary#prāpti) and [aprāpti](glossary#aprāpti), it seemed to me, if I understand it right, prāpti was the force that brought your friend back to the monastery, and aprāpti was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
-**Katagiri**: [Aprāpti](glossary#aprāpti) is kind of a force which kept my friend at [Eiheiji](glossary#eiheiji) monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprāpti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprāpti.
+**Katagiri**: [Aprāpti](glossary#aprāpti) is kind of a force which kept my friend at Eiheiji monastery separate from the movie theater. It kept him away, saving him from death. Do you understand? That is aprāpti: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of aprāpti.
 
 **Question**: Do you mean, [Roshi](glossary#roshi), because he changed his mind?
 

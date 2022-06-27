@@ -9,7 +9,7 @@ description: December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is always raising, just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
+If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is always raising (sic), just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
 
 ### Transcript
 
