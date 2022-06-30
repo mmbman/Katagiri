@@ -223,7 +223,7 @@ I understand it’s pretty hard, because getting up in the morning is a very sim
 
 #### 1:08:13 end of recording
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| 

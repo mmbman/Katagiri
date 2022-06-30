@@ -371,7 +371,7 @@ The commentary is very helpful for you, so if you have time, read the commentary
 #### 1:18:32 end of recording
 
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1979) \| 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 

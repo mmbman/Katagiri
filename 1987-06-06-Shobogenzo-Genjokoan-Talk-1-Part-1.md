@@ -230,7 +230,7 @@ Is that okay? Do you have any other questions? We will have discussion (later?).
 
 #### end of recording
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 

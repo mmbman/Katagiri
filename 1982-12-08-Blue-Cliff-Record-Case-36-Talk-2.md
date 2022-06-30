@@ -227,7 +227,7 @@ Whatever you judge, evaluate, think, it is nothing but understanding human life 
 
 ####  1:09:30 end of recording.
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 

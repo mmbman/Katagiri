@@ -30,7 +30,7 @@ description: March 22, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 #### end of part 3
 
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1984) \| 
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
