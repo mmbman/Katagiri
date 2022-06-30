@@ -9,7 +9,7 @@ description: June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-Katagiri Roshi talks about “body and mind dropping off” from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to his knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi talks about “body and mind dropping off” from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ### Transcript
 
@@ -414,8 +414,7 @@ According to that, I told you about [Mount Sumeru](glossary#mount-sumeru). Right
 
 #### 1:35:52 end of recording
 
-
-#### This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1979) \| 
 [Previous](1979-06-13-Fukanzazengi-Talk-5) \| 
