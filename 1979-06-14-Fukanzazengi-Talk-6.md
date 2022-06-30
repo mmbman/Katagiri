@@ -60,7 +60,7 @@ And when the something happens, that is event or occurrence. At that time, mind 
 
 The door is free, always free. No delusions, no confusions. Always the door exists. But something happens, and at the moment when it happens, mind associates and attaches to something. At that time, you can enter into the dualistic world. But when mind doesn’t attach to [something]: Oh! Immediately you can go there, go to the truth. 
 
-Unfortunately, mind is always characterized by dichotomy, as I told you, so more or less, we immediately enter into the dualistic world. But a point is, it’s not necessary to be confused. We have to awaken to the nature of the mind, as much as possible, as best as we can. What is the characteristic of mind? [The characteristic of] mind is to immediately associate with occurrence and attach to it; at that time, you can get into the gate of the dualistic world. So you should awaken to it. If you awaken to it perfectly, through and through, that is a very good chance to enter, to move to ... truth. 
+Unfortunately, mind is always characterized by dichotomy, as I told you, so more or less, we immediately enter into the dualistic world. But a point is, it’s not necessary to be confused. We have to awaken to the nature of the mind as much as possible, as best as we can. What is the characteristic of mind? [The characteristic of] mind is to immediately associate with occurrence and attach to it; at that time, you can get into the gate of the dualistic world. So you should awaken to it. If you awaken to it perfectly, through and through, that is a very good chance to enter, to move to ... truth. 
 
 How? We have to use our bodies and minds. They must be used perfectly. For what? For zazen; or for the rock. When your toe is completely used perfectly for the rock, [something happens]. In other words, we have to return to the origin of the existential situation, conditions. Let’s return to the origin. That is ... something happens; there is a force between the two. That conditioned element is kind of a force to combine, to unify, to concert two things. Within this, [there is] no mind. Completely nothing. But unfortunately we have a mind, so we cannot ignore the mind, we have to use the mind. So first, we have to use our body, [or] in other words, [our toe]. The rock corresponds to zazen; the toe is your body. When your body is perfectly used for zazen, without mind associated with this condition, [then it is] just a condition. Let’s use the body perfectly, fitting into zazen. 
 
@@ -68,9 +68,7 @@ At that time, something happens. We call that zazen. That is an occurrence we ca
 
 #### 21:38
 
-I already told you a few stories so far, and [Dogen](glossary#dogen) gives lots of examples, but he didn’t explain concretely about each story. But the few stories I told you really [imply very well] the meaning of [shikantaza](glossary#shikantaza), \[which is] zazen based on body and mind dropping off. 
-
-And then he says here [in Fukanzazengi]: 
+I already told you a few stories so far. [Dogen](glossary#dogen) gives lots of examples, but he didn’t explain concretely about each story. But the few stories I told you really [imply very well] the meaning of [shikantaza](glossary#shikantaza), \[which is] zazen based on body and mind dropping off. [Dogen] says [in Fukanzazengi]: 
 
 > In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout...
 
