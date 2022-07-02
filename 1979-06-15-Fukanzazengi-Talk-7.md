@@ -84,8 +84,6 @@ So zazen is always working in your daily living from morning to night, but it do
 
 That’s why Dogen Zenji says, “The Buddha uses this from morning to night – *[thunder]* – and culminates the quest of his body in the zendo.” “Culminates the quest of his body” means, mind completely fits, fills his body. 
 
-#### 27:42
-
 In other words, I always use [the saying], “Your kind, compassionate attention must penetrate from the top of your head, to the tip of your toes.” That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can hold back, you can stand up with two hands; but usually you have to stand up with two feet. But that is not the real practice of [Zen](glossary#zen ). You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, all your circumstances. At that time, you can really culminate the quest of your body. And then you say, “Oh! This is standing up, perfectly.” You feel good at that time. 
 
 Or, I always tell you, if you play the guitar, you can play the guitar with two hands, of course. But with two hands is not the perfect way of playing guitar. You have to play the guitar with two hands and two feet. [Yes,] you have to play the guitar with two feet. How you can play that way? I don’t know. *[He chuckles.]* But you can play. You can play with two feet, and with your nose, with your mouth, with your eyes, with your knowledge, with your perceptions, with your consciousness, with your heart, with your emotions, with your past life, with your present life, with your future life, and the composers, and all circumstances. At that time, that is a perfect practice of playing guitar.
