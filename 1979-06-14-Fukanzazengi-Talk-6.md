@@ -30,7 +30,7 @@ The second one is *six consciousnesses*.
 
 The third category is called *function*: the concomitant mental faculties. That means function of the mind: the wholesome and unwholesome functions concomitant with the six consciousnesses. There are many kinds of concomitant functions of the mind: for instance anger, hatred, et cetera; many things. 
 
-These categories are very interesting, because the fourth one is an element which is completely not associated with the mind of the six sense consciousnesses, nor concomitant mental faculties, nor the elements of form, nor the fifth one, which is the *truth*. That is what is called *samskara*.
+These categories are very interesting, because the fourth one is an element which is completely not associated with the mind of the six sense consciousnesses, nor concomitant mental faculties, nor the elements of form, nor the fifth one, which is the truth. That is what is called *samskara*.
 
 In *Abhidharmakosha*, samskara is [included in] many things. I am very interested in this element, which is not associated with the mind and not associated with the truth. That element is sort of a *force*. In the book ["The Central Conception Of Buddhism"](books#central-conception), [the author] said about this: 
 
@@ -38,7 +38,7 @@ In *Abhidharmakosha*, samskara is [included in] many things. I am very intereste
 >
 > (From [*The Central Conception of Buddhism and the Meaning of the Word Dharma*](books#central-conception) by Theodore Stcherbatsky
 
-So, samskara as a force shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects. But mainly these conditions are what is called origination and decay. According to [primitive Buddhism](glossary#primitive-buddhism ), that is [impermanence](glossary#impermanence) or constant change – appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
+So, samskara as a force shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects, but mainly these conditions are what is called origination and decay. According to [primitive Buddhism](glossary#primitive-buddhism ), that is [impermanence](glossary#impermanence) or constant change – appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 
 Anyway, *force* is not a real “force,” but a conditioned element which occurs between two objects. And also this conditioned element has a certain power to *concert* two things, to exist. So that’s why this author says, “... simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara.”
 
@@ -404,7 +404,7 @@ Is that clear? That is *aprāpti*: force to separate from something.
 
 **Katagiri**: Well, the *Abhidharmakosha* is an outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world is created, just like creation of the world mentioned by Christianity.
 
-According to that, I told you about [Mount Sumeru](glossary#mount-sumeru). Right in the middle of the Universe there is the huge Mount Sumeru. At the top of the mountain, the gods exists, and four kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. [The seventh of the planet] is the human world. In the first book of *Abhidharmakosha*, the whole book is an explanation of how this structure and form exists. Very interesting.
+According to that, I told you about [Mount Sumeru](glossary#mount-sumeru). Right in the middle of the Universe there is the huge Mount Sumeru. At the top of the mountain, the gods exists, and four kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. [The seventh part] is the human world. In the first book of *Abhidharmakosha*, the whole book is an explanation of how this structure and form exists. Very interesting.
 
 #### 1:35:52 end of recording
 
