@@ -386,7 +386,7 @@ Is that clear? That is *aprāpti*: force to separate from something.
 
 **Katagiri**: Who?
 
-**Same person**: Aprāpti and prāpti. With the two in the example you gave, both of those people were monks, they were practicing the Buddha’s way. And we’re talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone’s life? In Roman Catholics’ life?
+**Same person**: *Aprāpti* and *prāpti*. With the two in the example you gave, both of those people were monks, they were practicing the Buddha’s way. And we’re talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone’s life? In Roman Catholics’ life?
 
 **Katagiri**: Sure. *[Laughter.]* It’s universal. Yes. *[Laughter.]*
 
