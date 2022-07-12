@@ -45,6 +45,8 @@ The verse:
 > The flowing spring makes a lute—  
 > One tune, two tunes; no one understands.  
 > When the rain has passed, the autumn water is deep in the evening pond.  
+> 
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 Engo Zenji has brought the same sentence in his verse as in the case: “There is nothing in the triple world; where can mind be found?” That is completely “where can mind be found”: if everything is empty, where can mind be found? Because mind is also empty; if so, mind is nothing. The mind is nothing, but the mind is *there* – because in your daily living, can you ignore your mind? You cannot. But what is the mind? Where is your mind? In your brain? This is already you setting up an idea; mind is a certain idea. [Is mind] your heart? No; this is also a certain idea. From where does the mind come, is the mind inside or outside? No way, because mind is emptiness, if so, mind is nothing. Does *mind is nothing* mean completely nothing? No, you cannot say that, because always mind is here. *Where is the mind*?
 
