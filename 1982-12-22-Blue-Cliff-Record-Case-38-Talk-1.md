@@ -20,7 +20,9 @@ description: December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 Case Thirty-Eight: “Feng Hsueh’s Workings of the Iron Ox”. Pointer:
 
 > If we discuss the gradual, it is going against the ordinary to merge with the Way: in the midst of a bustling market place, seven ways up and down and eight ways across.  
+> 
 > If we discuss the sudden, it doesn’t leave a hint of a trace; a thousand sages cannot find it.  
+> 
 > If, on the other hand, we do not set up sudden or gradual, then what? To a quick person, one word; to a quick horse, one blow of the whip. At such a time, who is the master? As a test, I cite this to see.
 > 
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
@@ -88,12 +90,19 @@ That’s why “who is the master?” No. *Lotus Sutra* or Dogen Zenji says, “
 Next, the case:
 
 > At the government headquarters in Ying Chou, Feng Hsueh entered the hall and said, “The Patriarchal Masters’ Mind Seal is formed like the workings of the Iron Ox: when taken away, the impression remains; when left there, then the impression is ruined. But if neither removed nor left there, is sealing right or is not sealing right?”  
+> 
 > At that time there was a certain Elder Lu P’i who came forth and said, “I have the workings of the Iron Ox: please, Teacher, do not impress the seal.”  
+>
 > Hsueh said, “Accustomed to scouring the oceans fishing for whales, I regret to find instead a frog crawling in the muddy sand.”  
+> 
 > P’i stood there thinking. Hsueh shouted and said, “Elder, why do you not speak further?” P’i hesitated; Hsueh hit him with his whisk. Hsueh said, “Do you still remember the words? Try to quote them.” As P’i was about to open his mouth, Hsueh hit him again with his whisk.  
+> 
 > The Governor said, “The Buddhist Law and the Law of Kings are the same.”  
+>
 > Hsueh said, “What principle have you seen?”  
+>
 > The Governor said, “When you do not settle what is to be settled, instead you bring about disorder.”  
+>
 > Hsueh thereupon descended from his seat.  
 > 
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
