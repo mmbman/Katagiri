@@ -12,5 +12,10 @@ This is an ongoing list of issues discovered in the online audio files. Some of 
 
 The beginning and ending of this talk are missing, and what exists in the audio file appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.
 
+### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
+#### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+This talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.
+
 
 [Home](index) \| [List of Talks](list) \| [Summaries](summaries) \| [Search](search)

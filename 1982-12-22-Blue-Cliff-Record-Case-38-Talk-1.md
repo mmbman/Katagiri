@@ -9,6 +9,7 @@ description: December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
+**This transcript is in rough draft stage.**
 
 ### Transcript
 
@@ -22,11 +23,15 @@ Case Thirty-Eight: “Feng Hsueh’s Workings of the Iron Ox”. Pointer:
 > If we discuss the sudden, it doesn’t leave a hint of a trace; a thousand sages cannot find it.  
 > If, on the other hand, we do not set up sudden or gradual, then what? To a quick person, one word; to a quick horse, one blow of the whip. At such a time, who is the master? As a test, I cite this to see.
 
-“If we discuss the gradual”: Here are two points: to discuss the gradual; second, to discuss the sudden. If you discuss the gradual – gradual means gradual progress, seeing progress through your individual feeling, understanding, and experience in your daily life. So that is gradual. 
+Here are two points: to discuss the gradual; second, to discuss the sudden. If you discuss the gradual – gradual means gradual progress, seeing progress through your individual feeling, understanding, and experience in your daily life. So that is gradual. 
 
-“If we discuss the gradual, it is going against the ordinary to merge with the Way”: It is going against the ordinary because, ordinary means you are always a little bit away from the point, the truth that you believe to. The point away from the point of the truth. Physically and mentally, in your daily life, your body and mind are present in daily living, that means being present right in the midst of the bustling marketplace. The bustling marketplace means making noise, anyway. Day to day, getting up in the morning: “Yes, I am getting up in the morning.” And then next you don’t want to get up in the morning, so “I don’t want to get up in the morning.” So always bustling, your body and mind is just ... in the bustling marketplace. So, pretty noisy.
+> If we discuss the gradual, it is going against the ordinary to merge with the Way: in the midst of a bustling market place, seven ways up and down and eight ways across.  
+
+It is going against the ordinary because, ordinary means you are always a little bit away from the point, the truth that you believe to. The point away from the point of the truth. Physically and mentally, in your daily life, your body and mind are present in daily living, that means being present right in the midst of the bustling marketplace. The bustling marketplace means making noise, anyway. Day to day, getting up in the morning: “Yes, I am getting up in the morning.” And then next you don’t want to get up in the morning, so “I don’t want to get up in the morning.” So always bustling, your body and mind is just ... in the bustling marketplace. So, pretty noisy.
 
 And that means, next it says, “seven ways up and down and eight ways across” means ... we don’t care about numbers. Seven ways up and down means countless number, many times, even for a moment, how often do you go up and down, you know? Can you imagine? *[He chuckles.]* If you do that then you can see. In a moment your mind is really going up and down. And next, your mind is really crossing rivers and not cross the small river, you cross the universe. You can go to heaven. You can go to heaven, you can go to Japan, and immediately you can go. So in a moment you are really going up and down, across the universe, et cetera, going to heaven and hell, et cetera. Because you are discussing gradual, gradual progress. Because I am not a good person, I am not a real Buddhist, I am not mature exactly, that’s why I’m afraid to just be present with confidence, that’s why I want to progress. “I want to progress” means you are not mature, you are not perfect now, that’s why very naturally you are discussing about you, right in the middle of the bustling marketplace. That means a little bit pretty hard. If you always take care of your life that way, it’s really painful. 
+
+> If we discuss the sudden, it doesn’t leave a hint of a trace; a thousand sages cannot find it.  
 
 You cannot take care of your life just like this always. So next, we have to discuss the sudden. Sudden life, sudden progress. One hundred percent perfect. We have to discuss that sudden means one hundred percept perfect. For instance, if you perform athletics, you have to catch the iron bar. If you discuss the gradual, you are always looking at the bar, and looking at you, and then looking at the result which will come, and also you discuss about the audience, and you discuss about the points. You are always doing that. So very naturally you are very uneasy and restless. On the other hand, you have to completely discuss the sudden, means one hundred percept perfect, means you jump [and] grasp it. Ninety percent, you cannot reach ninety percent. If you reach ninety percept to the iron bar, it’s not perfect, don’t you think? Ninety percent is pretty good, but it doesn’t make sense. So you have to completely perfectly catch it. If you catch it then the next moment immediately you can perform athletics. 
 
@@ -34,7 +39,13 @@ You cannot take care of your life just like this always. So next, we have to dis
 
 You know the famous haiku, the old pond, the frog jumps, pop. This is pretty interesting short poem. If you discuss the gradual aspect, I think you can discuss about Basho and you can discuss about the frog, you can discuss about the old pond and mountains and quietness, and men and also singing et cetera; you can discuss both, gradually. But no matter how long you discuss about this and then put all things together pretty good, but I don’t know if you can make this kind of poem. You cannot make such a wonderful poem through the discussion about the gradual – analyzing, synthesizing, and your feeling and also your emotions and psychological point of view, and the original nature of existence, et cetera. You cannot make a perfect nice poem. So important point is next you have to discuss the sudden. That means frog and Basho and old pond, quietness, come together, all of a sudden, as one hundred percent perfect beings. At that time, Basho, frog, and the old pond, and singing songs, quietness, are all put together. In the realm of the sudden, they exist like this. And then, if you discuss this, then a poem comes up. And this poem in a word is not the word coming from discussion of the sudden or discussion of the gradual. 
 
-Then next it says, “If, on the other hand, we do not set up sudden or gradual, then what?” Gradual or sudden [are] still discussion, nothing but discussion. So what do you mean? If you discuss the sudden, that sudden is not the sudden opposed to gradual because discussing sudden means you must be alive in the same way as the frog, or pond, quietness, universe. Anyway you have to exist like this, exactly. If so, what is this? They all become one. So its discussion; it’s nothing but the motion of function of energy. 
+#### 
+
+Then next it says, 
+
+> If, on the other hand, we do not set up sudden or gradual, then what?
+
+Gradual or sudden [are] still discussion, nothing but discussion. So what do you mean? If you discuss the sudden, that sudden is not the sudden opposed to gradual because discussing sudden means you must be alive in the same way as the frog, or pond, quietness, universe. Anyway you have to exist like this, exactly. If so, what is this? They all become one. So its discussion; it’s nothing but the motion of function of energy. 
 
 Finally you cannot say what this is. This is the sudden; sudden means in the real of the sudden, all things, frogs, ponds, quietness and noise of the water, exist in peace and harmony. This is still a discussion? No. Opposed to gradual. That’s why next it says, “If, on the other hand, we do not set up sudden or gradual” If you pay attention to real reality which which is fully alive in your daily living with all sentient beings, at that time we do not set up sudden or gradual. And “then what?” 
 
@@ -60,7 +71,7 @@ Lotus Sutra or Dogen Zenji says, Buddha knows. Only Buddha knows what the Buddha
 
 #### 24:23
 
-“As a test, I cite this to see.” Next, the case. 
+“As a test, I cite this to see.” Next, the case:
 
 > At the government headquarters in Ying Chou, Feng Hsueh entered the hall and said, “The Patriarchal Masters’ Mind Seal is formed like the workings of the Iron Ox: when taken away, the impression remains; when left there, then the impression is ruined. But if neither removed nor left there, is sealing right or is not sealing right?”  
 > At that time there was a certain Elder Lu P’i who came forth and said, “I have the workings of the Iron Ox: please, Teacher, do not impress the seal.”  
