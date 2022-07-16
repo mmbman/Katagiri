@@ -21,7 +21,9 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 [The pointer to the case:]
 
 > If your potential does not leave (its fixed) position, you tumble down into the poison sea. If your words don’t startle the crowd, you fall into the streams of the commonplace.
+> 
 > Suddenly, if you can distinguish initiate from lay in the light of sparks struck from stone, if you can decide between killing and giving life in the light of a flash of lightning, then you can cut off the ten directions and tower up like a thousand fathom wall.
+>
 > But do you know that such a time exists? To test I’m citing this old case: look!
 
 > If your potential does not leave (its fixed) position, you tumble down into the poison sea.

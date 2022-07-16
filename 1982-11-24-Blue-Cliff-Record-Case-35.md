@@ -26,15 +26,23 @@ The Pointer:
 The Case:
 
 > Manjusri asked Wu Cho, “Where have you just come from?”  
+> 
 > Wu Cho said, “The South.”  
+> 
 > Manjusri said, “How is the Buddhist Teaching being carried on in the South?”  
+> 
 > Wu Cho said, “Monks of the Last Age have little regard for the rules of discipline.”  
+> 
 > Manjusri said, “How numerous are the congregations?”  
+> 
 > Wu Cho said, “Some three hundred, some five hundred.”  
 >  
 > Wu Cho asked Manjusri, “How is it being carried on hereabouts?”  
+> 
 > Manjusri said, “Ordinary people and sages dwell together; dragons and snakes intermingle.”  
+> 
 > Wu Cho said, “How numerous are the congregations?”  
+> 
 > Manjusri said, “In front, three by three; in back, three by three.”  
 >
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
@@ -118,6 +126,7 @@ Nevertheless, this is not a “spiritual dimension” which makes you spaced out
 So let’s see the case.
 
 > Manjusri asked Wu Cho, “Where have you just come from?”  
+> 
 > Wu Cho said, “The South.”  
 
 This is a very common question and answer. At that time, Buddhism was developing from the south of China. So very naturally maybe Wu Cho practiced in the south, that’s why he said, “The South.”

@@ -20,10 +20,15 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 Tonight we will study Setcho Zenji’s verse on Case 36. Let me first read the case that we studied last week:
 
 > One day Ch’ang Sha went wandering in the mountains. Upon returning, when he got to the gate, the head monk asked, “Where are you coming from, Master?”  
+> 
 > Sha said, “From wandering in the mountains.”  
+> 
 > The head monk asked, “Where did you go?”  
+> 
 > Sha said, “First I went pursuing the fragrant grasses; then I returned following the falling flowers.”  
+> 
 > The head monk said, “How very much like the sense of springtime.”  
+> 
 > Sha said, “It even surpasses the autumn dew dripping on the lotuses.” Hsueh Tou added the remark, “Thanks for your reply.”  
 > 
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
@@ -124,6 +129,7 @@ From our karmic life, we say immediately, “Is it possible?” Well before we s
 #### 42:10
 
 > First he went following the fragrant grasses,  
+> 
 > Then he returned pursuing the falling flowers.  
 
 These two sentences are exactly the same things as the case says. 

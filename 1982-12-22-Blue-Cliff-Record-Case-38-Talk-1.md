@@ -193,7 +193,7 @@ So P’i couldn’t say anything about this. So a big whale becomes a small frog
 
 Why don’t you say something about this? Is my statement right, or can’t you say [something] about this? 
 
-> P’i hesitated
+> P’i hesitated; 
 
 Still P’i hesitated. Maybe P’i understood what Hsueh said. If you understand, most times it’s pretty hard to say. If you understand the Buddha Nature [cats](glossary#cat) have or human beings have, well it’s pretty hard to say, because whatever you say, a cat *doesn’t* have Buddha Nature, it’s wrong. Or even though you say a cat *has* Buddha Nature, it’s wrong, because where is the Buddha Nature [in a cat]? Buddha Nature in a cat is exactly like a human being? No it’s not; a little different. Does the cat understand human life very deeply? No. If so, where is the Buddha Nature? So whatever you say, it doesn’t hit the mark. So maybe P’i hesitated because he knew. 
 

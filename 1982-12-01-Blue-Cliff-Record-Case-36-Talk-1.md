@@ -20,10 +20,15 @@ Wandering in the mountains, life flowing freely: how very like the sense of spri
 Case 36:
 
 > One day Ch’ang Sha went wandering in the mountains. Upon returning, when he got to the gate, the head monk asked, “Where are you coming from, Master?”  
+> 
 > Sha said, “From wandering in the mountains.”  
+> 
 > The head monk asked, “Where did you go?”  
+>
 > Sha said, “First I went pursuing the fragrant grasses; then I returned following the falling flowers.”  
+>
 > The head monk said, “How very much like the sense of springtime.”  
+> 
 > Sha said, “It even surpasses the autumn dew dripping on the lotuses.” Hsueh Tou added the remark, “Thanks for your reply.”  
 > 
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)

@@ -21,10 +21,15 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 #### 0:00 start of recording
 
 > Yang Shan asked a monk, “Where have you just come from?”  
+>
 > The monk said, “Mount Lu.”  
+>
 > Yang Shan said, “Did you visit Five Elders Peak?”  
+>
 > The monk said, “I didn’t get there.”  
+>
 > Yang Shan said, “You never visited the mountain at all.”  
+>
 > (Later,) Yun Men said, “These words were all for the sake of compassion; thus they had a conversation in the weeds.”  
 >
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
