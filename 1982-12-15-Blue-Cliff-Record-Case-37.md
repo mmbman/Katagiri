@@ -5,7 +5,7 @@ description: December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 
 ### Summary
 
@@ -152,4 +152,4 @@ When I went to the missionary school in Saint Paul, I described about the truth 
 
 [Home](index) \| [List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
