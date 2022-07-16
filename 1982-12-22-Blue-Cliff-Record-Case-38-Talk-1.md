@@ -161,11 +161,9 @@ So that’s why ...
 
 > At that time there was a certain Elder Lu P’i who came forth and said, “I have the workings of the Iron Ox: please, Teacher, do not impress the seal.”
 
-This is Elder Lu P’i who came forth and said, “I have the workings of the Iron Ox.” This statement is exactly imitated.
+This is Elder Lu P’i who came forth and said, “I have the workings of the Iron Ox.” This statement is exactly imitated. So he said, “Please, Teacher, do not impress the seal” – because I am already Iron Ox. Should I press down the seal? And then simultaneously take it away? Or should I press down the seal and leave it there? Which is right? Which is wrong? The Iron Ox by the river, is it dead? Yes, it’s dead; but it’s not dead. Is it alive? It’s not alive; it’s dead because [it’s an] Iron Ox. But is the so-called Iron Ox dead? No. It has a really close relation with human beings, protecting the Yellow River. If so, it’s alive. So which is right? Can we say the Iron Ox is alive? No, that’s wrong. But in a sense, it’s right. Or the Iron Ox is dead: it’s right, but it’s wrong. So finally, nothing to say. 
 
-So he said, “Please, Teacher, do not impress the seal” – because I am already Iron Ox. Iron Ox is... Should I press down the seal? And then simultaneously take it away? Or should I press down the seal and leave it there? Which is right? Which is wrong? Iron Ox by the river, is it dead? Yes, it’s dead; but it’s not dead. It’s alive? It’s not alive; it’s dead because [it’s an] Iron Ox. But is the so-called Iron Ox dead? No. It’s really close relation with human beings, protecting the Yellow River. If so, it’s alive. So which is right? Can we say the Iron Ox is alive? No, it’s wrong. But in a sense, it’s right. Or the Iron Ox is dead... It’s right, but it’s wrong. So finally, nothing to say. 
-
-So, ““I have the workings of the Iron Ox” is I am already present right in the middle of emptiness, without leaving any trace. So please don’t press me. Don’t press the seal down on my life, you are Iron Ox, which is dead, or which is alive. 
+So, “I have the workings of the Iron Ox” means I am already present right in the middle of emptiness, without leaving any trace. So please, don’t press me. Don’t press the seal down on my life, [I am] Iron Ox, which is dead, or which is alive. 
 
 #### 47:38
 
@@ -173,29 +171,29 @@ But,
 
 > Hsueh said, “Accustomed to scouring the oceans fishing for whales ...”
 
-Do you understand “fishing for whales”? You know, *big* whales; whales are *huge*. Even a big ocean, if a whale swims, it makes huge waves. It’s fantastic. 
+Do you understand “fishing for whales”? You know, *big* whales; whales are *huge*. Even in a big ocean, if a whale swims it makes huge waves. It’s fantastic. 
 
-So it’s scouring; [it’s like] clean up everything, stirring up the oceans completely. His statement “I have the workings of the Iron Ox” means just like a whale swimming in the ocean. Pretty nice, you know? He knows pretty well the real point of the Zen teachings. So he says so; so he becomes a whale. He becomes just a whale swimming in the ocean, stirring the waters. ... Scouring or making the water muddy; whatever you say, it’s alright. And that’s why Hsueh said “accustomed”; you are pretty good, accustomed to do so, because you are a pretty big whale. You can swim in the ocean. Not small whale, anyway.
+So it’s scouring; [it’s like] cleaning up everything, stirring up the oceans completely. His statement “I have the workings of the Iron Ox” means just like a whale swimming in the ocean. Pretty nice, you know? He knows pretty well the real point of the Zen teachings, so he said so. So he becomes a whale. He becomes just a whale swimming in the ocean, stirring the waters. Scouring or making the water muddy; whatever you say, it’s alright. And that’s why Hsueh said “accustomed”; you are pretty good, accustomed to do so, because you are a pretty big whale. You can swim in the ocean. Not a small whale, anyway.
 
 So, pretty good, but:
 
 > “... I regret to find instead a frog crawling in the muddy sand.”  
 
-*[He laughs.]* It means, what you said is exactly right, *exactly* right, but still there is a frog crawling in the muddy sand. That means still there is a trace there. “I am a big whale, swimming in the ocean,” “I am an enlightened person” – like this. Scouring the waters. But still I regret I can see a frog crawling in the muddy sand. Even though you get out from human delusions, you can get out of the house from the door, but unfortunately your tail is [caught] by the door. *[He laughs.]* So you can’t get out. More than half of your body is, but still your tail is hooked by the door. It’s pretty hard to realize this point, so that’s why we need to constantly practice. Letting go, constantly. When you let go, then something is filled in your hand. If you don’t let go, why it’s very hard. So that’s why Hsueh said, “I regret to find instead a frog crawling in the muddy sand.”
+*[He laughs.]* It means, what you said is exactly right, *exactly* right, but still there is a frog crawling in the muddy sand. That means still there is a trace there: “I am a big whale, swimming in the ocean,” “I am an enlightened person” – like this. Scouring the waters; but still I regret I can see a frog crawling in the muddy sand. Even though you get out from human delusions, you can get out of the house by the door, but unfortunately your tail is [caught] by the door, so you can’t get out. *[He laughs.]* Most of your body is out, but still your tail is hooked by the door. It’s pretty hard to realize this point, so that’s why we need to constantly practice. Letting go, constantly. When you let go, then something is filled in your hand. If you don’t let go, why it’s very hard. So that’s why Hsueh said, “I regret to find instead a frog crawling in the muddy sand.”
 
 #### 51:33
 
 > P’i stood there thinking. 
 
-So P’i couldn’t say anything about this. So a big whale becomes a small frog in the muddy sand. Hsueh saw him exactly like that. But on the other hand, this Lu P’i is really huge whale swimming in the ocean; he seems to be wonderful, but on the other hand, he can see him as a frog in the muddy sand. So, nothing to say; P’i was a little bit confused. So, 
+So P’i couldn’t say anything about this. So a big whale becomes a small frog in the muddy sand. Hsueh saw him exactly like that. But on the other hand, this Lu P’i is a really huge whale swimming in the ocean. He seems to be wonderful, but on the other hand, he can see him as a frog in the muddy sand. So, nothing to say. P’i was a little bit confused. So, 
 
 >  Hsueh shouted and said, “Elder, why do you not speak further?” 
 
-Why don’t you say something about this? Is my statement right, or can’t you say [something] about this? 
+Why don’t you say something about this? Is my statement right? Can’t you say [something] about this? 
 
 > P’i hesitated; 
 
-Still P’i hesitated. Maybe P’i understood what Hsueh said. If you understand, most times it’s pretty hard to say. If you understand the Buddha Nature [cats](glossary#cat) have or human beings have, well it’s pretty hard to say, because whatever you say, a cat *doesn’t* have Buddha Nature, it’s wrong. Or even though you say a cat *has* Buddha Nature, it’s wrong, because where is the Buddha Nature [in a cat]? Buddha Nature in a cat is exactly like a human being? No it’s not; a little different. Does the cat understand human life very deeply? No. If so, where is the Buddha Nature? So whatever you say, it doesn’t hit the mark. So maybe P’i hesitated because he knew. 
+Still P’i hesitated. Maybe P’i understood what Hsueh said. If you understand, most times it’s pretty hard to say. If you understand the Buddha Nature [cats](glossary#cat) have or human beings have, it’s pretty hard to say. Because whatever you say: a cat *doesn’t* have Buddha Nature – that’s wrong. Or even though you say a cat *has* Buddha Nature, that’s wrong, because where is the Buddha Nature in a cat? Is Buddha Nature in a cat exactly like a human being? No it’s not; a little different. Does the cat understand human life very deeply? No. If so, where is the Buddha Nature? Whatever you say, it doesn’t hit the mark. So maybe P’i hesitated because he knew [this].
 
 > Hsueh hit him with his whisk. Hsueh said, “Do you still remember the words? Try to quote them.” 
 
@@ -203,7 +201,7 @@ Still P’i hesitated. Maybe P’i understood what Hsueh said. If you understand
 
 > As P’i was about to open his mouth, Hsueh hit him again with his whisk.  
 
-P’i was trying to open his mouth and trying to say something, but Hsueh immediately hit him again with his whisk.
+P’i was trying to open his mouth and say something, but Hsueh immediately hit him again with his whisk.
 
 #### 54:34
 
@@ -213,35 +211,35 @@ At that time there was a Governor by them, listening to this conversation betwee
 
 > “The Buddhist Law and the Law of Kings are the same.”  
 
-In a sense, the Governor stood between and passed out their judgement on this case. “Both are pretty good.” That’s why next,
+In a sense, the Governor stood between and passed out fair judgement on this case. “Both are pretty good.” That’s why next,
 
 > Hsueh said, “What principle have you seen?”  
 
-If you say both of them are good, you judge like this on this case, if so, what have you seen? What is the truth you have seen?
+If you say both of them are good, if you judge like this on this case, if so, what have you seen? What is the truth you have seen?
 
 > The Governor said, “When you do not settle what is to be settled, instead you bring about disorder.”  
 
-That means what you have to do. You shouldn’t do what ... you shouldn’t do it. Life is very simple. When you want to practice, practice. When you attend training sessions, follow the schedule. Even though it’s hard, follow the schedule. So you should do what you have to do. This is daily life, based on Buddha Nature. Living in, standing straight in the Buddha Nature. Life is very simple: you have to do what you have to do; you shouldn’t do what you shouldn’t do. That’s all you have to do. 
+That means you have to do what you have to do. You shouldn’t do what you shouldn’t do. Life is very simple. When you want to practice, practice. When you attend a training session, [do the] training session, follow the schedule. Even though it’s hard, follow the schedule. You should do what you have to do. This is daily life, based on living in, standing straight in, Buddha Nature. Life is very simple: you have to do what you have to do; you shouldn’t do what you shouldn’t do. That’s all you have to do. 
 
 > Hsueh thereupon descended from his seat.  
 
 Then that is the end of the discussion. He descended from his seat means he really accepted that Governor’s way too. 
 
-Next time I want to discuss some of the commentaries and notes. This commentary is a pretty long commentary. Interesting stories there. So you should read it. And also the Verse next time. 
+Next time I want to discuss some of the commentaries and notes. This commentary is a pretty long commentary; interesting stories there. So you should read it, and also the verse, for next time. 
 
 Do you have some questions? 
 
 #### 58:12
 
-**Question**: Hojo-san? The difficulty with the list, is that just sort of like say “just do it”?
+**Question**: Hojo-san? The [difficulty with the list], is that just sort of like “just do it”?
 
 **Katagiri**: Yeah, that is “discussing sudden.”
 
-**Same person**: Ah. 
+**Same person**: Ah.
 
-**Katagiri**: This *Blue Cliff Record* always appears the sudden and gradual, particularly sudden, as a dramatic way. Very dramatic, but I don’t think you should imitate the dramatic way. *[He chuckles.]* So in many ways you can do: through the words, through the silence, you can do it.
+**Katagiri**: This *Blue Cliff Record* always [presents] the sudden and gradual, particularly the sudden, in a dramatic way. Very dramatic, but I don’t think you should imitate the dramatic way. *[He chuckles.]* You can do it in many ways: through words, through silence, you can do it.
 
-You know I told you before a Zen Master taught to the priest who were really proud of his experience, his priest life, because he was completely respected by one of his followers. This very old woman completely respected him, just like Buddha, you know? So he told to the Zen Masters, “I was really respected by one of my followers.” Then immediately he said, “Don’t think of life roughly. You originally are stupid. So shut up.” *[He laughs.]* This is in a word, it’s very sharp. Don’t you think so? It means if you are by somebody that’s wonderful, but let it go. What do you mean? You are respected by one of the old women in the village. It is just like karmic life. Just like a lion; lion is strong, catch the cats in the lion cage, and eat. And then you say, “I am strong.” Lion is respected. So I can talk Buddha’s teaching pretty well, and you respect, what does he mean? I cannot think of myself, “Oh, I am Buddha.” I don’t think so. This is just like owls who can at night; same thing. What’s the difference? So don’t be bragging. Don’t think of life roughly. You are originally stupid, so shut up. *[He laughs.]* That is exactly *boom*. That’s pretty nice, isn’t it? It’s like hitting him with a whisk. 
+You know I told you before a Zen Master taught a priest who was really proud of his experience, his priest life, because he was completely respected by one of his followers, a very old woman who completely respected him, just like Buddha, you know? [The priest] told to the Zen Master, “I was really respected by one of my followers.” Then immediately [the Zen Master] said, “Don’t think of life roughly. You originally are stupid. So shut up.” *[He laughs.]* In a word, it’s very sharp. Don’t you think so? It means if you are respected by somebody that’s wonderful, but let it go. What do you mean? You are respected by one of the old women in the village. It is just like karmic life. Just like a lion; lion is strong, [catches] the cats in the lion cage and [eats them]. And then you say, “I am strong.” Lion is respected. So I can talk Buddha’s teaching pretty well, and you respect, what does it mean? I cannot think of myself, “I am Buddha”; I don’t think so. This is just like owls, who can see at night; same thing. What’s the difference? So don’t be bragging. Don’t think of life roughly. You are originally stupid, so shut up. *[He laughs.]* That is exactly *boom*. That’s pretty nice, isn’t it? It’s like hitting him with a whisk. 
 
 #### 1:01:32
 
