@@ -9,7 +9,7 @@ description: December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden. In order to hold, you have to let go; accepting Buddha Nature, in the midst of the bustling marketplace. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond; a frog jumps in. Plop! Also: do you need a boss?
+Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden. In order to hold, you have to let go: accepting Buddha Nature, in the midst of the bustling marketplace. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond; a frog jumps in. Plop! Also: do you need a boss?
 
 ### Transcript
 
