@@ -192,7 +192,7 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 #### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden. In order to hold, you have to let go: accepting Buddha Nature, in the midst of the bustling marketplace. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond; a frog jumps in. Plop! Also: do you need a boss?
+Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
 
 ---
 
