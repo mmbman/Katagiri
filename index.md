@@ -17,6 +17,13 @@ I am once again cycling back through the earlier talks to improve the transcript
 
 ---
 
+### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
+#### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted July 18, 2022.
+
+Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
+
+---
+
 ### [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
 #### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted June 8, 2022.
 
