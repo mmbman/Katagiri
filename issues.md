@@ -7,6 +7,11 @@ description:
 
 This is an ongoing list of issues discovered in the online audio files. Some of these might be problems with the original recordings, but many might be fixable.
 
+### Blue Cliff Record, Case 33: Ministry President Ch’en Sees Tzu Fu
+### November 10, 1982
+
+The audio in the archive for this talk is a duplicate of Case 32 from the previous week. 
+
 ### [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
 #### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
