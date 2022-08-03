@@ -105,8 +105,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 ### 1983
 
 1. [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
+1. [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 
-1. Blue Cliff Record, Case 39 – Talk 1
 1. Blue Cliff Record, Case 39 – Talk 2
 1. Blue Cliff Record, Case 40 – Talk 1
 1. Book of Equanimity: Case 52

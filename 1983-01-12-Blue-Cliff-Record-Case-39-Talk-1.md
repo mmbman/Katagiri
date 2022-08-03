@@ -4,7 +4,7 @@ description: January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1983) \| 
-[Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
+[Previous](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
 ### Summary
@@ -45,5 +45,5 @@ So that is Buddha nature. If you want to know the meaning of the vastness of exi
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1983) \| 
-[Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
+[Previous](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
