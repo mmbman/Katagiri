@@ -37,8 +37,7 @@ So that is Buddha nature. If you want to know the meaning of the vastness of exi
 
 “You should observe”: *observe* means not to see something at a distance; observe means to regard, to observe *closely*. Closely means ... well, I don't know what I can say. To observe closely who you are means to let your life be alive, or to settle yourself in the self. To make your life stable and steadfast and alive. Stand straight and steadfast, right in the middle of everyday life. That is to observe closely. If you want to observe closely who you are, you have [to] ...
 
-*(Transcriber’s Note: The audio in the online archive ends abruptly at this point.)
-*
+*(Transcriber’s Note: The audio in the online archive ends abruptly at this point.)*
 
 #### 12:44 end of recording
 
