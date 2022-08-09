@@ -9,6 +9,10 @@ description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
+Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*.
+
+*The beginning of this talk is missing from the online audio.*
+
 **This transcript is in rough draft stage.**
 
 ### Transcript
@@ -42,17 +46,25 @@ The Verse:
 > A golden-haired lion—everybody look!
 )
 
-... seems not to be related. Because what is the truth? And then, immediately the answer is just a flower. But this is a very typical type of Zen question and answer, it’s always like this. It’s very difficult to understand. 
+... seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. But this is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
-But the important point is [that] it seems [there is] no relation between question and answer. That is really [a] great point, which we have to really take into account. Nothing to pin down, [no] relation between them, nothing there. But within the nothingness there is a great “clue” for figuring out the crucial point: what is the truth? So let me say a little bit.
+But the important point is [that] it seems [there is] no relation between question and answer. That is really [a] great point, which we have to take into account. Nothing to pin down, [no] relation between them. So [there is] nothing there, but within the nothingness there is a great “clue” for figuring out the crucial point, what is the truth? So let me say a little bit.
 
-A flower. The answer is a flower. What is the truth? The answer is, “Just a flower.” At that time, the verse says, 
+What is the truth? The answer is, “Just a flower.” At that time, the verse says, 
 
 > Don’t be fat-headed!
 
-Don't be caught by the word. [That is the] first point. So first of all, let's see the flower very deeply, [more than] what you can see with your naked eye. What is the real picture of the flower you can see? What is it? That is the most important step, or the first step you have to take, anyway. So Dogen Zenji always says, “If you want to know Buddha Nature or the truth of human life, you should closely observe impermanence.” And this is also important. *Impermanence* means the fact [of] how the phenomenal world is going. You have to pay attention to a flower which is nothing, but just a part of the impermanence, changing constantly.
+Don't be caught by the word. [That is the] first point. First of all, let's see the flower very deeply, [more than] what you can see with your naked eye. What is the real picture of the flower you can see? What is it? That is the first step you have to take.
 
-So anyway, let me say, what is the real picture of the flower? At that time flower, from what you can hear now, is what? A being which is growing, a being which its life is growing, or a being which its life is declining or fading away. If you carefully see the flower which you can see with the naked eye, there are very naturally two points you can find. It's growing; on the other hand, it's not growing, it's fading away. Do you understand? This is very natural. So very naturally, if you really want to know the total picture of flower’s life, finally ask yourself, “What is the flower?” [Is] the flower is a being which is developing or growing? No, negative. So that which you have grasped in your hand is negated, because it's fading away. The other answer, of course, answer is, flower is a being which is fading away? It is also [negated], no. Because it's alive now. Alive means it's growing. Life is growing and developing and alive. So it's not fading away, it's [not in] decline. So logically, if you really pay attention to the total picture of the flower, very naturally, logically, there are two points, two answers you can get. But either one of them, if you can get the answer, either one of them, flower is being which is developing. It is negative. It's immediately negated. On the other hand, the second answer is also negated. If so, logically, what is the flower? Flower is a being which is negated. So finally, you cannot say what is the real picture of the flower which is alive. You cannot say, because the real picture of the flower which is alive from moment to moment, always has logically two questions, two answers: fading away, growing. But both are negated. So very naturally, logically, what is a flower? What is the truth of the flower? No flower. The flower you can see with your naked eye is nothing but a natural being. But you have to pay careful attention to natural being as a flower. So what is it? So very naturally, that's why Dogen Zenji mentions that first of all, we have to pay careful attention to impermanence. Impermanence means growth and decline, both are interrelated, interpenetrated. So that is called impermanence; change. You cannot grasp *anything*. If you grasp it, it is immediately negated. 
+Dogen Zenji always says, “If you want to know Buddha Nature or the truth of human life, you should closely observe impermanence.” And this is also important. *Impermanence* means the fact [of] how the phenomenal world is going. You have to pay attention to a flower, which is nothing but just a part of impermanence, changing constantly.
+
+So anyway, let me say, what is the *real* picture of the flower? At that time the flower, from what you can hear now, is what? A being which its life is growing, or a being which its life is declining or fading away. If you see carefully the flower which you can see with the naked eye, very naturally there are  two points you can find: it's growing; on the other hand, it's not growing, it's fading away. Do you understand? This is very natural. 
+
+So very naturally, if you really want to know the total picture of the flower’s life, finally ask yourself, “What is the flower?” [Is] the flower is a being which is developing or growing? No, negative. So what you have grasped in your hand is negated, because it's fading away. And the other answer, the flower is a being which is fading away – it is also [negated], no, because it's alive now. Alive means it's growing. Life is growing and developing and alive. So it's not fading away, it's [not in] decline. 
+
+So logically, if you really carefully pay attention to the total picture of the flower, very naturally, logically, there are two answers you can get. But either one of them, if you can get the answer, either one of them: Flower is being which is developing? It is negative. It's immediately negated. On the other hand, the second answer is also negated. If so, logically, what is the flower? Flower is a being which is negated. So finally, you cannot say what is the real picture of the flower which is alive. You cannot say, because the real picture of the flower which is alive from moment to moment, logically always has two answers – fading away, growing – but both are negated. So very naturally, logically, what is a flower? What is the truth of the flower? No flower. 
+
+So the flower you can see with your naked eye is nothing but a natural being. But you have to pay careful attention to natural being as a flower. So what is it? So very naturally, that's why Dogen Zenji mentions that first of all, we have to pay careful attention to impermanence. Impermanence means both growth and decline are interrelated, interpenetrated. So that is called impermanence; change. You cannot grasp *anything*. If you grasp it, it is immediately negated. 
 
 So whatever you grasp, it is negated, logically. So through seeing deeply into phenomenal world, very naturally you can get the logical answer that is emptiness, very natural emptiness, or sometimes egolessness, no self. Because the real flower has no self. You cannot say it is growing. You cannot say it is fading. The growing, fading are nothing but a partial understanding of the total picture of the flower, which is constantly alive. So whatever you say, it doesn't hit the mark.
 
@@ -123,7 +135,7 @@ Golden haired lion means, I told you before, it is just explanation of the total
 
 #### 39:26
 
-*(At this point, the recording skips back to just before 33:20, and repeats for a while, before continuing.)*
+*(At this point, the recording skips back to just before 33:20, and repeats about 6 minutes of content before continuing.)*
 
 #### 44:46
 
