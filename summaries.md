@@ -199,7 +199,7 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudde
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 #### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discussions the Pointer to case Thirty-Nine of the *Blue Cliff Record*. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, regardless of whether we know it or not.
+Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, regardless of whether we know it or not.
 
 *The online archive of this talk contains only twelve minutes of audio.*
 
