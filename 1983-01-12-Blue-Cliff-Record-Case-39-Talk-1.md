@@ -9,7 +9,7 @@ description: January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-Katagiri Roshi discussions the Pointer to case Thirty-Nine of the *Blue Cliff Record*. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. Our life is in the pivot position, where time and space are working in dynamism constantly, regardless of whether we know it or not.
+Katagiri Roshi discussions the Pointer to case Thirty-Nine of the *Blue Cliff Record*. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, regardless of whether we know it or not.
 
 *The online archive of this talk contains only twelve minutes of audio.*
 
