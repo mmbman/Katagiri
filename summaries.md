@@ -187,12 +187,16 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 
 If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is always raising (sic), just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
 
+**Archive Issues**: The beginning and ending of this talk are missing, and what exists in the audio file appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.
+
 ---
 
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 #### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
+
+**Archive Issues**: This talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.
 
 ---
 
