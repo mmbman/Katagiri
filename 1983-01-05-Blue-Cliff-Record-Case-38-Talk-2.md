@@ -9,10 +9,9 @@ description: January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-
 **This transcript is in rough draft stage.**
 
-(Transcriber’s Note: The audio for this talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)
+**Archive Issues**: The online archive seems to include only the first side of the tape. Any discussion of the verse or notes is missing.
 
 ### Transcript
 

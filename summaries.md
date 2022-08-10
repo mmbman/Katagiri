@@ -196,8 +196,6 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
 
-**Archive Issues**: This talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.
-
 ---
 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
@@ -205,7 +203,7 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudde
 
 Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, regardless of whether we know it or not.
 
-*The online archive of this talk contains only twelve minutes of audio.*
+**Archive Issues**: This talk contains only twelve minutes of audio. The remainder is missing.
 
 ---
 

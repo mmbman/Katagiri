@@ -11,9 +11,9 @@ description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*.
 
-*The beginning of this talk is missing from the online audio.*
-
 **This transcript is in rough draft stage.**
+
+**Archive Issues**: The beginning of this talk is missing.
 
 ### Transcript
 
@@ -21,7 +21,9 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*.
 
 #### 0:00 start of recording
 
-(The Case: 
+(Transcriber’s Note: Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from *The Blue Cliff Record*. This talk seems to focus on the Verse. Presumably the Case was discussed in the previous talk, but that part of the talk is missing.
+
+The Case: 
 
 > A monk asked Yun Men, “What is the Pure Body of Reality?”
 >
@@ -44,7 +46,8 @@ The Verse:
 > How pointless!
 >
 > A golden-haired lion—everybody look!
-)
+
+From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 ... seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. But this is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
@@ -149,7 +152,7 @@ And then if you see the teaching, how wonderful it is, very naturally people rea
 
 So what is the [practice]? You must be constantly a golden-haired lion; but what is it? Everybody look! Look out, watch out. You must be constantly, from moment to moment, we have to golden-haired lion. That is called truth. Because truth is nothing but that which emanates continually from inside of perfect quality of existence, energies, constantly. Briefly speaking, it is just the rhythm of life. That is the truth. Just the rhythm of being. Your rhythm of your life is rhythm of being means including all sentient beings. Exactly the same. So you cannot see only *your* rhythm of life. So real rhythm of your life is rhythm of the being. Being means with all sentient beings. So very naturally, you can say one is all. All is one. So you are you, but you are not you, you are the universe. The universe is the universe, but the universe is not the the universe separate from you, so the universe is you. That is the truth. So very naturally, truth is nothing but the rhythm of life inherent in human beings, and trees, birds, pebbles. That's why the Yun Men said, “A flowering hedge.” Maybe you may say, “a pebble.” You may say, “Just a frog.”
 
- Okay. Next please read Case Forty.
+Okay. Next please read Case Forty.
 
 #### 52:50 end of recording
 
