@@ -187,8 +187,6 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 
 If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is always raising (sic), just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
 
-**Archive Issues**: The beginning and ending of this talk are missing, and what exists in the audio file appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.
-
 ---
 
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
@@ -202,8 +200,6 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudde
 #### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, regardless of whether we know it or not.
-
-**Archive Issues**: This talk contains only twelve minutes of audio. The remainder is missing.
 
 ---
 
