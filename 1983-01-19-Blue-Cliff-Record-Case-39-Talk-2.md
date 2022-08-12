@@ -11,9 +11,9 @@ description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 What is the real picture of a flower? What does it mean *to walk*? Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*. There is an interesting definition of what *samsara* is. This is related to *Sandokai* (*The Harmony of Difference and Sameness*). “The marks are on the balance arm, not on the scale pan.”
 
-**This transcript is in rough draft stage.**
+### Archive Issues
 
-**Archive Issues**: The beginning of this talk is missing.
+The beginning of this talk is missing.
 
 ### Transcript
 
