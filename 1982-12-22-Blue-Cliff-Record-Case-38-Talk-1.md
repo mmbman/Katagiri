@@ -17,7 +17,7 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudde
 
 #### 0:00 start of recording
 
-Case Thirty-Eight: “Feng Hsueh’s Workings of the Iron Ox”. Pointer:
+Case Thirty-Eight: “Feng Hsueh’s Workings of the Iron Ox.” Pointer:
 
 > If we discuss the gradual, it is going against the ordinary to merge with the Way: in the midst of a bustling market place, seven ways up and down and eight ways across.  
 > 
