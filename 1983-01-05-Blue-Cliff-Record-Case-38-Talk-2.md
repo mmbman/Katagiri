@@ -11,7 +11,7 @@ description: January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is in rough draft stage.**
 
-**Archive Issues**: The online archive seems to include only the first side of the tape. Any discussion of the verse or notes is missing.
+(The online audio seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)
 
 ### Transcript
 
