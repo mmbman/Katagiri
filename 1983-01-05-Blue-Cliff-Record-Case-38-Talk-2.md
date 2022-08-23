@@ -9,9 +9,9 @@ description: January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, and joyful mind – to the next generation. This is why Feng Hsueh Zen Master explains Buddha Mind as being just like an Iron Ox. Katagiri Roshi further examines this case. Should we add our own ideas to Buddhism? We need to learn the example of the ancestors through and through, and *then* transcend it. 
+The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, and joyful mind – to the next generation. This is why Feng Hsueh Zen Master explains Buddha Mind as being just like an Iron Ox. Katagiri Roshi further examines this case. Should we add our own ideas to Buddhism?
 
-(The online audio seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)
+(The online audio for this talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)
 
 ### Transcript
 

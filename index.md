@@ -17,6 +17,15 @@ I am once again cycling back through the earlier talks to improve the transcript
 
 ---
 
+### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
+#### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
+
+The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, and joyful mind – to the next generation. This is why Feng Hsueh Zen Master explains Buddha Mind as being just like an Iron Ox. Katagiri Roshi further examines this case. Should we add our own ideas to Buddhism?
+
+(The online audio for this talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)
+
+---
+
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 #### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted July 18, 2022.
 
