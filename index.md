@@ -17,6 +17,24 @@ I am once again cycling back through the earlier talks to improve the transcript
 
 ---
 
+### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
+#### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
+
+What is the real picture of a flower? What does it mean *to walk*? Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan.
+
+(The beginning of this talk is missing.)
+
+---
+
+### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
+#### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
+
+Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
+
+(This talk contains only twelve minutes of audio. The remainder is missing.)
+
+---
+
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 #### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
 
