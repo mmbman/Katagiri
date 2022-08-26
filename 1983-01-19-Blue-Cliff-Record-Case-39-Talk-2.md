@@ -11,7 +11,7 @@ description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? What does it mean *to walk*? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
 
-*(The beginning of this talk is missing, and about six minutes in the middle is repeated.)*
+(The beginning of this talk is missing, and about six minutes in the middle is repeated.)
 
 ### Transcript
 
