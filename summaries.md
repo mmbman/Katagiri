@@ -10,7 +10,7 @@ description:
 ### [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 #### May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi begins a series of talks on the Diamond Sutra by discussing the fundamental point that the Diamond Sutra teaches: “*A* is *A*, but *A* is not *A*, this means *A* is really *A*.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
+Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the fundamental point that the *Diamond Sutra* teaches: “*A* is *A*, but *A* is not *A*, this means *A* is really *A*.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 
 ---
 
@@ -73,7 +73,7 @@ Why should we not be disappointed with this world, if there seems to be nothing 
 ### [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 #### August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
+What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
 ---
 
@@ -87,7 +87,7 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 ### [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 #### August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *Nirmanakaya*, *Sambhogakaya*, and *Dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
+If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *Nirmanakaya*, *Sambhogakaya*, and *Dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
 ---
 

@@ -66,7 +66,7 @@ So that is the particular practice for Bodhisattvas, for many years in his past 
 
 #### 20:52
 
-[Diamond Sutra says:]
+[*Diamond Sutra* says:]
 
 > And why? If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’
 > 

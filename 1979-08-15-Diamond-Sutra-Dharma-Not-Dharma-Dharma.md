@@ -9,7 +9,7 @@ description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-If, as the Diamond Sutra says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *Nirmanakaya*, *Sambhogakaya*, and *Dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
+If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *Nirmanakaya*, *Sambhogakaya*, and *Dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
 ### Transcript
 
@@ -94,7 +94,7 @@ The third, Sambhogakaya Buddha, that is where we can reach at the stage of the B
 
 So, Dharmakaya Buddha – [dharma](glossary#dharma) itself, or the essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That’s why the no-dharmas [are those] through which [Shakyamuni Buddha](glossary#shakyamuni-buddha ) has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as a human tries to teach dharma itself, but that dharma explained by Shakyamuni Buddha as a human is no-dharma. It’s not real dharma, because dharma is completely beyond human speculation. 
 
-But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [Diamond Sutra](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, with this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from real truth. 
+But on the other hand: Real dharma, dharma itself explained by Buddha, is no-dharma. That’s why in [*Diamond Sutra*](glossary#diamond-sutra) it always says “Dharma is no-dharma. This is dharma.” It’s so contradictory, but this is really true, because truth is completely human speculation. Even though you can teach, you can explain what the truth is, with this body and mind as a human, the truth mentioned or explained by you is no-truth. It’s far from real truth. 
 
 #### 28:55
 
@@ -168,7 +168,7 @@ That’s why Rilke said to us what we do usually: “never not for a single day,
 
 #### 52:54
 
-So, that is the explanation of the buddhadharma, or merit, in the negative sense in the [Diamond Sutra](glossary#diamond-sutra). The negative sense, no-merit or no-buddhadharma, doesn’t mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma, is [no] attachment to individual merit, individual buddhadharma we experienced. This is a suggestion or hint [Buddhism](glossary#buddhism) always does, always criticizing human life like this – because we don’t realize it, usually. 
+So, that is the explanation of the buddhadharma, or merit, in the negative sense in the [*Diamond Sutra*](glossary#diamond-sutra). The negative sense, no-merit or no-buddhadharma, doesn’t mean to destroy the buddhadharma itself, or truth itself, or merit itself. No merit, no buddhadharma, is [no] attachment to individual merit, individual buddhadharma we experienced. This is a suggestion or hint [Buddhism](glossary#buddhism) always does, always criticizing human life like this – because we don’t realize it, usually. 
 
 If [Buddhism](glossary#buddhism) uses the negative sense, you will get a big shock. *Why*? “Life is characterized by [suffering](glossary#suffering).” – “*What’s that*?” We don’t like it. That is a really big shock to your mind. That’s very good medicine for you. It is bitter, but the bitterness of good medicine. That’s why Buddhism always uses unusual terms, in the negative sense. But it’s not a real negative. It’s positive, it’s very positive. 
 

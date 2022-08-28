@@ -9,7 +9,7 @@ description: August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 ### Summary
 
-What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the Diamond Sutra: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
+What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
 
 ### Transcript
 
@@ -128,7 +128,7 @@ That is “the marklessness of their emptiness”. You cannot believe any form o
 
 #### 41:45
 
-In your daily living, if you read this book on [Diamond Sutra](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, which you have to take care of. Under all circumstances, whether you like or dislike it, you have to take care of it. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, like “you have to read this”: that is your life. If it is true, you have to continue to read. Continue to read. 
+In your daily living, if you read this book on [*Diamond Sutra*](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, which you have to take care of. Under all circumstances, whether you like or dislike it, you have to take care of it. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, like “you have to read this”: that is your life. If it is true, you have to continue to read. Continue to read. 
 
 And then, in the process of reading, there are lots of experiences: like or dislike, understand or not understand. Lots of bubbles come up, and pop. Next moment, different bubbles come up, and pop. Always there. But whatever kind of bubbles you can see, all you have to do is not to [leave] any form of a certain bubble, or say, “I see *this* bubble,” or “I see *that* bubble.” You stop there. But, don’t stop there. Just see the bubbles. Basically, all you have to do is, to be stable. To be stable in the realm of [emptiness](glossary#śūnyatā). 
 
