@@ -28,19 +28,19 @@ According to Buddha’s explanation, this person really practiced, in his past l
 
 Last week I told you, [no-] perception of self is divided into four [categories].
 
-One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of the five [skandhas](glossary#skandha), because the five skandhas are an analysis of existence, how existence goes on.  The [Buddha](glossary#buddha) analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness. We believe pretty easily that these five [skandhas](glossary#skandha) are the self; but the five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, “no perception of self.”
+One is, we believe that there is something particular apart from ourselves. That something particular is a teaching of the five [skandhas](glossary#skandha), because the five skandhas are an analysis of existence, how existence goes on.  The Buddha analyzes existence into five aggregates: form, feeling, perception, [impulses](glossary#impulses), consciousness. We believe pretty easily that these five [skandhas](glossary#skandha) are the self; but the five skandhas are nothing but the teaching, apart from ourselves. So, we believe pretty easily there is something particular apart from our lives, our daily living. This is one misunderstanding. So, “no perception of self.”
 
 The second kind of [ego consciousness](glossary#ego-consciousness) is: we believe there is that which is continuous. Otherwise, it seems to be difficult for us to go from child to adult, so it’s pretty easy for us to believe that there is that which is continuous from your birth to your death. And then you believe, “I am changing,” “I change.” Then the idea of change comes into existence. If you don’t believe there is something which is continuous, it’s pretty difficult to get the idea of change. So, it is pretty easy for us to believe there is something particular which is continuous. This is the second misunderstanding, this is the second [ego consciousness](glossary#ego-consciousness). So, “no perception of a being.”
 
-The third: if you believe there is that which is continuous, then that is kind of a “soul,” unifying or harmonizing your life. Sort of a “watchmaker.” The watchmaker controls one watch, and the second watch; no matter how many watches there are, he controls them, so that all watches go exactly right in the proper way. That is, the watchmaker is sort of a “soul,” which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, the whole universe. This is the third [ego consciousness](glossary#ego-consciousness). That’s why [Buddha](glossary#buddha) says, “no perception of a soul.”
+The third: if you believe there is that which is continuous, then that is kind of a “soul,” unifying or harmonizing your life. Sort of a “watchmaker.” The watchmaker controls one watch, and the second watch; no matter how many watches there are, he controls them, so that all watches go exactly right in the proper way. That is, the watchmaker is sort of a “soul,” which exists forever, and also has almighty [power] to control your life and all sentient beings: trees, birds, the whole universe. This is the third [ego consciousness](glossary#ego-consciousness). That’s why Buddha says, “no perception of a soul.”
 
 The fourth kind of [ego consciousness](glossary#ego-consciousness) is: we want to believe [in] something particular which is called [*karma*](glossary#karma), which leads you to be reborn in the next life. So [we believe] karma is something particular, which is an eternal entity which leads you to your next life. But actually, karma doesn’t exist in that way, as an idea of an entity which exists forever. No. Karma is also one of the beings which is changing constantly. Appear, disappear. When you yawn, that is your [karma](glossary#karma). If you are rough, this is also karma. If you hate, if you express your anger, this is also karma. But if right after expression of your anger, you smile – well, another karma appears. So karma is really something vivified, constantly, without having a particular fixed idea which seems to exist forever. Karma is appearing, disappearing, appearing, disappearing, according to conditions. So that’s why, “no perception of a person”. This is a kind of idea of karma. 
 
-So, no [ego consciousness](glossary#ego-consciousness). This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the [Buddha](glossary#buddha)’s teaching, practiced for many, many years this practice of no ego consciousness. 
+So, no [ego consciousness](glossary#ego-consciousness). This kind of [Bodhisattva](glossary#bodhisattva), who exists under all circumstances, teaching the Buddha’s teaching, practiced for many, many years this practice of no ego consciousness. 
 
 #### 10:20
 
-Second, he practiced “no perception of object.” *Object* means trees, birds, and also Buddha’s teachings; everything. There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this [Bodhisattva](glossary#bodhisattva) practiced four no-perceptions of object.
+Second, he practiced “no perception of object.” *Object* means trees, birds, and also Buddha’s teachings; everything. There are four kinds of perceptions of object negatively, because according to [Diamond Sutra](glossary#diamond-sutra), this Bodhisattva practiced four no-perceptions of object.
 
 One is, everything is [emptiness](glossary#śūnyatā). Nothingness. Nothingness or emptiness is not to destroy subject and object, or trees, birds – no. Emptiness means that a thing exists without any reason – why, or what, or how. No reason. 
 
@@ -62,21 +62,21 @@ For instance, if I am master of making miso or tofu. No one can imitate exactly 
 
 Do you understand? This is no perception of [soul], no perception of object. 
 
-So that is the particular practice for [Bodhisattvas](glossary#bodhisattva), for many years in his past life. No perception of the subject, no perception of the object.
+So that is the particular practice for Bodhisattvas, for many years in his past life. No perception of the subject, no perception of the object.
 
 #### 20:52
 
 [Diamond Sutra says:]
 
-> And why? If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’
+> And why? If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’
 > 
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 27-28)
 
-So, if you have perception of either a [dharma](glossary#dharma) or a no-dharma, if you have a perception of either object or no-object, this is still perception.
+So, if you have perception of either a dharma or a no-dharma, if you have a perception of either object or no-object, this is still perception.
 
-For instance, in [zazen](glossary#zazen), all you have to do is be one with zazen. That means not-thinking; don’t think anything. “Don’t think anything” is “think not-thinking.” So what do you mean, “think not-thinking”? That means, to think [not-thinking] is also to think. Do you understand? Pretty clear. But not-think is also to think. So, *[he chuckles,]* both are perceptions created by your consciousness. You try not to think, but, you trying not to think is already to think! Is that clear? So, you cannot have a perception of [dharma](glossary#dharma) or no-dharma. 
+For instance, in [zazen](glossary#zazen), all you have to do is be one with zazen. That means not-thinking; don’t think anything. “Don’t think anything” is “think not-thinking.” So what do you mean, “think not-thinking”? That means, to think [not-thinking] is also to think. Do you understand? Pretty clear. But not-think is also to think. So, *[he chuckles,]* both are perceptions created by your consciousness. You try not to think, but, you trying not to think is already to think! Is that clear? So, you cannot have a perception of dharma or no-dharma. 
 
-If [Buddha](glossary#buddha) teaches no perception of object, you say, “Oh, no perception of object.” So, you lose hope. But this is nihilism; you fall into nihilism. I don’t mean that. That’s why here it says, “no perception of dharma, no perception of *no-dharma*”. You cannot attach to either one of them, because both are still *thinking* dharmas, thinking object. So you are still involved in perception of an object, whatever you say, perception of object or no perception of object. Negatively or affirmatively, whatever you say, you are still involved in perception of object. That’s why you cannot attach to either one of them, negatively or affirmatively. If you attach to one of them, there is attachment to self. I told you before: perception of a self, perception of a being, perception of a soul, perception of a person. So, you shouldn’t attach to this. 
+If Buddha teaches no perception of object, you say, “Oh, no perception of object.” So, you lose hope. But this is nihilism; you fall into nihilism. I don’t mean that. That’s why here it says, “no perception of dharma, no perception of *no-dharma*”. You cannot attach to either one of them, because both are still *thinking* dharmas, thinking object. So you are still involved in perception of an object, whatever you say, perception of object or no perception of object. Negatively or affirmatively, whatever you say, you are still involved in perception of object. That’s why you cannot attach to either one of them, negatively or affirmatively. If you attach to one of them, there is attachment to self. I told you before: perception of a self, perception of a being, perception of a soul, perception of a person. So, you shouldn’t attach to this. 
 
 That means the object is not something you can attach to. That means the object is not something which is *accurate*, or not something *real*. The object is a *provisional being*.
 
@@ -84,7 +84,7 @@ But it’s pretty hard to understand this. So, I want to explain this.
 
 #### 25:34
 
-Why do you believe a thing to be accurate? Even though [Buddha](glossary#buddha) says everything is provisional being, you don’t believe it, because, [for instance], here is a book. No one believes this is a provisional being. You say this is a being which is real, or accurate. Here it is! You don’t believe it is a provisional being.
+Why do you believe a thing to be accurate? Even though Buddha says everything is provisional being, you don’t believe it, because, [for instance], here is a book. No one believes this is a provisional being. You say this is a being which is real, or accurate. Here it is! You don’t believe it is a provisional being.
 
 Well, for instance, if you see a movie – what are you watching? You’re watching pictures on a screen. The world created by the pictures on the screen is not a real world; this is a provisional world. You believe pretty well that this is a provisional world. So, don’t worry about whatever happens. Whatever scary scene happens, or whatever thing happens, don’t cry, don’t be surprised, whatever. So you sit down on a chair and watch the screen. Finally, you cry. You cry, and you *jump up* when something happens. Did you see “Jaws”? *[Laughter.]* You scream, immediately.
 
@@ -140,31 +140,29 @@ On the other hand, the function of aesthetic contemplation is through your consc
 
 *[Tape change.]*
 
-... This is kind of a religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
+... [Aesthetic contemplation] is kind of a religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
 
-Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because ... you merge yourself into your object with your wisdom. Not carelessly; you don’t participate at random. You participate in it very carefully, with wisdom. You merge yourself into your object.
-
-So, even though you participate, this participation is not *defiled* participation or human activity. This is *undefiled* human activity. So this is religious activity. 
+Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because you merge yourself into your object with your wisdom. You don’t participate in the object carelessly; you don’t participate at random. You participate in it very carefully, with wisdom. You merge yourself into your object. So, even though you participate, this participation is not *defiled* participation or human activity. This is *undefiled* human activity. So this is religious activity. 
 
 #### 49:22
 
-That’s why, according to [Buddhism](glossary#buddhism), the subject is no perception of subject, and the object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means the object is nothing but provisional being. 
+That’s why, according to Buddhism, the subject is no perception of subject, and the object is no perception of object. Then you cannot attach to, you cannot have, perception of object or perception of no-object. You cannot. That means the object is nothing but provisional being. 
 
-But provisional being is not to defile the object, not to ignore the existence of your object. You should take care of your object. *How*? This is the practice, how. 
+But provisional being is not to defile the object, not to ignore the existence of your object. You should take care of your object. *How*? This is the practice: how. 
 
-So, in the common sense, we are always participating in *[unintelligible]*. At that time, provisional being turns into actual being, so there is no gap. But, without deep understanding, without wisdom, you can participate in it and also finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom. So there is some control, adjustment for your emotional expression or conscious pattern. There is a pattern of body and mind situation. 
+So, in the common sense, we are always participating. At that time, provisional being turns into actual being. So there is no gap. But, without deep understanding, without wisdom, you can participate in it and also, finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom. So there is some control or adjustment for your emotional expression, or a conscious pattern. There is a pattern of body and mind situation. 
 
-That’s why [Buddha](glossary#buddha) always says, everything is [emptiness](glossary#śūnyatā). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. [Everything exists] temporarily. But that doesn’t mean through that you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of it.
+That’s why Buddha always says, everything is [emptiness](glossary#śūnyatā). That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. Everything exists temporarily. But that doesn’t mean through that you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of it.
 
-So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes cause of neutral; nothing to say. 
+So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes a cause of neutral: nothing to say. 
 
 #### 52:40
 
-That’s why it says, “If, [Subhuti](glossary#subhuti), these [Bodhisattvas](glossary#bodhisattva) should have perception of either a [dharma](glossary#dharma), or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the [Tathāgata](glossary#tathāgata) with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’”
+That’s why it says, “If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathāgata with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’”
 
-The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. You should leave it there, if you reach the other shore. That means, no perception of the subject, no perception of the object. 
+The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. If you reach the other shore, you should leave it there. That means, no perception of the subject, no perception of the object. 
 
-That means, if you study at school in order to get a masters degree or Ph.D. – get a degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud of yourself too much: “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
+That means, if you study at school in order to get a master’s degree or Ph.D. – get a degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud of yourself too much: “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
 
 That makes it pretty hard to communicate with each other. So – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
 
@@ -176,7 +174,7 @@ Do you understand provisional being?
 
 #### 56:18
 
-**Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the [Buddha](glossary#buddha), he was practicing meditation in one of his lifetimes in a garden, and this king came up to him and saw him and remembered him, and got extremely angry at stuff, and butchered him, chopped him down into pieces. And Buddha just calmly watched him ... Is that king, in the Buddha’s perception, a provisional being?
+**Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the Buddha, he was practicing meditation in a garden in one of his lifetimes, and this king came up to him and remembered him, and got extremely angry, and butchered him, chopped him down into pieces. And the Buddha just calmly watched him ... Is that king, in the Buddha’s perception, a provisional being?
 
 **Katagiri**: Compassion? Yes, that is the motivation of his becoming a monk, leaving the castle. He saw something ... farmers. Is that what you mean? Cultivating?
 
@@ -194,38 +192,37 @@ Do you understand provisional being?
 
 *[Laughter.]*
 
-**Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people weren’t real. If somebody comes up to you and starts chopping at you... *[Laughter.]*
+**Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people aren’t real. If somebody comes up to you and starts chopping at you... *[Laughter.]*
 
 **Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because someone chops your neck and your hands; if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* 
 
 No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
 
-So, if you believe all sentient beings as just provisional beings, intellectually – well, someone can come and chop your neck, and you say, “Okay, you’re a provisional being.” It’s ridiculous! *[Laughter.]* 
+So, if you believe all sentient beings as just provisional beings *intellectually* – well, someone can come and chop your neck, and you say, “Okay! you’re a provisional being.” It’s ridiculous! *[Laughter.]* 
 
 Don’t you think so? 
 
 **Person**: Oh yes! *[Laughter.]*
 
-**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to [Buddha](glossary#buddha)’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
+**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to Buddha’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
 
 **Person**: That’s like taking each moment as it comes [*unintelligible*]?
 
-**Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad – it’s not okay, it’s not easy, but there is another possibility here, in the moment. In the moment, possibility, [*unintelligible*]. 
+**Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad – it’s not okay, it’s not easy, but there is another possibility, in the moment. In the moment, possibility, [*unintelligible*]. 
 
 #### 1:01:36
 
 **Question**: [Roshi](glossary#roshi)? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
 
-**Katagiri**: [No-self](glossary#no-self) doesn’t mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, through the present life you can realize how sublime it is, how unfathomable your self is. [That] you cannot understand yourself in the present, according to present time, because your life is pretty broad. Sometimes you don’t understand. Sometimes you understand who you are, but strictly speaking you don’t understand who you are, because your life may have been connected with a past life. 
+**Katagiri**: [No-self](glossary#no-self) doesn’t mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, through the present life you can realize how sublime it is, how unfathomable your self is. [That] you cannot understand yourself in the present, according to present time, because your life is pretty broad. Sometimes you don’t understand. Sometimes you understand who you are, but strictly speaking you *don’t* understand who you are, because your life has been connected with past life. 
 
-But if we say it like this, immediately we say there is something which exists for long, from the past, through the present, to the future. That is perception of a soul, okay? So, I don’t think so. But even though no soul – still there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say.
+But if we say it like this, immediately we say there is something which exists for long, from the past, through the present, to the future. That is perception of a soul, okay? So, I don’t think so. But even though *no soul* – still there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say so.
 
-Finally, self is broad, but what is that? I cannot explain. But, it’s there. It’s there, but it is not something which exists eternally, because you cannot pin down what it is. 
+Finally, the self is broad, but what is that? I cannot explain. But, it’s there. It’s there, but it is not something which exists eternally, because you cannot pin down what it is. 
 
-[Buddhism](glossary#buddhism) is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. That means, that understanding that everything is working dynamically leads you to touch the core of real life. Which is fully alive. Fully alive.
+Buddhism is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. That means, that understanding that everything is working dynamically leads you to touch the core of real life, which is fully alive.
 
 #### 1:05:11 end of recording
-
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
