@@ -24,7 +24,7 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 >
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 34-35, immediately following the passage quoted in the previous talk.)
 
-The commentary by Conze here is very interesting, an interesting comment. Let me read it first:
+The commentary by Conze here is very interesting. Let me read it first:
 
 > The merit to be derived from giving depends, among other things, on the preciousness of the gift, and the quality of the recipient. The gift consists of the seven precious things, mentioned also at chapter 11, 19, 28, 32a. They are gold, silver, lapis lazuli, coral, gems, diamonds, and pearls. When this most precious of all material gifts is given in abundance to the Tathāgatas, who are the most exalted persons of all, then this act of giving produces a quite exceptional amount of merit. This sounds strange to modern ears. The Tathāgatas have all they need, they certainly can make no use of all this gold, silver, etc., and so how could this gift benefit them? Would it not be very much more to the point to relieve the sufferings of those who are in want, and to give them what they need, and what they would use so gladly? Is there not a complete and callous disregard of the poor in the Buddhist statement that the best gift is that which is given by the dispassionate to the dispassionate? Common sense as we understand it must withhold its approval from this statement. Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.
 
@@ -54,7 +54,8 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 > ...   
 > That’s what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
-
+>   
+>   
 >> (Here are a couple different translations for reference. Skip these if you are not interested.)
 >> 
 >> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html):
