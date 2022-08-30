@@ -122,27 +122,27 @@ And then this is called “the marklessness of all things”. Completely emptine
 
 That is emptiness. And the second is “the marklessness of their emptiness.” 
 
-If we say the original nature of existence is characterized by emptiness, immediately we don’t understand it. So, we create a psychic crack, and your consciousness works, and you think of it, analyze it, synthesize it: what emptiness is. That means, you are *stuck* in the realm of emptiness, in the realm of oneness. 
+If we say “the original nature of existence is characterized by emptiness,” immediately we don’t understand it. So, we create a psychic crack, and your consciousness works, and you think of it, analyze it, synthesize it: what emptiness is. That means you are *stuck* in the realm of emptiness, in the realm of oneness. 
 
 If you’re stuck in the oneness, it is not oneness, it is already two. Oneness is just one only, not two. If we say “The universe is one,” we say, “Yes; I understand it.” But that is already two. Do you understand? *[He laughs, and some people laugh.]* We say, “Yes, I understand.” “Yes, I understand” is *part* of oneness. But real oneness is not something you understand. Oneness is real activity, which allows you to show oneness from moment to moment. This is real oneness. So even though you say “I understand,” next moment, you don’t understand. [You say,] “I studied for many, many years about emptiness. I understand emptiness today.” Next day, someone asks you from a different angle about emptiness: “I don’t understand.” 
 
-We chant in Prajnaparamita, wisdom, and emptiness, or [impermanence](glossary#impermanence) – lots of terms, Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it’s not *broad*. If someone asks us about it from a different angle we have never seen, we don’t understand it. So, even though you say “I understand emptiness,” it is not good enough, because still emptiness does not work in your daily living. So you’re pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness. Emptiness is *something*. Already it’s not emptiness. Emptiness is perfectly emptiness. Perfect emptiness is dynamical working. 
+We chant in *Prajnaparamita*, wisdom, and emptiness, or [impermanence](glossary#impermanence) – lots of Buddhist terms. We understand it in a sense; from a certain angle, we understand pretty well. But it’s not *broad*. If someone asks us about it from a different angle we have never seen, we don’t understand it. So, even though you say “I understand emptiness,” it is not good enough, because still emptiness does not work in your daily living. So you’re pretty easily stuck in the realm of emptiness. At that time, emptiness is no longer emptiness, emptiness is *something*. Already it’s not emptiness. Emptiness is perfectly emptiness. Perfect emptiness is dynamical working. 
 
 That is “the marklessness of their emptiness”. You cannot believe any form of emptiness you have understood. Finally, “the marklessness of their emptiness” means, formlessness. That means, concretely speaking, openness. Openness ... to manifest the original nature of existence, [emptiness]. Openness to accommodate to conditioned elements, conditioned situations. To work freely. Or, openness is *straightforwardness* toward emptiness, toward the truth, constantly.
 
 #### 41:45
 
-In your daily living, if you read this book on [*Diamond Sutra*](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, which you have to take care of. Under all circumstances, whether you like or dislike it, you have to take care of it. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, like “you have to read this”: that is your life. If it is true, you have to continue to read. Continue to read. 
+In your daily living, if you read this book on [*Diamond Sutra*](glossary#diamond-sutra): if this is something you want to do, you have to read it. “You have to read” is your life, which you have to take care of. Under all circumstances, whether you like or dislike it, you have to take care of it. If you stop it, or if you give up, you cannot do it; that means you give up your desires, your hope. No, if you want to do something, like “you have to read this”: that is your life. If it is true, you have to continue to read.
 
-And then, in the process of reading, there are lots of experiences: like or dislike, understand or not understand. Lots of bubbles come up, and pop. Next moment, different bubbles come up, and pop. Always there. But whatever kind of bubbles you can see, all you have to do is not to [leave] any form of a certain bubble, or say, “I see *this* bubble,” or “I see *that* bubble.” You stop there. But, don’t stop there. Just see the bubbles. Basically, all you have to do is, to be stable. To be stable in the realm of emptiness. 
+And then, in the process of reading, there are lots of experiences: like or dislike, understand or not understand. Lots of bubbles come up, and pop. Next moment, different bubbles come up, and pop. Always there. But whatever kind of bubbles you can see, all you have to do is not to [leave] any form of a certain bubble, or say, “I see *this* bubble,” or “I see *that* bubble.” You stop there. But, don’t stop there. Just see the bubbles. Basically, all you have to do is, to be stable in the realm of emptiness. 
 
-Stability in the realm of emptiness is a very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like: okay. Dislike: okay. Comes up, disappears, comes up, disappears. But basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
+Stability in the realm of emptiness is a very basic attitude toward human life. Continue to read – that means, practice. Continue to read. Like: okay. Dislike: okay. Comes up, disappears, comes up, disappears, but basically, your practice is just going on. That is stability. If you continue to do this, that life is very stable. 
 
 That is marklessness of emptiness. Formlessness. Openness. Continually, your heart and your mind must be open. Open to a sense of like, or to a sense of dislike, or a sense of good, a sense of evil, or right, or wrong, or feeling good, or feeling not good, uncomfortable or comfortable, or pleasant or unpleasant; whatever it is. Anyway, openness. Openness is formlessness.
 
 #### 45:03
 
-And third, “the marklessness of their suchness.” 
+And third, “the marklessness of their suchness”. 
 
 So finally, all you have to do is just continue to do it. That is what is called *obedience*: just to follow. Just to follow life.
 
@@ -158,13 +158,13 @@ If you think, “I don’t like meditation,” or “I *like* meditation,” or 
 
 Then, maybe meditation hurts your body and mind. Well, it is not alright, it is not okay – but it is not bad. Still there is a chance to take care of your life with your best. Yes there is. Right in the middle of meditation, still there is a chance to take care of your life with your best, planting a good seed toward the future. At that time, there is no chance to create a psychic crack. You become one with your life. If it is true, you feel good. You feel relief. 
 
-That is the third one, “the marklessness of their suchness”. Here *suchness* means *obedience*. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
+That is the third one, “the marklessness of their suchness”. “Their suchness” means *obedience*. Obedience means just to follow. Just to follow means, the rose blooms because it blooms. The rose blooms just to bloom. No reason. 
 
 #### 50:11
 
-Why do you exist in this world? I don’t know. “I don’t know” does not mean “I don’t know”; “I don’t know” means “I know” *and* “I don’t know,” [both]. “I don’t know” means, completely to accept the total picture of what you don’t know or what you know. 
+Why do you exist in this world? I don’t know. “I don’t know” does not mean “I don’t know”; “I don’t know” means “I know,” *and* “I don’t know,” too. “I don’t know” means completely to accept the total picture of what you don’t know or what you know. 
 
-And then, why do you exist? Why do you live in this world? You live to work? Or you work to live? Or you make money to live? Or you live to make money? Or you live to be happy? Whatever it is – it doesn’t hit the mark. That is just a part of the purpose of your life. The total purpose of your life is – no reason. Just to live. No reason. That’s why the truth to live is, just to live. Just to live.
+And then, why do you exist? Why do you live in this world? You live to work? Or you work to live? Or you make money to live? Or you live to make money? Or you live to be happy? Whatever it is, it doesn’t hit the mark. That is just a part of the purpose of your life. The total purpose of your life is – no reason. Just to live. No reason. That’s why the truth to live is, just to live. Just to live.
 
 That’s why the German poet says, “the rose exists without any reason.” And finally, “the marklessness of their suchness” means you should throw away “without any reason”. And then finally, the rose blooms just to bloom. 
 
@@ -172,27 +172,27 @@ If you say, “Katagiri exists without any reason,” this is still logical expl
 
 This is emptiness. If you understand Buddha – Buddha experiences *this* enlightenment. That’s why Subhuti says, “The dharma which the Tathāgata has fully known or demonstrated, it cannot be grasped.” If there is even slightly something you can grasp, which is called emptiness, or no emptiness, or neutral between emptiness or no emptiness – that is still something you can grasp. So, original nature of existence is completely the absolute. Absolute is one, just one. 
 
-One is not something you can think or you can grab. When you think, when you experience, when you “get it,” it is always two. That’s why religion, all religion, speaks about the truth. But there are many kinds of truth. We fight each other, according to many kinds of truth. “Buddhism is right.” “Christianity is right; Buddhism is crazy.” But Buddhism and Christianity explain about the truth. The truth is exactly one. One means, nothing to get or to grasp. 
+One is not something you can think or you can grasp. When you think, when you experience, when you “get it,” it is always two. All religion speaks about the truth, but there are many kinds of truth. We fight each other, according to many kinds of truth. “Buddhism is right.” “Christianity is right; Buddhism is crazy.” But Buddhism and Christianity explain about the truth. The truth is exactly one. One means, nothing to get or to grasp. 
 
 #### 55:00
 
 > “It cannot be grasped, it cannot be talked about.” 
 
-To talk is very important, because ... the activity *you talk* comes up from the original nature of existence. Otherwise, you cannot talk. Otherwise you cannot talk *about the truth*. The activity *to talk* is aiming at the highest speech and level, always aiming. Words cannot reach there. But the activity *to talk* itself, coming from the original nature of existence, aims at the high spiritual level. Words cannot reach there; that’s why there is some confusion.
+To talk is very important, because the activity *you talk* comes up from the original nature of existence. Otherwise, you cannot talk. Otherwise you cannot talk *about the truth*. The activity *to talk* is aiming at the highest speech and level, always aiming. Words cannot reach there. But the activity *to talk* itself, coming from the original nature of existence, aims at the high spiritual level. Words cannot reach there; that’s why there is some confusion.
 
 “Emptiness”: this is a word. But the activity I talk about, emptiness itself, is not a word, because words are already emptiness, and the subject I am talking about is also emptiness. So I am not talking about the emptiness I can see or get. That is a word. When I am talking about emptiness, I myself am emptiness always. And words also are emptiness, always. 
 
-So, emptiness – this is, I have to talk about emptiness. To talk is important, but not the word. Most people are completely cheated by the word. If I say “emptiness”: “Oh, I don’t like it, because emptiness is negative.” But emptiness is pretty nice. Completely emptiness is emptiness denied. *Why* do I exist? Why does the rose exist? Completely denied. That negation leads you to touch the exact core of existence of the rose itself. That is negation; that’s what emptiness is. 
+So, emptiness – this is, I have to talk about emptiness. To talk is important, but not the word. Most people are completely cheated by the word. If I say “emptiness,” [you say,] “Oh, I don’t like it, because emptiness is negative.” But emptiness is pretty nice. Emptiness is emptiness completely denied. Why do I exist? Why does the rose exist? Completely denied. That negation leads you to touch the exact core of existence of the rose itself. That is negation; that’s what emptiness is. 
 
-So emptiness is very important for us. A more positive, affirmative term is, I told you, stability. Stability, or maturity, or spiritual security. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
+So emptiness is very important for us. A more positive, affirmative term is, I told you, *stability*. Stability, or maturity, or *spiritual security*. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
 
 #### 59:00
 
 > “It cannot be talked about; it is neither a dharma nor a no-dharma.”
 
-Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no “mark” of its own, no mark. That is emptiness. 
+Dharma is truth, or teaching... or whatever it is. Dharma is understood as a truth. Truth is, anyway, *truth*. But that truth that you understand is not the real truth, because truth has no “mark” of its own. No mark. That is emptiness. 
 
-Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something. It’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something “extra”. Emptiness is completely absolute.
+Truth cannot be described by a word. So you cannot describe a truth as a truth or no-truth. If a truth is emptiness, you say, “Oh, no-truth.” But no-truth is already something; it’s not empty, because you are stuck there; that means it’s no longer emptiness. So whatever you think – dharma is emptiness, or dharma is not emptiness – all are something “extra”. Emptiness is completely absolute.
 
 Next, 
 
@@ -202,7 +202,7 @@ Exalts: that is the absolute. The original nature of existence *exalts* your lif
 
 The commentary by Doctor Conze says: (pp. 34) 
 
-> **The Absolute** is literally “the Unconditioned,” and according to Vasubandhu, it means here that which cannot be discriminated....
+> **The Absolute** is literally “the Unconditioned,” and according to Vasubandhu, it means here that which cannot be discriminated.
 
 The absolute, or the truth, is the unconditioned. Well, the unconditioned means the truth; something which exists with no reason. That is something which always exists in perfect stability, constantly. That is the absolute: the unrelated, the unconditioned. 
 
@@ -210,7 +210,7 @@ The absolute, or the truth, is the unconditioned. Well, the unconditioned means 
 
 > ... it means here that which cannot be discriminated. With an obvious and deliberate disregard for logic the Sutra claims that this unrelated Absolute can enter into a relation with certain persons. This is a difficult idea, and a difficult word is chosen to express it. **Exalts** – the word (prabhavita) contains a great wealth of meaning, and “exalts” is the best I can do. One could also say, “are glorified by,” “draw their strength from,” “owe their distinction to,” or “derive their dignity from.” The idea is that the holy persons have “arisen” from the Unconditioned, have been “produced” from it, are “brought forth” by it. 
 
-So, the absolute, the unconditioned, the original nature of existence [inherent] in all beings, exalts your life – basically. Giving encouragement to you, giving strength to you, giving dignity to you, constantly. This is [the] absolute. So, from this point, we are already right in the middle of this. All we have to do is just continually be present with this absolute. Absolute means, completely, under all circumstances, as much as possible, you should stand up straight, with stability and confidence. Your consciousness tells you whatever it is – “you are a good boy” or “bad boy”, whatever it is – anyway, you should be stable, stand up straight, and continue to take care of your life. And then, finally, you can really experience what is called spiritual stability. 
+So, the absolute, the unconditioned, the original nature of existence [inherent] in all beings, exalts your life – basically. Giving encouragement to you, giving strength to you, giving dignity to you, constantly. This is [the] absolute. So, from this point, we are already right in the middle of this. All we have to do is just continually be present with this absolute. Absolute means, completely *[unintelligible]*. Under all circumstances, as much as possible, you should stand up straight, with stability and confidence. Your consciousness tells you whatever it is – “you are a good boy” or “bad boy”, whatever it is – anyway, you should be stable, stand up straight, and continue to take care of your life. And then, finally, you can really experience what is called spiritual stability. 
 
 Do you have any questions?
 
