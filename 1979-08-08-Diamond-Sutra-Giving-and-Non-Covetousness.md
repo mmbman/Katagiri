@@ -28,7 +28,7 @@ The commentary by Conze here is very interesting. Let me read it first:
 
 > The merit to be derived from giving depends, among other things, on the preciousness of the gift, and the quality of the recipient. The gift consists of the seven precious things, mentioned also at chapter 11, 19, 28, 32a. They are gold, silver, lapis lazuli, coral, gems, diamonds, and pearls. When this most precious of all material gifts is given in abundance to the Tathāgatas, who are the most exalted persons of all, then this act of giving produces a quite exceptional amount of merit. This sounds strange to modern ears. The Tathāgatas have all they need, they certainly can make no use of all this gold, silver, etc., and so how could this gift benefit them? Would it not be very much more to the point to relieve the sufferings of those who are in want, and to give them what they need, and what they would use so gladly? Is there not a complete and callous disregard of the poor in the Buddhist statement that the best gift is that which is given by the dispassionate to the dispassionate? Common sense as we understand it must withhold its approval from this statement. Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.
 
-In [Mahayana Buddhism](glossary#mahayana), the practice of perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](glossary#paramitas). Giving is the first item of the six paramitas. But in [primitive Buddhism](glossary#primitive-buddhism ), the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice perfection of giving. 
+In [Mahayana Buddhism](glossary#mahayana), the practice of perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](glossary#paramita). Giving is the first item of the six paramitas. But in [primitive Buddhism](glossary#primitive-buddhism ), the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice perfection of giving. 
 
 If you read Mahayana Buddhist scriptures, very often they say, “give offerings decorated with seven precious treasures to Tathāgatas, to Arhats, to noble enlightened men.” Very often [they speak] in that way. So according to modern sense, it doesn’t make sense whether to give. Why don’t you give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand the practice of giving in that way, it’s pretty difficult to understand the real spirit of Mahayana Buddhism. That’s why [Conze](glossary#edward-conze) says, “Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.” I would like to talk about this point of view tonight. 
 
@@ -58,7 +58,7 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 >   
 >> (Here are a couple different translations for reference. Skip these if you are not interested.)
 >> 
->> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html):
+>> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
 >>  
 >> We alone face death.  
 >> The beast, death behind and  
@@ -78,7 +78,7 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 >> always and only to face  
 >> one another and nothing else.  
 >>   
->> [Translated by J.B. Leishman and Stephen Spender:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf):
+>> [Translated by J.B. Leishman and Stephen Spender:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf)
 >> 
 >> We only see death; the free animal  
 >> has its decease perpetually behind it  
