@@ -7,7 +7,7 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
 [Next](1980-07-03-Karma-Unmanifested)
 
-### Transcript
+## Transcript
 
 **This transcript is in rough draft stage.**
 

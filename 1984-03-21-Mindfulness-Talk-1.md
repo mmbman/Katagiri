@@ -4,7 +4,7 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1984) \| 
-[Previous](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2) \| 
+[Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
 ## Summary 
@@ -395,5 +395,5 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1984) \| 
-[Previous](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2) \| 
+[Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)

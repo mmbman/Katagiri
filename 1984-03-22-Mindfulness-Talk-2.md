@@ -7,26 +7,24 @@ description: March 22, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
+## Transcript
 
 **This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
 
-### Transcript – Part 1
+### Part 1
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-38923791" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
 
 
-
-### Transcript – Part 2
+### Part 2
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-37838804" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
 
 
 
-### Transcript – Part 3
+### Part 3
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36775311" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
-
-
 
 #### end of part 3
 

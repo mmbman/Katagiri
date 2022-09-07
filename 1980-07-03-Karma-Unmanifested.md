@@ -7,7 +7,7 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
-### Transcript
+## Transcript
 
 **This transcript is in rough draft stage.**
 

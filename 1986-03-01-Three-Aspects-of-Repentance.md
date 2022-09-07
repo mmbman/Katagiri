@@ -7,11 +7,11 @@ description: "March 1, 1986 Dharma Talk by Dainin Katagiri Roshi"
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 
-### Summary
+## Summary
 
 Katagiri Roshi explains *repentance* in Buddhism, which is also sometimes called *formless atonement*. Repentance is not a ritual of trying to get forgiveness from someone; rather, repentance is to be present right in the middle of peace and harmony. Katagiri Roshi describes three aspects or conditions of repentance. The first aspect is that we should realize the world of compassion and heart, to accept and forgive all, without exception. This is to realize “the world prior to germination of any subtle ideas” – which is called Buddha. The second aspect is that we should accept this Buddha’s compassion with readiness. This is sometimes called samadhi, or egolessness. The third aspect is ritual, which is “interacting communion between you and the universe.” To illustrate these points, Katagiri Roshi discusses the role of the doan in Zen, the meaning of the word *Shakyamuni* in Chinese, and the poem “How To Make A Portrait Of A Bird” by Jacques Prévert.
 
-### Transcript
+## Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/three-aspects-of-repentance" target="_blank">Listen to this talk on mnzencenter.org</a>
 

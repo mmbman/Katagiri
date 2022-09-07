@@ -7,11 +7,11 @@ description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
-### Summary
+## Summary
 
 If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *Nirmanakaya*, *Sambhogakaya*, and *Dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
-### Transcript
+## Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Listen to this talk on mnzencenter.org</a>
 

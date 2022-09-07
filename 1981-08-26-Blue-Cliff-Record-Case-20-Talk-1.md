@@ -7,7 +7,7 @@ description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 [Previous](unfinished-1981-1) \| 
 [Next](unfinished-1981-2) 
 
-### Transcript
+## Transcript
 
 **This transcript is in rough draft stage.**
 

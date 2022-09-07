@@ -7,7 +7,7 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 
-### Transcript
+## Transcript
 
 **This transcript is in rough draft stage.**
 
