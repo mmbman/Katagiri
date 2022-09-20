@@ -20,7 +20,11 @@ If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni 
 
 > (Chapter 8)  
 >  
-> The Lord then asked: What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit? – Subhuti replied: Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the “heap of merit” as a non-heap. That is how the Tathāgata speaks of “heap of merit”. – The Lord said: But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says “illustrate”) it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathāgatas, Arhats, Fully Enlightened Ones, and from it have issued the [Buddhas](glossary#buddha), the Lords. And why? For the Tathāgata has taught that the dharmas special to the Buddhas are just not a Buddha’s special dharmas. That is why they are called “the dharmas special to the Buddhas.”
+> The Lord then asked: “What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”
+> 
+> Subhuti replied: “Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the ‘heap of merit’ as a non-heap. That is how the Tathāgata speaks of ‘heap of merit’.” 
+> 
+> The Lord said: “But if someone else were to take from this discourse on [dharma](glossary#dharma) but one stanza of four lines, and would demonstrate and illuminate (Katagiri says “illustrate”) it in full detail to others, then he would on the strength of that beget a still greater heap of merit, immeasurable and incalculable. And why? Because from it has issued the utmost, right, and perfect [enlightenment](glossary#enlightenment) of the Tathāgatas, Arhats, Fully Enlightened Ones, and from it have issued the [Buddhas](glossary#buddha), the Lords. And why? For the Tathāgata has taught that the dharmas special to the Buddhas are just not a Buddha’s special dharmas. That is why they are called ‘the dharmas special to the Buddhas.’”
 >
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 34-35.)
 
@@ -34,19 +38,19 @@ In [Buddhism](glossary#buddhism) usually there are three kinds of giving in the 
 
 Material gifts, dharma gifts – but if you don’t have any material gifts, or if you don’t have any capability to preach dharma, what should you give? In one of the Buddhist scriptures, there are seven kinds of giving for such a person who doesn’t have any material gifts or dharma gifts. 
 
-One is “giving with eyes”. This is to come in contact with people with a tender look. This is also a giving practice. Even though you don’t have any materials or dharmas you can preach, still there is a practice of giving. So, the first one is giving with eyes.
+One is “giving with eyes”. This is to come in contact with people with a tender look. This is also a giving practice. Even though you don’t have any materials or dharmas you can preach, still there is a practice of giving.
 
-The second is “giving with face”. It means to come in contact with people with a soft, gentle, joyous expression on one’s face. This is the second. 
+The second is “giving with face”. It means to come in contact with people with a soft, gentle, joyous expression on one’s face. 
 
-[But] this is very important: it’s not necessary to always smile. To smile always – it’s not necessary to do that. If you have a very gentle, soft, magnanimous, joyous mind, your face speaks of your mind, how joyous it is, how gentle it is, even though you don’t smile. But if your mind is always angry, or always expressing complaints, et cetera, your face is always something miserable, ugly – even though you smile. Do you understand? So, the second is giving with face.
+But this is very important: it’s not necessary to always smile. If you have a very gentle, soft, magnanimous, joyous mind, your face speaks of your mind, how joyous it is, how gentle it is, even though you don’t smile. But if your mind is always angry, or always expressing complaints, et cetera, your face is always something miserable, ugly – even though you smile. Do you understand?
+
+#### 7:47
 
 The third: “giving with words”. It means to use peaceful words when one comes in contact with people. 
 
-Peaceful words are very important. But peaceful words are not always gentle, not always soft. Sometimes even though the words are very pithy or very strong, it is also peaceful words when it is helpful for the person to turn over his own new life. 
+Peaceful words are very important. But peaceful words are not always gentle, not always soft. Even though the words are very pithy or very strong, it is also peaceful words when it is helpful for the person to turn over his own new life. 
 
-#### 8:54
-
-But even though it’s not necessary to scold or to scream always, there is a very interesting story. One of the famous Japanese novelists ... had one of his sons who wasted lots of money. This novelist was also one of the great painters. So he painted, and the larger pictures were in his room. Sometimes he could sell them, but usually he didn’t sell them. But his son sold most of them without saying anything, in order to spend his life at the bar – *[mild laughter]* – drinking beer, wine, whisky always. Unfortunately, he got an ulcer. So he went to the hospital to recover, but unfortunately, after he recovered he still continued to spend lots of money to drink brandy. And finally, he got cancer. [All the way] until his death, his father didn’t scold him at all; he didn’t say *anything*. But his brothers and sisters were really angry with the father because he didn’t say anything to him – just watched him. 
+But even though it’s not necessary to scold or to scream always, there is a very interesting story. One of the famous Japanese novelists had one of his sons who wasted lots of money. This novelist was also one of the great painters. So he painted, and the larger pictures were in his room. Sometimes he could sell them, but usually he didn’t sell them. But his son sold most of them without saying anything, in order to spend his life at the bar – *[mild laughter]* – drinking beer, wine, whisky always. Unfortunately, he got an ulcer. So he went to the hospital to recover, but unfortunately, after he recovered he still continued to spend lots of money to drink brandy. And finally, he got cancer. [All the way] until his death, his father didn’t scold him at all; he didn’t say *anything*. But his brothers and sisters were really angry with the father because he didn’t say anything to him – just watched him. 
 
 This novelist was one of the very enthusiastic Buddhists, believing the teaching of the Lotus Sutra. In the Lotus Sutra, it’s always explaining the oneness of the world. So, right before he died with cancer, the son really expressed appreciation to his father. He didn’t say anything, but the son really expressed his gratitude to his father. This is [beautiful], because the world is one. 
 
@@ -56,9 +60,9 @@ So, it’s not always scolding, using [harsh] words, but it’s not always to us
 
 The fourth: “giving with the body”. That means to help people with the body first. 
 
-Most people think something with their head, saying, “I want to help the people,” or, “I think I can believe.” In Buddhism, to think is not to think, to think is to *do* something with your body. So to believe is to *practice* with your body. To believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do it with your body. 
+Most people think something with their head, saying, “I want to help the people.” Or, “I think I can believe.” In Buddhism, to think is not to think, to think is to *do* something with your body. So to believe is to *practice* with your body. To believe is not to do something with mind alone; you cannot do this. If you believe something, you have to do it with your body. 
 
-On the other hand, you cannot do it with your body alone. So next, “giving with mind”. 
+On the other hand, you cannot do it with your body alone. So next: “giving with mind”. 
 
 You have to do something with body, but also mind must be present with body. Because we are human. If you’re a [cat](glossary#cat) or dog, you can do with just body alone. If we have breakfast, of course, we have to have breakfast with your body first. No one can have breakfast with the mind. So first you have to have breakfast with body – but you are not cat, you are not dog, so you have to have breakfast with mind. That means, why don’t you use a fork; why don’t you sit down on the chair. Why don’t you keep silent; why don’t you appreciate the food given to you. Why don’t you appreciate your existence; why don’t you appreciate your parents and teachers, sisters and brothers, nature. This is the way to have breakfast with body and mind. This is also the great practice of perfection of this paramita, giving.
 
