@@ -140,6 +140,13 @@ Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Fac
 
 ---
 
+### [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+#### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi completely explains the Twelve Links of Dependent Origination, presumably... but the audio is lost. However, there is some review in the next talk.
+
+---
+
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 #### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
