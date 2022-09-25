@@ -16,7 +16,7 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording 
 
-In the first early morning [zazen](glossary#zazen), I said, “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (Disport: to enjoy oneself unrestrainedly; frolic.) That’s why maybe I explained after that, “playing freely.” That is to disport.
+In the first early morning [zazen](glossary#zazen), I said, “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (Disport: to enjoy oneself unrestrainedly; to frolic.) That’s why maybe I said after that, “playing freely.” That is to disport.
 
 Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to Twelve Chain Causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
 
@@ -26,27 +26,27 @@ First is *ignorance*, *avidyā*.
 
 And *saṃskāra*: This is the first stage of movement, psychologically or physically. This is human process and function. 
 
-Next, *consciousness*, and *name and form*. (#3 *vijñāna* is consciousness; #4 *nāmarūpa* is name-and-form.) This is all beings exist, and we understand [them] through the name and form.
+Next, *consciousness*, and *name and form*. (#3 *vijñāna* is consciousness; #4 *nāmarūpa* is name-and-form.) This is [that] all beings exist and we understand [them] through the name and form.
 
-Fifth, this is *six consciousness*, six senses. (*Āyatana*)
+Fifth is *six consciousnesses*, six senses. (*Āyatana*)
 
-Sixth is *tangibility*; *touch*. (*Sparśa* in [Sanskrit](glossary#sanskrit), or *phassa* in Pali; more commonly, *contact*.)
+Sixth is *tangibility*; *touch*. (*Sparśa* in [Sanskrit](glossary#sanskrit), or *phassa* in Pali. More commonly in English, *contact*.)
 
 Seventh is *reception*, or *feeling*. (*Vedanā*)
 
 Eighth is *craving*. (*Taṇhā* in Pali.)
 
-Ninth is, what would you say, *grasping*. (Grasping: *Upādāna*; also *clinging* or *attachment*; literally: “fueling the fires”.)
+Ninth is, what would you say, *grasping*. (Grasping: *Upādāna*; also *clinging* or *attachment*. Literally, “fueling the fires”.)
 
-Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*. When you say *being*, that being consists of already a system of subject and object; this is the picture of being. Do you understand? This is a *being*; we call this *being*, or *existence*. If you use a term *existence* or *being*, it’s already something consisting of subject and object. In other words, [dualism](glossary#dualism). This is existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here, that’s why I can see that here is a table; that’s why I can see the table itself. So that means already existence. So table always is something existent, something being. That means subject, object: dualism. That is tenth; I will explain this one too.
+Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*. When you say *being*, that being consists of already a system of subject and object; this is the picture of being. Do you understand? This is a *being*; we call this *being*, or *existence*. If you use a term *existence* or *being*, it’s already something consisting of subject and object. In other words, [dualism](glossary#dualism). This is existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here, that’s why I can see that here is a table; that’s why I can see the table itself. So that means already *existence*. So table always is something existent, something being. That means subject, object: dualism. That is the tenth; I will explain this one too.
 
 And the others are *birth* (*jāti*), and last one is *old age and death* (*jarāmaraṇa*).
 
-In this Twelve Chain Causations, karma is the second one, *saṃskāra*, and also (the tenth,) *bhava*. Only two things: tenth, *bhava*, existence and being, and also *saṃskāra*. Just these two are karma. Remember this.
+In this Twelve Chain Causation, *karma* is the second one, *saṃskāra*, and also the tenth, *bhava*. Only two things: *bhava*, existence and being, and also *saṃskāra*. Just these two are karma. Remember this.
 
 #### 5:35
 
-And also *mumyo*, (the Japanese word for the) first one, *ignorance*, and also *craving* and *grasping*, those three are *klesha* in Sanskrit: delusion. *Klesha* means affliction. Because yesterday I told you the *mumyo* – ignorance, *avidyā* – is that which we are doomed – doomed means fated – doomed not to understand. (We are doomed) not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are “doomed” not to understand truth as it is. This is what is called “pain”: affliction. That’s why [Buddha](glossary#buddha) says life is characterized by [suffering](glossary#suffering). This is really suffering. But we cannot stop it: because we are already there. So even though intellectually we don’t understand, still we feel, anyway, and also we want to know. We want to know but we cannot understand, that’s why that is affliction, suffering. This is a basic, basic nature of human being. That’s why first (there is) *avidyā*, ignorance. 
+And also *mumyo* – [the Japanese word for the] first one, *ignorance* – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. Because yesterday I told you that *mumyo* – ignorance, *avidyā* – is that which we are doomed not to understand. “Doomed” means fated. We are doomed not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are “doomed” not to understand truth as it is. This is what is called “pain”: affliction. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel, anyway, and also we want to know. We want to know but we cannot understand, that’s why that is affliction, suffering. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. 
 
 And *avidyā*, ignorance; and *craving*, *grasping*; this is what is called *klesha*, delusion. 
 
@@ -156,119 +156,137 @@ So, no *joyful interest*, and then *just happiness* there. *Just happiness* mean
 
 And then at the fourth stage of zazen, completely there is no happiness, because there is no space to touch the happiness. If you touch the happiness, it means you see the happiness there, and you are here, and then this person looks at this happiness. At that time, this happiness is not real happiness. That is an image of happiness, don’t you think so? That’s why you touch it, just like this. And then you enjoy it very much; but at that time, while you are touching this happiness, that means that your six consciousnesses are still poking your head *into* this. That’s not *happiness*, that is *joyful interest*. 
 
-So if you see happiness at the first stage of zazen… completely, at the (fourth) stage of zazen, there no happiness, no trace of happiness. Just one. At that time, you don’t know. This is what is called *enlightenment*. But most people think enlightenment is still sort of “dregs”, the trace left behind your experience. That means always touching the top of the enlightenment, but this is just the image of enlightenment. Real enlightenment is no trace. That is zazen. And then, when you really return home like this, you are exactly one in the realm of [source], which is called *karma*. And then, you can see karma, what karma is. It’s real. You can touch it.
-
-#### 54:31
+So if you see happiness at the first stage of zazen… completely, at the (fourth) stage of zazen, there no happiness, no trace of happiness. Just one. At that time, you don’t know. This is what is called *enlightenment*. But most people think enlightenment is still sort of “dregs”, the trace left behind your experience. That means always touching the top of the enlightenment, but this is just the image of enlightenment. Real enlightenment is no trace. That is zazen. And then, when you really return home like this, you are exactly one in the realm of [source], which is called *karma*. And then, you can see karma, what karma is. Really. You can touch it.
 
 And this *karma* is really the basic nature of your life. This is not only a particular person; all human beings are just like this. 
 
-#### 
+#### 54:46
 
-So you cannot understand karma through literature, or through your experience in daily life, or through philosophical understanding, through metaphysical, or through [sight]. Whatever you do: nothing. It makes you crazy. All you have to do is, just sit in meditation, zazen. That’s all. *[Pause.]* I’m sorry for you, anyway. *[A few laughs from those sitting close by.]* And then you believe it’s ridiculous, because, you say, “Katagiri says in zazen there is nothing, but it’s there!” What? It’s pain. But even the pain, pain is not something [that is] here, because the pain you believe, you say it’s real, but I don’t think so. If you think the pain is real, that pain is here – *[presumably pointing to his head]* – in [your head]. That is the image of pain. Whatever you think, pain doesn’t care. 
+So you cannot understand karma through literature, or through your experience in daily life, or through philosophical understanding, or metaphysical, or through [sight]. Whatever you do: nothing. It makes you crazy. Just through meditation, zazen. That’s all. *[Pause.]* I’m sorry for you, anyway. *[A few laughs from those sitting close by.]* And then you believe it’s ridiculous, because, you say, “Katagiri says in zazen there is nothing, but it’s there!” What? “It’s pain.” But even pain: pain is not something [that is] here, because the pain you believe, you say it’s real, but I don’t think so. If you think the pain is real, that pain is *here* – *[presumably pointing to his head]* – in [your head]. That is the image of pain. Whatever you think, pain doesn’t care. 
 
-So pain is what? Pain happens, occurs under certain circumstances. Means, when you sit down like this, pain comes up: “Hello, Katagiri. What are you doing?” “You are (I am) doing zazen.” "Oh. You are dead person?” “No.” “Why?” “Because, why not.” “Why?” “Because I am alive.” “Oh, okay, I will give you pain.” *[Laughter.]* This won’t go away. And then when you stand up from zazen, from your seat, well, pain goes away. But you say the pain is here, it’s real! That is an image of your pain. Don’t you think so? It’s an image. And then you play with image of pain; finally you act. Psychological, mental, anyway suffering, to pain itself. But pain doesn’t care. This pain, it really doesn’t care. If you add something to this, it’s huge; becomes monster. Finally: “I hate zazen.” So you quit. Very naturally, you quit. But, it’s not zazen. Completely nothing there. That’s why you feel boredom. It’s really boring. And then you say, “Boring. Boredom is really something real.” But it is not boring; boring doesn’t care also. Under certain circumstances, boredom comes up. Because you have done, you have been beating(?) with taking care of your mind, going out in your daily life. Thats when you return to your mind, you feel boredom, because nothing to deal with, something else, an object. All you have to do is take care of your mind. So, mind takes care of the mind. You’re boring. That’s it. 
+So pain is what? Pain occurs under certain circumstances. That means, when you sit down like this, pain comes up, [and says,] “Hello, Katagiri. What are you doing?” 
 
-#### 58:15
+“[I am] doing zazen.” 
 
-So you really hate. But this mind, this zazen, boredom is… Some would say main purpose of zazen is to feel the boredom, to research boredom. *[He laughs.]* I don’t think so. If you feel the boredom, and analyze, criticize the boredom, that is really you are chasing after image of the boredom. Boredom is, boredom comes from where? Boredom comes from your discursive thinking, that’s all. And then… Anyway, if I give you a certain sweet candy, boredom is gone. If I don’t, you really feel boredom. That’s all. So what is boring? Boring means, “Bye-bye.” When you’re done, well, boredom come up (?). This is zazen, really zazen.
+“Oh. Are you a dead person?” 
 
-Finally, complete nothing. But if there is nothing, all you have to do is come back home and sit. Just sit down. With form. It’s gone. That is what is called experience. Experience through zazen. … see yourself. Finally, all … completely nothing. All you have to do is just sit down… And then, this is pretty good way to know, to get taste of what karma is. 
+“Well, no.” 
+
+“Then, why?” 
+
+“Because, why not?” 
+
+“Why?”
+
+“Because I am alive.”
+
+“Oh, okay. I will give you pain.” *[Laughter.]* 
+
+It just won’t go away. And then when you stand up from your seat, well, the pain goes away. 
+
+But you say, “The pain is *here*; it’s real!”
+
+“I am the *image* of your pain!” 
+
+Don’t you think so? It’s an image. And then you play with the image of pain. Finally, you add psychological, mental suffering to pain itself. But pain doesn’t care! This pain, it really doesn’t care. 
+
+If you add something to this, it’s *huge*; it becomes a monster. Finally, you say, “I hate zazen.” So you quit. Very naturally, you quit. But, it’s not zazen. Completely [there is] nothing there. That’s why you feel boredom. It’s really boring! And then you say, “The boredom is really something real.” But it is not; boring also doesn’t care. Just, under certain circumstances, boredom comes up. Because you have been busy with taking care of your mind, going out in your daily life. That’s why when you return to your mind, you feel boredom, because there is nothing to deal with as an object. All you have to do is take care of your mind. So, mind takes care of the mind. *[He laughs.]* “You’re boring.” That’s it. 
+
+So you really hate that. But some would say main purpose of zazen is to feel the boredom, to research boredom. *[He laughs.]* I don’t think so. If you feel the boredom, and analyze or synthesize the boredom, that is really that you are chasing after the image of the boredom. Boredom comes from where? Boredom comes from your discursive thinking, that’s all. And then, if I give you a certain sweet candy, boredom is gone. If I don’t, you really feel boredom. That’s all. So what is boredom? Bordom means, “Bye-bye.” When you’re done, well, boredom comes up. 
+
+This is zazen, really zazen. Finally, completely nothing. But if there is nothing, all you have to do is come back home and sit, just sit down. With whom? With [yourself]. That is what is called experience. Experience through zazen. […] see yourself. Finally, completely nothing, all you have to do is just sit down. And then, this is a pretty good way to get taste of what karma is. 
 
 #### 1:00:12
 
-So, today, two points, what I taught. One point is, the location of the karma is really in source of one’s life. That karma in the source of, in the ground of, really the fundamental ground of one’s life, is not something you try to understand intellectually. No way. Nothing else to understand. All you have to do is, finally, return home, just sitting. This is zazen. Only through zazen, you really cross that they have access to what karma is, what human nature is. And then if you continue to do zazen like this, you really understand the total picture of karma.
+So, today, two points that I taught. 
 
-I would like to continue still; we have to have three or four questions; I would teach more, but. Today, please remember these two points. Karma is source of human life. Description of one’s existence. And also, there is no other way, just sit. There is no other way but just to sit. This is just a way to know what karma is.
+One point is, the location of the karma is really in source of one’s life. That karma in really the fundamental ground of one’s life, is not something you try to understand intellectually. No way. There is nothing else to understand. All you have to do is, finally, return home, just sitting. This is zazen. Only through zazen, you [are really close], that they have access to what karma is, what human nature is. And then if you continue to do zazen like this, you really understand the total picture of karma.
+
+I would like to continue still, but we have to have three or four questions. I would teach more, but today, please remember these two points: that karma is the source of human life, sort of the description of one’s existence. And also, that there is no other way but just to sit. This is just a way to know what karma is.
 
 Do you have questions?
 
-**Person 1**: So what you suggest when you get pain is to - and I’ve experienced that if I try to fight it, it gets worse, and if I get into it, then I can stay with it, but then all of a sudden inside my mind, all of a sudden, that’s it, and then I have to move with it. So, does it get better with sitting? 
+#### 1:02:24
 
-**Katagiri**: Mmm, well, if you continue to sit, mmm, pain, you can be free from pain. So, getting better, you can get better. But, don’t worry too much, okay? Anyway, pain is also your friend. Because pain is coming from thought. Whatever you do, always pain. But not only zazen; if you want to be a sports man, a football player - always pain there. Even though you become a janitor, there’s always pain there. So, not only zazen.
+**Question**: So what you suggest when you get pain is to – and I’ve experienced that if I try to fight it, it gets worse, and if I get into it, then I can stay with it, but then all of a sudden inside my mind, all of a sudden, that’s it, and then I have to move... So, does it get better with sitting? 
 
-**Person 1**: I have a sensation, like, I can see my feet turning blue. Is there a danger to this? Am I sitting wrong, or what?
+**Katagiri**: Mmm, well, if you continue to sit, you can be free from pain. So, you can get better. 
 
-**Katagiri**: Well. No, no; it’s pretty much.
+But, don’t worry too much, okay? Anyway, pain is also your friend. Because pain is coming from thought. Whatever you do, always pain. But not only zazen; if you want to be a sports man, a football player – there is always pain there. Even though you become a janitor, there’s always pain there. So, not only zazen.
 
-**Person 1**: I mean, they do come back to life eventually.
+**Same person**: I have a sensation, like, I can see my feet turning blue. Is there a danger to this? Am I sitting wrong, or what?
 
-**Katagiri**: Yeah, but be careful, okay? Be careful sometimes, because if your feet get numb, sometimes after standing, usually numbness goes away. But if numbness is staying with your feet for long, you must be careful. Sometimes, such a thing can happen. But usually, when you stand up, the numbness gone, no problem. It’s very natural, because if you cross legs, circulation stops. The circulation stops, it’s very good for you. Next moment, after that, after stopping the circulation a while, circulation goes well. Just like day and night. You cannot always stay in the day time. If you want to get the vitality of the daytime, anyway you should sleep. So, stop the circulation for a while. That’s good.
+**Katagiri**: Well. No, no; it’s pretty much...
 
-**Person 2**: [Roshi](glossary#roshi), is it good to also work at strengthening your muscles? To do some other kinds of exercise, or running, so that your body would be strong, and it’s not going to eliminate the pain.
+**Same person**: I mean, they do come back to life eventually.
 
-**Katagiri**: Strength? Oh, yes. Yes. Flexible. 
+**Katagiri**: Yeah, but be careful, okay? If your feet get numb, sometimes after standing, usually numbness goes away. But if numbness is staying with your feet for a long time, you must be careful. Sometimes such a thing can happen. But usually, when you stand up, the numbness is gone, no problem. It’s very natural, because if you cross legs, the circulation stops. It’s very good for you. After stopping the circulation a while, circulation goes well. Just like day and night. You cannot always stay in the day time. If you want to get the vitality of the daytime, you should sleep. So, stop the circulation for a while. That’s good.
 
-**Person 2**: To be more flexible?
+**Question**: [Roshi](glossary#roshi), is it good to also work at strengthening your muscles? To do some other kinds of exercise, or running, so that your body would be strong, and it’s not going to eliminate the pain, but to be more flexible?
 
-**Katagiri**: Yes, that’s pretty much. In many ways we try to fit to zazen posture. If you want to do zazen, zazen never comes up to you; you cannot wait for zazen to come up to you. If you want to do zazen, you should go to zazen. Do you understand? For this, anyway, physically we should understand understand our human body and mind, and try to fit to zazen. For this, we have to exercise.
+**Katagiri**: Yes. In many ways we try to fit to zazen posture. If you want to do zazen, zazen never comes up to you; you cannot wait for zazen to come up to you. If you want to do zazen, you should go to zazen. Do you understand? For this, physically, we should understand understand our human body and mind, and try to fit to zazen. For this, we have to exercise.
 
-**Person 3**: I was concerned because the conditioning expert who came and taught us some exercises and some stretches said that our knees shouldn’t bend that way, they should just bend this way. Just this way, and not this way.
+**Question**: Roshi? I was concerned because the conditioning expert who came and taught us some exercises and some stretches said that our knees shouldn’t bend that way, that they should just bend this way.
 
 **Katagiri**: What is the question?
 
-**Person 3**: Well I felt concerned about that, because she felt it was not good for our knees to sit in posture.
+**Same person**: Well I felt concerned about that, because she felt it was not good for our knees to sit in posture.
 
 **Katagiri**: Oh. Do you think so? 
 
-**Person 3**: I don’t know. There’s a rumor going around that it’s not. 
+**Same person**: I don’t know. There’s a rumor going around that it’s not. 
 
-**Katagiri**: I don’t know, biologically speaking. Maybe so, but there is no worry. You cannot do always something good, perfectly, okay? That is your diet, or whatever you do. Even though you live here, do you take in the completely fresh air? Pure air? Actually intellectually, we want. But look at this room! It’s really dirty, dusty. We cannot see this room’s air; but if morning sun comes in, you can see lots of dust, don’t you think so? We always take a breath in such a situation. But we’re alright. But I don’t think, I don’t want to recommend you to get dirty air. I don’t think so. But I don’t recommend you to take always pure air. Anyway, sometimes, dirty. *[Laughter.]* But I don’t mean to break your legs. *[Laughter.]* So listen to that situation, okay? You know, assess (accept?). For instance, people will have problem with low back; all chiropractors say, “Don’t sit; sitting make you worse.” But, we’re sitting. Intellectually it’s not good, because if your spine is wrong, sort of like this, then… pressure. You know, wrong. So it’s not good, but even though you sit, or even though you stand up, it’s always pressure. Better way is, you should lie down, that’s better. But you cannot lie down all day; you have walk and you have to go someplace. If you stand up, immediately pressure comes. Do you understand? So why is it all chiropractors refuse sitting? Only see, if chiropractors refuse sitting, they should refuse standing or walking too; just lie down. Don’t you think so? 
+**Katagiri**: I don’t know, biologically speaking. Maybe so, but there is no worry. You cannot do always something perfectly, okay? For instance, your diet, or whatever you do. Even though you live here, do you take in completely fresh, pure air? Intellectually, we want that. But look at this room! It’s really dirty, dusty. We cannot see this room’s air, but if morning sun comes in, you can see lots of dust, don’t you think so? We always take a breath in such a situation. But we’re alright. *[He laughs.]* I don’t want to recommend for you to get dirty air. I don’t think so. But I don’t recommend you to take always pure air. Sometimes, dirty. *[He laughs.]* But I don’t mean to break your legs, okay? *[Laughter.]* So listen to that situation? You know, assess. For instance, people will have a problem with their low back. All chiropractors say, “Don’t sit; sitting makes it worse.” But, we’re sitting. Intellectually it’s not good, because if your spine is wrong, sort of like this, then you have pressure. You know, wrong. So it’s not good, but even though you sit, or even though you stand up, it’s always pressure. The best way is, all way you should lie down, that’s better. But you cannot lie down all day! You have walk and you have to go someplace. If you stand up, immediately pressure comes. Do you understand? So why is it all chiropractors refuse sitting? Not only sitting; if chiropractors refuse sitting, they should refuse standing or walking too; just lie down. Don’t you think so? 
 
-So it’s not reasonable for me; but I don’t want to… I don’t tell anybody, “Please sit down, do zazen.” So I always say, please follow the chiropractor’s advice. But they still continue to sit. So maybe it’s true, but I don’t know. But I don’t have any problem.
+So it’s not reasonable for me; but I don’t tell anybody, “Please sit down, do zazen.” I always say, “Please follow the chiropractor’s advice.” But they still continue to sit. 
+
+So maybe it’s true, I don’t know. But I don’t have any problem.
 
 #### 1:10:30
 
-**Person 4**: I’m trying to understand something from two different - I think it’s the same thing, from two different angles. The one is, you said that consciousness comes from ignorance. Or did that, am I understanding that? And also karma?
+**Question**: I’m trying to understand something – I think it’s the same thing from two different angles. The one thing is, you said that consciousness comes from ignorance. Am I understanding that? And also karma?
 
-**Katagiri**: Related, yes. Consciousness acts. Attribute of ignorance. Action of consciousness is based on saṃskāra. Do you understand? Saṃskāra means basic first  thing; some action. So, the action of consciousness is based on saṃskāra. And then, consciousness acts. Acts means… Consciousness acts with attribute of ignorance.
+**Katagiri**: [Related], yes. Consciousness acts, [attribute] of ignorance. The action of consciousness is based on *saṃskāra*. Do you understand? *Saṃskāra* means the basic first stage of some action. So, the action of consciousness is based on *saṃskāra*. And then, consciousness acts – acts means saṃskāra – consciousness acts with attribute of ignorance.
 
-**Person 4**: So they’re related, but karma is the source of consciousness.
+**Same person**: So they’re related, but karma is the source of consciousness.
 
 **Katagiri**: Yes, related. So that’s why karma creates consciousness. 
 
-**Person 4**: That’s why?
+**Same person**: That’s why?
 
-**Katagiri**: Yes, that’s why. Consciousness is produced by saṃskāra. Because this is original nature of … consciousness is action. Or you can say, from a different angle, consciousness creates saṃskāra too.
+**Katagiri**: Yes, that’s why. Consciousness is produced by *saṃskāra*. Because this is the original nature of consciousness’s actions. [...] Or you can say, from a different angle, consciousness creates *saṃskāra* too.
 
-**Person 4**: Okay. Then how is saṃskāra related to karma? How are they related?
+**Same person**: Okay. Then how is *saṃskāra* related to karma? 
 
-**Katagiri**: Karma is exactly saṃskāra itself. Karma is saṃskāra and also existence, Bhava (is karma). This is karma.
+**Katagiri**: Karma is exactly *saṃskāra* itself. Karma is *saṃskāra*, and also existence, *bhava*. This is karma.
 
-**Person 4**: Then the other thing I was wondering is from then, being related to ignorance, is that how karma, not understanding dualistic nature? Well maybe this is … too…
+**Same person**: Then the other thing I was wondering is, from them being related to ignorance, is that how karma, not understanding dualistic nature? Well, maybe this is too…
 
 **Katagiri**: Karma is action, already action. 
 
-**Person 4**: Is there a relation to ignorance? Our thoughts come and are trying to grasp…
+**Same person**: Is there a relation to ignorance? Our thoughts come and are trying to grasp…
 
 **Katagiri**: Because we don’t know where we are. We are here; but we don’t know where we are. Very naturally we want to know. Do you understand? 
 
-For instance, if you’re this room, you are here. Even though your consciousness doesn’t work, if you are here, you can feel something. You contact always. So very naturally, information comes from this room. Information, senses are… No, this room sends information to consciousness constantly, that’s why even though you try to ignore, you can know. You want to know. You are curious of where we are. But actually we can’t know what it is, exactly what it is. That’s why the more we try to know what it is, the truth, we cannot know. But we are there. And then… The truth give a lot of information to us. That’s what we cannot ignore, but we cannot know. That is a struggle. This is the basic situation. So, very naturally, there is no particular guarantee how to know what to do. But, all we have to do is just act. This is saṃskāra. Is that okay? 
+For instance, if you’re in this room, you are here. Even though your consciousness doesn’t work, if you are here, you can feel something. You contact always. So very naturally, information comes from this room. This room sends information to consciousness constantly; that’s why even though you try to ignore it, you can know. You want to know; you are curious of where we are. But actually we *can’t* know exactly what it is. That’s why the more we try to know what it is, the truth, we cannot know. But we are there. And then the truth gives a lot of information to us. That’s why we cannot ignore, but we cannot know. That is a struggle. This is the basic situation. So, very naturally, there is no particular guarantee how to know what to do. But, all we have to do is just act. This is *saṃskāra*. Is that okay? 
 
-**Person 4**: Yeah.
+**Same person**: Yeah.
 
-#### 1:15:12
-
-**Katagiri**: Well this is, through reality you can know. So for instance, you want to do zazen, intellectually, so you decide, “Yes, I would like to do zazen.” So you do. But when you sit down and do zazen, immediately you are skeptical. “Should I do? Practice stupid zazen forever? It’s ridiculous.” So immediately you think, “No, I want to do something better.” So immediately you try to go some other place. And then you move, but still, it is not exactly right, you have to depend on. Finally you say, “Is this right? Should I stay here always?” No. I don’t. So finally going that way, that way. So basically we are really driven by the stress of alternatives. Uneasy conditions, unstable conditions. Do you understand? This is what is called ignorance. But, we have to do. We have to say something, we have to do something. But, how dangerous, how unstable it is? We don’t know, we don’t know. That is delusion, what is called delusion. If you don’t now how uneasy, how unstable situation we are, that is what is called the foolish, ordinary people. If you realize it, you are wise man. 
-
-Is that okay? 
+**Katagiri**: Well, this is, through the reality you can know. So for instance, intellectually, you want to do zazen, so you decide, “Yes, I would like to do zazen.” So you do. But when you sit down and do zazen, immediately you are skeptical. “Should I do such a stupid zazen forever? It’s ridiculous!” So immediately you think, “No, I want to do something better!” So immediately you try to go some other place. And then you move, but still, it is not exactly [the right thing] you have to depend on. Finally you say, “Is this right? Should I stay here always? No. I don’t.” So finally going this way, that way. So basically we are really driven by the stress of alternatives: uneasy conditions, unstable conditions. Do you understand? This is what is called *ignorance*. But, we have to say something, we have to do something. But how dangerous, how unstable it is. We don’t know. That is what is called *delusion*. If you don’t now how uneasy, how unstable is the situation we are in, that is called the foolish, ordinary people. If you realize it, you are a wise person. 
 
 #### 1:17:05
 
-**Person 5**: Hojo-san, is my… My understanding is that my karma already is in motion. And I don’t know what it is, but there is a place where it exists. So that I’m obviously trying to find out my way - whether it will be through more zazen, or through less, or this way, or this way. And there’s… It sounds like there’s no guidance, other than my making that choice, I will go here or here. But that’s already determined somewhere. It feels like I’m choosing, I can do this or this. But what you’re saying is, in one sense it’s not my choice. 
+**Question**: Hojo-san, my understanding is that my karma already is in motion. And I don’t know what it is, but there is a place where it exists. So that I’m obviously trying to find out “my way,” whether it will be through more zazen, or through less, or this way, or this way. And… it sounds like there’s no guidance, other than my making that choice, I will go here or here. But that’s already determined somewhere. It feels like I’m choosing, that I can do this or this. But what you’re saying is, in one sense it’s not my choice. 
 
-**Katagiri**: No it’s not, yeah, but finally whatever you say, “not my choice,” “not your choice,” or “someone gives a choice” - whatever you say, that is the state of your life. Anger, and easy, and state of conditions. Whatever you say, there is not exactly something clear you can pin down. But under certain situations, conditions, you have to make a choice; this is reality, total picture of reality: you are there. So that’s why it’s very unstable, unstable field. But all you have to do is, do our best, to make a choice. Let’s do it. That’s all we have to do.
+**Katagiri**: It’s not, yeah, but finally whatever you say – “not my choice,” “not your choice,” or “someone gives a choice” – whatever you say, that is the state of your life. Anger, and ease and stable conditions – whatever you say, there is not exactly something clear you can pin down. But under certain situations or conditions, you have to make a choice. This is the total picture of reality; you are there. So that’s why it’s a very unstable field. But all you have to do is do our best to make a choice. Let’s do it. That’s all we have to do.
 
-#### 1:18:56
+**Same person**: But aren’t you saying that some choices would be better than others? Like a choice to be more disciplined in our practice would be a better choice?
 
-**Person 5**: But aren’t you saying that some choices would be better than others, like a choice to be more disciplined in our practice would be a better choice?
+**Katagiri**: Sure, a better choice. But I don’t know, what is a better choice? Better choice is the concept of “better” *you* create. So for instance, “Zen is better than some other religion,” whatever you say. What is Zen? What is “better”? If you come to Zen and then sit: “It’s not *better*, because you have to feel all this pain.” So very naturally, the concept of the better is always changing.
 
-**Katagiri**: Sure. Better choice. But I don’t know, better choice… what is a better choice? Better choice is, the conflict of the better … you create. So for instance, “Zen is better than some other religion,” whatever you say. What is Zen? What is “better”? So you come to Zen and then sit: “It’s not better, because you have to feel all this pain, it’s not better.” Very naturally, conflict of the better is always change.
+*[He chuckles.]* In Japan, Zen … appears different. In the United States, Zen appears in a different way. So what is better? That is the real situation, the total picture of your reality. But anyway, we have to make a choice of better or worse. Do you understand? Better or worse? But, you cannot completely depend on this “better” when you have made a choice. So, leave it alone. It’s just a choice.
 
-In Japan, Zen is… appears different. United States, Zen appears in a different way. So what is better? But, all you have to do… That is the real situation, total picture of your reality. But anyway, we have to make a choice of better or worse. Do you understand? Better or worse? But, you cannot completely depend on this better when you have made a choice. So, leave it alone. Just a choice.
-
-Okay? Do you understand?
-
-#### end of recording
+#### 1:20:31 end of recording
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
