@@ -158,7 +158,7 @@ So, no *joyful interest*, and then just *happiness* there. *Just happiness* mean
 
 And then at the fourth stage of zazen, completely there is no happiness, because there is no space to touch the happiness. If you touch the happiness, it means you see the happiness there, and you are here, and then this person looks at this happiness. At that time, this happiness is not real happiness. That is an image of happiness, don’t you think so? That’s why you touch it, just like this. And then you enjoy it very much; but at that time, while you are touching this happiness, that means that your six consciousnesses are still poking your head *into* this. That’s not *happiness*, that is *joyful interest*. 
 
-So if you see happiness at the first stage of zazen… completely at the (fourth) stage of zazen, there no happiness, no trace of happiness. Just *one*. At that time, you don’t know. This is what is called *enlightenment*. 
+So if you see happiness at the first stage of zazen… completely at the (fourth) stage of zazen, there is no trace of happiness. Just *one*. At that time, you don’t know. This is what is called *enlightenment*. 
 
 But most people think *enlightenment* is still sort of the “dregs,” the trace left behind your experience. That means always touching the top of the enlightenment, but that is just the image of enlightenment. Real enlightenment is no trace. That is zazen. And then, when you really return home like this, you are exactly one in the realm of source, which is called *karma*. And then, you can see karma, what karma is. Really. You can touch it.
 
