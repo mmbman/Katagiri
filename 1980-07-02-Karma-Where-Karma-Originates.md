@@ -16,37 +16,37 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording 
 
-In the first early morning [zazen](glossary#zazen), I said, “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (Disport: to enjoy oneself unrestrainedly; to frolic.) That’s why maybe I said after that, “playing freely.” That is to disport.
+In the first early morning [zazen](glossary#zazen), I said, “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic”.) That’s why maybe I said after that, “playing freely.” That is to disport.
 
-Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to Twelve Chain Causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
+Today, I would like to explain what part of one’s life [karma](glossary#karma) occupies. This is pretty difficult to explain, but let’s return to Twelve Chain Causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
 
-Let me say them again; please remember: 
+Let me [review the links] again; please remember: 
 
-First is *ignorance*, *avidyā*.
+First is *ignorance*: [in [Sanskrit](glossary#sanskrit),] *avidyā*.
 
 And *saṃskāra*: This is the first stage of movement, psychologically or physically. This is human process and function. 
 
-Next, *consciousness*, and *name and form*. (#3 *vijñāna* is consciousness; #4 *nāmarūpa* is name-and-form.) This is [that] all beings exist and we understand [them] through the name and form.
+Next, *consciousness*, and *name and form*. (#3 *vijñāna* is *consciousness*; #4 *nāmarūpa* is name-and-form.) This is [that] all beings exist and we understand [them] through the *name and form*.
 
-Fifth is *six consciousnesses*, six senses. (*Āyatana*)
+Fifth is *six consciousnesses*, six senses. (In Sanskrit, *Āyatana*.)
 
-Sixth is *tangibility*; *touch*. (*Sparśa* in [Sanskrit](glossary#sanskrit), or *phassa* in Pali. More commonly in English, *contact*.)
+Sixth is *tangibility*; *touch*. (*Sparśa* in Sanskrit, or *phassa* in Pali. More commonly in English, *contact*.)
 
 Seventh is *reception*, or *feeling*. (*Vedanā*)
 
 Eighth is *craving*. (*Taṇhā* in Pali.)
 
-Ninth is, what would you say, *grasping*. (Grasping: *Upādāna*; also *clinging* or *attachment*. Literally, “fueling the fires”.)
+Ninth is, what would you say, *grasping*. (Grasping is *upādāna* in Sanskrit and Pail. Also *clinging* or *attachment*. It literally means, “fueling the fires”.)
 
-Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*. When you say *being*, that being consists of already a system of subject and object; this is the picture of being. Do you understand? This is a *being*; we call this *being*, or *existence*. If you use a term *existence* or *being*, it’s already something consisting of subject and object. In other words, [dualism](glossary#dualism). This is existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here, that’s why I can see that here is a table; that’s why I can see the table itself. So that means already *existence*. So table always is something existent, something being. That means subject, object: dualism. That is the tenth; I will explain this one too.
+Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*. When you say *being*, that being consists of already a system of subject and object; this is the picture of being. Do you understand? This is a *being*; we call this *being*, or *existence*. If you use a term *existence* or *being*, it’s already something consisting of subject and object; in other words, [dualism](glossary#dualism). This is existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here, that’s why I can see that here is a table; that’s why I can see the table itself. So that means already *existence*. So table always is something existent, something being. That means subject, object: dualism. That is the tenth; I will explain this one too.
 
 And the others are *birth* (*jāti*), and last one is *old age and death* (*jarāmaraṇa*).
 
-In this Twelve Chain Causation, *karma* is the second one, *saṃskāra*, and also the tenth, *bhava*. Only two things: *bhava*, existence and being, and also *saṃskāra*. Just these two are karma. Remember this.
+In this Twelve Chain Causation, *karma* is the second one, *saṃskāra*, and also the tenth, *bhava*. Only two things: *bhava*, which is *existence* and *being*, and also *saṃskāra*. Just these two are *karma*. Remember this.
 
 #### 5:35
 
-And also *mumyo* – [the Japanese word for the] first one, *ignorance* – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. Because yesterday I told you that *mumyo* – ignorance, *avidyā* – is that which we are doomed not to understand. “Doomed” means fated. We are doomed not to understand what the truth is, as it is. We don’t understand, intellectually. We are all always there, but we don’t understand. We are “doomed” not to understand truth as it is. This is what is called “pain”: affliction. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel, anyway, and also we want to know. We want to know but we cannot understand, that’s why that is affliction, suffering. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. 
+And *mumyo* – [the Japanese word for the] first one, *ignorance* – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that which we are “doomed” not to understand. “Doomed” means fated. We are “doomed” not to understand what the truth is, as it is. We are all always there, but we don’t understand, intellectually. We are “doomed” not to understand truth as it is. This is what is called *pain*: *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel [it], and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. 
 
 And *avidyā*, ignorance; and *craving*, *grasping*; this is what is called *klesha*, delusion. 
 
@@ -70,13 +70,11 @@ So, let’s remind you that karma is *saṃskāra* and *being*. And also, *saṃ
 
 #### 12:33
 
-And then next, consciousness is there. But consciousness is produced by first stage of human action, (it is) encouraged by *avidyā*, ignorance. And then this consciousness enters into the present, the human world. You can get into it; you can get into the gate of the present life: *name and form*, *six consciousnesses*, et cetera. You can get in. That’s why *consciousness* is, in a sense, pretty important. *Consciousness* means including will, volition, or all mental / psychological functions; this is consciousness. [Dogen ](glossary#dogen) [Zenji](glossary#zenji) says that right before you die, that moment right before you die, you (can) chant the Triple Treasure, and you can take a vow to be reborn as a human being in the next life, to help all sentient beings. You can. Because, this is consciousness. Consciousness is really powerful! Why is consciousness very powerful? Because consciousness is created by the first stage of human action. You don’t know why you do this, you don’t know exactly, but you act. You act, already. By what? This is *ignorance*. *Ignorance* means you are there but you don’t know. You don’t know, but as long as you are there, you want to know. So finally, very naturally, you move. This is first stage of human movement.
+And then next, consciousness is there. But consciousness is produced by first stage of human action, (it is) encouraged by *avidyā*, ignorance. And then this consciousness enters into the present, the human world. You can get into it; you can get into the gate of the present life: *name and form*, *six consciousnesses*, et cetera. You can get in. That’s why *consciousness* is, in a sense, pretty important. *Consciousness* means including will, volition, or all mental / psychological functions; this is consciousness. [Dogen ](glossary#dogen) [Zenji](glossary#zenji) says that right before you die, that moment right before you die, you (can) chant the Triple Treasure, and you can take a vow to be reborn as a human being in the next life, to help all sentient beings. You can. Because, this is consciousness. Consciousness is really powerful! Why is consciousness very powerful? Because consciousness is created by the first stage of human action. You don’t know why you do this, you don’t know exactly, but you act. You act, already. By what? This is *ignorance*. *Ignorance* means you are there but you don’t know. You don’t know, but as long as you are there, you *want* to know. So finally, very naturally, you move. This is first stage of human movement.
 
-#### 15:08
+So, the first stage of human movement, according to my term, this is really vitality. In a good sense, this is really vitality. Don’t you think so? But in a sense you don’t know what the truth is, you cannot understand, that’s why you suffer. You are *afflicted* with human life: that is basic nature of human being. But in a sense, by this, attached to this ignorance, we are moving: moving, acting and creating consciousness, and by the consciousness we can get in human world. 
 
-So, the first stage of human movement, according to my term, this is really *vitality*. In a good sense, this is really vitality. Don’t you think so? But in a sense you don’t know what the truth is, you cannot understand, that’s why you suffer. You are *afflicted* with human life: that is basic nature of human being. But in a sense, by this, attached to this ignorance, we are moving: moving, acting and creating consciousness, and by the consciousness we can get in human world. 
-
-So from this point, *ignorance* is really dumb. *[Hesitant laughter.]* For in a sense, attached to *dumbness*, we can get into human world. Don’t you think so? That is what is called… well, according to me, this is really vitality in human life. Don’t you think so? If you don’t, if you always understand the truth and you are always there, well you cannot get the vitality, because you are always in heaven. *[Unintelligible.]* No suffering; you are always there in the heaven. You know heaven? Heaven is really paradise. No suffering. Completely no suffering, because if you want anything, if even for a moment if you think, “I want,” immediately something happens. Everything you want is given to you, so it’s not necessary to suffer. That is heaven; paradise. Everybody wants to go there; that’s why we struggle in human life. But apparently, if you go to paradise, you’re really boring. *[Laughter.]* It’s not where human beings should be! So, you’re lucky, anyway, to suffer. *[Scattered laughter and sighs.]* Because suffering is really vitality; creating human vitality to live. Even though you don’t like it, it is true, according to these twelve causations. Don’t you think so? 
+So from this point, *ignorance* is really dumb. *[Hesitant laughter.]* For in a sense, attached to *dumbness*, we can get into human world. That is what is called… well, according to me, it is really vitality in human life. If you don’t [have ignorance], if you always understand the truth and you are always there, well you cannot get the vitality, because you are always in heaven. *[Unintelligible.]* No suffering; you are always there in the heaven. You know heaven? Heaven is really paradise. Completely no suffering, because if you want anything, if even for a moment you think “I want,” immediately something happens. Everything you want is given to you, so it’s not necessary to suffer. That is heaven; paradise. Everybody wants to go there; that’s why we struggle in human life. But apparently, if you go to paradise, you’re really bored. *[Laughter.]* It’s not where human beings should be! So, you’re lucky, anyway, to suffer. *[Scattered laughter and sighs.]* Because suffering is really vitality; creating human vitality to live. Even though you don’t like it, it is true, according to these twelve causations. Don’t you think so? 
 
 Where does *ignorance* come from? We don’t know. Where do *you* come from? You were born from your mothers. Why did you choose your mothers? We don’t know. When you are conscious of where you are, it’s too late! *[Laughter.]* You are already in the mother’s womb. And already if you are conscious of where you are, you’re already in the mother’s womb, and you are already moving. Don’t you think so? 
 
@@ -90,15 +88,17 @@ So karma is very difficult to understand. Where table is and where Katagiri is. 
 
 Do you understand? What I want to tell you is, what portion of one’s life karma occupies. Karma occupies the very original nature, very basic portion of one’s life. In other words, karma is the source. Karma is something you can depend on; that one’s life depends on. 
 
-In the Buddhist scriptures it explains in a different way, like this; a very interesting point. I don’t know how I can say, how I can translate, but: The scripture explains, We have karma, but karma is sort of like this; karma is *once-around*. In Sanskrit we say *karmavaca*(?). *Karmavaca*(?) means having one’s own actions as one’s property. This is, we have karma as what is called one’s own property. That property is a place where you live in. So that’s very basic. 
+In the Buddhist scriptures it explains in a different way, like this; a very interesting point. I don’t know how I can say, how I can translate, but: The scripture explains, We have karma, but karma is sort of like this; karma is *once-around*. In Sanskrit we say *karmasvaca*. *Karmasvaca* means having one’s own actions as one’s property. This is, we have karma as what is called one’s own property. That property is a place where you live in. So that’s very basic. 
 
 And next, it says karma is *karmadāyāda* (see https://www.wisdomlib.org/definition/karmadayada) - *dāyāda* means inheritance of action. Inheritance of action means karma has been lasting since beginning past; it’s going on. And also you are the inheritor, or successor, of karma. This is what is called *karmadāyāda*; it means inheritance of an action. 
 
 Next it says, karma is *karmayoni*. *Karmayoni* means source of an action. *Action* means *karma*. Generally speaking, karma is understood as general action, including physical action, including even  psychological action. That is the karma; that’s why it’s the source of action. And next, the karma is really occupying in the source of human action. That is the very basic nature of action. 
 
-And karma is *karmabandhu*(?); *karmabandhu* means “friend” of action. Karma is really your friend. So you cannot keep away from it. It is always with you, like a friend, or relative, or parents.
+And karma is *karmabandhu*; *karmabandhu* means “friend” of action. Karma is really your friend. So you cannot keep away from it. It is always with you, like a friend, or relative, or parents.
  
-And also karma is *karmapratisarana*. *Karmapratisarana* means that which one’s life depends on; a place which one’s life depends on. This is *karmapratisarana*. 
+And also karma is *karmapratiśaraṇa*. *Karmapratiśaraṇa* means that which one’s life depends on; a place which one’s life depends on. This is *karmapratiśaraṇa*. 
+
+(Transcriber’s Note: For details on the above, perhaps see *Abhidharmasamuccaya: The Compendium of the Higher Teaching* by Asanga.)
 
 #### 28:10
 
@@ -118,17 +118,19 @@ That’s why *karma* is a yard or garden, and *consciousness* is a seed. And the
 
 #### 37:05
 
-Let me say simply what I have taught today. What I want to tell you is that karma is the great source of one’s life. That’s why you cannot understand. If you try to understand karma intellectually, what the Buddhist scripture says, you become crazy and confused. So how do you know this? There is only one way: that is meditation, zazen. Handed down from generation to generation. Turning back: return to source, return to home. And sit there! But we don’t know exactly how to explain why we have to do this. 
+Let me say simply what I have taught today. What I want to tell you is that karma is the great source of one’s life. That’s why you cannot understand [it]. If you try to understand karma intellectually, [understand] what the Buddhist scripture says, you become crazy and confused. So how do you know this? There is only one way: that is meditation, zazen. Handed down from generation to generation. Turning back: return to source, return to home. And sit there! But we don’t know exactly how to explain why we have to do this. 
 
 In daily life, in our consciousness we don’t know, we don’t have enough space to look at our selves and look at source of our lives, because consciousness is always going out. That’s why it’s very difficult. But while you are going out, there are lots of things you are interested in; that’s why you feel joyful. But actually it’s not. That joy comes not from you, [but] from others, because your consciousness always going out. And then you feel joyful, but that joy is coming not from you but from others. Strictly speaking there is no sense of subjectivity, which is called “Katagiri”. That is human being. Because Katagiri is sort of a person dragged away constantly by something else, always. So that’s why we don’t have any space to look at who I am, who you are, and where you are. But: if you come back, return to you and sit [there], at that time exactly you can be there.
 
-But the problem is, maybe you think to return to home is pretty easy. But I don’t think it’s pretty easy. If you return home, maybe you will complain for months! Because if you return home – completely nothing. That’s why you complain or grumble at such a situation. And then finally, what are you doing when you come back home? You are always thinking. You are checking out the thoughts, and you are roaming around.
+But the problem is, maybe you think to return to home is pretty easy. But I don’t think it’s pretty easy. If you return home, maybe you will complain for months! Because if you return home – completely nothing. That’s why you complain or grumble at such a situation. And then finally, what are you doing when you come back home? You are always thinking. You are checking out the thoughts, and you are roaming around. *[He laughs.]*
 
-According to [Buddhism](glossary#buddhism), there are four stages of Zen. In the first stage of Zen, all unwholesome dharma – unwholesome dharma means unwholesome things, including physical and mental, or whatever it is – if you get into zazen meditation, in the first stage of zazen, you can experience no unwholesome thing. Because you don’t bring it up, if you sit down like this. It’s really true. Maybe you cannot do anything, because your legs are fully cross-legged, crossing each other; your hands are like this [so] you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, facing the wall, so you can’t see anybody. And also your thinking is coming and sitting in zazen. So all things come back to zazen; there is nothing you can do.
+#### 40:50
 
-But still you think, “I am a bad boy.” That is already imagination, so you can think. Imagination is imagination. If you don’t know [remember] anything, imagination disappears. [So notice.] You cannot put a label on that imagination. If you like you, can chase after it, but all you have to do is, just to exhaust, that’s all. So, in zazen, if you return to you, all unwholesome things stop. This is very true.
+[But it means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. In the first stage of Zen, all unwholesome dharma... unwholesome dharma means unwholesome things, including physical and mental, or whatever it is. If you get into zazen meditation, in the first stage of zazen you can experience no unwholesome thing, because you don’t bring it up if you sit down like this. It’s really true. Maybe you cannot do anything, because your legs are fully cross-legged, crossing each other; your hands are like this [so] you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, facing the wall, so you can’t see anybody. And also your thinking is coming and sitting in zazen. So all things come back to zazen; there is nothing you can do.
 
-And then, next, there are three important things still left. That is, which is called *vitarka* in Sanskrit,  and also *vicāra*. *Vitarka* means thought. Thought consists in [setting] the human consciousness to an object. This is thought. In other words, we are always thinking something: *I* see *this*. [...] So, the thought consists in setting human consciousness to one [object]. This is thought. That is which is called *vitarka*. So in other words, in zazen still you attach to the object. Well, I [will talk about this] later. And also *vitarka* means *discursive thinking*. You can realize this, don’t you think so? Your thinking is going on and on, in zazen. 
+But still you think, “I am a bad boy.” That is already imagination, so you can [think]. Imagination is imagination. If you don’t [remember] anything, imagination disappears. [So just notice.] You cannot put a label on that imagination. If you like, you can chase after it, but all you have to do is just to exhaust [yourself], that’s all. So, in zazen, if you return to you, all unwholesome things stop. This is very true.
+
+And then, next, there are three important things still left. That is, which is called *vitarka* in Sanskrit,  and also *vicāra*. *Vitarka* means thought. Thought consists in [setting] the human consciousness to an object. (Transcriber’s Note: When Katagiri Roshi refers to *vitarka* here, he probably means *vitarka-vicāra*, the two together. Basically, awareness of an object, and investigation of the object.) This is thought. In other words, we are always thinking something: *I* see *this*. [...] So, the thought consists in setting human consciousness to one object. This is thought; that is which is called *vitarka*. So in other words, in zazen still you attach to the object. Well, I [will talk about this] later. And also *vitarka* means *discursive thinking*. You can realize this, don’t you think so? Your thinking is going on and on, in zazen. 
 
 Well, if you sit down, there is completely nothing for you to do; but you can do many things. What do you do? Chasing all the thoughts, and roaming around, thinking. But thinking and thoughts are completely something you do in the [dualistic](glossary#dualistic) world, and also the problem is that they are all imagination, just imagination. What do you think? All imagination. So in zazen, you’re really playing with imagination. *[There is the loud sound of a plane in the background.]* But finally, there is nothing to do, because you realize how stupid you are. If you are chasing after the plane with thoughts, imagination, [you realize] how stupid you are. Finally you think: how stupid zazen is. *[Laughter.]* It’s not the [fault] of zazen, *you* thought it, don’t you think so? *You* thought it, because you are chasing after thought, imagination. And then finally you criticize zazen: how stupid zazen is. I don’t think so; *you* are stupid. *[He laughs.]* Don’t you think so? I’m sorry, *[unintelligible]*. *[Laughter.]*
 
@@ -140,7 +142,7 @@ Well, if you return home exactly, you can experience this, because this is what 
 
 ... you start to poke your head into that joy, because you don’t know, but you feel something. So you start to poke your head into *joy*. That is *pīti* in Sanskrit: *joyful interest*. (See [encyclopediaofbuddhism.org/wiki/Pīti](https://encyclopediaofbuddhism.org/wiki/Pīti) and [en.wikipedia.org/wiki/Pīti](https://en.wikipedia.org/wiki/Pīti).) But *joyful interest* is still your six consciousness always working; that’s why you start to poke your head into joyful interest. But [...] next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
 
-[Again,] at the first stage you can experience five consciousness. One is *vitarka*, and [then] *vicāra*, and also *pīti* – *pīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses. You can experience [those] five things psychologically. And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! And then finally ... nothing. This is zazen. 
+[Again,] at the first stage you can experience five consciousness. One is *vitarka* and [then] *vicāra*. And also *pīti* – *pīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses. You can experience [those] five things psychologically. And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! And then finally ... nothing. This is zazen. 
 
 And then at the second stage of zazen... At the first stage of zazen, you realize how stupid you are, because always chasing after [thoughts], thinking, and because, why you feel so, because you completely exhaust, chasing. If you sit a seven day [sesshin], you really understand this. The first day, second day, you really struggle – trying to make your mind calm. The third day, fourth day, well – you start to get *tired*, really get tired. The fourth, fifth day, you start to give up chasing after thoughts, because you start to realize, “How stupid I am.” Because you exhaust. Finally the sixth, seventh day, you completely give up all thoughts. That’s pretty nice. And finally, even though you are completely beyond trying or not trying, you can do zazen. Just sit down.
 
@@ -152,19 +154,23 @@ And at the second stage of zazen, then *vitarka* and *vicāra* both drop off. An
 
 Then at the third stage, gradually your interest in zazen is snowballing. So you try to poke your head into *joyful interest*, what the truth is. Finally, in the realm of *joyful interest*, still your consciousness works, but finally, the six consciousnesses also drop off. Very naturally, all you have to do is just sit down. And then, there is a smile, a little smile. And then you can be exactly one with zazen.
 
-So, no *joyful interest*, and then just *happiness* there. *Just happiness* means exactly *samādhi* itself. *Samādhi* is oneness. 
+So, no *joyful interest*, and then just *happiness* there. *Just happiness* means exactly *samādhi* itself. *Samādhi* is *oneness*. 
 
 And then at the fourth stage of zazen, completely there is no happiness, because there is no space to touch the happiness. If you touch the happiness, it means you see the happiness there, and you are here, and then this person looks at this happiness. At that time, this happiness is not real happiness. That is an image of happiness, don’t you think so? That’s why you touch it, just like this. And then you enjoy it very much; but at that time, while you are touching this happiness, that means that your six consciousnesses are still poking your head *into* this. That’s not *happiness*, that is *joyful interest*. 
 
-So if you see happiness at the first stage of zazen… completely at the (fourth) stage of zazen, there no happiness, no trace of happiness. Just *one*. At that time, you don’t know. This is what is called *enlightenment*. But most people think enlightenment is still sort of “dregs”, the trace left behind your experience. That means always touching the top of the enlightenment, but that is just the image of enlightenment. Real enlightenment is no trace. That is zazen. And then, when you really return home like this, you are exactly one in the realm of source, which is called *karma*. And then, you can see karma, what karma is. Really. You can touch it.
+So if you see happiness at the first stage of zazen… completely at the (fourth) stage of zazen, there no happiness, no trace of happiness. Just *one*. At that time, you don’t know. This is what is called *enlightenment*. 
+
+But most people think *enlightenment* is still sort of the “dregs,” the trace left behind your experience. That means always touching the top of the enlightenment, but that is just the image of enlightenment. Real enlightenment is no trace. That is zazen. And then, when you really return home like this, you are exactly one in the realm of source, which is called *karma*. And then, you can see karma, what karma is. Really. You can touch it.
 
 And this *karma* is really the basic nature of your life. This is not only a particular person; all human beings are just like this. 
 
 #### 54:46
 
-So you cannot understand karma through literature, or through your experience in daily life, or through philosophical understanding, or metaphysical, or through [sight]. Whatever you do: nothing. It makes you crazy. Just through meditation, zazen. That’s all. *[Pause.]* I’m sorry for you, anyway. *[A few laughs from those sitting close by.]* And then you believe it’s ridiculous, because, you say, “Katagiri says in zazen there is nothing, but it’s there!” What? “It’s pain.” But even pain: pain is not something [that is] here, because the pain you believe, you say it’s real, but I don’t think so. If you think the pain is real, that pain is *here* – *[presumably pointing to his head]* – in [your head]. That is the image of pain. Whatever you think, pain doesn’t care. 
+So you cannot understand karma through literature, or through your experience in daily life, or through philosophical understanding, or metaphysical, or through [sight]. Whatever you do: nothing. It makes you crazy. Just through meditation, zazen. That’s all. *[Pause.]* I’m sorry for you, anyway. *[A few laughs from those sitting close by.]* And then you believe it’s ridiculous, because, you say, “Katagiri says in zazen there is nothing, but it’s there!” What? “It’s pain.” But even pain: pain is not something [that is] here, because the pain you believe, you say it’s real, but I don’t think so. If you think the pain is real, that pain is *here* – *[presumably pointing to his head]* – in [your head]. That is the *image* of pain. Whatever you think, pain doesn’t care. 
 
-So pain is what? Pain occurs under certain circumstances. That means, when you sit down like this, pain comes up, [and says,] “Hello, Katagiri. What are you doing?” 
+So pain is what? Pain occurs under certain circumstances. That means, when you sit down like this, pain comes up, [and says,] 
+
+“Hello, Katagiri. What are you doing?” 
 
 “[I am] doing zazen.” 
 
@@ -180,7 +186,9 @@ So pain is what? Pain occurs under certain circumstances. That means, when you s
 
 “Because I am alive.”
 
-“Oh, okay. I will give you pain.” *[Laughter.]* 
+“Oh, okay. I will give you pain.” 
+
+*[Laughter.]* 
 
 It just won’t go away. And then when you stand up from your seat, well, the pain goes away. 
 
@@ -190,19 +198,19 @@ But you say, “The pain is *here*; it’s real!”
 
 Don’t you think so? It’s an image. And then you play with the image of pain. Finally, you add psychological, mental suffering to pain itself. But pain doesn’t care! This pain, it really doesn’t care. 
 
-If you add something to this, it’s *huge*; it becomes a monster. Finally, you say, “I hate zazen.” So you quit. Very naturally, you quit. But, it’s not zazen. Completely [there is] nothing there. That’s why you feel boredom. It’s really boring! And then you say, “The boredom is really something real.” But it is not; boring also doesn’t care. Just, under certain circumstances, boredom comes up. Because you have been busy with taking care of your mind, going out in your daily life. That’s why when you return to your mind, you feel boredom, because there is nothing to deal with as an object. All you have to do is take care of your mind. So, mind takes care of the mind. *[He laughs.]* “You’re boring.” That’s it. 
+If you add something to this, it becomes *huge*; it becomes a monster. Finally, you say, “I hate zazen.” So you quit. Very naturally, you quit. But, it’s not zazen. Completely [there is] nothing there. That’s why you feel boredom. It’s really boring! And then you say, “The boredom is really something real.” But it is not; boredom also doesn’t care. Just, under certain circumstances, boredom comes up. Because you have been busy with taking care of your mind, going out in your daily life; that’s why when you return to your mind you feel boredom, because there is nothing to deal with as an object. All you have to do is take care of your mind. So, mind takes care of the mind. *[He laughs.]* “You’re boring.” That’s it. 
 
 So you really hate that. But some would say main purpose of zazen is to feel the boredom, to research boredom. *[He laughs.]* I don’t think so. If you feel the boredom, and analyze or synthesize the boredom, that is really that you are chasing after the image of the boredom. Boredom comes from where? Boredom comes from your discursive thinking, that’s all. And then, if I give you a certain sweet candy, boredom is gone. If I don’t, you really feel boredom. That’s all. So what is boredom? Bordom means, “Bye-bye.” When you’re done, well, boredom comes up. 
 
-This is zazen, really zazen. Finally, completely nothing. But if there is nothing, all you have to do is come back home and sit, just sit down. With whom? With [yourself]. That is what is called experience. Experience through zazen. […] see yourself. Finally, completely nothing, all you have to do is just sit down. And then, this is a pretty good way to get taste of what karma is. 
+This is zazen, really zazen. Finally, completely nothing. But if there is nothing, all you have to do is come back home and sit, just sit down. With whom? With [yourself]. That is what is called experience. Experience through zazen; […] see yourself. Finally, completely nothing. All you have to do is just sit down. And then, this is a pretty good way to get a taste of what karma is. 
 
 #### 1:00:12
 
 So, today, two points that I taught. 
 
-One point is, the location of the karma is really in source of one’s life. That karma in really the fundamental ground of one’s life, is not something you try to understand intellectually. No way. There is nothing else to understand. All you have to do is, finally, return home, just sitting. This is zazen. Only through zazen, you [are really close], that they have access to what karma is, what human nature is. And then if you continue to do zazen like this, you really understand the total picture of karma.
+One point is, the location of the karma is really in the source of one’s life. That karma, in the fundamental ground of one’s life, is not something you try to understand intellectually. No way. There is nothing else to understand. All you have to do is, finally, return home, just sitting. This is zazen. Only through zazen, you [are really close], that you have access to what karma is, what human nature is. And then if you continue to do zazen like this, you really understand the total picture of karma.
 
-I would like to continue still, but we have to have three or four questions. I would teach more, but today, please remember these two points: that karma is the source of human life, sort of the description of one’s existence. And also, that there is no other way but just to sit. This is just a way to know what karma is.
+I would like to continue, but we still have to have three or four questions. I would teach more, but for today please remember these two points: that karma is the source of human life, sort of the description of one’s existence. And also, that there is no other way but just to sit. This is just the way to know what karma is.
 
 Do you have questions?
 
@@ -210,9 +218,7 @@ Do you have questions?
 
 **Question**: So what you suggest when you get pain is to – and I’ve experienced that if I try to fight it, it gets worse, and if I get into it, then I can stay with it, but then all of a sudden inside my mind, all of a sudden, that’s it, and then I have to move... So, does it get better with sitting? 
 
-**Katagiri**: Mmm, well, if you continue to sit, you can be free from pain. So, you can get better. 
-
-But, don’t worry too much, okay? Anyway, pain is also your friend. Because pain is coming from thought. Whatever you do, always pain. But not only zazen; if you want to be a sports man, a football player – there is always pain there. Even though you become a janitor, there’s always pain there. So, not only zazen.
+**Katagiri**: Mmm, well, if you continue to sit, you can be free from pain, you can get better. But, don’t worry too much, okay? Anyway, pain is also your friend. Because pain is coming from thought. Whatever you do, [there is] always pain. Not only zazen; if you want to be an athlete, a football player – there is always pain there. Even though you become a janitor, there’s always pain there. So, not only zazen.
 
 **Same person**: I have a sensation, like, I can see my feet turning blue. Is there a danger to this? Am I sitting wrong, or what?
 
@@ -246,7 +252,7 @@ So maybe it’s true, I don’t know. But I don’t have any problem.
 
 **Question**: I’m trying to understand something – I think it’s the same thing from two different angles. The one thing is, you said that consciousness comes from ignorance. Am I understanding that? And also karma?
 
-**Katagiri**: [Related], yes. Consciousness acts, [attribute] of ignorance. The action of consciousness is based on *saṃskāra*. Do you understand? *Saṃskāra* means the basic first stage of some action. So, the action of consciousness is based on *saṃskāra*. And then, consciousness acts – acts means saṃskāra – consciousness acts with attribute of ignorance.
+**Katagiri**: [Related], yes. Consciousness acts [with attribute] of ignorance. The action of consciousness is based on *saṃskāra*. Do you understand? *Saṃskāra* means the basic first stage of some action. So, the action of consciousness is based on *saṃskāra*. And then, consciousness acts – acts means *saṃskāra* – consciousness acts with attribute of ignorance.
 
 **Same person**: So they’re related, but karma is the source of consciousness.
 
