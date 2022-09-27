@@ -122,23 +122,17 @@ So, the second point, briefly speaking: We have to understand deeply the origina
 
 According to *samskara*, everything is impermanent. It is really true. The original nature of action is nothing but action. Nothing to hold on to. If you put a certain label on action, called “action” – it is already an idea. Action is always *action*. There is nothing to stop. 
 
-#### 39:16
+From this point, we should understand all beings through individual experience. That is the five *skandhas*, and six consciousnesses, six sense organs, six objects. But at that time, unfortunately, cognition always appears in a different way, because the basic nature of human being is always working constantly, nothing to stop. From where does that cognition come? That cognition comes from the basic nature of action, which is called *samskara*. That’s why finally, you have to throw it away. You have to polish your individual understanding until it becomes universal, until you can touch the core of existence. At that time, it really becomes *all dharmas*; we call it *all sentient beings*.
 
-From this point, we should understand all beings through individual experience. That is the five *skandhas*, and six consciousnesses, six sense organs, six objects. But at that time, unfortunately, cognition always appears in a different way, because the basic nature of human being is always working constantly, nothing to stop. 
+So if you want to save all sentient beings, first you have to experience many things from your individual experience. So you, carrying your karmas, your heredity, your knowledge – you have to experience [many things]. But it is not good enough. You have to sink into the depths of the ocean, until you can touch the core of existence. At that time, it becomes really dharma, *all dharmas*. 
 
-From where does that cognition come? That cognition comes from the basic nature of action, which is called samskara. That’s why finally, you have to throw it away. You have to polish your individual understanding until it becomes universal, until you can touch the core of existence. At that time, it really becomes all dharmas; we call it all sentient beings.
-
-So if you want to save all sentient beings, first you have to experience many things from your individual experience. So you, carrying your karmas, your heredity, your knowledge – you have to experience [many things]. But it is not good enough. You have to sink into the depths of the ocean, until you can touch the core of existence. At that time, it becomes really dharma, all dharmas. 
-
-If you want to save all sentient beings, first handle the beings, the human beings or any beings, around you. Anyway, help. Experience, think carefully, and mutually help, in order to live in peace and harmony. 
-
-But still there are questions, problems. That’s why individually, we have to practice on a daily basis, in order to touch the core of existence. 
+If you want to save all sentient beings, first handle the beings, the human beings or any beings, around you. Anyway, help. Experience, think carefully, and mutually help, in order to live in peace and harmony. But still there are questions, problems. That’s why individually, we have to practice on a daily basis, in order to touch the core of existence. 
 
 #### 42:00
 
-To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called samskara.
+To experience the original nature of action – well of course, you can see it as an object. But it is not something you can see objectively, because already your body and mind are nothing but the original [nature] of action which is called *samskara*.
 
-From this point, well, you just accept. “Just accept” means not trying to get, not trying to learn. Before you try to learn, you *are learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
+From this point, well, you just accept. *Just accept* means not trying to get, not trying to learn. Before you try to learn, you *are learned*. “You are learned” means you are helped, you are supported; something makes it possible for your life to be present or to exist. 
 
 For instance, if I ask you to give a talk: first you try to study something. This is very important. Through your effort of studying a certain subject, you can learn something. But this is not good enough. So secondly, when you finish the preparation – *just talk*. “Just talk” means not an object you can experience individually. Completely you are supported by *talk*, already. In other words, you are *talked* by talk. It’s not “you teach,” okay? This is very true, don’t you think so? 
 
@@ -160,7 +154,7 @@ That is the second point of *all dharmas*. You should experience *all dharmas* i
 
 The same applies to zazen. Learn zazen: what is zazen? Well, philosophically, psychologically, you can learn this. But it’s not good enough! So just jump in, jump into zazen. So finally, zazen teaches you, zazen takes care of you. 
 
-Then you get it. “Oh, zazen is pretty good!” Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don’t know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called samskara. *Samskara* is impermanence, constantly working. That’s why this is the [content] of *all dharmas* in Buddhism. 
+Then you get it. “Oh, zazen is pretty good!” Sometimes zazen is not good, but ... in zazen you feel good, anyway. You don’t know what it is, but if you jump in, more or less, you can touch the core of zazen, which is called *samskara*. *Samskara* is impermanence, constantly working. That’s why this is the [content] of *all dharmas* in Buddhism. 
 
 #### 49:32
 
@@ -268,7 +262,7 @@ So, it must be something we should experience, that is the truth. But real truth
 
 **Katagiri**: Permanent? Oh. *[He laughs.]*
 
-Distinguishing mind is permanent. Oh. Let me think about that. *[Laughter.]*
+“Distinguishing mind is permanent.” Oh. Let me think about that. *[Laughter.]*
 
 That’s why Zen is very tricky... *[Laughter.]*
 
@@ -284,24 +278,21 @@ You understand, okay?
 
 *[The laughter eventually dies down.]*
 
-Well, without distinguishing mind, you cannot experience the truth, or Buddha Nature, whatever it is. From this point, it is very important for us. So, open your eyes, to take care of distinguishing mind as something permanent. You cannot destroy it.
-
-On the other hand, if you touch it, if you are involved too much, it becomes some trouble. 
+Without distinguishing mind, you cannot experience the truth, or Buddha Nature, whatever it is. From this point, it is very important for us. So, open your eyes, to take care of distinguishing mind as something permanent. You cannot destroy it. On the other hand, if you touch it, if you are involved too much, it becomes some trouble. 
 
 **Question**: [Person], would you repeat that statement please?
 
-**Person**: The distinguishing mind is permanent, and [enlightenment](glossary#enlightenment) is impermanent.
+**Person**: “The distinguishing mind is permanent, and [enlightenment](glossary#enlightenment) is impermanent.”
  
 **Katagiri**: That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is the human desire; that’s why you want to practice. But that is the individual understanding, when you see dharma from an individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, let your eyes open to see another aspect. That’s why he said the opposite.
 
-For instance, the first koan a Rinzai Zen master gives you is “nothing”. Well, *nothing* is completely something you are amazed by, because we don’t believe in that way. We believe everything exists, everything is real. But Zen says *nothing*: think this. That is a really big shock. That’s all.
+For instance, the first koan a Rinzai Zen master gives you is “nothing”. Well, *nothing* is completely something you are amazed by, because we don’t believe in that way. We believe everything exists, everything is real. But Zen says, “*Nothing*: think this.” That is a really big shock. That’s all.
 
 The big shock is very important. It isn’t important whether you understand it or not. The Zen teacher doesn’t expect you [to understand] in that way; it’s just to give you a big shock, like this. You cannot destroy the question; question becomes *[unintelligible]* nothing. That big shock is rooted in your mind. That’s very nice. 
 
 But first, get it. That’s why the Sixth Patriarch said it in that way.
 
 #### 1:09:29 end of recording
-
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
