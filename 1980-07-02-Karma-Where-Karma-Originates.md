@@ -24,7 +24,7 @@ Let me [review the links] again; please remember:
 
 First is *ignorance*: [in [Sanskrit](glossary#sanskrit),] *avidyā*.
 
-And *saṃskāra*: This is the first stage of movement, psychologically or physically. This is human process and function. 
+And *samskara*: This is the first stage of movement, psychologically or physically. This is human process and function. 
 
 Next, *consciousness*, and *name and form*. (#3 *vijñāna* is *consciousness*; #4 *nāmarūpa* is name-and-form.) This is [that] all beings exist and we understand [them] through the *name and form*.
 
@@ -42,7 +42,7 @@ Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*
 
 And the others are *birth* (*jāti*), and last one is *old age and death* (*jarāmaraṇa*).
 
-In this Twelve Chain Causation, *karma* is the second one, *saṃskāra*, and also the tenth, *bhava*. Only two things: *bhava*, which is *existence* and *being*, and also *saṃskāra*. Just these two are *karma*. Remember this.
+In this Twelve Chain Causation, *karma* is the second one, *samskara*, and also the tenth, *bhava*. Only two things: *bhava*, which is *existence* and *being*, and also *samskara*. Just these two are *karma*. Remember this.
 
 #### 5:35
 
@@ -64,9 +64,9 @@ And also, next is, you are born in this world, anyway, next, *old age and death*
 
 So, remember, this is karmic life, *karmic result*. Is that okay, is that clear? Remember this, otherwise you won’t understand. 
 
-So, first what I wanted to explain today is, the relationship between ... *ignorance*, and *saṃskāra*, and *consciousness*, and also number ten, *bhava*, being. 
+So, first what I wanted to explain today is, the relationship between ... *ignorance*, and *samskara*, and *consciousness*, and also number ten, *bhava*, being. 
 
-So, let’s remind you that karma is *saṃskāra* and *being*. And also, *saṃskāra* as karma is already produced by *avidyā*, ignorance. This is the first stage of human action; moved by, encouraged by what? Pure sense of action? No, it is *ignorance*. We don’t know. We don’t know exactly what the truth is, where you are. You don’t know the true face of existence. But you are there, that’s why you want to know. So finally *avidyā* is called *klesha*: we have *affliction*. So this *saṃskāra*, first stage of human action, is produced by this, *avidyā*. Remember this. 
+So, let’s remind you that karma is *samskara* and *being*. And also, *samskara* as karma is already produced by *avidyā*, ignorance. This is the first stage of human action; moved by, encouraged by what? Pure sense of action? No, it is *ignorance*. We don’t know. We don’t know exactly what the truth is, where you are. You don’t know the true face of existence. But you are there, that’s why you want to know. So finally *avidyā* is called *klesha*: we have *affliction*. So this *samskara*, first stage of human action, is produced by this, *avidyā*. Remember this. 
 
 #### 12:33
 
@@ -78,13 +78,13 @@ So from this point, *ignorance* is really dumb. *[Hesitant laughter.]* For in a 
 
 Where does *ignorance* come from? We don’t know. Where do *you* come from? You were born from your mothers. Why did you choose your mothers? We don’t know. When you are conscious of where you are, it’s too late! *[Laughter.]* You are already in the mother’s womb. And already if you are conscious of where you are, you’re already in the mother’s womb, and you are already moving. Don’t you think so? 
 
-So from where do you come? No choice, completely no choice. You don’t know from where you come, but you are there, and you are moving already. And then that basic first stage of human movement creates human consciousness. And *consciousness* leads you to get into the human world. That is *name*, *form*, *six consciousnesses*, and *contact*, *reception*, and *craving*, and *grasping*. And then this is really something that makes your life possible to exist: that is what is called *birth*. And then, next, we have to go to *old age and death*. But from this point, I think you can understand *karma*. What is karma? Karma is the first stage of movement, which is called *saṃskāra*. And then this *saṃskāra* movement is already … see something, understand something, hear something. Anyway … in the realm of world-system, that’s called dualism. Subject-object. That is called existence.
+So from where do you come? No choice, completely no choice. You don’t know from where you come, but you are there, and you are moving already. And then that basic first stage of human movement creates human consciousness. And *consciousness* leads you to get into the human world. That is *name*, *form*, *six consciousnesses*, and *contact*, *reception*, and *craving*, and *grasping*. And then this is really something that makes your life possible to exist: that is what is called *birth*. And then, next, we have to go to *old age and death*. But from this point, I think you can understand *karma*. What is karma? Karma is the first stage of movement, which is called *samskara*. And then this *samskara* movement is already … see something, understand something, hear something. Anyway … in the realm of world-system, that’s called dualism. Subject-object. That is called existence.
 
 #### 20:21
 
 So karma is what? Karma is really the basic nature of human action. But this karma is always acting toward subject and object. That means already karma always sets up a certain fixed idea: subject, object. Karma has already set up something. 
 
-So karma is very difficult to understand. Where table is and where Katagiri is. (Where) see-er is, where the seen is. Karma cannot understand the basic nature of existence which makes it possible for table and I to exist. Karma doesn’t know. Karma always acts in the realm of world-system, which is called dualism. Recall that karma is produced by ignorance. That’s why karma consists of the two, *saṃskāra* and *existence*. Do you remember? *Saṃskāra* and *existence*; that is the only two things karma. So karma really occupies a very basic portion of human life. You can get the description, describing who you are, what human being. In other words, karma is full of description of one’s life. Or, karma is really the *source* of one’s life. So, everyone is on the basis of karma. 
+So karma is very difficult to understand. Where table is and where Katagiri is. (Where) see-er is, where the seen is. Karma cannot understand the basic nature of existence which makes it possible for table and I to exist. Karma doesn’t know. Karma always acts in the realm of world-system, which is called dualism. Recall that karma is produced by ignorance. That’s why karma consists of the two, *samskara* and *existence*. Do you remember? *samskara* and *existence*; that is the only two things karma. So karma really occupies a very basic portion of human life. You can get the description, describing who you are, what human being. In other words, karma is full of description of one’s life. Or, karma is really the *source* of one’s life. So, everyone is on the basis of karma. 
 
 Do you understand? What I want to tell you is, what portion of one’s life karma occupies. Karma occupies the very original nature, very basic portion of one’s life. In other words, karma is the source. Karma is something you can depend on; that one’s life depends on. 
 
@@ -108,7 +108,7 @@ A thirsty feeling means the very basic nature of human desire. Human desire is a
 
 So, very naturally, consciousness is seed, and the thirsty feeling of desire is moisture. That’s a very good expression. So let’s imagine: garden, seed, and water, moisture.
 
-From this point, karma is a field or garden, and consciousness is a seed, that means there is a relation between karma and consciousness. Karma is a garden: it’s big, which makes it possible for a seed to grow. That’s why in the Twelve Chain Causation [there is] *ignorance*, *saṃskāra*, *consciousness*. Where does consciousness come from? What is the place where consciousness occupies? That is really karma. Consciousness is always in the realm of karma. Karma is constant moving. You don’t know why you move in that way; you cannot pin it down. Always constant moving. This is *saṃskāra*. Then, in this *saṃskāra*, what’s called yard or garden, there is *consciousness* growing there. If consciousness is not there, consciousness doesn’t grow. That means, I explained, that consciousness is really powerful, it makes it possible for you to get into the human world. Do you remember? That’s why this consciousness is very important. For instance, if you consciously take a vow, “I will be reborn as a human being next life, to help all sentient beings” – you can. You can get in. Don’t you think so? Yes it is. 
+From this point, karma is a field or garden, and consciousness is a seed, that means there is a relation between karma and consciousness. Karma is a garden: it’s big, which makes it possible for a seed to grow. That’s why in the Twelve Chain Causation [there is] *ignorance*, *samskara*, *consciousness*. Where does consciousness come from? What is the place where consciousness occupies? That is really karma. Consciousness is always in the realm of karma. Karma is constant moving. You don’t know why you move in that way; you cannot pin it down. Always constant moving. This is *samskara*. Then, in this *samskara*, what’s called yard or garden, there is *consciousness* growing there. If consciousness is not there, consciousness doesn’t grow. That means, I explained, that consciousness is really powerful, it makes it possible for you to get into the human world. Do you remember? That’s why this consciousness is very important. For instance, if you consciously take a vow, “I will be reborn as a human being next life, to help all sentient beings” – you can. You can get in. Don’t you think so? Yes it is. 
 
 One of the famous [Zen Masters](glossary#zen-master), an abbot of Eiheiji monastery, died at 96 years old. He was very wonderful person, Zen teacher. At the time he died, three famous Zen teachers died in the same month. The first person died, then the other person went to Eiheiji monastery to perform the funeral service; and then he came back to Tokyo, and he died. It’s a very strange thing that happened at that time; that is is almost three years ago. But this person was walking down the hallway with his attendants, on the way to perform the funeral service for the abbot of Eiheiji monastery, and he said, “Next life, I will be reborn as a human being again, to help all sentient beings.” “Do you think so?” He smiled. And then he returned to Tokyo, and he died. 
 
@@ -252,7 +252,7 @@ So maybe it’s true, I don’t know. But I don’t have any problem.
 
 **Question**: I’m trying to understand something – I think it’s the same thing from two different angles. The one thing is, you said that consciousness comes from ignorance. Am I understanding that? And also karma?
 
-**Katagiri**: [Related], yes. Consciousness acts [with attribute] of ignorance. The action of consciousness is based on *saṃskāra*. Do you understand? *Saṃskāra* means the basic first stage of some action. So, the action of consciousness is based on *saṃskāra*. And then, consciousness acts – acts means *saṃskāra* – consciousness acts with attribute of ignorance.
+**Katagiri**: [Related], yes. Consciousness acts [with attribute] of ignorance. The action of consciousness is based on *samskara*. Do you understand? *samskara* means the basic first stage of some action. So, the action of consciousness is based on *samskara*. And then, consciousness acts – acts means *samskara* – consciousness acts with attribute of ignorance.
 
 **Same person**: So they’re related, but karma is the source of consciousness.
 
@@ -260,11 +260,11 @@ So maybe it’s true, I don’t know. But I don’t have any problem.
 
 **Same person**: That’s why?
 
-**Katagiri**: Yes, that’s why. Consciousness is produced by *saṃskāra*. Because this is the original nature of consciousness’s actions. [...] Or you can say, from a different angle, consciousness creates *saṃskāra* too.
+**Katagiri**: Yes, that’s why. Consciousness is produced by *samskara*. Because this is the original nature of consciousness’s actions. [...] Or you can say, from a different angle, consciousness creates *samskara* too.
 
-**Same person**: Okay. Then how is *saṃskāra* related to karma? 
+**Same person**: Okay. Then how is *samskara* related to karma? 
 
-**Katagiri**: Karma is exactly *saṃskāra* itself. Karma is *saṃskāra*, and also existence, *bhava*. This is karma.
+**Katagiri**: Karma is exactly *samskara* itself. Karma is *samskara*, and also existence, *bhava*. This is karma.
 
 **Same person**: Then the other thing I was wondering is, from them being related to ignorance, is that how karma, not understanding dualistic nature? Well, maybe this is too…
 
@@ -274,7 +274,7 @@ So maybe it’s true, I don’t know. But I don’t have any problem.
 
 **Katagiri**: Because we don’t know where we are. We are here; but we don’t know where we are. Very naturally we want to know. Do you understand? 
 
-For instance, if you’re in this room, you are here. Even though your consciousness doesn’t work, if you are here, you can feel something. You contact always. So very naturally, information comes from this room. This room sends information to consciousness constantly; that’s why even though you try to ignore it, you can know. You want to know; you are curious of where we are. But actually we *can’t* know exactly what it is. That’s why the more we try to know what it is, the truth, we cannot know. But we are there. And then the truth gives a lot of information to us. That’s why we cannot ignore, but we cannot know. That is a struggle. This is the basic situation. So, very naturally, there is no particular guarantee how to know what to do. But, all we have to do is just act. This is *saṃskāra*. Is that okay? 
+For instance, if you’re in this room, you are here. Even though your consciousness doesn’t work, if you are here, you can feel something. You contact always. So very naturally, information comes from this room. This room sends information to consciousness constantly; that’s why even though you try to ignore it, you can know. You want to know; you are curious of where we are. But actually we *can’t* know exactly what it is. That’s why the more we try to know what it is, the truth, we cannot know. But we are there. And then the truth gives a lot of information to us. That’s why we cannot ignore, but we cannot know. That is a struggle. This is the basic situation. So, very naturally, there is no particular guarantee how to know what to do. But, all we have to do is just act. This is *samskara*. Is that okay? 
 
 **Same person**: Yeah.
 
