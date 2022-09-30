@@ -7,68 +7,64 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
 [Next](1980-07-03-Karma-Unmanifested)
 
-## Transcript
+## Summary
 
-Katagiri Roshi explains how karma is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation; what we sometimes refer to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link; *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world in the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *pīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). The descriptions of *pīti* and *sukha* in particular might be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures. But ultimately, if we try to understand karma intellectually, we will become crazy and confused. The only way to understand karma is to do zazen. 
+Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation; what we sometimes refer to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link; *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *pīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). The descriptions of *pīti* and *sukha* in particular might be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures. But ultimately, if we try to understand *karma* intellectually, we will become crazy and confused. The only way to understand karma is to do zazen. 
+
+## Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 <a name="000"></a>
 #### 0:00 start of recording 
 
-In the first early morning [zazen](glossary#zazen), I said, “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
+I said in the first early morning [zazen](glossary#zazen), “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
 
-Today, I would like to explain what part of one’s life [karma](glossary#karma) occupies. This is pretty difficult to explain, but let’s return to Twelve Chain Causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
-
-Let me [review this] again; please remember: 
+Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to Twelve Chain Causation. (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination).) Let me [review this] again; please remember: 
 
 First is *ignorance*: [in [Sanskrit](glossary#sanskrit),] *avidyā*.
 
 And *samskara*: This is the first stage of movement, psychologically or physically. This is human process and function. 
 
-Next, *consciousness*, and *name and form*. (#3 *vijñāna* is *consciousness*; #4 *nāmarūpa* is name-and-form.) This is [that] all beings exist and we understand [them] through the *name and form*.
+Next, *consciousness*, and *name and form*. (#3 *vijñāna* is *consciousness*; #4 *nāmarūpa* is name-and-form.) This is how all beings exist and we understand [them], through *name and form*.
 
 Fifth is *six consciousnesses*, six senses. (In Sanskrit, *Āyatana*.)
 
 Sixth is *tangibility*; *touch*. (*Sparśa* in Sanskrit, or *phassa* in Pali. More commonly in English, *contact*.)
 
-Seventh is *reception*, or *feeling*. (*Vedanā*)
+Seventh is *reception*, or *feeling*. (*Vedanā*.)
 
 Eighth is *craving*. (*Taṇhā* in Pali.)
 
-Ninth is, what would you say, *grasping*. (Grasping is *upādāna* in Sanskrit and Pail. Also *clinging* or *attachment*. It literally means, “fueling the fires”.)
+Ninth is *grasping*. (Grasping is *upādāna* in Sanskrit and Pail. Also *clinging* or *attachment*. It literally means, “fueling the fires”.)
 
-Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*. When you say *being*, that being consists of already a system of subject and object; this is the picture of being. Do you understand? This is a *being*; we call this *being*, or *existence*. If you use a term *existence* or *being*, it’s already something consisting of subject and object; in other words, [dualism](glossary#dualism). This is existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here, that’s why I can see that here is a table; that’s why I can see the table itself. So that means already *existence*. So table always is something existent, something being. That means subject, object: dualism. That is the tenth; I will explain this one too.
+Tenth is *existence*. In Sanskrit we say *bhava*. *Bhava* in Sanskrit is *being*. When you say *being*, that being consists of already a system of subject and object; this is a picture of being. Do you understand? This is a *being*; we call this *being*, or *existence*. If you use a term *existence* or *being*, it’s already something consisting of subject and object; in other words [dualism](glossary#dualism). This is existence, or being. That’s why yesterday I told you, we are already seated at the table, in the relationship, subject and object. I am here, that’s why I can see that here is a table; that’s why I can see the table itself. So that means already *existence*. So table always is something existent, something being. That means subject, object: dualism. That is the tenth; I will explain this one too.
 
-And the others are *birth* (*jāti*), and last one is *old age and death* (*jarāmaraṇa*).
+And the others are *birth* (*jāti*), and the last one is *old age and death* (*jarāmaraṇa*).
 
 In this Twelve Chain Causation, *karma* is the second one, *samskara*, and also the tenth, *bhava*. Only two things: *bhava*, which is *existence* and *being*, and also *samskara*. Just these two are *karma*. Remember this.
 
 #### 5:35
 
-And *mumyo* – [the Japanese word for the] first one, *ignorance* – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that which we are *doomed* not to understand. *Doomed* means fated. We are “doomed” not to understand what the truth is, as it is. We are all always there, but we don’t understand, intellectually. We are “doomed” not to understand truth as it is. This is what is called *pain*: *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel [it], and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. 
+The first one, *ignorance* – *mumyo* in Japanese – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that we are *doomed* not to understand. *Doomed* means fated. We are “doomed” not to understand what the truth is, as it is, intellectually. We are all always there, but we don’t understand; we are “doomed” not to understand truth as it is. This is what is called *pain*; *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel, and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. And *avidyā*, ignorance, and *craving* and *grasping*, this is what is called *klesha*, delusion. 
 
-And *avidyā*, ignorance; and *craving*, *grasping*; this is what is called *klesha*, delusion. 
-
-And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*, and also *reception*, *birth*, *old age and death*: those are called *suffering*. Karma result; karma-vipāka (action and result). Karma-vipāka means the body and mind you have now. For instance, *name and form* is your body. Body and mind, six consciousnesses, six objects, whatever you say, anyway, *name and form* - this is our body. And also *six consciousnesses*. And also if you have *six consciousnesses*, if you have the six organs, immediately you have to face six objects. So always six organs face six objects. This is kind of a *contact*. Without contact…
+And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*, and also *reception*, *birth*, *old age and death*: those are called *suffering*. Karma result; karma-vipāka (result of actions). Karma-vipāka means the body and mind you have now. For instance, *name and form* is your body. Body and mind, six consciousnesses, six objects, whatever you say, anyway, *name and form*, this is our body. And also *six consciousnesses*. And also if you have *six consciousnesses*, if you have the six organs, immediately you have to face six objects. Always six organs face six objects. This is *tangibility*, *contact*. Without contact…
 
 *[There is a loud airplane noise.]*
 
-So… *consciousness*, *name and form*, *six consciousnesses*, *contact*, and then [we catch it], receive. So you can receive this *[unintelligible]* through contact …
+So… *consciousness*, *name and form*, *six consciousnesses*, *contact*, and then *reception*. So you can receive this *[unintelligible]* in contact with ...
 
 *[Lots of airplane noise.]* 
 
-That is reception, and, that reception, when you receive something, then you can create your own world. That is a person. 
+... That is feeling, very basic feeling; we can accept. That is reception. And when you receive something, then you can create your own world. That is a [birth]. And you were born in this world; next is *old age and death*. This is what is called *karmic result*.
 
-And also, next is, you are born in this world, anyway, next, *old age and death*. This is what is called *karmic result*.
+So remember, this is *karmic result*. Is that okay, is that clear? Remember this, otherwise you won’t understand. 
 
-So, remember, this is karmic life, *karmic result*. Is that okay, is that clear? Remember this, otherwise you won’t understand. 
+#### 10:38
 
-So, first what I wanted to explain today is, the relationship between ... *ignorance*, and *samskara*, and *consciousness*, and also number ten, *bhava*, being. 
+So, first what I wanted to explain today is, the relationship between *ignorance*, and *samskara*, and *consciousness*, and also number ten, *bhava*, *being*. 
 
 So, let’s remind you that karma is *samskara* and *being*. And also, *samskara* as karma is already produced by *avidyā*, ignorance. This is the first stage of human action. What is it moved by or encouraged by? Pure sense of action? No, it is *ignorance*. We don’t know. We don’t know exactly what the truth is, where you are. You don’t know the true face of existence. But you are there, that’s why you want to know. So finally *avidyā* is called *klesha*: we have *affliction*. So this *samskara*, first stage of human action, is produced by this, *avidyā*. Remember this. 
-
-#### 12:33
 
 And then next, consciousness is there. But consciousness is produced by the first stage of human action, it is encouraged by *avidyā*, ignorance. And then this consciousness enters into the present, the human world. You can get into it; you can get into the gate of the present life: *name and form*, *six consciousnesses*, et cetera. You can get in. That’s why *consciousness* is, in a sense, pretty important. *Consciousness* means including will, volition, or all mental / psychological functions; this is consciousness. [Dogen ](glossary#dogen) [Zenji](glossary#zenji) says that right before you die, that moment right before you die, you [can] chant the Triple Treasure, and you can take a vow to be reborn as a human being in the next life, to help all sentient beings. You can, because this is consciousness. Consciousness is really powerful! Why is consciousness very powerful? Because consciousness is created by the first stage of human action. You don’t know why you do this, you don’t know exactly, but you act. You act, already. By what? This is *ignorance*. *Ignorance* means you are there but you don’t know. You don’t know, but as long as you are there, you *want* to know. So finally, very naturally, you move. This is first stage of human movement.
 
