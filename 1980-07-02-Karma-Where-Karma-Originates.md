@@ -9,7 +9,7 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Transcript
 
-Katagiri Roshi explains how karma is the source of our lives. He reviews Twelve Chain Causation (what we sometimes refer to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by the first link, *avidyā* (ignorance). But *avidyā* is really *vitality*; this is how we enter the human world. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *pīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). The descriptions of *pīti* and *sukha* in particular might be helpful in understanding what is meant when we see the English words *joy* and *happiness* in translations of Buddhist scriptures. But ultimately, he says, if we try to understand karma intellectually, we will become crazy and confused. The only way to understand karma is to do zazen. 
+Katagiri Roshi explains how karma is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation; what we sometimes refer to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by the first link, *avidyā* (ignorance). But *avidyā* is really *vitality*; this is how we enter the human world. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *pīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). The descriptions of *pīti* and *sukha* in particular might be helpful in understanding what is meant when we see the English words *joy* and *happiness* in translations of Buddhist scriptures. But ultimately, he says, if we try to understand karma intellectually, we will become crazy and confused. The only way to understand karma is to do zazen. 
  
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -20,7 +20,7 @@ In the first early morning [zazen](glossary#zazen), I said, “to deport oneself
 
 Today, I would like to explain what part of one’s life [karma](glossary#karma) occupies. This is pretty difficult to explain, but let’s return to Twelve Chain Causation, okay? (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination))
 
-Let me [review the links] again; please remember: 
+Let me [review this] again; please remember: 
 
 First is *ignorance*: [in [Sanskrit](glossary#sanskrit),] *avidyā*.
 
