@@ -147,6 +147,13 @@ Katagiri Roshi completely explains the Twelve Links of Dependent Origination, pr
 
 ---
 
+### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
+#### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi describes how *karma* is the basic nature of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+
+---
+
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 #### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 

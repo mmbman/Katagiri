@@ -12,6 +12,13 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 ---
 
+### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
+#### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi. Transcript posted September 30, 2022.
+
+Katagiri Roshi describes how *karma* is the basic nature of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+
+---
+
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 #### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
 
