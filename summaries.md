@@ -150,7 +150,7 @@ Katagiri Roshi completely explains the Twelve Links of Dependent Origination, pr
 ### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 #### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi describes how *karma* is the basic nature of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
 ---
 
@@ -206,7 +206,7 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 #### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
+Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in; plop! Also: do you need a boss?
 
 ---
 
@@ -220,14 +220,14 @@ The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 #### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance. We must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
+Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance; we must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
 
 ---
 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 #### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? What does it mean *to walk*? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
+Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
 
 ---
 

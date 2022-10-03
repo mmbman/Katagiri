@@ -9,7 +9,7 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi describes how *karma* is the basic nature of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
 ## Transcript
 
@@ -120,7 +120,7 @@ But the problem is, maybe you think it’s pretty easy to return home, but I don
 
 #### 40:50
 
-[But this means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (Transcriber’s note: These seem to correspond to the four *dhyānas*.)
+[But this means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (Transcriber’s note: These correspond to the four *dhyānas*.)
 
 In the first stage of Zen, all unwholesome dharma [stops]. Unwholesome dharma means unwholesome things, including physical and mental, or whatever it is. If you get into zazen meditation, in the first stage of zazen, you can experience *no unwholesome thing*, because you don’t bring it up if you sit down like this. It’s really true. Maybe you cannot do anything, because your legs are fully cross-legged, crossing each other; your hands are like this [so] you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, so you can’t see anybody, facing the wall. And also your thinking is coming and sitting in zazen. So all things come back to zazen, and there is nothing you can do.
 
