@@ -7,9 +7,11 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
-## Transcript
+## Summary
 
-**This transcript is in rough draft stage.**
+Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. 
+
+## Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
