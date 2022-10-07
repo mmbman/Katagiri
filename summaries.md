@@ -157,7 +157,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. 
+Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. There is always hope.
 
 ---
 

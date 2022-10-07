@@ -15,7 +15,7 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. Transcript posted October 5, 2022.
 
-Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. 
+Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. There is always hope.
 
 ---
 
