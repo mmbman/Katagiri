@@ -9,7 +9,7 @@ description: March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what *all* means. It may not mean what we usually think. In Buddhism, *all* means something which is closely connected with our individual life. *Samskaras* comes up again. Ultimately, we have to dive into the ocean.
+Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what *all* means. It may not mean what we usually think. In Buddhism, *all* means something which is closely connected with our individual life. Ultimately, we have to dive into the ocean of karma, which is *samskaras*.
 
 ## Transcript
 
