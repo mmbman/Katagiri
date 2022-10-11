@@ -11,7 +11,7 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is in rough draft stage.**
 
-(Transcriber’s note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
+(Transcriber’s Note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

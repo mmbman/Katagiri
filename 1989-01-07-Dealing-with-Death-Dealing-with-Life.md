@@ -11,16 +11,18 @@ description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses how we should practice with those who are ill or dying. We have to deeply understand human suffering and pain. There shouldn’t be an expectation that there is a certain way to die; lots of emotions come up, and we should be right there with it. Also, we should practice a feeling togetherness with those who are ill or dying, because there is no separation between us and them. We need to practice this in our day-to-day lives, or we will not be ready to offer compassion in difficult times. This everyday practice may seem to be small, trifling things, but it is very important for us; it makes our personality mature. It includes expressing emotions in appropriate ways and times, not recklessly. We need oneness, and also oneness needs *us*. We have to receive oneness, and deal with it, and make it alive. To illustrate the Japanese word *ki*, Katagiri Roshi talks about his love of the American television show *Bewitched*.
 
-(Transcriber’s Note: An edited version of this talk, from a different transcript, [is available on cuke.com](http://www.cuke.com/pdf-wb2/90-1-wb-kat-lect-dying.pdf).)
-
 ## Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-11365083" target="_blank">Listen to this talk on mnzencenter.org</a> 
+
+(Transcriber’s Note: An edited version of this talk, from a different transcript, [is available on cuke.com](http://www.cuke.com/pdf-wb2/90-1-wb-kat-lect-dying.pdf).)
 
 <a name="000"></a>
 #### 0:00 start of recording
 
 (The recording begins with the community chanting the Verse of Opening the Sutras:)
+
+**Community**:
 
 Mujō jin jin mi myō no hō wa  
 hyaku sen man go ni mo ai-o koto katashi  
