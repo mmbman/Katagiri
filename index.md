@@ -12,6 +12,13 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 ---
 
+### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+#### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted October 12, 2022.
+
+Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
+
+---
+
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. Transcript posted October 5, 2022.
 

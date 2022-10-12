@@ -238,6 +238,13 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 
 ---
 
+### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+#### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
+
+---
+
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 #### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 

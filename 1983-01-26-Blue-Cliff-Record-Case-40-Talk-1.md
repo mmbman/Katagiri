@@ -9,7 +9,7 @@ description: January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Why is this vision of a flower kind of like a dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
+Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
 
 ## Transcript
 
