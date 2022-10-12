@@ -5,7 +5,7 @@ description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1983) \| 
 [Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
 ## Summary
 
@@ -174,4 +174,4 @@ Okay. Next, please read Case Forty.
 
 [Home](index) \| [List](list#1983) \| 
 [Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
