@@ -96,12 +96,12 @@ In the Dhammapada, Verse 228, Buddha says, “There never was, there never will 
 
 There is another poem I translated. Let’s read it this way: 
 
-See an unfavorable person in the distance.  
-See a favorable person close at hand.  
-Come closer to an unfavorable person.  
-See apart from a favorable person.  
-Coming close, and going away from...  
-How interesting life is!
+> See an unfavorable person in the distance.  
+> See a favorable person close at hand.  
+> Come closer to an unfavorable person.  
+> [Step] apart from a favorable person.  
+> Coming close, and going away from...  
+> How interesting life is!
 
 Usually we see only the favorable person. If you see an unfavorable person, you always keep away. It is natural, but on the other hand, sometimes you have to come closer to that person. And then you really appreciate them. You cannot always keep away from unfavorable person, or you cannot always come closer to favorable person. Not always. 
 
