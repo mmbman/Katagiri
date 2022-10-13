@@ -110,7 +110,9 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
 1. Book of Equanimity: Case 52
-1. Blue Cliff Record, Case 40 – Talk 2
+
+1. [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+
 1. Blue Cliff Record, Case 41 – Talk 1
 1. Blue Cliff Record, Case 41 – Talk 2
 1. Blue Cliff Record, Case 42 – Talk 1
