@@ -3,118 +3,149 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to study. [More about this site](about).
+Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to study. 
 
-[List of Talks](list) \| [Summaries](summaries) \| [About](about) \| [Search](search)
+- [About This Site](about)
+- [List of Talks](list)
+- [Talk Summaries](summaries)
+- [Search](search)
 
-
-## Latest Posted Talks
+## Latest Updates
 
 ---
 
+*Transcript posted October 12, 2022.*
+
 ### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
-#### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted October 12, 2022.
+#### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi. 
 
 Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
 
 ---
 
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
-#### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. Transcript posted October 5, 2022.
+#### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. There is always hope.
+
+Transcript posted October 5, 2022.
 
 ---
 
 ### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
-#### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi. Transcript posted September 30, 2022.
+#### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+
+Transcript posted September 30, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
-#### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
+#### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
+
+Transcript posted August 23, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
-#### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
+#### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance; we must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
+
+Transcript posted August 23, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
-#### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi. Transcript posted August 23, 2022.
+#### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi. 
 
 The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, and joyful mind – to the next generation. This is why Feng Hsueh Zen Master explains Buddha Mind as being just like an Iron Ox. Katagiri Roshi further examines this case. Should we add our own ideas to Buddhism?
+
+Transcript posted August 23, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
-#### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted July 18, 2022.
+#### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi. 
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in; plop! Also: do you need a boss?
+
+Transcript posted July 18, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
-#### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted June 8, 2022.
+#### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi. 
 
 If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is always raising (sic), just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
+
+Transcript posted June 8, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
-#### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted May 25, 2022.
+#### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse. He especially focuses on the first line, “The earth is clear of any dust.” This is Buddha’s world, which is identical with the original nature of existence. But also, “A mad monkey cries on the ancient terrace”: this is us looking through the telescope of our karmic perceptions. Buddhist practice is not to destroy all human delusions and *then* you can have Buddha’s world; we need both. Good or bad are nothing but time, but time is not good or bad. A monk walks in the snow without leaving a trace. 
+
+Transcript posted May 25, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
-#### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted May 22, 2022.
+#### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi. 
 
 Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: how to get fired from a bookshop in the human world. The caution against falling into the weeds is ironic commentary.
+
+Transcript posted May 22, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
-#### November 22, 1981 Dharma Talk by Dainin Katagiri Roshi. Transcript posted April 28, 2022.
+#### November 22, 1981 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
+
+Transcript posted April 28, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-#### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi. Transcript posted April 15, 2022.
+#### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi. 
 
 What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
+
+Transcript posted April 15, 2022.
 
 ---
 
 ### [Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
-#### November 24, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted April 11, 2022.
+#### November 24, 1982 Dharma Talk by Dainin Katagiri Roshi. 
 
 Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: does it matter how many people come to our Zen Center?
 
+Transcript posted April 11, 2022.
 
 ---
 
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
-#### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi. Transcript posted April 3, 2022.
+#### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi.
 
 Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on the “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”. Along the way, he discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
 
+ Transcript posted April 3, 2022.
+ 
 ---
 
 ### [Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
-#### November 17, 1982 Dharma Talk by Dainin Katagiri Roshi. Transcript posted March 19, 2022.
+#### November 17, 1982 Dharma Talk by Dainin Katagiri Roshi.
 
 Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: how to practice compassion with emotions, how to be an actor, and how to be a not-actor.
+
+Transcript posted March 19, 2022.
 
 ---
 
