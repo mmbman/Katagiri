@@ -5,7 +5,7 @@ description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1989) \| 
 [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 
-[Next](glossary)
+Next
 
 ## Summary
 
@@ -164,4 +164,4 @@ I vow to attain it.
 
 [Home](index) \| [List](list#1989) \| 
 [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 
-[Next](glossary)
+Next

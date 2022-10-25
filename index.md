@@ -8,8 +8,7 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 - [About This Site](about)
 - [List of Talks](list)
 - [Talk Summaries](summaries)
-- [Dogen Index](dogen)
-- [Blue Cliff Record Index](BCR)
+- [Topic Index](topics)
 - [Search](search)
 
 ## Latest Updates

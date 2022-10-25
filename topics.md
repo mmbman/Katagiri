@@ -1,32 +1,26 @@
 ---
-title: Dogen Index
+title: Topic Index
 description:
 ---
 
-[Home](index) \| [List](list#appendices) \| 
-[Previous](glossary) \| 
-[Next](BCR)
+[Home](index)
 
----
+This is a partial index of topics in Katagiri Roshi’s talks. It only includes talks I have transcribed, and is a work in progress. 
 
-This is an index to where references to [Dogen](glossary#dogen)’s works appear in [Katagiri Roshi's](glossary#katagiri) talks. It only includes talks I have transcribed, and is a work in progress. 
+Sections:
 
----
-## Fukanzazengi
+- [Dogen Index](#dogen-index)
+  - [Shobogenzo](#shobogenzo)
+  - [Eihei Koroku](#eihei-koroku)
+  - [Other Dogen](#other-dogen)
+- [Mahayana Sutras Index](#mahayana-sutras-index)
+- [Blue Cliff Record Index](#blue-cliff-record-index)
+- [Pali Canon Index](#pali-canon-index)
 
-Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
+----
 
-- [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
-- [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
-- [Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
-- [Fukanzazengi – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
-- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
-- [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
-- [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
+# Dogen Index
 
-- [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
-
----
 ## Shobogenzo
 
 Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
@@ -87,7 +81,6 @@ Japanese: Kaiin-zanmai
 
 - [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)
 
----
 ## Eihei Koroku
 
 Eihei Koroku is a collection of [Dogen Zenji](glossary#dogen)’s Dharma Hall Discourses (short dharma talks). 
@@ -101,7 +94,55 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 
 - [Fukanzazengi – Talk 7 (6:15-)](1979-06-15-Fukanzazengi-Talk-7#615)
 
----
-[Next: Blue Cliff Record Index](BCR)
+## Other Dogen
 
-[Home](index) \| [List](list#dogen)
+### Fukanzazengi
+
+Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
+
+- [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
+- [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
+- [Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
+- [Fukanzazengi – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
+- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+- [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+- [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
+
+- [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
+
+---
+
+# Blue Cliff Record Index
+
+Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR) (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
+
+<a name="case-1"></a>
+## Case 1: The Highest Meaning of the Holy Truths
+
+- [Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+- [Blue Cliff Record, Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+
+<a name="case-2"></a>
+## Case 2: The Ultimate Path Is Without Difficulty
+
+- [Blue Cliff Record, Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+- [Blue Cliff Record, Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+
+<a name="case-46"></a>
+## Case 46: Ching Ch’ing’s Sound of Raindrops
+
+- [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
+
+---
+
+# Mayahana Sutras Index
+
+
+--- 
+
+# Pali Canon Index
+
+
+--- 
+
+[Home](index)
