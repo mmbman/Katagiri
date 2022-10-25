@@ -133,7 +133,7 @@ Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas C
 
 ---
 
-# Mayahana Sutras Index
+# Mahayana Sutras Index
 
 ## Diamond Sutra
 
