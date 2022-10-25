@@ -31,26 +31,27 @@ Fascicles from Shobogenzo referenced in Katagiri’s talks are listed below.
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
 
+- [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
+- [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
 - [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 - [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 - [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 
-- [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
-- [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
 
 ### Bendowa
 
-- [Fukanzazengi – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
 
 ### Prajnaparamita
 
-- [Fukanzazengi – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Talk-6#11636)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Talk-6#11636)
 
 ### One Bright Pearl
 
 Japanese: Ikka myōju – 顆明珠
 
-- [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
 ### Life and Death
 
@@ -116,19 +117,16 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR) (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
 
-<a name="case-1"></a>
 ## Case 1: The Highest Meaning of the Holy Truths
 
 - [Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 - [Blue Cliff Record, Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
-<a name="case-2"></a>
 ## Case 2: The Ultimate Path Is Without Difficulty
 
 - [Blue Cliff Record, Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 - [Blue Cliff Record, Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
-<a name="case-46"></a>
 ## Case 46: Ching Ch’ing’s Sound of Raindrops
 
 - [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
@@ -137,10 +135,29 @@ Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas C
 
 # Mayahana Sutras Index
 
+## Diamond Sutra
+
+- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+- [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+
+## Prajnaparamita Sutra
+
+- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+
+## Vimalakirti Sutra
+
+- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
+
 
 --- 
 
 # Pali Canon Index
+
+## Abhidharmakosha
+
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#233)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
 
 --- 

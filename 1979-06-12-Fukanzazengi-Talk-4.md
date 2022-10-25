@@ -54,7 +54,7 @@ For such people, they never think of the significance of zazen, which causes all
 
 #### 15:14
 
-There is a Zen story in [The Blue Cliff Record](BCR), the [46th case](BCR#case-46). This is a very famous Zen [koan](glossary#koan): 
+There is a Zen story in *The Blue Cliff Record*, the forty-sixth case. This is a very famous Zen [koan](glossary#koan): 
 
 > “[Kyosei](glossary#kyosei) [Zen Master](glossary#zen-master) asked a monk, “What sound is that outside the gate?” 
 > 

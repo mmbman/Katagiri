@@ -25,7 +25,7 @@ Translated by Taigen Dan Leighton and Shohaku Okumura
 
 This translation did not exist when Katagiri gave his talks, but now it is an essential reference.
 
-- [Eihei Koroku Index](dogen#eihei-koroku)
+- [Eihei Koroku Index](topics#eihei-koroku)
 
 <a name="buddhist-wisdom"></a>
 ## Buddhist Wisdom: The Diamond Sutra and the Heart Sutra

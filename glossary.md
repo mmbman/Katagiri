@@ -322,7 +322,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](dogen#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](topics#shobogenzo). 
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
@@ -413,7 +413,7 @@ External links:
 
 [Dogen](glossary#dogen)'s “Universal Recommendation for Zazen”
 
-See [Dogen Index: Fukanzazengi](dogen#fukanzazengi)
+See [Dogen Index: Fukanzazengi](topics#fukanzazengi)
 
 ## Fukutoku
 
@@ -439,7 +439,7 @@ Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa
 
 ## Genjokoan
 
-See [Dogen Index: Genjokoan](dogen#genjokoan)
+See [Dogen Index: Genjokoan](topics#genjokoan)
 
 ## Gensha Shibi 
 Japanese: Gensha Shibi,<br>
@@ -968,7 +968,7 @@ A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casu
 
 "Treasury of the True Dharma Eye": the main collection of Dogen's works. 
 
-See [Dogen Index: Shobogenzo](dogen#shobogenzo)
+See [Dogen Index: Shobogenzo](topics#shobogenzo)
 
 ## Sitting
 
@@ -1153,7 +1153,7 @@ Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate w
 
 "Seated meditation"
 
-For detailed guidance on how to practice zazen, see [Dogen Index: Fukanzazengi](dogen#fukanzazengi).
+For detailed guidance on how to practice zazen, see [Dogen Index: Fukanzazengi](topics#fukanzazengi).
 
 ## Zen
 

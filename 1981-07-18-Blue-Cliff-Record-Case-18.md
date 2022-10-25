@@ -172,7 +172,7 @@ The “I don’t know” of Emperor Wu – I don’t know which of the two it wa
 
 Finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
-In [Shobogenzo “Four Horses” (Japanese: Shime)](dogen#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra, 
+In [Shobogenzo “Four Horses” (Japanese: Shime)](topics#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra, 
 
 > The [Buddha](glossary#buddha) said to the assembled monks: 
 >
@@ -234,7 +234,7 @@ That is the meaning of a whip. Or of practice, [constant] effort. Human effort i
 
 #### 43:30
 
-There is a story (in [“Four Horses”](dogen#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the [Buddha](glossary#buddha), ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
+There is a story (in [“Four Horses”](topics#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the [Buddha](glossary#buddha), ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
 The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
 

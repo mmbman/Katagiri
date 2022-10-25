@@ -44,7 +44,7 @@ In those days, the attainment of [samadhi](glossary#samadhi) with no consciousne
 
 > The Buddha enters samadhi with consciousness, and the thirty-four ways to sever [delusions](glossary#delusion) manifest themselves within it. The Buddha uses this from morning to night, and culminates the quest of his body in the [zendo](glossary#zendo).
 > 
-> (From [Eihei Koroku](dogen#eihei-koroku) – [Dharma Hall Discourse #372](dogen#ek-372))
+> (From [Eihei Koroku](topics#eihei-koroku) – [Dharma Hall Discourse #372](topics#ek-372))
 
 “The Buddha enters samadhi with consciousness”: that is, exactly [Buddha Shakyamuni](glossary#shakyamuni-buddha ) did zazen with consciousness. *Samadhi* means oneness with subject and zazen. And when the practicer and zazen become one, that is samadhi. So, “the Buddha enters samadhi with consciousness.” 
 
@@ -52,7 +52,7 @@ In those days, the attainment of [samadhi](glossary#samadhi) with no consciousne
 
 #### 9:14
 
-Also, Dogen Zenji said in [Bendowa](dogen#bendowa): 
+Also, Dogen Zenji said in [Bendowa](topics#bendowa): 
 
 > Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.
 
@@ -94,7 +94,7 @@ That’s why Dogen Zenji says, “Buddha uses this from morning to night and cul
 
 #### 31:33
 
-That’s [also] why in [Fukanzazengi](dogen#fukanzazengi) [Dogen says], *[thunder]*
+That’s [also] why in [Fukanzazengi](topics#fukanzazengi) [Dogen says], *[thunder]*
 
 > Zazen must be deportment beyond one’s hearing and seeing.
 

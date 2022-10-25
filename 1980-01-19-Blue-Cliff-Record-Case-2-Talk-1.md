@@ -38,7 +38,7 @@ This is the main case. This morning I would like to read the pointer, before the
 
 In this pointer, [Engo Zen Master](glossary#engo-kokugon) emphasizes the significance of “the task of the fundamental vehicle of transcendence”. In other words, that is the path – the great path, or the ultimate path. He uses a different term, which is called the task of the fundamental vehicle of transcendence. This is the main point in this pointer: the task of the fundamental vehicle of transcendence. 
 
-Plainly speaking, this is the truth, or original nature of existence, or [dharma](glossary#dharma). [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](dogen#fukanzazengi), “The [dharma vehicle](glossary#dharma-vehicle) is free and unrestricted, why should we expend sustained effort?” So [Dogen](glossary#dogen) uses the term “dharma vehicle”. 
+Plainly speaking, this is the truth, or original nature of existence, or [dharma](glossary#dharma). [Dogen Zenji](glossary#dogen) said in [Fukanzazengi](topics#fukanzazengi), “The [dharma vehicle](glossary#dharma-vehicle) is free and unrestricted, why should we expend sustained effort?” So [Dogen](glossary#dogen) uses the term “dharma vehicle”. 
 
 #### 6:40
 
@@ -50,7 +50,7 @@ It’s very natural, but the problem is, we *believe* it; we believe in such a w
 
 So whatever kind of religion you study, even Christianity, even [Buddhism](glossary#buddhism), this attitude is very fundamental, universal. In Christianity you really have to devote yourself *toward* God; whether you believe or not, you have to throw away yourself into God. This is the first request. If you don’t [do this], there is no sense of Christianity. This is very true. And the same applies to Buddhism: if you don’t have this fundamental attitude toward the truth, throwing yourself away, forgetting yourself and throwing yourself into Buddha’s house, it’s very difficult to understand what the truth is, directly connected with your body and mind. It’s very difficult. 
 
-That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](dogen#life-and-death), “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any one’s mind.” This is a very famous statement mentioned by [Dogen](glossary#dogen). *[He repeats the quote.]* This is the correct attitude to research the truth, what the truth is; because this is human life.
+That’s why [Dogen Zenji](glossary#dogen) says, in [Shobogenzo: “Life and Death” (Shōji)](topics#life-and-death), “When you simply release and forget both your body and mind and throw yourself into the house of Buddha, and when functioning comes from the direction of Buddha, and you go in accord with it; then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then, there can be no obstacle in any one’s mind.” This is a very famous statement mentioned by [Dogen](glossary#dogen). *[He repeats the quote.]* This is the correct attitude to research the truth, what the truth is; because this is human life.
 
 #### 12:47
 
