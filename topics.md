@@ -25,11 +25,9 @@ Sections:
 
 Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
 
-Fascicles from Shobogenzo referenced in Katagiri’s talks are listed below.
-
 ### Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). Genjokoan is both an introduction to and overview of Dogen's teachings, and as such is of primary importance in [Zen](glossary#zen) study.
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). It is both an introduction to and overview of Dogen's teachings.
 
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
