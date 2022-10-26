@@ -105,25 +105,25 @@ Japanese: Kaiin-zanmai
 # Blue Cliff Record Index
 
 <a name="BCR-1"></a>
-## Case 1: The Highest Meaning of the Holy Truths
+### Case 1: The Highest Meaning of the Holy Truths
 
 - [Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 - [Blue Cliff Record, Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 <a name="BCR-2"></a>
-## Case 2: The Ultimate Path Is Without Difficulty
+### Case 2: The Ultimate Path Is Without Difficulty
 
 - [Blue Cliff Record, Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 - [Blue Cliff Record, Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 <a name="BCR-3"></a>
-## Case 3: Master Ma Is Unwell
+### Case 3: Master Ma Is Unwell
 
 - [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 - [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 <a name="BCR-46"></a>
-## Case 46: Ching Ch’ing’s Sound of Raindrops
+### Case 46: Ching Ch’ing’s Sound of Raindrops
 
 - [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
 
@@ -131,7 +131,7 @@ Japanese: Kaiin-zanmai
 
 # Mahayana Sutras Index
 
-## Diamond Sutra
+### Diamond Sutra
 
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 - [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
@@ -139,13 +139,13 @@ Japanese: Kaiin-zanmai
 - [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 - [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
-## Prajnaparamita Sutra
+### Prajnaparamita Sutra
 
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [Diamond Sutra: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
 
-## Vimalakirti Sutra
+### Vimalakirti Sutra
 
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
 
@@ -154,17 +154,17 @@ Japanese: Kaiin-zanmai
 
 # Pali Canon Index
 
-## Abhidharma
+### Abhidharma
 
 - [Diamond Sutra: Emptiness (29:51)](1979-08-01-Diamond-Sutra-Emptiness#2951)
 
 
-## Abhidharmakosha
+### Abhidharmakosha
 
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#233)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
-## Eightfold Path
+### Eightfold Path
 
 - [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)  - what “right” means
 
