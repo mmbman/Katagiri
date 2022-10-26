@@ -162,7 +162,9 @@ External links:
 
 Japanese: Hekiganroku
 
-- [Blue Cliff Record Index](BCR)
+Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR) (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
+
+[See Topic Index](topics#BCR)
 
 ## Bodhidharma
 
@@ -359,6 +361,14 @@ External links:
 
 See [Dogen](#dogen)
 
+## Eihei Koroku
+
+Eihei Koroku is a collection of [Dogen Zenji](#dogen)’s Dharma Hall Discourses (short dharma talks). 
+
+There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
+
+The titles for these discourses are taken from [“Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,”](books#eihei-koroku) translated by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dogen, but are useful for reference.
+
 ## Eiheiji
 
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
@@ -411,9 +421,9 @@ External links:
 
 ## Fukanzazengi
 
-[Dogen](glossary#dogen)'s “Universal Recommendation for Zazen”
+Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
-See [Dogen Index: Fukanzazengi](topics#fukanzazengi)
+[See Topic Index](topics#fukanzazengi)
 
 ## Fukutoku
 
@@ -439,7 +449,9 @@ Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa
 
 ## Genjokoan
 
-See [Dogen Index: Genjokoan](topics#genjokoan)
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). It is both an introduction to and overview of Dogen's teachings. 
+
+[See Topic Index](topics#genjokoan)
 
 ## Gensha Shibi 
 Japanese: Gensha Shibi,<br>
@@ -966,9 +978,9 @@ A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casu
 
 ## Shobogenzo
 
-"Treasury of the True Dharma Eye": the main collection of Dogen's works. 
+Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
 
-See [Dogen Index: Shobogenzo](topics#shobogenzo)
+[See Topic Index](topics#shobogenzo)
 
 ## Sitting
 

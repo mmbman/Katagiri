@@ -27,8 +27,6 @@ Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Do
 
 ### Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). It is both an introduction to and overview of Dogen's teachings.
-
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
 - [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
@@ -82,12 +80,6 @@ Japanese: Kaiin-zanmai
 
 ## Eihei Koroku
 
-Eihei Koroku is a collection of [Dogen Zenji](glossary#dogen)’s Dharma Hall Discourses (short dharma talks). 
-
-There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
-
-The titles for these discourses are taken from [“Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,”](books#eihei-koroku) translated by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dogen, but are useful for reference.
-
 <a name="ek-372"></a>
 ### Dharma Discourse 372: “Undisturbed by Thunderclaps”
 
@@ -97,7 +89,6 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 
 ### Fukanzazengi
 
-Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
 - [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 - [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
@@ -111,20 +102,22 @@ Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the c
 
 ---
 
+<a name="BCR"></a>
 # Blue Cliff Record Index
 
-Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR) (see [Blue Cliff Record: Case1 – Lecture1 (0:00)](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#000)).
-
+<a name="BCR-1"></a>
 ## Case 1: The Highest Meaning of the Holy Truths
 
 - [Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 - [Blue Cliff Record, Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
+<a name="BCR-2"></a>
 ## Case 2: The Ultimate Path Is Without Difficulty
 
 - [Blue Cliff Record, Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 - [Blue Cliff Record, Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
+<a name="BCR-46"></a>
 ## Case 46: Ching Ch’ing’s Sound of Raindrops
 
 - [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
