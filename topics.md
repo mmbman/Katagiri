@@ -59,6 +59,8 @@ Japanese: Shime
 
 - [Blue Cliff Record, Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
 
+Reference:
+
 - [Dogen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
 
 ### Zazengi
@@ -95,7 +97,6 @@ Japanese: Kaiin-zanmai
 - [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 - [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
-
 - [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
 ---
@@ -118,8 +119,8 @@ Japanese: Kaiin-zanmai
 <a name="BCR-3"></a>
 ## Case 3: Master Ma Is Unwell
 
-[Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-[Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+- [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+- [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 <a name="BCR-46"></a>
 ## Case 46: Ching Ch’ing’s Sound of Raindrops
