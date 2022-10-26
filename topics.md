@@ -23,8 +23,6 @@ Sections:
 
 ## Shobogenzo
 
-Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
-
 ### Genjokoan
 
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
