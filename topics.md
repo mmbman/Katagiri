@@ -15,8 +15,9 @@ Sections:
   - [Eihei Koroku](#eihei-koroku)
   - [Other Dogen](#other-dogen)
 - [Mahayana Sutras Index](#mahayana-sutras-index)
-- [Blue Cliff Record Index](#blue-cliff-record-index)
 - [Pali Canon Index](#pali-canon-index)
+- [Blue Cliff Record Index](#blue-cliff-record-index)
+- [Book of Equanimity Index](#book-of-equanimity-index)
 
 ----
 
@@ -28,10 +29,10 @@ Sections:
 
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (36:34)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634)
 - [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 - [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 - [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
-
 
 ### Bendowa
 
@@ -109,6 +110,50 @@ Japanese: Kaiin-zanmai
 
 ---
 
+# Mahayana Sutras Index
+
+### Diamond Sutra
+
+- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+- [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+- [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+- [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+- [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+
+### Prajnaparamita Sutra
+
+- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+- [Diamond Sutra: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
+
+### Vimalakirti Sutra
+
+- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
+
+### Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
+
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+
+--- 
+
+# Pali Canon Index
+
+### Abhidharma
+
+- [Diamond Sutra: Emptiness (29:51)](1979-08-01-Diamond-Sutra-Emptiness#2951)
+
+
+### Abhidharmakosha
+
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#233)
+- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+
+### Eightfold Path
+
+- [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)  - what “right” means
+
+--- 
+
 <a name="BCR"></a>
 # Blue Cliff Record Index
 
@@ -130,56 +175,34 @@ Japanese: Kaiin-zanmai
 - [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 - [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
+<a name="BCR-5"></a>
+### Case 5
+
+[Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+
+<a name="BCR-40"></a>
+### Case 40: Nan Ch’uan’s It’s like a Dream
+
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+
 <a name="BCR-46"></a>
 ### Case 46: Ching Ch’ing’s Sound of Raindrops
 
 - [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
 
+<a name="BCR-89"></a>
 ### Case 89
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1 (23:12)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#2312)
 
 ---
 
-# Mahayana Sutras Index
+# Book of Equanimity Index
 
-### Diamond Sutra
+### Case 52
 
-- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
-- [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
-- [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
-- [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-- [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
 
-### Prajnaparamita Sutra
-
-- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
-- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
-- [Diamond Sutra: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
-
-### Vimalakirti Sutra
-
-- [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
-
-
---- 
-
-# Pali Canon Index
-
-### Abhidharma
-
-- [Diamond Sutra: Emptiness (29:51)](1979-08-01-Diamond-Sutra-Emptiness#2951)
-
-
-### Abhidharmakosha
-
-- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#233)
-- [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
-
-### Eightfold Path
-
-- [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)  - what “right” means
-
---- 
 
 [Home](index)
