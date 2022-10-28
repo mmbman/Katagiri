@@ -15,6 +15,15 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 ---
 
+*Transcript posted October 28, 2022.*
+
+### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+#### February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. 
+
+---
+
 *Transcript posted October 12, 2022.*
 
 ### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)

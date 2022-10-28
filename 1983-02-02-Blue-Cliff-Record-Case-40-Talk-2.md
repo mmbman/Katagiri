@@ -7,6 +7,10 @@ description: February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
+## Summary
+
+Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. 
+
 ## Transcript
 
 (Archive Issue: Case 40 Talks 1 and 2 are transposed in the online archive. The link here is to the audio for “Lecture 1”, which is actually Lecture 2.)
