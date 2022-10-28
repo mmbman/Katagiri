@@ -22,8 +22,6 @@ description: February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 > As the officer Lu Hsuan was talking with Nan Ch’uan, he said, “Master of the Teachings Chao said, ‘Heaven, earth, and I have the same root; myriad things and I are one body.’ This is quite marvelous.”
 > 
 > Nan Ch’uan pointed to a flower in the garden. He called to the officer and said, “People these days see this flower as a dream.”
->
-> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 The Verse:
 
@@ -38,9 +36,11 @@ The Verse:
 
 > Seeing, hearing, awareness, knowledge; these are not one and the same—  
 
-This means the appearance of the phenomenal world which you can discriminate: trees, birds, and squirrels, through the six [senses], six sense objects, six consciousnesses. So “seeing, hearing, awareness, knowledge” – six sense objects, six sense organs, six senses, trees, birds – “these are not one and the same.” I don’t think it is exactly one-and-the-same which you can say idealistically, because here is a tree, here is a bird, here is snow, which is very clearly existent. 
+“Seeing, hearing, awareness, knowledge”: this means the appearance of the phenomenal world which you can discriminate – trees, birds, and squirrels – through the six [senses], six sense objects, six consciousnesses. So “seeing, hearing, awareness, knowledge” – six sense objects, six sense organs, six senses, trees, birds – “these are not one and the same.” I don’t think it is exactly one-and-the-same which you can say idealistically, because here is a tree, here is a bird, here is snow, which is very clearly existent. 
 
-So, trees are trees, flower is flower, winter is winter, before we say, “All sentient beings are the-same-and-one.” If you say “all beings are one and the same,” it is already a kind of idea coming from human speculation. So, flower is flower, but flower is exactly the flower before we think so or we don’t think so. Anyway, flower is flower. *Flower is flower* is exactly flower is the universe, without being interrupted by birds, snow, spring, et cetera. Flower is exactly flower. That’s the point which the first line of this verse says: “Seeing, hearing, awareness, knowledge; these are not one and the same”. So through your six consciousnesses you can see everything, which is completely independent. But it is not completely separate from others. Flower is flower, desk is desk, but, desk is desk before you think, “all are one.” Or, [if] you don’t say so, anyway, table is table. That means you have to see the table, you have to see the snow or winter before you think or before you don’t think. This is the real picture of winter, which is different from spring and summer, et cetera.
+So, trees are trees, flower is flower, winter is winter, before we say, “All sentient beings are the-same-and-one.” If you say “all beings are one and the same,” it is already a kind of idea coming from human speculation. So, flower is flower, but flower is exactly the flower before we think so or we don’t think so. Anyway, flower is flower. *Flower is flower* is exactly flower is the universe, without being interrupted by birds, snow, spring, et cetera; flower is exactly flower. That’s the point which the first line of this verse says: “Seeing, hearing, awareness, knowledge; these are not one and the same”. 
+
+So through your six consciousnesses you can see everything, which is completely independent. But it is not completely separate from others. Flower is flower, desk is desk, but, desk is desk before you think, “all are one.” Or, [if] you don’t say so, anyway, table is table. That means you have to see the table, you have to see the snow or winter, before you think or before you don’t think. This is the real picture of winter, which is different from spring and summer, et cetera.
 
 In the note, it says:
 
