@@ -11,6 +11,7 @@ Sections:
 
 - [Dogen Index](#dogen-index)
   - [Shobogenzo](#shobogenzo)
+  - [Shobogenzo Zuimonki](#shobogenzo-zuimonki)
   - [Eihei Koroku](#eihei-koroku)
   - [Other Dogen](#other-dogen)
 - [Mahayana Sutras Index](#mahayana-sutras-index)
@@ -85,6 +86,12 @@ Japanese: Kaiin-zanmai
 
 - [Fukanzazengi – Talk 7 (6:15-)](1979-06-15-Fukanzazengi-Talk-7#615)
 
+## Shobogenzo Zuimonki
+
+### Nansen Kills The Cat
+
+[Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2 (1:03:19)](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#10319)
+
 ## Other Dogen
 
 ### Fukanzazengi
@@ -98,6 +105,7 @@ Japanese: Kaiin-zanmai
 - [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 - [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1 (1:01)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#101)
 
 ---
 
