@@ -135,6 +135,10 @@ Japanese: Kaiin-zanmai
 
 - [Fukanzazengi – Talk 4 (15:14-40:16)](1979-06-12-Fukanzazengi-Talk-4#1514)
 
+### Case 89
+
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1 (23:12)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#2312)
+
 ---
 
 # Mahayana Sutras Index
