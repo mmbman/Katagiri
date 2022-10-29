@@ -29,7 +29,7 @@ Sections:
 
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
-- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (36:34)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (36:34)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634)
 - [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 - [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
 - [Shobogenzo: Genjokoan – Talk 2](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
@@ -132,7 +132,7 @@ Japanese: Kaiin-zanmai
 
 ### Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
 
-- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
 
 --- 
 
@@ -178,13 +178,13 @@ Japanese: Kaiin-zanmai
 <a name="BCR-5"></a>
 ### Case 5
 
-[Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+[Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
 
 <a name="BCR-40"></a>
 ### Case 40: Nan Ch’uan’s It’s like a Dream
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
-- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
 <a name="BCR-46"></a>
 ### Case 46: Ching Ch’ing’s Sound of Raindrops
@@ -202,7 +202,7 @@ Japanese: Kaiin-zanmai
 
 ### Case 52
 
-- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
+- [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
 
 
 [Home](index)

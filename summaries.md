@@ -108,7 +108,7 @@ Why is there “no merit”? Katagiri Roshi covers one of the most famous storie
 ### [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 #### January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting 100 points” – not 90, not 99, only 100 or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? And also, how to drag yourself in muddy water like a sewer rat chased by a cat. 
+Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting one hundred points” – not ninety, not ninety-nine, only one hundred or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? Also: how to drag yourself in muddy water like a sewer rat chased by a cat. 
 
 ---
 
@@ -245,7 +245,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 
 --- 
 
-### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 #### February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. 

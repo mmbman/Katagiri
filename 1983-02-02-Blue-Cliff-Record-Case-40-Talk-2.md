@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record, Case 40: Nan Ch’uan’s It’s like a Dream – Talk 2"
+title: "Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2"
 description: February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
 
