@@ -81,11 +81,11 @@ The Case:
 
 About officer Lu Hsuan, see the commentary, page 293:
 
-> The officer Lu Hsuan studied for a long time with Nan Ch’uan. He always kept his mind on essential nature, and he immersed himself in the *Discourses of Chao*. 
+>> The officer Lu Hsuan studied for a long time with Nan Ch’uan. He always kept his mind on essential nature, and he immersed himself in the *Discourses of Chao*. 
 
 The English translation of the *Discourses of Chao* is *Chao Lun: The Treatises of Seng-chao*. You can see, this is a library book.
 
-> One day as they sat, he happened to bring up these two lines, considering them remarkable. He questioned, “Master of the Teachings Chao said, ‘Heaven, earth, and I have the same root; myriad things and I are one body.’ This is quite marvelous.” Master of the Teachings Seng Chao was an eminent monk of Chin times (latter 4th–early 5th centuries A.D.); he was together with Tao Sheng, Tao Jung, and Seng Jui in the school of Kumarajiva. They were called the Four Sages.
+>> One day as they sat, he happened to bring up these two lines, considering them remarkable. He questioned, “Master of the Teachings Chao said, ‘Heaven, earth, and I have the same root; myriad things and I are one body.’ This is quite marvelous.” Master of the Teachings Seng Chao was an eminent monk of Chin times (latter 4th–early 5th centuries A.D.); he was together with Tao Sheng, Tao Jung, and Seng Jui in the school of Kumarajiva. They were called the Four Sages.
 
 Kumarajiva lived from 350 to 409 (CE). It is said that he had four famous philosophical and religious sages [as disciples]: that is Tao Sheng, Tao Jung, Seng Jui, and also Seng Chao, who wrote this treatise. Kumarajiva was greatest translator of Buddhist scriptures. 
 
@@ -113,7 +113,7 @@ That’s why Nan Ch’uan pointed to a flower in the garden, he called to the of
 
 Look at the commentary on page 294, fourth paragraph: 
 
-> Lu Hsuan’s questioning in this manner was indeed quite exceptional, but he did not go beyond the meaning of the Teachings. If you say that the meaning of the Teachings is the ultimate paradigm, then why did the World Honored One also raise the flower? What did the Patriarchal Teacher come from the West for?
+>> Lu Hsuan’s questioning in this manner was indeed quite exceptional, but he did not go beyond the meaning of the Teachings. If you say that the meaning of the Teachings is the ultimate paradigm, then why did the World Honored One also raise the flower? What did the Patriarchal Teacher come from the West for?
  
 This is very important. “Lu Hsuan’s questioning in this manner was indeed quite exceptional, but he did not go beyond the meaning of the Teachings.” He understands the teachings. Buddhism is [not] just that you have to understand, and the individual experience of the teaching. Why is it that Buddha Shakyamuni has to raise the uḍumbara flower and Mahākāśyapa smiling to it? Why did Bodhidharma have to go to China to teach?
 
@@ -125,25 +125,25 @@ So, what is this? This is not understanding of the teaching. That’s why here i
 
 #### 36:52
 
-> Nan Ch’uan’s way of answering used the grip of a patchrobed monk to pull out the painful spot for the other, ...
+>> Nan Ch’uan’s way of answering used the grip of a patchrobed monk to pull out the painful spot for the other, ...
 
 “Pulling out the painful spot for others” means nothing that is your business. That is a really painful spot for us, because we really want to pull out something, get something. But constantly Buddhas and Ancestors emphasize emptiness; that means really a painful spot for us, because [there is] nothing to get. But from nothing, your body, your stomach, really function pretty well. That is called the-same-and-oneness. In terms of the functioning of the-same-and-oneness, it is called emptiness. 
 
 So Nan Ch’uan’s pointing out the flower is a kind of dream, that means nothing for your business. Flower just blooms, whatever you feel. Tiny flowers bloom in the heart of the mountain, even though no one pays attention to them.
 
-> ... and broke up his nest; ...
+>> ... and broke up his nest; ...
 
 “Broke up his nest” means really we don’t know this nest. It’s very difficult to realize the nest, how hard it is, how delicate it is. We don’t know. But consciously or unconsciously, we really rest in our nest. That is called *ignorance* sometimes; it is called *ego-constructed way of life*. *Ignorance* is not the same [kind of ignorance] we usually think; ignorance is some intellectual understanding through everyday life. When ignorance is actualized in your daily living, it appears as craving and grasping. And then your existence is conditioned by those two, craving and grasping; that is the really complete aspect of ignorance. And then through this complete aspect of human existence based on craving and grasping, you can see something strong, rooted, in your life. *Very* strong. You don’t know where it comes from, but it’s there. You don’t know how it works; we don’t know, but it’s really there. And then, we give it a name: *ignorance*. So ignorance is not a kind of idea of the simple nature of human beings, because it is something you can really see through everyday life. It’s coming from your heart. Anyway, that is a nest. 
 
 #### 41:57
 
-> ... he pointed at a flower in the garden and called to the officer, saying, “People these days see this flower as though it were a dream.” This is like leading the man to the edge of a ten thousand fathom cliff and giving him a push, causing his life to be cut off.
+>> ... he pointed at a flower in the garden and called to the officer, saying, “People these days see this flower as though it were a dream.” This is like leading the man to the edge of a ten thousand fathom cliff and giving him a push, causing his life to be cut off.
 
 I don’t think this officer Lu Hsuan accepted Nan Ch’uan’s compassion like this; he didn’t understand. But exactly this is Nan Ch’uan’s very compassionate, simple answer: pointing at the flower, and saying, “People these days see this flower as though it were a dream.” That means really you are driven into a corner, where you cannot move an inch. [Leading you to] the cliff, not the flat even ground... and *push*. That is pretty hard, because usually if you understand something of Buddhism, you really [want to] stay with it, you really want to keep it, you really want to hang on. Particularly if you experience something, you really want to keep it. But that is not real understanding of Buddhism. So you have to get through, [get] down from that situation. For this, Nan Ch’uan had to awaken him [to] where he was. He was just at the level of intellectual understanding. So he put him down, and put him on the top of the cliff, and pushed him. That is pretty hard for us, because if you attain enlightenment, immediately there is nothing. What’s wrong with it? [...] *[Tape skip.]* If you are told by the teacher or by Buddhist teaching that everything is emptiness, what do you mean by this? Can you feel happy? Can you feel pensive? Whatever you feel, it doesn’t hit the mark, because it is the truth. 
 
 #### 45:35
 
-> If you were pushed over on level ground, even till Maitreya Buddha was born in the world, you still would simply be unable to accomplish the cutting off of life.
+>> If you were pushed over on level ground, even till Maitreya Buddha was born in the world, you still would simply be unable to accomplish the cutting off of life.
 
 It’s pretty hard. That’s why we have to take one step forward not on the level ground, but you have to take one step forward from the top of the hundred foot high pole. That is pretty hard. People don’t like this, because people always want to keep [their] egoistic constructed way of life. And then they experience something. That is just taking one step on the level ground. If so, it’s not necessary to practice religions. Religions are very strict... not *strict*, you [don’t have to] risk your life. In a sense you have to risk your life, but before you risk your life, there are lots of things that you have to do, anyway. If you constantly keep your egoistic sense, you never have a chance to know the real meaning of religion. That’s why we have to take one step forward from the top of the hundred foot high pole. That is the teaching everyone doesn’t like. But we have to do it. 
 
