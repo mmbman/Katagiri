@@ -160,14 +160,14 @@ Japanese: Kaiin-zanmai
 <a name="BCR-1"></a>
 ### Case 1: The Highest Meaning of the Holy Truths
 
-- [Blue Cliff Record, Case 1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-- [Blue Cliff Record, Case 1 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+- [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+- [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 <a name="BCR-2"></a>
 ### Case 2: The Ultimate Path Is Without Difficulty
 
-- [Blue Cliff Record, Case 2 – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-- [Blue Cliff Record, Case 2 – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+- [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+- [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 <a name="BCR-3"></a>
 ### Case 3: Master Ma Is Unwell
