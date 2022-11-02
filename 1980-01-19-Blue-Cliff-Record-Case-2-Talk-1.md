@@ -68,9 +68,7 @@ For instance, if you have a TV set, or if you have an electric machine of whatev
 
 Finally, where is the Buddha? How to throw yourself into the Buddha’s house? Buddha is not something *else* apart from us. But if you think of Buddha as something particular, at that time Buddha is something you handle as ontology. So [at that time] you always have to ask, “What is the Buddha?” – you don’t *do*. [It’s the same] whatever you say, even though we don’t use a particular term [like “Buddha”]. “Original nature or existence”: what is the original nature of existence? We don’t know. What is the truth? Always the question comes up. But this is not the main point which Buddhism emphasizes. Our main purpose is, Buddha says, “How can you throw away Buddha?” That is the point at which you have to communicate with the Buddha. How? That is: release, and forget yourself; throw yourself into the bar. At that time, it is completely Buddha’s world: [the bar]. That is called the performance of gymnastics – becoming one. All things become one in gymnastics.
 
-That’s why Engo Zen Master and Dogen used the term *vehicle*, *dharma vehicle*. *Vehicle* is not something your intellectual sense should be on, *vehicle* is that which you yourself must be on, working in peace and harmony with the passengers. That is the vehicle. 
-
-Where is the vehicle? The vehicle means Buddha, Buddha’s world, in which the subject and the object work perfectly in peace and harmony. You and the bar and gymnastics are all working dynamically; that is what is called *vehicle*. 
+That’s why Engo Zen Master and Dogen used the term *vehicle*: *dharma vehicle*. *Vehicle* is not something your intellectual sense should be on, *vehicle* is that which you yourself must be on, working in peace and harmony with the passengers. That is the vehicle. Where is the vehicle? The vehicle means Buddha, Buddha’s world, in which the subject and the object work perfectly in peace and harmony. You and the bar and gymnastics are all working dynamically; that is what is called *vehicle*. 
 
 So, *vehicle* is one hundred points. You can get it. At that time, it’s really perfect. That is called the vehicle. 
 
