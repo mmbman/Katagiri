@@ -114,7 +114,9 @@ So that is Jōshū’s answer. It is enough to ask about the matter, for no matt
 
 Let’s read [Engo Zen Master](glossary#engo-kokugon)’s notes. 
 
-The first note, for “[Jōshū](glossary#jōshū-jūshin) teaching the assembly, said...”, Engo Zen Master says, “What’s the old fellow doing? Don’t create complications!”
+The first note, for “[Jōshū](glossary#jōshū-jūshin) teaching the assembly, said...”, Engo Zen Master says, 
+
+>> What’s the old fellow doing? Don’t create complications!
 
 Of course. If the truth is just like mountains are mountains, flowers are flowers, pebble is pebble, then why do we have to explain? Truth is [just truth] *[unintelligible]*. The river is green, the flower is red. If it is true, why do we have to explain? That’s why [Engo Zen Master] said, “What’s the old fellow doing? Don’t create complications.” In other words, don’t give people trouble. 
 
@@ -122,11 +124,15 @@ For century after century, [Buddhas](glossary#buddha) and [patriarchs](glossary#
 
 #### 39:51
 
-The note for “The Ultimate Path is without difficulty” is: “not hard, not easy.” 
+The note for “The Ultimate Path is without difficulty” is: 
+
+>> Not hard, not easy.
 
 The real truth is completely beyond hard and easy. That’s why he says the ultimate practice is not difficult. Ultimate truth is completely beyond hard and easy. But this is the note; [Engo](glossary#engo-kokugon)’s notes are always criticizing him, criticizing and raising [issues], and completely throwing away, always. In the notes, Engo Zen Master looks at the koans from a different angle. Because everyone looks at the same subject from a different angle. Someone praises his koan; someone criticizes [Jōshū](glossary#jōshū-jūshin) and the monk, et cetera. That’s why Engo Zen Master understands quotes from different angles. That’s why sometimes he praises, admires Jōshū; sometimes he admires the monk who makes a question, whatever it is, a ridiculous or wise question. Anyway, sometimes admiring, sometimes looking down upon him. But whatever he does, it has deep meaning. So here, the same applies to the note for “The Ultimate Path is without difficulty.” Why did he say “not difficult”? Because truth is completely beyond hard or easy. 
 
-The third note, for “... just avoid picking and choosing,” he says, “What’s in front of your eyes? The Third Patriarch is still alive.” 
+The third note, for “... just avoid picking and choosing,” he says, 
+
+>> What’s in front of your eyes? The Third Patriarch is still alive.
 
 This is a statement that [Jōshū](glossary#jōshū-jūshin) Zen Master spoke, but this statement comes from “Belief in Mind,” mentioned by the Third Patriarch. So, what’s in front of your eyes if you say, “don’t pick up anything, don’t choose anything”? 
 
@@ -138,7 +144,9 @@ So [Engo Zen Master](glossary#engo-kokugon) tells [Jōshū](glossary#jōshū-jū
 
 #### 45:57
 
-The fourth note, for “As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity,’” says: “Two heads, three faces. A little boasting. When a fish swims through, the water is muddied; when a bird flies by, feathers fall.” 
+The fourth note, for “As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity,’” says: 
+
+>> Two heads, three faces. A little boasting. When a fish swims through, the water is muddied; when a bird flies by, feathers fall.
 
 ... [Jōshū](glossary#jōshū-jūshin) says at first, if you use words, already you [pick] ...
 
@@ -160,8 +168,11 @@ Complete concentration is no word of concentration – this is also still explan
 
 #### 53:37
 
-The fifth note, for “This old monk doesn’t abide within clarity,” says,
-“His thieving intent already shows; where is the old fellow going?” *[He chuckles slightly.]* His thieving intent already shows because [the moment] you use a word, you are picking and choosing. Don’t use a word. 
+The fifth note, for “This old monk doesn’t abide within clarity,” says
+
+>> His thieving intent already shows; where is the old fellow going?
+
+*[He chuckles slightly.]* His thieving intent already shows because [the moment] you use a word, you are picking and choosing. Don’t use a word. 
 
 Then the older monk says, “I don’t abide within clarity.” That means, I already told you, when you don’t think, you say “I don’t think now,” but you are already thinking. That’s why his thieving intent already shows. You are a ‘thief’. Anyway, you already pick. Already you reveal yourself as a thief. 
 
@@ -171,17 +182,35 @@ I told you before, someone was asked by somebody on the street car, “Where are
 
 #### 56:08
 
-The sixth note says, “He’s defeated. Still there is something, or a half.” It is a note for, “Do you still preserve anything or not?” It’s really [Jōshū](glossary#jōshū-jūshin) trying to pick up somebody, trying to find somebody who is *[unintelligible]* this question. That’s why [Engo](glossary#engo-kokugon) says, “He’s defeated. Still there is something, or a half.” Is there anyone who is against, who has some doubt. 
+The sixth note says,
 
-So finally, he finds that there is a monk who wants to make a question. The seventh note is for, “At that time a certain monk asked, ‘Since you do not abide within clarity, what do you preserve?’” \[[Engo](glossary#engo-kokugon)] says, “The monk presses him well; his tongue is pressed against the roof of his mouth.” That means, Engo really instigates the monk to ask more: “You are a ‘good boy’; go ahead.” *[He chuckles.]* He should drive the older monk or the thief into the corner, where there’s no word, no [explanation]. Anyway, go ahead. That means, Engo says, the monk presses him well: “Good boy. You did it.” So his tongue is pressed against the roof of his mouth; that means, you did it. 
+>> He’s defeated. Still there is something, or a half.
 
-The eighth note, for “[Jōshū](glossary#jōshū-jūshin) replied, ‘I don’t know either’” says, “The monk crushed this old fellow dead; he has to fall back three thousand miles.” Anyway, Jōshū said “I don’t know either.” “I don’t know either” means “you did it, exactly did it; you crushed the old fellow dead.” You completely crushed the thief. Jōshū [Zen Master](glossary#zen-master) completely hangs out the white flag. *[Laughter.]* And then he withdraws three thousand miles, and [hold up there]. That means, “I don’t know.” But it’s not *exactly* hanging out the white flag. It is not the same as we do. It’s a great answer. 
+It is a note for, “Do you still preserve anything or not?” It’s really [Jōshū](glossary#jōshū-jūshin) trying to pick up somebody, trying to find somebody who is *[unintelligible]* this question. That’s why [Engo](glossary#engo-kokugon) says, “He’s defeated. Still there is something, or a half.” Is there anyone who is against, who has some doubt. 
 
-The ninth note, for “The monk said, ‘Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?’” says, “Look! Where is he going? He’s chased him up a tree.”
+So finally, he finds that there is a monk who wants to make a question. The seventh note is for, “At that time a certain monk asked, ‘Since you do not abide within clarity, what do you preserve?’” \[[Engo](glossary#engo-kokugon)] says, 
+
+>> The monk presses him well; his tongue is pressed against the roof of his mouth.
+
+That means, Engo really instigates the monk to ask more: “You are a ‘good boy’; go ahead.” *[He chuckles.]* He should drive the older monk or the thief into the corner, where there’s no word, no [explanation]. Anyway, go ahead. That means, Engo says, the monk presses him well: “Good boy. You did it.” So his tongue is pressed against the roof of his mouth; that means, you did it. 
+
+The eighth note, for “[Jōshū](glossary#jōshū-jūshin) replied, ‘I don’t know either’” says, 
+
+>> The monk crushed this old fellow dead; he has to fall back three thousand miles.
+
+Anyway, Jōshū said “I don’t know either.” “I don’t know either” means “you did it, exactly did it; you crushed the old fellow dead.” You completely crushed the thief. Jōshū [Zen Master](glossary#zen-master) completely hangs out the white flag. *[Laughter.]* And then he withdraws three thousand miles, and [hold up there]. That means, “I don’t know.” But it’s not *exactly* hanging out the white flag. It is not the same as we do. It’s a great answer. 
+
+The ninth note, for “The monk said, ‘Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?’” says, 
+
+>> Look! Where is he going? He’s chased him up a tree.
 
 “Look, where is he going?” That means, [Engo Zen Master](glossary#engo-kokugon) says, “Look at [Jōshū](glossary#jōshū-jūshin)! Watch out, he is great Zen Master! You should watch carefully where he is going, where he is escaping from, your question. Watch out, he is great Zen Master. So finally Engo Zen Master says, “He’s chased him up a tree,” because the monk drives Jōshū Zen Master into the corner, where there is no escape, no choice. That right now is on the verge of life and death. Great! Look, watch carefully. Where is he escaping [from], where is he heading [for]?
 
-The tenth note, for “[Jōshū](glossary#jōshū-jūshin) said, ‘It is enough to ask about the matter; [bow](glossary#bowing) and withdraw’,” says, “Lucky thing he has this move; the old thief!” That’s great [action]. Jōshū did it. Very [naturally], he did it.
+The tenth note, for “[Jōshū](glossary#jōshū-jūshin) said, ‘It is enough to ask about the matter; [bow](glossary#bowing) and withdraw’,” says, 
+
+>> Lucky thing he has this move; the old thief!
+
+That’s great [action]. Jōshū did it. Very [naturally], he did it.
 
 #### 1:02:00
 
@@ -209,11 +238,11 @@ Do you have some questions?
 
 **Katagiri**: Well that is that love and hate, for all those people, those are afflictive preferences, [much] emotional stuff. But we already have love and hate and [much] emotional stuff. We don’t ignore it. We cannot throw them away, okay? [So] where does that [phrase come from], “avoid love and hate”? Because we love already. “We have already” means that we have to take care. That means we shouldn’t obsess with them, and, well, we shouldn’t be confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
 
-**Question**: What I was wondering was do we have a choice, to hate or not to hate.
+**Same Person**: What I was wondering was do we have a choice, to hate or not to hate.
 
 **Katagiri**: Of course, we should choose. But you cannot always be hanging on. Sooner or later, you must be free. Even though love is good, you cannot always be hanging on.
 
-**Question**: We get to choose not to love or not to hate?
+**Same Person**: We get to choose not to love or not to hate?
 
 **Katagiri**: First choose, but we must be free from it, finally. That means we should understand what real love is, real hate is. Do you understand? 
 
@@ -222,8 +251,6 @@ Well anyway, you have to reach the third stage. *[He laughs.]* But you should ch
 But it is your understanding, your life. So, first, it is not perfect. If you realize this, simultaneously you get into the second stage, “mountains are not mountains.” And then you can research, one by one: *why*? That is our practice. And finally, we can come back again to “mountains are mountains”; this is the third stage. At that time, we can really understand what real love is, what real hate is. What is the real meaning of the afflictive preferences that human beings possess? But, no words. Completely, words drop off. That means, you can handle afflictive preferences from day-to-day, in a way in which you are still free from this. This is our practice. 
 
 [Engo](glossary#engo-kokugon)’s commentary is pretty nice. So, if you have time to read the commentary to this case, you should. I don’t have enough time to study with you the verses, the poem, and the commentary to the poem.
-
-Okay.
 
 #### 1:16:06 end of recording
 
