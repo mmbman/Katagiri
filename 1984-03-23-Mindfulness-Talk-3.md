@@ -4,7 +4,7 @@ description: March 23, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1984) \| 
-[Previous](1984-03-21-Mindfulness-Talk-2) \| 
+[Previous](1984-03-22-Mindfulness-Talk-2) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
 ## Summary
@@ -87,5 +87,5 @@ At this very moment, observation is very excellent. No comparison. Just total dy
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1984) \| 
-[Previous](1984-03-21-Mindfulness-Talk-1) \| 
+[Previous](1984-03-22-Mindfulness-Talk-2) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)

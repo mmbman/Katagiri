@@ -11,11 +11,11 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on the “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”. Along the way, he discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
 
-(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some cases where he says *impure* here, it may be helpful to substitute *not pure* or *not-pure*, which carries less of a moral connotation in the West. He offers an additional reason in Talk 3. However, in some cases he is actually discussing the moral sense or moral practice; in those cases *impure* might still make more sense.)
-
 ## Transcript
 
 **This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
+
+(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some cases where he says *impure* here, it may be helpful to substitute *not pure* or *not-pure*, which carries less of a moral connotation in the West. He offers an additional reason in Talk 3. However, in some cases he is actually discussing the moral sense or moral practice; in those cases *impure* might still make more sense.)
 
 ### Part 1
 
