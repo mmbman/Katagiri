@@ -9,13 +9,13 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary 
 
-Katagiri Roshi discusses the Four Foundation of Mindfulness, adding his commentary on the “Thirty-seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. He begins with the first foundation: contemplation of the body as “impure”. Along the way, he discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
+Katagiri Roshi discusses the Four Foundation of Mindfulness, focusing on the first foundation: contemplation of the body as “impure”. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
 
 ## Transcript
 
 **This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
 
-(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some cases where he says *impure* here, it may be helpful to substitute *not pure* or *not-pure*, which carries less of a moral connotation in the West. He offers an additional reason in Talk 3. However, in some cases he is actually discussing the moral sense or moral practice; in those cases *impure* might still make more sense.)
+(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether, which he discusses further in Talk 3.)
 
 ### Part 1
 
@@ -28,9 +28,9 @@ There are four kinds of mindfulness as one of the traditional Buddhist practices
 - Contemplation of the mind as impermanent.
 - Contemplation of existence as insubstantial.
 
-These are the Four Stages of Mindfulness (often called the Four Foundations of Mindfulness), which are very general and traditional in Buddhist practice.
+These are the Four Stages of Mindfulness, which are very general and traditional in Buddhist practice. (Transcriber’s Note: They are often called the Four Foundations of Mindfulness. Another translation is *the four areas of present-moment awareness*.)
 
-First of all I would like to explain the contemplation or observation of the body as impure. Generally speaking, it is considering the body as impure in the common sense. This is because human beings really attach to the human body or human life as pure, emphasizing strongly their wealth, their position, their family’s status, their cleverness, their property, et cetera. Very naturally we create too strong an attachment to these things. That’s why Buddha emphasizes to consider the body as impure: in order to be free from the attachment to the human body. 
+First of all I would like to explain the contemplation or observation of the body as impure. Generally speaking, it is considered as [contemplating that] the body is impure in the common sense, because human beings really attach to the human body or human life as *pure*, emphasizing strongly their wealth, their position, their family’s status, their cleverness, their property, et cetera. Very naturally we create too strong an attachment to these things. That’s why Buddha emphasizes to consider the body as impure: in order to be free from the attachment to the human body. 
 
 For instance, I always tell people, the more you live out your life with very hard effort, the more you want to emphasize how wonderful your life is, and you want to give it forcibly to others. This is really arrogance; you are really arrogant with your life. If you look at your parents and grandparents, who have lots of experiences on the basis of hard work year after year, very naturally they really attach to their own lifestyles. We respect their lifestyle because that was very important for them, and also we can learn lots of things from their lives. But I don’t think it is necessary for them to attach to their own lifestyle, because that is really prejudice. So very naturally, a child doesn’t follow this; the child is naturally against it. The same applies to our lives. In many ways – social status, position, and your lifestyle, or your viewpoint, whatever it is – we always believe our viewpoints on the human world are “pure”; that means my views are “right”. That is attachment or prejudice, which is called *wrong view* in Buddhism.
 
@@ -42,17 +42,17 @@ But Dogen Zenji understands this practice very deeply, so his teaching is quite 
 
 *Shobogenzo* is already translated into English, but we don’t understand it completely when we read it. Even the Japanese don’t understand it. If you translate it, it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
 
-Here is one translation by Uchiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness in Japanese, it’s kind of like repeating a magic spell. People don’t understand it.
+Here is one translation by Uchiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness in Japanese, it’s kind of like repeating a magic spell. People don’t understand it. 
 
-When I was at Eiheiji monastery, I didn’t understand why Dogen Zenji had to explain this deeply. Traditionally, it’s pretty easy to understand: contemplate the body as impure, it’s very simple. So why did Dogen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life, you have to try to understand this one, again and again. This is very important for us. 
+When I was at Eiheiji monastery, I didn’t understand why Dogen Zenji had to explain this deeply. Traditionally it’s pretty easy to understand: contemplate the body as impure, it’s very simple. So why did Dogen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life, you have to try to understand this one, again and again. This is very important for us. 
 
-But most people don’t understand it, particularly this chapter. The title is “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”. This chapter is very difficult to understand, because he explains the whole traditional Buddhist practice, but completely beyond the traditional understanding. So it’s a very difficult chapter. If you understand it, you will really touch the deep sense of Buddha’s teaching, common not only to priest life, but penetrating into everybody’s life, and also all sentient beings. You can really taste it. But until you can reach this deep understanding... well, it takes time. But even though you don’t understand, I have to say something. That’s the best attitude. 
+But most people don’t understand it, particularly this chapter. The title is “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”. This chapter is very difficult to understand, because he explains the whole traditional Buddhist practice, but completely beyond the traditional understanding. So it’s a very difficult chapter. If you understand it, you will really touch the deep sense of Buddha’s teaching, common not only to priest life, but penetrating into everybody’s life, and also all sentient beings. You can really taste it. But until you can reach this deep understanding... well, it takes time. 
 
-Let me first read the translation by Uchiyama: 
+But even though you don’t understand, I have to say something. That’s the best attitude. Let me first read the translation by Uchiyama: 
 
 > Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. This becomes the true body, and therefore transcends pure and impure. If there is no detachment, there can be no attainment of this observation. If there is no body, there can be no attainment of practice, teaching, or observation of the body’s impurity. Yet the attainment of this observation has already been actualized, so we should know that it is gained through detachment. The attainment of this observation appears in such daily activities as sweeping the grounds and wiping the zazen platform. If we practice like this for months and years, it will become an absolute fact covering the great earth in its pure suchness.
 
-This paragraph says that practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. But Dogen also explains why we have to do it. In ancient times this practice was done by monks, contemplating the body as impure; why is it he has to say contemplating the body *beyond* the idea of purity or impurity? The explanation is here, so little by little, we want to study it.
+This paragraph says that practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. But Dogen also explains why we have to do it. In ancient times this practice of contemplating the body as impure was done by monks; why is it he has to say contemplating the body *beyond* the idea of purity or impurity? The explanation is here, so little by little, we want to study it.
 
 #### part 1 16:00
 
@@ -60,17 +60,17 @@ First of all, he says:
 
 > Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions. 
 
-Usually we understand the contemplation of the body as impure is taking the body as impure. But he doesn’t take the human body as impure; he takes the human body as beyond impurity or purity. The human body you observe is nothing but a bag of skin, but on the other hand it is the entire universe; that is what this sentence says. Your human body is nothing but a bag of skin, but on the other hand, it is the universe means your body is Buddha. So take care of your body as Buddha, beyond good or bad, right or wrong, purity or impurity. 
+Usually we understand the contemplation of the body as impure is taking the body as impure. But he doesn’t take the human body as impure; he takes the human body as beyond impurity or purity. The human body you observe is nothing but a bag of skin, but on the other hand it is the entire universe; that is what this sentence says. *Your human body is nothing but a bag of skin but on the other hand it is the universe* means your body is Buddha. So take care of your body as Buddha, beyond good or bad, right or wrong, purity or impurity. 
 
-For instance, there are four very basic dimensions of human health. In order to keep your body and mind healthy, we have to take care of your skin, four limbs, nutrition, and also mental or spiritual life. 
+For instance, there are four very basic dimensions of human health: we have to take care of your skin, four limbs, nutrition, and also mental or spiritual life, in order to keep your body and mind healthy. 
 
-The skin doesn’t mean only the skin. If you look at the skin and you feel someone is beautiful, at that time you can say he or she is beautiful. Of course you can say so, but on the other hand, you don’t know what’s going on inside of the skin. Even though the skin is healthy, you don’t know what’s going on inside of the skin or behind the skin, you cannot see it. So the skin is healthy, but the skin is not healthy. It means that the skin is the total picture of human life. 
+But the skin doesn’t mean only the skin. If you look at the skin and you feel someone is beautiful, at that time you can say he or she is beautiful. Of course you can say so, but on the other hand, you don’t know what’s going on inside of the skin. Even though the skin is healthy, you don’t know what’s going on inside of the skin or behind the skin, you cannot see it. So the skin is healthy, but the skin is not healthy. It means that the skin is the total picture of human life. 
 
 In a sense, the human body is always sick. But as a whole, you are not sick; you are pretty good. So are you sick? No, you are not sick. But are you pretty healthy? No; more or less, we have lots of sickness. 
 
 Your body is nothing but a bag of skin, but on the other hand, it is the universe. *Universe* means you cannot pin down whether your skin is good or bad, pure or impure; you cannot say so, because it’s *big*. Your skin is connected with mental life, and also your four limbs, which means your activities. If your activities don’t work well, it’s pretty hard to keep your body healthy. So you need to take really good care of the human skin, the physical body, and nutrition, and on the other hand, human activities are very important for us. If you have a lack of human activities, you cannot keep your body healthy. And mental life, this is also important. 
 
-So even though your human body is healthy, still your mental life is not healthy sometimes, or your activities are not good enough, or there is some problem with your nutrition. So in many ways you have lots of sickness – but on the other hand, as a whole, you look healthy. Pretty healthy – but on the other hand, unhealthy. So what is the idea of “health”? We don’t know. Because if you really want to keep your human body healthy, you have to take care of human activities, nutrition, and mental activities or spiritual life. They’re all connected with each other. Spiritual life is really vast; connected with astrology, the function of the stars, the planets you have never been to – that is also spiritual life and your lifestyle. So you don’t know; it’s really vast. 
+So even though your human body is healthy, still your mental life is not healthy sometimes, or your activities are not good enough, or there is some problem with your nutrition. So in many ways you have lots of sickness – but on the other hand, as a whole, you look healthy. Pretty healthy – but on the other hand, not healthy. So what is the idea of “health”? We don’t know. Because if you really want to keep your human body healthy, you have to take care of human activities, nutrition, and mental activities or spiritual life. They’re all connected with each other. Spiritual life is really vast; connected with astrology, the function of the stars, the planets you have never been to – that is also spiritual life and your lifestyle. So you don’t know; it’s really vast. 
 
 That’s why Dogen Zenji says immediately in the first sentence, “The observation or contemplation of the human body as impure is that which a bag of skin contemplating the body is the entire universe of the ten directions.” (Transcriber’s Note: The actual sentence is, “Observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions,” but this version seems interesting in itself.) The body you are observing in meditation is nothing but a bag of skin, but on the other hand it’s not, it’s huge, because you have to see the human body in the universal perspective. Otherwise, you don’t understand human bodies. Otherwise you cannot keep the human body healthy. Because it’s connected with human activities, spiritual life; so you don’t understand it. 
 
@@ -390,7 +390,7 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 
 *[Laughter.]*
 
-#### End of part 3
+#### End of Part 3
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
