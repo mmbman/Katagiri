@@ -42,22 +42,16 @@ Sections:
 
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Talk-6#11636)
 
-### One Bright Pearl
-
-Japanese: Ikka myōju – 顆明珠
+### One Bright Pearl (*Ikka Myōju*)
 
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
-### Life and Death
-
-Japanese: Shōji
+### Life and Death (*Shōji*)
 
 - [Blue Cliff Record, Case 2 – Talk 1 (7:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#730)
 
-### Four Horses
-
-Japanese: Shime
+### Four Horses (*Shime*)
 
 - [Blue Cliff Record, Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
 
@@ -65,7 +59,12 @@ Reference:
 
 - [Dogen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
 
-### Zazengi
+
+### Thirty-Seven Elements of Bodhi (*Sanjūshichi-bon-bodai-bunpō*)
+
+- [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
+
+### *Zazengi*
 
 This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 
@@ -129,6 +128,10 @@ Japanese: Kaiin-zanmai
 ### Vimalakirti Sutra
 
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
+
+### Mahāyāna Mahāparinirvāṇa Sūtra (Nirvana Sutra)
+
+- [Mindfulness – Talk 1 (part 1 32:56)](1984-03-21-Mindfulness-Talk-1#part-1-32:56)
 
 ### Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
 
@@ -199,6 +202,10 @@ Japanese: Kaiin-zanmai
 ---
 
 # Book of Equanimity Index
+
+### Case 38: Linji’s (Rinzai’s) “True Person”
+
+- [Mindfulness – Talk 1 (part 2)](1984-03-21-Mindfulness-Talk-1#part-2)
 
 ### Case 52
 
