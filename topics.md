@@ -203,11 +203,15 @@ Japanese: Kaiin-zanmai
 
 # Book of Equanimity Index
 
+### Case 21: Yunyan Sweeps the Ground
+
+- [Mindfulness – Talk 1 (part 2 14:39)](1984-03-21-Mindfulness-Talk-1#part-2-14:39)
+
 ### Case 38: Linji’s (Rinzai’s) “True Person”
 
 - [Mindfulness – Talk 1 (part 2)](1984-03-21-Mindfulness-Talk-1#part-2)
 
-### Case 52
+### Case 52: Caoshan’s “Reality Body”
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
 
