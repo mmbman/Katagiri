@@ -15,8 +15,6 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the fi
 
 **This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
 
-(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether, which he discusses further in Talk 3.)
-
 ### Part 1
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321a.mp3" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
@@ -26,11 +24,17 @@ There are four kinds of mindfulness as one of the traditional Buddhist practices
 - Contemplation of the body as impure.
 - Contemplation of feeling as suffering.
 - Contemplation of the mind as impermanent.
-- Contemplation of existence as insubstantial. (Or “all things are devoid of self.”)
+- Contemplation of existence as insubstantial. (Or “all dharmas are devoid of self.”)
 
-These are the Four Stages of Mindfulness, which are very general and traditional in Buddhist practice. 
+These are the four stages of mindfulness, which are very general and traditional in Buddhist practice. 
 
-(Transcriber’s Note: *The Four Stages of Mindfulness* are often called the *Four Foundations of Mindfulness* or *Four Abodes of Mindfulness*. Another translation is *the four areas of present-moment awareness* (see Glenn Wallis, *Basic Teachings of the Buddha*). The description of the Four Stages above is from the first paragraph of the *Shobogenzo* chapter referenced in this series of talks.)
+(Transcriber’s Note: The *four kinds of mindfulness* are often called the *Four Foundations of Mindfulness* or *Four Abodes of Mindfulness*. Another translation is *the four areas of present-moment awareness* (see Glenn Wallis, *Basic Teachings of the Buddha*).)
+
+(Transcriber’s Note: The above description of the four stages is from the first paragraph of the chapter of *Shobogenzo* referenced in this series of talks.)
+
+(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether. He discusses this further in Talk 3.)
+
+#### part 1 1:38
 
 First of all I would like to explain the contemplation or observation of the body as impure. Generally speaking, it is considered as [contemplating that] the body is impure in the common sense, because human beings really attach to the human body or human life as *pure*, emphasizing strongly their wealth, their position, their family’s status, their cleverness, their property, et cetera. Very naturally we create too strong an attachment to these things. That’s why Buddha emphasizes to consider the body as impure: in order to be free from the attachment to the human body. 
 
@@ -44,7 +48,7 @@ But Dogen Zenji understands this practice very deeply, so his teaching is quite 
 
 *Shobogenzo* is already translated into English, but we don’t understand it completely when we read it. Even the Japanese don’t understand it. If you translate it, it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
 
-Here is one translation by Nishiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness in Japanese, it’s kind of like repeating a magic spell. People don’t understand it. When I was at Eiheiji monastery, I didn’t understand why Dogen Zenji had to explain this deeply. Traditionally it’s pretty easy to understand: contemplate the body as impure, it’s very simple. So why did Dogen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life, you have to try to understand this one, again and again. This is very important for us. 
+Here is one translation by Nishiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness in Japanese, it’s kind of like repeating a magic spell. When I was at Eiheiji monastery, I didn’t understand why Dogen Zenji had to explain this deeply. Traditionally it’s pretty easy to understand: contemplate the body as impure, it’s very simple. So why did Dogen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life, you have to try to understand this one, again and again. This is very important for us. 
 
 But most people don’t understand it, particularly this chapter. The title is “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”. This chapter is very difficult to understand because he explains the whole traditional Buddhist practice but completely beyond the traditional understanding. So it’s a very difficult chapter. If you understand it, you will really touch the deep sense of Buddha’s teaching, common not only to priest life, but penetrating into everybody’s life, and also all sentient beings. You can really taste it. But until you can reach this deep understanding... well, it takes time. 
 
