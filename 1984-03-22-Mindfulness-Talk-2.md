@@ -63,6 +63,85 @@ Do you have questions?
 
 #### 7:30
 
+**Question**: Roshi, what do you mean by the term *time*? 
+
+**Katagiri**: Um... What do you want to know about time?
+
+*[Laughter.]*
+
+**Same person**: It seems like next time you use it I have no sense of what it is, and especially when you talk about the intersection of time and space. You didn’t talk about that today, but you said time, so that brought that up for me. I always have trouble figuring out what that means. Because I don’t understand your use of the word time. 
+
+**Katagiri**: But in common sense, maybe you can see the twelve hours, twenty four hours, you know? This is also time. In common sense, we believe that time is going through the past to the present to the future. This is our common sense [of] time. And also, that time is always alive within your life, physically and mentally. Do you understand? Your skin, your nose, and each pore, working with in the time process. 
+
+And also, your thought, your understanding, your feeling, your emotions – always working in the process of time. Alright?
+
+**Same person**: Time meaning past, present and future? 
+
+**Katagiri**: Yes: past, present, future. Apparantly we live conspicuously always in time process. It’s very clear. But as a teaching we say cause and effect: here’s a cause, and the effect. Cause, and effect, like this. That is always we see the human life in the time process. That is called teaching of causation. Alright? 
+
+But still there is something more than the teaching of causation: that is so-called *space*. Space means the point you occupy, right now right here. You have right-now-right-here, tape recorder has right-now-right-here, which exists. So everyone has right-now-right-here. So it’s still always a thousand million right-now-right-here exist, in space. Do you understand? *[He chuckles.]* And then, if you see this, that right-now-right-here, in terms of the time process all are connected to each other, in one body, straight line from the past, to the present, to the future. But in terms of space, it’s scattered. Do you understand? Right-now-right-here, right-now-right-here... *[Laughter.]* 
+
+**Same person**: This is where I start to get lost. *[Laughter.]*
+
+**Katagiri**: That is space. *[Laughter.]* So, your trees, and birds, all are separate, you know? Separate, and simultaneously we are connected in space.
+
+So that’s why time is, in the common sense, twelve hours, in a sense, and is going from the past through the present to the future. And also, if you see time more clearly, in more detail, that time is called *moment*. So your life, your skin, is going metabolically, that is you can see your life, your skin in the time process. So every moment, your skin is working. So that moment it is ... shortest period of moment. I don’t know; he knows. Shortest time. Anyway, moment is the shortest time. And that time process consists of many, many, myriad of moments. So in a second we can see there are many moments there. That is completely beyond the concept of the past, present, future. That moment is always moving in all directions, not only a certain process, so-called from the past to the present to the future, no. This is also understanding of time. 
+
+**Same person**: When you say many moments, you mean like Bonnie’s moment and Roger’s moment, and your moment and my moment? 
+
+**Katagiri**: Sure. Moments.
+
+**Same person**: Is that what you mean by many moments? Everybody’s present? 
+
+**Katagiri**: Everybody present in the moment. The microphone exists... the presence of microphone is based on the moment. We can understand it. But still there are lots of moments we don’t understand, within the single moment you can understand. Still you don’t know. So one moment consists of 60 or 70 instants. If you hear this sound, so-called moment, you’ve already missed lots of moments. This is also moment. 
+
+**Same person**: You mean missed lots of moments because you’re paying attention to that [moment]...
+
+**Katagiri**: Yeah, yeah. Consciousness pays attention to this sound. And then we say, “moment”. But that moment is already ... that moment has a long length and wideness, because this sound has to reach to your [knowledge], like this. But we say “moment,” but I don’t know... it is not the shortest moment, shortest time. The shortest time is what? Sixty moments you have missed. *[He laughs.]* The moment when you listen to this moment *[finger snap]*, you have already missed sixty instants within it.
+
+**Same person**: Could you describe space again?
+
+*[Laughter]*
+
+**Katagiri**: The place you sit there, that is space. 
+
+**Same person**: So are you saying that that’s a form of time?
+
+**Katagiri**: Yeah. This is time. You are in that space, you are thinking – that is time. Your thinking and analyzing, synthesizing, and you see me, and you judge it, et cetera. That is time. 
+
+**Same person**: So what is the intersection of time and space?
+
+**Katagiri**: Intersection of time and space is reality you live in. You cannot separate this is time, this is space. In other words, you exist there, that place. Simultaneously, you cannot see it. You exist there, but you cannot exist there, because time is going. According to space you exist there, it’s clear. But in the time process, you don’t exist, because you have to go. So always there is something there but something not there. That is the intersection that always happens. 
+
+That’s why life has beginning and end, but there is no beginning and end. That is eternal life. That is space. But that eternal life is where? Is there something special, beyond the place where you sit down there? No. It’s there. That is time. 
+
+So you are there, but you are not there. That is the intersection of time and space. That’s why all gets sucked in, melted away into something. And then, grow something. So if everything becomes zero, it doesn’t matter, just live there, without any rules, et cetera. But next moment it appears. That is the end of something has been melted away into something, and then simultaneously it’s happening. 
+
+I told you, ... in the beginning.
+
+**Same person**: So what happens when we try to become conscious of the moment?
+
+**Katagiri**: That is when you focus on the moment, very naturally you awaken the bodhi mind, the way-seeking mind. Because you have to live there, so the question comes up, how should we live there, in the moment. 
+
+**Same person**: If total dynamic working happens without inserting consciousness, right? 
+
+**Katagiri**: Beyond consciousness. Total dynamic working is there, but it’s very difficult to see the total dynamic working, that’s why total dynamic working appears as consciousness, that’s it. 
+
+**Same person**: But that’s after.
+
+**Katagiri**: No not after; simultaneously *[he laughs]* consciousness appears. 
+
+But if you say “after,” I think that is already that you think that total dynamic working ... in relationship between total dynamic working and consciousness in the the time process. But it’s not the time process, it’s simultaneously there. 
+
+Total dynamic working *[he laughs]* is functioning with all beings, okay? That’s why Dogen Zenji mentions “the entire universe.”
+
+**Same person**: But what I’m saying is when you’re thinking about it, it’s already happened. 
+
+**Katagiri**: Yeah, it already happened, because “the entire universe” in so-called total dynamic working means that which myriad beings exist in peace and harmony, that’s it. And then at the time myriad beings must relate with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist. That is the entire whole universe. “Entire universe” means all beings exist, anyway. But that is still an idea, so next moment how entire how universe exists? That why we say the total dynamic working. So total dynamic working as the whole entire universe means each individual must relate with *I*. 
+
+
+
+
 .......
 
 ### Part 3
