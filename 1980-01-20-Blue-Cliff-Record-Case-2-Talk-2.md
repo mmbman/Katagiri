@@ -176,41 +176,39 @@ The fifth note, for “This old monk doesn’t abide within clarity,” says:
 
 >> His thieving intent already shows; where is the old fellow going?
 
-*[He chuckles slightly.]* His thieving intent already shows because [the moment] you use a word, you are picking and choosing. Don’t use a word. 
+*[He chuckles slightly.]* His thieving intent already shows because as soon as you use a word, you are picking and choosing. Don’t use a word. 
 
-Then the older monk says, “I don’t abide within clarity.” That means, I already told you, when you don’t think, you say “I don’t think now,” but you are already thinking. That’s why his thieving intent already shows. You are a ‘thief’. Anyway, you already pick. Already you reveal yourself as a thief. 
+Then the older monk says, “I don’t abide within clarity.” That means, I already told you, when you don’t think, you say “I don’t think now,” but that is already you thinking. That’s why his thieving intent already shows. You are a “thief”. Anyway, you already pick, and you reveal yourself as a thief. 
 
-“Where is the old fellow going?” Where are you heading for? You say, “I don’t know. Ask my feet.” *[He laughs.]* It is already you showing yourself as a thief; you are not true to yourself. If you don’t know where you are heading for, you cannot say so. Just go. Just go with careful attention. If you say, “I don’t know where I am heading for,” it is not true. Anyway it is not the true way to get there.
-
-I told you before, someone was asked by somebody on the street car, “Where are you heading for?” He said, “I don’t know where I am heading for. Ask my feet.” That is really confusion. *[Unintelligible.]*
+“Where is the old fellow going?” Where are you heading for? You say, “I don’t know. Ask my feet.” *[He laughs.]* That is already you showing yourself as a thief; you are not true to yourself. If you don’t know where you are heading for, you cannot say so. Just go. Just go with careful attention. If you say, “I don’t know where I am heading for,” it is not true. [Anyway it is not the true way to get there.] I told you before, someone was asked by somebody on the street car, “Where are you heading for?” He said, “I don’t know where I am heading for. Ask my feet.” That is really confusion. *[Unintelligible.]*
 
 #### 56:08
 
-The sixth note says,
+The sixth note says:
 
 >> He’s defeated. Still there is something, or a half.
 
-It is a note for, “Do you still preserve anything or not?” It’s really Jōshū trying to pick up somebody, trying to find somebody who is *[unintelligible]* this question. That’s why Engo says, “He’s defeated. Still there is something, or a half.” Is there anyone who is against, who has some doubt. 
+It is a note for, “Do you still preserve anything or not?” It’s really Jōshū trying to pick up somebody, trying to find somebody who is *[unintelligible]* about this question. That’s why Engo says, “He’s defeated. Still there is something, or a half.” Is there anyone who is against, who has some doubt. 
 
-So finally, he finds that there is a monk who wants to make a question. The seventh note is for, “At that time a certain monk asked, ‘Since you do not abide within clarity, what do you preserve?’” [Engo] says, 
+So finally, he finds that there is a monk who wants to make a question. The seventh note is for, “At that time a certain monk asked, ‘Since you do not abide within clarity, what do you preserve?’” [Engo] says:
 
 >> The monk presses him well; his tongue is pressed against the roof of his mouth.
 
-That means, Engo really instigates the monk to ask more: “You are a ‘good boy’; go ahead.” *[He chuckles.]* He should drive the older monk or the thief into the corner, where there’s no word, no [explanation]. Anyway, go ahead. That means, Engo says, the monk presses him well: “Good boy. You did it.” So his tongue is pressed against the roof of his mouth; that means, you did it. 
+That means, Engo really instigates the monk to ask more: “You are a ‘good boy’; go ahead.” *[He chuckles.]* He should drive the older monk, the thief, into the corner, where there’s no word, no [explanation]. Anyway, go ahead. That means, Engo says, the monk presses him well: “Good boy. You did it.” So his tongue is pressed against the roof of his mouth; that means, you did it. 
 
-The eighth note, for “Jōshū replied, ‘I don’t know either’” says, 
+The eighth note, for “Jōshū replied, ‘I don’t know either’” says:
 
 >> The monk crushed this old fellow dead; he has to fall back three thousand miles.
 
-Anyway, Jōshū said “I don’t know either.” “I don’t know either” means “you did it, exactly did it; you crushed the old fellow dead.” You completely crushed the thief. Jōshū Zen Master completely hangs out the white flag. *[Laughter.]* And then he withdraws three thousand miles, and [hold up there]. That means, “I don’t know.” But it’s not *exactly* hanging out the white flag. It is not the same as we do. It’s a great answer. 
+Anyway, Jōshū said “I don’t know either.” “I don’t know either” means “you did it, exactly did it; you crushed the old fellow dead.” You completely [caught] the thief. Jōshū Zen Master completely hangs out the white flag. *[Laughter.]* And then he withdraws three thousand miles, and [holds up there]. That means, “I don’t know.” But it’s not *exactly* hanging out the white flag; it is not the same as we do. It’s a great answer. 
 
-The ninth note, for “The monk said, ‘Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?’” says, 
+The ninth note, for “The monk said, ‘Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?’” says:
 
 >> Look! Where is he going? He’s chased him up a tree.
 
-“Look, where is he going?” That means, Engo Zen Master says, “Look at [Jōshū]! Watch out, he is great Zen Master! You should watch carefully where he is going, where he is escaping from, your question. Watch out, he is great Zen Master. So finally Engo Zen Master says, “He’s chased him up a tree,” because the monk drives Jōshū Zen Master into the corner, where there is no escape, no choice. That right now is on the verge of life and death. Great! Look, watch carefully. Where is he escaping [from], where is he heading [for]?
+“Look, where is he going?” That means, Engo Zen Master says, “Look at [Jōshū]! Watch out, he is great Zen Master! You should watch carefully where he is going, where he is escaping from, your question. Watch out, he is great Zen Master.” So finally Engo Zen Master says, “He’s chased him up a tree,” because the monk drives Jōshū Zen Master into the corner, where there is no escape, no choice, that right now is on the verge of life and death. Great! Look, watch carefully. Where is he escaping [from], where is he heading for?
 
-The tenth note, for “Jōshū said, ‘It is enough to ask about the matter; bow and withdraw’,” says, 
+The tenth note, for “Jōshū said, ‘It is enough to ask about the matter; bow and withdraw’,” says:
 
 >> Lucky thing he has this move; the old thief!
 
@@ -218,17 +216,17 @@ That’s great [action]. Jōshū did it. Very [naturally], he did it.
 
 #### 1:02:00
 
-When you discuss human life and the human world, philosophical, psychologically... well, it drives you into the corner, where there is no chance to escape. That means, you are completely on the top of 100-feet high pole. The intellect cannot reach. And simultaneously that is reality, in which your life is present. It is reality, too. So, in whatever way you try to understand human life, intellectually or practically, you reach the same situation: being on the top of a 100-feet high pole where you cannot move an inch. 
+When you discuss human life and the human world, philosophically, psychologically... well, it drives you into the corner, where there is no chance to escape. That means, you are completely on the top of a hundred foot high pole. The intellect cannot reach. And simultaneously that is reality, in which your life is present. It is reality, too. So, in whatever way you try to understand human life, intellectually or practically, you reach the same situation: being on the top of a hundred foot high pole where you cannot move an inch. 
 
-But, you *have* to. You cannot stay there. You have to do something. Because in this reality, many things are moving and changing. This reality is something which is moving and changing constantly. You cannot stay always without doing anything. So you have to move ahead from the top of the 100-foot high pole. This is daily living. 
+But, you *have* to [move]. You cannot stay there. You have to do something. Because in this reality, many things are moving and changing. This reality is something which is moving and changing constantly. You cannot stay always without doing anything. So you have to move ahead from the top of the hundred foot high pole. This is daily living. 
 
-Intellectually, if you move from the top of the 100-foot high pole, you appear to die. But, you cannot stay there. If you stay, you are falling. If you go, you will burn out. Whatever you think, it doesn’t make sense. Finally, what shall I do? This is, your reality is exactly on the verge of life and death. And then finally, what you’ll do is, release, and forget yourself, and throw yourself away, into [Buddha](glossary#buddha)’s home. That means completely full concentration, with wholeheartedness. We have to deal with the book as it really is, before you pick and choose with your affective preferences. This is our practice, daily practice. Continually we have to do this. 
+Intellectually, if you move from the top of the hundred foot high pole, you appear to die. But you cannot stay there. If you stay, you are falling. If you go, you will burn out. Whatever you think, it doesn’t make sense. Finally, what shall I do? This is [that] your reality is exactly on the verge of life and death. And then finally, what you do is *release*, and forget yourself, and throw yourself away, into Buddha’s home. That means completely full concentration, with wholeheartedness. We have to deal with the book as it really is, before you pick and choose with your affective preferences. This is our daily practice. 
 
-But still our intellectual sense works every day, because we have accumulated it for many, many years. That’s why we have to handle *[unintelligible]*. That is philosophy, psychology. So we have to study things, one by one. But urgently, what we have to do is to understand where we are. There is completely no choice, to escape or to get into. Not to escape, not to get into: this is life, this is death. Life and death. It’s very simple: when the time comes to die, just die. This is very simple; this is the real death, and this is the real life. But, we cannot do this. That’s why we have to practice. 
+Continually we have to do this, but still our intellectual sense works every day, because we have accumulated it for many, many years. That’s why we have to handle *[unintelligible]*. That is philosophy, psychology. So we have to study things, one by one. But urgently, what we have to do is to understand where we are. There is completely no choice, to escape or to get into. Not to escape, not to get into: this is life, this is death. Life and death. It’s very simple: when the time comes to die, just die. This is very simple; this is the real death, and this is the real life. But, we cannot do this. That’s why we have to practice. 
 
 So, our reality is exactly no choice. No escape; no getting into. Just like being present on the verge of life and death, on the top of a 100-foot high pole, from day to day. You cannot stay there, you cannot move away. What are you heading for? What should you do? No way. At that time, words completely drop off. Nothing to say. So, when the time comes to sleep, go to sleep. When the time comes to have breakfast, have breakfast. 
 
-But this having breakfast is not something seen at the first stage, through perception. This is having breakfast seen from the third stage, deep understanding. And then at that time, you can really handle the breakfast with careful, compassionate, generous attention. That is release, and forget yourself, and throw away yourself into [Buddha](glossary#buddha)’s home. At that time, something comes from, not from you, from Buddha’s world, truth. There’s no need for effort. Something helps you. At that time, many things work pretty well, even though you don’t realize it. That is the best way to do it. 
+But this having breakfast is not something seen at the first stage, through perception. This is having breakfast seen from the third stage, deep understanding. And then at that time, you can really handle the breakfast with careful, compassionate, generous attention. That is release, and forget yourself, and throw away yourself into Buddha’s home. At that time, something comes from, not from you, from Buddha’s world, truth. There’s no need for effort. Something helps you. At that time, many things work pretty well, even though you don’t realize it. That is the best way to do it. 
 
 This koan also teaches in that way. And also Engo Zen Master really commented on the koan like this, particularly in the last two notes: “Look, where is he going? He’s chasing him up a tree”; “Lucky thing he has this move, the old thief.” Very important for us. 
 
