@@ -32,13 +32,13 @@ The Translator’s Note says:
 
 > According to the Buddha Name Scripture, a Sun Face Buddha lives in the world for eighteen hundred years, whereas a Moon Face Buddha enters extinction after a day and a night. Tenkei Denson Zen Master says, “But is everyone’s own Sun Face Buddha Moon Face Buddha something long or short?”
 
-“Is everyone’s own Sun Face Buddha Moon Face Buddha something long or short” means: is your life long or short? Is your life called Sun Face Buddha, or Moon Face Buddha? 
+“Is everyone’s own Sun Face Buddha Moon Face Buddha something long or short” means is your life long or short? Is your life called Sun Face Buddha or Moon Face Buddha? 
 
 In the universal perspective, wherever you may be there is constantly the stream of universal life. From this point, it is eternity; life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which are transitory, fleeting, ephemeral. We have to live an ephemeral existence as a short-lived being, just like a mayfly. 
 
 So that is the meaning of Sun Face Buddha, Moon Face Buddha. This is a feeling of Zen Master Baso, who was about to die. He was not concerned about human life too much, but he was still a human being, he knows a short life. But on the other hand, he was not concerned too much about life; when the time comes to die, he has to die. 
 
-That is the case, or story. 
+That is the case or story. 
 
 #### 5:32
 
@@ -48,53 +48,43 @@ That is the case, or story.
 > 
 > This way will do, not this way will do too – this is too diffuse. This way won’t do, not this way won’t do either – this is too cut off. Without treading these two paths, what would be right? Please test; I cite this for you to see.
 
+#### 7:15
+
 This pointer was said to be divided into five sections. The first section: 
 
 > One device, one object; one word, one phrase – the intent is that you will have a place to enter; still this is gouging a wound in healthy flesh – it can become a nest or a den.
 
-“One device” originally means the opportunity or action of human consciousness, human body and mind. When you do [zazen](glossary#zazen) and experience [samadhi](glossary#samadhi), this is one device, which is called opportunity, or action, or [[prāpti](glossary#prāpti)], or working. 
+“One device” originally means the opportunity or action of human consciousness or human body and mind. When you do [zazen](glossary#zazen) and experience [samadhi](glossary#samadhi), this is one device, which is called opportunity, or action, or [[prāpti](glossary#prāpti)], or working. 
 
-Zazen is the “one object”. Whatever you do, there are always two objects, and also opportunity or action. Full action of your body and mind, this is one device, one object. Whenever you do zazen – or walking on the street, or working in the office, working in the kitchen – whatever you do, there is one device, one object.
+Zazen is the “one object”. Whatever you do, there are always two objects, and also opportunity or action. Full action of your body and mind, this is one device, one object. Whenever you do zazen – or walking on the street, or working in the office, working in the kitchen, whatever you do – there is one device, one object.
 
 Shakyamuni Buddha showed the flowers with his hand, and [Mahākāśyapa](glossary#mahākāśyapa), one of his disciples, smiled when he saw the Buddha’s flowers. “Mahākāśyapa smiled” is exactly one device; one opportunity, one action of Mahākāśyapa’s life. And the flowers shown by Buddha are “one object.”
 
-#### 9:50
+“One word, one phrase”: You know this pretty well; this is the explanation of existence in a word. Without words and phrases, we cannot find the opportunity to communicate with each other. So if you want to teach something to people, we need four circumstances: one device, one object, one word, one phrase. Time, opportunity, action of your life, and your object. And also there is utterance: verbal utterance, or sometimes not verbal utterance. Even though you don’t use words, still there is utterance. 
 
-“One word, one phrase”: You know this pretty well. This is the explanation of existence in a word. Without words and phrases, we cannot find the opportunity to communicate with each other. So if you want to teach something to people, we need four circumstances: one device, one object, one word, one phrase. Time, opportunity, action of your life, and your object. And also there is action: verbal action, or sometimes not verbal action. Even though you don’t use words, still there is [utterance]. 
+So, “One device, one object; one word, one phrase – the intent is that you will have a place to enter.” This is why it is said we have to use one device, one object, one word, one phrase: in order to teach; in order to communicate human life with human beings. Well, there is no reason *why*, because it is always there; without this, we cannot do anything at all. It’s completely beyond *why*. Before you make a question *why*, *it’s there*. It completely transcends the human questions of *why*, what we should do or shouldn’t do.
 
-So, “One device, one object; one word, one phrase – the intent is that you will have a place to enter.” This is why it is said we have to use one device, one object, one word, one phrase: in order to teach; in order to communicate human life with human beings. Well, there is no reason “why,” because it is always there; without this, we cannot do anything at all. So, it’s completely beyond “why”. Before you make a question why, *it’s there*. It completely transcends the human questions of “why,” “what we should do or shouldn’t do”.
-
-That’s why the intent is that you will have a place to enter. Through these four – the device, object, word, phrase – we can communicate the universal life, and we can communicate human life to each other. Understanding, living in peace and harmony. It is ... to guide people to realize a place to enter [nirvana](glossary#nirvana): a peaceful life, a peaceful world. How to live; how to exist. 
+That’s why the intent is that you will have a place to enter. Through these four – the device, object, word, phrase – we can communicate the universal life and we can communicate human life to each other. Understanding, living in peace and harmony. It is to guide people to realize a place to enter [nirvana](glossary#nirvana): a peaceful life, a peaceful world. How to live; how to exist. 
 
 #### 13:44
 
 “Still this is gouging a wound in healthy flesh”: “Healthy flesh” means human body, human mind. “Still this is gouging a wound” means always there is human consciousness, poking our head into a hole, just like a [cat](glossary#cat). We really make a hole, and stay in it, because we are interested in seeing what is in it. 
 
-So Setchō says, “Still this is gouging a wound in healthy flesh.” Actually, our body and mind are really healthy, very healthy, because body and mind are exactly going on in the same rhythm of the universe. But the trouble is that human consciousness always digs in the ground, making a hole; poking, poking, poking your head into it, trying to know, to see what’s in it. But we don’t know what’s in it. Ah! Maybe a skunk there. Maybe a beautiful flower there. Maybe a poisonous snake there. We don’t know. But constantly, we do this. 
+So Setchō says, “Still this is gouging a wound in healthy flesh.” Actually, our body and mind are really healthy, very healthy, because our body and mind are exactly going on in the same rhythm of the universe. But the trouble is that human consciousness always digs in the ground, making a hole; poking, poking, poking your head into it, trying to know, to see what’s in it. But we don’t know what’s in it. Ah! Maybe a skunk there. Maybe a beautiful flower there. Maybe a poisonous snake there. We don’t know. But constantly, we do this. 
 
-It is not ‘bad’, in a sense, but it is not ‘good’. This is one reason why human civilization is developing. So, in a sense, it’s pretty good, such a human civilization. But the development of human civilization is not good, not bad – nothing to say. Even though you hate modern civilization – hate cars, airplanes, helicopters, whatever you say – still we are living with cars, with airplanes, with modern civilization. We should appreciate this. But we should know what modern civilization is, we should know how it is going on, because you cannot pin down “modern civilization is good” or “modern civilization is not good.” We cannot say, completely. 
+It is not *bad*, in a sense, but it is not *good*. This is one reason why human civilization is developing, so in a sense, it’s pretty good, such a human civilization. But the development of human civilization is not good, not bad – nothing to say. Even though you hate modern civilization – hate cars, airplanes, helicopters, whatever you say – still we are living with cars, with airplanes, with modern civilization. We should appreciate this. But we should know what modern civilization is, we should know how it is going on, because you cannot pin down “modern civilization is good” or “modern civilization is not good.” We cannot say, completely. 
 
-So, we are always poking our heads into the hole in the ground to see what’s in it, because it’s very fun for us, and it is the reason why human life is developing pretty well. On the other hand, we don’t know what’s in it. Maybe atomic bomb there, maybe a chemical bomb there. Maybe a skunk there, maybe beautiful flowers there. No one knows.
-
-This [spirit of] question is always within the human being: how to use modern civilization, how to use human consciousness. But if you see the human world now, you know this pretty well.
+So, we are always poking our heads into the hole in the ground to see what’s in it, because it’s very fun for us, and it is the reason why human life is developing pretty well. On the other hand, we don’t know what’s in it. Maybe atomic bomb there, maybe a chemical bomb there. Maybe a skunk there, maybe beautiful flowers there. No one knows. This [spirit of] question is always within human beings: how to use modern civilization, how to use human consciousness. But if you see the human world now, you know this pretty well.
 
 That’s why Setchō Zen Master says, “Still this is gouging a wound in healthy flesh.” We are, our body and mind are, originally [very fleshy].
 
-#### 18:52
+“It can become a nest or den.” If you poke your head into modern civilization, or the atomic bomb, or whatever it is, we really try to stay with it, believing, “That is my den. That is modern civilization; we should depend on it.” But if you think modern civilization is best, rather than “primitive” peoples – well, that is a little bit dangerous. What is modern civilization? [It is] creating ideas [about] human beings; it’s not better, it’s not “good”. That’s why we always have to check human consciousness, modern civilization or the human life we create, constantly. 
 
-“It can become a nest or den.” If you poke your head into modern civilization, or the atomic bomb, or whatever it is, we really try to stay with it, believing, “That is my den. That is modern civilization; we should depend on it.” But if you think modern civilization is best, rather than ‘primitive’ peoples – well, that is a little bit dangerous. What is modern civilization? [It is] creating ideas [about] human beings; it’s not better, it’s not ‘good’. 
-
-That’s why we always have to check human consciousness, modern civilization or the human life we create, constantly. It’s not a matter of destroying it, because consciousness is already *being*, beyond human speculation. Without consciousness, we cannot exist. 
-
-So we should gouge a wound in our healthy flesh – but watch out. Don’t believe it is your den, it is your house. Of course it is a house, it is your den, but you should get out of it and see what it is. That is pretty good.
-
-I told you sometimes: if you’re always selling fish, your body and mind have a fish smell. But if you’re always soaking in the fishy smell, you don’t smell how fishy you are. Get out, sometimes. If you get out, and are engaged in something with a beautiful smell, people will really tell you how fishy you smell. 
-
-So, the same applies to human life. 
+It’s not a matter of destroying [consciousness], because consciousness is already *being*, beyond human speculation. Without consciousness, we cannot exist. So we should gouge a wound in our healthy flesh – but watch out. Don’t believe it is your den, it is your house. Of course it is a house, it is your den, but you should get out of it and see what it is. That is pretty good. I tell you sometimes: if you’re always selling fish, your body and mind have a fish smell, but if you’re always soaking in the fishy smell, you don’t smell how fishy you are. So sometimes get out. If you get out, and are engaged in something with a beautiful smell, people will really tell you how fishy you smell. The same applies to human life. 
 
 #### 21:33
 
-... The second section is:
+The second section is:
 
 > The Great Function appears without abiding by fixed principles – the intent is that you will realize there is something transcendental; it covers the sky and covers the earth, yet it cannot be grasped.
 
@@ -102,21 +92,21 @@ The second section is completely opposite to the first section. In the second se
 
 > The intent is that you will realize there is something transcendental.
 
-“Something transcendental” literally, originally means “development”. Development is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say “something transcendent” means to show yourself for what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. Whatever you may be doing – [zazen](glossary#zazen), gassho, walking, or eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, [as] you are what you are. This is something transcendental. That is development of your life. 
+“Something transcendental” originally literally means *development*. *Development* is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say *something transcendent* means to show yourself for what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. Whatever you may be doing – zazen, gassho, walking, or eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, as you are what you are. This is something transcendental. That is *development* of your life. 
 
-[But] this development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [*shikan*](glossary#shikan).
+This development of your life is completely beyond human speculation; because when you do gassho, just do gassho. Be one with gassho, be one with zazen. At that time, your life is really working with zazen, without leaving any trace, anything between zazen and you. That is, according to [Dogen's](glossary#dogen) term, [*shikan*](glossary#shikan).
 
-Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#buddha) and patriarchs constantly teach us there is a great function of existence, truth. So constantly we have to [face it], because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are, what you are, freely. This is development of human life, deepening your life. 
+Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#buddha) and patriarchs constantly teach us there is a great function of existence, *the truth*. So constantly we have to say it, because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are what you are, freely. This is development of human life, deepening your life. 
 
 #### 27:19
 
 In other words, as I told you before: modern civilization is pretty good for us, and consciousness is pretty good for us, but we have to transcend the function of consciousness. 
 
-‘Transcend’ doesn’t mean to destroy consciousness. Transcend is not to attach to any [expectations]. “Consciousness is good” or “consciousness is bad” – we cannot say so. “Transcend” means that through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have been lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
+*Transcend* doesn’t mean to destroy consciousness; *transcend* is not to attach to any [expected ideas]. We cannot say “consciousness is good” or “consciousness is bad.” *Transcend* means that through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
 
-Development of human life is, according to the [Diamond Sutra](glossary#diamond-sutra), no development of human life. And then, this is real development. *[He chuckles.]* Do you understand? It’s really true. 
+Development of human life is, according to the [*Diamond Sutra*](glossary#diamond-sutra), no development of human life. And then, this is real development. *[He chuckles.]* Do you understand? It’s really true. 
 
-We really believe individual life, we really believe in modern civilization, because modern civilization makes human beings happy. Of course it does. But if you don’t pay careful attention to the moden civilization you are always soaking in, it’s very dangerous, because no one knows. Everything is changing constantly, so you can misuse modern civilization pretty easily.
+We really believe in individual life, we really believe in modern civilization, because modern civilization makes human beings happy. Of course it does. But if you don’t pay careful attention to the moden civilization you are always soaking in, it’s very dangerous, because no one knows; everything is changing constantly, so you can misuse modern civilization pretty easily.
 
 We should appreciate modern civilization, because we can live in a better way. On the other hand, we should transcend, we should go beyond. That means, watch modern civilization – where we are going, what’s going on.
 
@@ -166,7 +156,7 @@ Have you ever experienced during the talk or teaching, sometimes you can get a g
 
 That is very important. “This way will do, not this way will do too.” Everything is communicated with individual life; but on the other hand, completely you should let it go, and then learn something. Otherwise, you cannot learn something important, which is called the development of human life, if you follow your life just one way. “I am learning,” or “I am teaching,” or “I am talking” – always it’s one way. At that time, it’s very difficult to know something transcendental.
 
-Of course you should talk. *You* talk, *you* sit, *you* chant, *you* walk. But, next moment, you should be free from yourself, you should let go of yourself. [Zazen](glossary#zazen), gassho – let it go. That means you should learn something from the state of letting go. That means *[shikan](glossary#shikan)*: just do it. 
+Of course you should talk. *You* talk, *you* sit, *you* chant, *you* walk. But, next moment, you should be free from yourself, you should let go of yourself. Zazen, gassho – let it go. That means you should learn something from the state of letting go. That means *[shikan](glossary#shikan)*: just do it. 
 
 But before “just do”, consciousness is always poking it’s own head into the hole, digging into the ground. “Your preparation is completely perfect?” – “Yes, yes I think so.” – Next moment: “Are you sure?” *[Rueful laughter.]* But next moment: “Why don’t you stop talking?” – “I cannot escape. Something compels me to talk.” – “Do you like it?” – “No, I don’t like it.” – “If you don’t like it, why don’t you stop it?” – “But I cannot stop it.” In all this, consciousness digs in the ground, makes a hole, and believes “this is my den.” “This is my hole,” always.
 
