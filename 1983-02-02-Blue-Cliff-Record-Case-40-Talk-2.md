@@ -9,7 +9,7 @@ description: February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. 
+Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. What is the *dharma stage*?
 
 ## Transcript
 
