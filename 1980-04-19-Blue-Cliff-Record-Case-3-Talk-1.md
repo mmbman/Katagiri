@@ -90,7 +90,7 @@ The second section is:
 
 The second section is completely opposite to the first section. In the second section, Setchō says “the Great Function” of human existence – so, the universe – “appears without abiding by fixed principles.” The basic nature of existence is constantly working, and it is never strained, it is never limited by fixed principles or rules. Constantly it is working freely. That is the character of the Great Function, the character of the function of human existence. [Or] trees, birds, floors – whatever. 
 
-> The intent is that you will realize there is something transcendental.
+> The intent is that you will realize there is something transcendental;
 
 “Something transcendental” originally literally means *development*. *Development* is not to develop human life in terms of human speculation; real development is to transcend human speculation. In other words, to say *something transcendent* means to show yourself for what you are, or as you are; then, according to Zen terms, to be master of yourself in whatever situation you may be. This is really something transcendental. Whatever you may be doing – zazen, gassho, walking, or eating – you must be master of yourself. In other words, you yourself are constantly functioning, working freely, as you are what you are. This is something transcendental. That is *development* of your life. 
 
@@ -98,35 +98,27 @@ This development of your life is completely beyond human speculation; because wh
 
 Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#buddha) and patriarchs constantly teach us there is a great function of existence, *the truth*. So constantly we have to say it, because the intent is that you will realize, sooner or later, that there is something transcendental. That means, there is a way to live, to show, to demonstrate, to manifest yourself as you are what you are, freely. This is development of human life, deepening your life. 
 
-#### 27:19
-
 In other words, as I told you before: modern civilization is pretty good for us, and consciousness is pretty good for us, but we have to transcend the function of consciousness. 
 
 *Transcend* doesn’t mean to destroy consciousness; *transcend* is not to attach to any [expected ideas]. We cannot say “consciousness is good” or “consciousness is bad.” *Transcend* means that through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
 
 Development of human life is, according to the [*Diamond Sutra*](glossary#diamond-sutra), no development of human life. And then, this is real development. *[He chuckles.]* Do you understand? It’s really true. 
 
-We really believe in individual life, we really believe in modern civilization, because modern civilization makes human beings happy. Of course it does. But if you don’t pay careful attention to the moden civilization you are always soaking in, it’s very dangerous, because no one knows; everything is changing constantly, so you can misuse modern civilization pretty easily.
+We really believe in individual life, we really believe in modern civilization, because modern civilization makes human beings happy. Of course it does. But if you don’t pay careful attention to the modern civilization you are always soaking in, it’s very dangerous, because no one knows; everything is changing constantly, so you can misuse modern civilization pretty easily.
 
 We should appreciate modern civilization, because we can live in a better way. On the other hand, we should transcend, we should go beyond. That means, watch modern civilization – where we are going, what’s going on.
 
-#### 30:30
+Secondly, regardless of whether you like or dislike, we have to transcend: that means, completely speaking, we have to reflect upon ourselves and move toward the future, for future generations, day after day, in order to transmit human life in a proper way, in order to transmit human knowledge in a proper way, not in a wrong way. For this, we have to *practice*, to reflect upon ourselves and what we have done in the world of modern civilization, with gratitude for consciousness and modern civilization. And [we need to help], and transmit how important human life is to future generations. 
 
-Secondly, regardless of whether you like or dislike, we have to transcend. We must transcend. That means, completely speaking, we have to reflect upon ourselves and move toward the future, for future generations, day after day, in order to transmit human life in a proper way, in order to transmit human knowledge in a proper way, not in a wrong way. For this, we have to *practice*, to reflect upon ourselves and what we have done in the world of modern civilization, with gratitude for consciousness and modern civilization. And [helping]; and transmit how important human life is to future generations. 
+That is the really great function which modern civilization possesses inherently. That is great function. Great function is basically [that] everything is free, completely free. It is never limited by any rules or principles. We say always, “modern civilization is best,” or “modern civilization is good” – it becomes sort of rules or principles we set up already, but it is not the real nature of modern civilization. In order to make modern civilization help all sentient beings, we should appreciate it, and reflect, and watch carefully, without misusing it. That’s why here it says that the Great Function appears constantly without abiding by fixed principles.
 
-That is the really great function which modern civilization possesses inherently. That is great function. Great function is basically, everything is free, completely free. It is never limited by any rules or principles. We say always, “modern civilization is best,” or “modern civilization is good” – it becomes sort of rules or principles we set up already. But it is not the real nature of modern civilization. In order to make modern civilization help all sentient beings, we should appreciate it, and reflect, and watch carefully, without misusing it. 
-
-That’s why here it says that the Great Function appears constantly without abiding by fixed principles.
-
-“The intent is that you will realize there is something transcendental.” Your life, floor, trees, birds – trancendental. We set up a certain idea, when you see spring: wow, spring is wonderful, because all trees, all beings start to work, and everyone is excited. And that means exactly, consciously or unconsciously, that you hate winter. But you cannot hate winter, because spring comes from winter. Without winter, you cannot [see] spring.
-
-What is spring? Basically, spring is free from your ideas, the principles or rules you have set up. Spring is something transcendent, completely transcendent. 
+“The intent is that you will realize there is something transcendental.” Your life, floor, trees, birds [are] transcendental. When we see spring, we set up a certain idea: wow, spring is wonderful, because all beings start to work, and everyone is excited. And that means exactly, consciously or unconsciously, that you hate winter. But you cannot hate winter, because spring comes from winter. Without winter, you cannot [see] spring. So what is spring? Basically, spring is free from your ideas, the principles or rules you have set up. Spring is something completely transcendent. 
 
 #### 34:15
 
-> This great function covers the sky, covers the earth.
+> ... it covers the sky, covers the earth, yet it cannot be grasped.
 
-This is great being, great function. You have it, trees have it, spring has it, pebbles – whatever it is, it has it. Whatever you may be, everything has this great function, covering the sky and heaven and earth, whatever it is – just like wind. Wind is omnipresent, wherever you may go. 
+This is great being, the great function [that] you have, trees have, spring has, pebbles – whatever it is, it has it. Whatever you may be, everything has this great function, covering the sky and heaven and earth. Just like wind: wind is omnipresent, wherever you may go. 
 
 But you cannot grasp the omnipresence of the wind. If the wind is omnipresent, well it’s not necessary to use a fan, because wherever you may go, wind is there. In summer, you should feel cool without using a fan. But it’s impossible to do that. That great function is covering the sky and heaven and earth, wherever you may be, but it is not something you can grasp. It’s completely beyond. Only when you be one with the wind: that means use the fan. At that time, wind really comes.
 
