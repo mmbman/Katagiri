@@ -190,8 +190,6 @@ For instance, what is swimming? You can learn swimming. For swimming, you need a
 
 So, interdependent co-origination is something you have to experience directly from interdependent co-origination itself. How? Why don’t you dive into the ocean. That’s enough. And then, your body starts to work. 
 
-#### 59:36
-
 It’s just like my brother, I told you before – do you remember my brother’s experience? My brother was in the Japanese Navy; but unfortunately, he couldn’t swim! If you enter the Navy, you should learn swimming, you should be a master swimmer, but he couldn’t. So one day the sergeant threw him out of the boat into the ocean. He was very surprised. “Oh no!” *[Laughter.]* No way to escape. His other friends were watching carefully; if something happened, somebody would have helped him. But for him, for my brother, there was no way to escape, no way to know somebody was watching him. Already there!
 
 But still, his stream of consciousness was going on. That’s interesting, don’t you think? If still the stream of consciousness is going, he can notice: “Uh-oh; what should I do?” So he struggled, and during the struggle still he was looking at himself: “How can I take a breath; how can I float?” But whatever he did, no way to float. So finally, he decided, “Okay; I’m okay to die.” He gave up. Then his body was sinking to the bottom of the ocean. On the way, all of sudden, his body started to float. *[Laughter.]* So he was, “Wow!” *[unintelligible]* 
