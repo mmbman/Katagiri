@@ -229,11 +229,11 @@ Sometimes I feel in the United States, Buddhism is still staying in the realm of
 
 Even though you understand Sun Face Buddha, Moon Face Buddha through your practice – who dies? *You* die. When the time comes, *you* have to die. You’re really confused: “I am talking about my understanding of Sun Face Buddha, Moon Face Buddha.” Of course, but there is no proof. “Katagiri, can *you* die as a Sun Face Buddha, Moon Face Buddha?” There is no proof. I can say, “Yes, I can die,” or “No.” Yes or no – there is nothing to say. Finally, we have to learn death exactly from death directly. 
 
-That’s why yesterday I told you, *all beings* are all beings connected with each of us individually. If there is something else apart from you, it cannot be called *all beings*. Whatever it is, *all beings* are really something closely connected with you; that is what is called *all beings*. But simultaneously, it’s not real *all beings*, because they are beings seen from each of us individually. It’s not *all beings*. Finally, we have to learn all beings through all beings themselves; that means, through your individual understanding of all beings, connected with you.
+That’s why yesterday I told you, *all beings* are all beings connected with each of us individually. If there is something else apart from you, it cannot be called *all beings*. Whatever it is, *all beings* are really something closely connected with you; that is what is called *all beings*. But simultaneously, it’s not real *all beings*, because they are beings seen from each of us individually. It’s not *all beings*. Finally, we have to learn *all beings* through all beings themselves; that means through your individual understanding of all beings connected with you.
 
-In other words, I told you yesterday: when you have to talk, talk is one of the “all beings,” nothing but “all beings.” This talk is something connected with you. So you have to study, completely speaking; at that time, this talk becomes all beings connected with you. And then, is this enough? You [just] have to learn about the talk? No way. Next, forget it. All you have to do is sit down and talk. When you talk, you can exactly learn a talk from the talk directly. You cannot speak of the talk to you. This is really important for us. 
+In other words, I told you yesterday: when you have to talk, talk is one of the *all beings*, [it is] nothing but *all beings*. This talk is something connected with you. So completely speaking, you have to study; at that time, this talk becomes all beings connected with you. And then, is this enough? You [just] have to learn about the talk? No way. Next, *forget it*. All you have to do is sit down and talk. When you talk, you can exactly learn the talk from the talk directly. You cannot speak of the talk to you. This is really important for us. 
 
-Even though you attain enlightenment, it is not enough, because it must be something *alive* in each of us, individually. At that time, it is called enlightenment. So enlightenment is what? Enlightenment is really your life, which is alive day after day. It’s really [close]. That is enlightenment. 
+Even though you attain enlightenment, it is not enough, because it must be something *alive* in each of us, individually. At that time it is called enlightenment. So enlightenment is what? Enlightenment is really your life, which is alive day after day. It’s really close. That is enlightenment. 
 
 In order to see this, we have to have clear eyes. Dogen really emphasizes that point. 
 
@@ -243,17 +243,17 @@ After “clear eyed patch-robed monks shouldn’t take it lightly,” this is th
 
 >> You must be even more thoroughgoing. Bah! 
 
-*[There is some crosstalk about ‘bah’ as an exclamation.]*
+*[There is some amused crosstalk about “bah” as an exclamation.]*
 
-“You must be even more thoroughgoing.” Setchō Zen Master says, you should have clear eyes. Finally, whatever you experience – enlightenment, delusion, whatever – it doesn’t make sense, so finally you should have clear eyes in order to make it alive in your daily living. And then Engo says, “You must be even more thoroughgoing. Watch out, Setchō! What is that? Nothing to say. Bah!” Forget it. All you have to do is: Sun Face Buddha, Moon Face Buddha. When the time comes to die, just to die. No extra excitement, no extra sadness or pleasure. Nothing; just *there*. That is “Bah!”
+Setchō Zen Master says, you should have clear eyes, finally. Whatever you experience – enlightenment, delusion, whatever – it doesn’t make sense, so finally you should have clear eyes in order to make it alive in your daily living. And then Engo says, “You must be even more thoroughgoing. Watch out, Setchō! What is that? Nothing to say. Bah!” Forget it! All you have to do is *Sun Face Buddha, Moon Face Buddha*. When the time comes to die, just to die. No extra excitement, no extra sadness or pleasure; nothing, just *there*. That is “Bah!”
 
 Because Engo cannot say, “What do you mean by, ‘You must be even more thoroughgoing’?” If you have clear eyes, after attaining enlightenment, after understanding Sun Face Buddha, Moon Face Buddha – what do you mean? Nothing to say. Well, according to my words, “Keep your mouth shut and just do your best.”
 
 >> Fall back three thousand miles.
 
-This is more than simply “keep your mouth shut, just do your best with wholeheartedness and compassion”; this is really going back three thousand miles. That means it’s very hard to reach. The words are simple: keep your mouth shut, and just do your best with compassion and wholeheartedness. Simple words. But for us, it’s really going back 3,000 miles. It’s far away. 
+This is more than simply “keep your mouth shut, just do your best with wholeheartedness and compassion”; this is really going back three thousand miles. That means it’s very hard to reach. The words are simple: keep your mouth shut, and just do your best, with compassion and wholeheartedness. Simple words. But for us, it’s really going back 3,000 miles. It’s far away. 
 
-That’s why we have to practice, we have to go to the Blue Dragon’s cave to get the jewel. How many times? We don’t know how many times.
+That’s why we have to practice. We have to go to the Blue Dragon’s cave to get the jewel. How many times? We don’t know how many times.
 
 Do you have questions?
 
@@ -261,7 +261,7 @@ Do you have questions?
 
 **Question**: What is the Blue Dragon?
 
-**Katagiri**: In the Chinese literature and Buddhist scriptures, there is always a wondrous creature which is called a dragon. It is the king of creatures in this world, because he has all the parts of human beings and also the animals: eyes, nails, hair, scales – he has all the things. The dragon is a symbol of all creatures: human beings, animals, and also fish, et cetera. And also he can create fire: *[fwoosh]*! *[Laughter.]* He can live in the bottom of the ocean in a great palace; that is his place. That is the Blue Cave. We don’t know where it is; the Blue Cave is where dragons exists. The dragon is the symbol of all creatures; it is the beautiful ideal image of a human being.
+**Katagiri**: In Chinese literature and Buddhist scriptures, there is always a wondrous creature which is called a dragon. It is the king of creatures in this world, because he has all the parts of human beings and also the animals: eyes, nails, hair, scales – he has all the things. The dragon is a symbol of all creatures: human beings, animals, and also fish, et cetera. And also he can create fire: *[fwoosh]*! *[Laughter.]* He can live in the bottom of the ocean in a great palace; that is his place. That is the Blue Cave. We don’t know where it is; the Blue Cave is where dragons exists. The dragon is the symbol of all creatures, it is the beautiful ideal image of a human being.
 
 This dragon also has a jewel. We want to get that jewel. And if you don’t want it, this is also want to *[unintelligible]*. Whatever you say – “I don’t want” – well, if you really don’t want, you cannot say anything. If you say “I don’t want,” “I don’t want” is really something *connected with* “I want”. *[Unintelligible]* It is very true.
 
@@ -269,7 +269,7 @@ This is the Blue Dragon’s cave. The human world.
 
 #### 1:03:30
 
-**Question**: I have a question. I think I have some feel, when you talk about “when you walk, just walk, when you sit, just sit, when it’s time to die, just die,” without adding any other confusion to it, speculating about the mystical world or whatever. But I’m confused about different teachers saying different things. I mentioned to you a couple of weeks ago that this last Friday the American spiritual teacher Ram Daas was down in Iowa City, and so Friday night we went to see him. And a lot of what he was saying came I think from his Hindu training, and reincarnation, and different levels of consciousness – all these things are important. He talks about things like death as things that you can consciously know about as a human being. Like, if you’re an expert in meditation, he talks as though he can go into death and experience it, and come back out again as a human being and know about it. But you always say things like, how will Katagiri die, no way of knowing ahead of time; the only way to find out is to die. So I’m confused: teachers that stress the importance of the mystical thing – do they really know what they’re talking about?
+**Question**: I have a question. I think I have some feel, when you talk about “when you walk, just walk, when you sit, just sit, when it’s time to die, just die,” without adding any other confusion to it, speculating about the mystical world or whatever. But I’m confused about different teachers saying different things. I mentioned to you a couple of weeks ago that this last Friday the American spiritual teacher Ram Daas was down in Iowa City, and so Friday night we went to see him. And a lot of what he was saying came I think from his Hindu training, and reincarnation, and different levels of consciousness – all these things are important. He talks about things like death as things that you can consciously know about as a human being. Like, if you’re an expert in meditation, he talks as though he can go into death and experience it, and come back out again as a human being and know about it. But you always say things like, how will Katagiri die, no way of knowing ahead of time, the only way to find out is to die. So I’m confused: teachers that stress the importance of the mystical thing – do they really know what they’re talking about?
 
 *[Laughter.]*
 
@@ -277,7 +277,7 @@ This is the Blue Dragon’s cave. The human world.
 
 **Katagiri**: Well this life and death is not a psychological point of view, psychological *[unintelligible]*. Even though, you mentioned, Ram Daas says he can go to death and come back – I understand, I can go to death. But it is something just like psychological stuff, don’t you think so? Because your body or any body [are] here.
 
-Look at the Indians and yoga. You can get in a certain casket and close the door, and completely you can stop the breathing. Maybe you can go to death. But whatever you say, this is – *[He laughs.]* I don’t know; I read a little article where wires were coming in to his body, checking him, how long he can stop his heart. But it’s not exactly stopped; he’s not exactly dead. I am talking about *exactly* death. *[Laughter.]* Not psychological stuff. Do you understand? You are talking about something a little bit psychological. I can understand, I can feel psychological stuff.
+Look at the Indians and yoga. You can get in a certain casket and close the door, and completely you can stop the breathing. Maybe you can go to death. But whatever you say, this is – *[He laughs.]* I don’t know; I read a little article where wires were coming in to his body, checking him, how long he can stop his heart. But it’s not *exactly* stopped; he’s not *exactly* dead. I am talking about *exactly* death. *[Laughter.]* Not psychological stuff! Do you understand? You are talking about something a little bit psychological. I can understand, I can feel psychological stuff.
 
 **Same person**: Yeah, but, it seems like what you’re saying, that’s a little bit different from what he seemed to be talking about.
 
@@ -285,9 +285,9 @@ Look at the Indians and yoga. You can get in a certain casket and close the door
 
 **Same person**: I don’t understand that; it sounds like you’re saying death is like getting knocked out or something.
 
-**Katagiri**: Yeah, knocked out, just knocked out. Let’s imagine you are on an airplane going down to the ground. You are scared – not you, everybody is scared, going down. And then *boom* – “What is that?” Just like *[unintelligible]*; that’s all.
+**Katagiri**: Yes, knocked out, just knocked out. Let’s imagine you are on an airplane going down to the ground. You are scared – not just you, everybody is scared, going down. And then *boom* – “What is that?” Just like *[unintelligible]*; that’s all.
 
-**Same person**: For example, Ram Daas spoke last Friday, and other stuff I’ve heard from him, he always says that isn’t the end, that there are states of consciousness that continue on.
+**Same person**: For example, when Ram Daas spoke last Friday, and other stuff I’ve heard from him, he always says that isn’t the end, that there are states of consciousness that continue on.
 
 **Katagiri**: Yes, I understand. That is a metaphysical understanding, okay? Still metaphysical understanding. It’s going on – I understand this. Life is going, of course. But you cannot say “life is constantly going.” What is that? How can you show it? The eternity of life, death and life connected exactly – how can you show it? Well of course we can explain it metaphysically, psychologically, or philosophically – but I am talking about real death itself. I told you before ... all beings, death and life, is something connected with each of us individually, otherwise you cannot say life or death. But death itself and life itself are completely something you have to deal with directly; that is real death. How can you show it? Can you?
 
@@ -297,9 +297,9 @@ Of course, I understand. And also I understand – Ram Daas? – I understand th
 
 **Same person**: It’s just like they’ve got, even the Buddhists, like say the Tibetan Buddhists have this whole system for the bardo, what happens when you die. Are we to take that seriously or not? 
 
-**Katagiri**: Yes – but that’s why here it says, “We already become sick.” *[He laughs.]* Finally all you have to do is just to die. [If] you have to die, this is a simple practice, and no sadness, no suffering, nothing. But if you die, people say, “Are you *okay*? How have you been? How are you?” – right in the middle of death. This *[unintelligible]*, it makes you *sick*. Because, where are you heading for? After death, what happens? We want to know. This really makes you sick; just like [Vimalakirti](glossary#vimalakirti). 
+**Katagiri**: Yes – but that’s why here it says, “We already become sick.” *[He laughs.]* Finally all you have to do is just to die. [If] you have to die, this is a simple practice, and no sadness, no suffering, nothing. But if you die, people say, “Are you *okay*? How have you been? How are you?” – right in the middle of death. This [question], it makes you *sick*. Because, where are you heading for? After death, what happens? We want to know. This really makes you sick; just like Vimalakirti.
 
-So it is okay, if you are interested in that stuff, you should research it, understand it. But – don’t mix up the psychological, metaphysical, philosophical death, and also real death itself. Don’t mix them up. It’s not other stories, it’s not the metaphysical death stories; real death is *you*. I’m always surprised: if I think that, I always open my eyes. “Who dies? *I* die.” Oh my goodness! How can I help? How can I scream? I am talking about this. And also, when we die, we want to be present in peace and harmony, don’t you think so? 
+So it is okay, if you are interested in that stuff, you should research it, understand it. But – don’t mix up the psychological, metaphysical, philosophical death and also real death itself. Don’t mix them up. It’s not others’ stories, it’s not the metaphysical death stories; real death is *you*. If I think [about] that, it always opens my eyes: “Who dies? *I* die. Oh my goodness! How can I help? How can I scream?” I am talking about this. And also, when we die, we want to be present in peace and harmony, don’t you think so? 
 
 *[There is a long pause.]*
 
@@ -309,11 +309,9 @@ Just like marijuana. Marijuana is wonderful, you know – makes you high. *[Laug
 
 For instance, the other day the poet Ginsburg talked about that, and he recommended to me, “Why don’t you take marijuana?” *[Laughter.]* He always asks me, “Did you experience taking marijuana?” Well, I didn’t. “Why don’t you take it?” So I asked him, “Why?” And he said, “It’s very helpful for you.” *[He laughs.]* Yes, I know it’s helpful; but on the other hand, I know it’s not helpful. So, how can I say it?
 
-So he said, “If you take this marijuana, you can go to see a wonderful high, a wonderful world you have never seen according to common state of consciousness. And that is good because it makes your life transform, turn over a new leaf.” Well of course, it’s so – but maybe not! There is no proof! *[Laughter.]*
+So he said, “If you take this marijuana, you can go to see a wonderful high, a wonderful world you have never seen according to common state of consciousness.” And that is good because it makes your life transform, turn over a new leaf. Well of course, maybe so – but maybe not! There is no proof! *[Laughter.]*
 
-#### 1:15:05
-
-**Question**: But Roshi – you say the same thing to us about zazen.
+**Different person**: But Roshi – you say the same thing to us about zazen.
 
 *[Raucous laughter.]*
 
@@ -321,25 +319,27 @@ So he said, “If you take this marijuana, you can go to see a wonderful high, a
 
 *[Laughter.]*
 
-You realize that now. That’s wonderful. Yes it is. 
+You realize that now. 
+
+That’s wonderful. Yes it is. 
 
 **Same person**: *[Unintelligible.]*
 
 **Katagiri**: But zazen is very simple: just sit down. It means, just to die, just to live; that’s all. So, no proof – but it’s proof, anyway. *[He laughs.]* Because you can bloom, you can die. It’s real proof; not metaphysical proof, not psychological proof. It’s real proof.
 
-**Person 2**: It’s physical proof?
+**Person 3**: It’s physical proof?
 
 **Katagiri**: Oh no. Well, physical – that is part of the proof. Physical, mental proof – that is part of it, not the whole.
 
-**Person 2**: What’s the rest? *[Laughter.]*
+**Person 3**: What’s the rest? *[Laughter.]*
 
 **Katagiri**: *[He laughs.]* I don’t know what it is. 
 
 Human beings are really interesting. *[Laughter.]*
 
-That’s why *[unintelligible]* for us. Why don’t you read “The Zen Doctrine of No-Mind”? That’s interesting. 
+That’s why *[unintelligible]* is necessary for us. Why don’t you read “The Zen Doctrine of No-Mind”? That’s interesting. 
 
-**Person 2**: I *have* read it. *[Laughter.]*
+**Person 3**: I *have* read it. *[Laughter.]*
 
 **Katagiri**: There is no mind. That simple practice, again and again. Answer, question, answer, question – again and again. Finally: “What’s going on here?” Nothing to say. But you have to go through this; that’s why human beings really have a lot of fun.
 
