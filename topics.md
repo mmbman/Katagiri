@@ -128,6 +128,7 @@ Japanese: Kaiin-zanmai
 ### Vimalakirti Sutra
 
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
+- [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 ### Mahāyāna Mahāparinirvāṇa Sūtra (Nirvana Sutra)
 
