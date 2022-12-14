@@ -138,31 +138,21 @@ Finally, Setchō added to the comment in the last part of this case:
 
 Whatever you say, finally, there is nothing to say. Because Te Shan’s practice is pretty good, but still there is a haughty air. A haughty air for him is not something “wrong” or bad, but he has to check himself constantly. 
 
-What is Buddha’s way? Buddha’s way is not something you can see by sort of additional ‘marks’ which Buddha has, which are called enlightenment, or your wonderful face, or your attitude; Buddha can’t be seen by these salutary marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[He laughs.]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, the destination is Buddha.
+What is Buddha’s way? Buddha’s way is not something you can see by those thirty-two “marks” which the Buddha has, which are called enlightenment, or your wonderful face, or your attitude; Buddha can’t be seen by these thirty-two marks. Buddha is day after day, you have to be *alive*. Anyway, alive. *[He laughs.]* Be alive. I don’t know how. Be alive, aiming at the destination: that is a Buddha. For human beings, the destination is Buddha.
 
-We don’t know what is a Buddha. Well, we know; we can explain, and Buddha is very clear from Buddhism. But, finally it’s not clear; there is nothing to touch. It’s alive. Anyway, regardless of whether you are conscious of it or not, we have to move toward that, and our daily living must be alive. This ‘be alive’ means that from moment to moment, wherever you are, beyond criticism, your life must be alive. 
+We don’t know what is a Buddha. Well, we know; we can explain, and Buddha is very clear from Buddhism. But, finally it’s not clear; there is nothing to touch. It’s alive. Anyway, regardless of whether you are conscious of it or not, we have to move toward that, and our daily living must be alive. This *be alive* means that from moment to moment, wherever you are, beyond criticism, your life must be alive. 
 
-But it’s not so easy. “Be alive”: it seems to be easy, but it’s not so easy. Because, if you judge your life or evaluate your life, immediately you are bogged down with evaluation, and [values], good or bad, right and wrong. This is very common. 
+But it’s not so easy. “Be alive”: it seems to be easy, but it’s not so easy. Because, if you judge your life or evaluate your life, immediately you are bogged down with evaluation, and [values], good or bad, right and wrong. This is very common. And then you judge yourself. Judge yourself by what? The experience you get; sort of the thirty-two marks Buddha has. You did something wrong, so you’re a “bad boy” – this is sort of that you are judged by your result, [what] you have done.
 
-And then you judge yourself. Judge yourself by what? The experience you get; sort of a salutary mark Buddha has. You did something wrong, so you’re a “bad boy” – this is sort of that you are judged by your result, what you have done. 
+That is something you cannot ignore, but you cannot evaluate yourself by that which you have done. That [isn’t] something you have to carry on your back forever. Day by day, you have to be alive, beyond this. So, *it is* Buddha. 
 
-That is something you cannot ignore, but you cannot evaluate yourself by that which you have done. That [isn’t] (or is?) something you have to carry on your back forever. Day by day, you have to be alive, beyond this. So, *it is* Buddha. 
+If you can judge by your feeling, or the character, or the result which you have done, at that time it is not Buddhism – because whatever you do, you can deepen your life. Through working in a company, through working in an office, through painting, through music – whatever you do, you can deepen yourself and your life. 
 
-#### 32:34
-
-If you can judge by your feeling, or the character, or the result which you have done, at that time it is not Buddhism – because whatever you do, you can deepen your life. Through working in the company, through working in the office, through painting, through music – whatever you do, you can deepen yourself and your life. 
-
-At that time, people judge or evaluate you by what? Your achievement. “Good Dainin. You’re great. Your painting is great.” But, Buddhism is not [only] a part of human life; Buddhism is pointing out life as a whole, the *whole* of life. 
-
-“Not only part” means that if you have a profession which is called painting, you can show wonderful personality in the area of painting. That is a result. But it doesn’t connect with your daily living; your daily routine is something separate, something particular, *extra*. So even though you become a great painter, still, life is messy. Pretty easily, life is messy. 
+At that time, people judge or evaluate you by what? Your achievement. “Good Dainin. Your painting is great.” But, Buddhism is not [only] a part of human life; Buddhism is pointing out life as a whole, the *whole* of life. “Not only part” means that if you have a profession which is called painting, you can show wonderful personality in the area of painting. That is a result. But it doesn’t connect with your daily living; your daily routine is something separate, something particular, *extra*. So even though you become a great painter, still, life is messy. Pretty easily, life is messy. 
 
 But Buddhism is not something like this. Buddhism always focuses on the *whole* of life, even in daily routine. Even right in the middle of evaluation and judgement, good or bad, right and wrong – still there is stillness. You can handle yourself, being alive. 
 
-#### 35:00 
-
-So finally, the comment, “He adds frost to the snow.” Finally all you have to do is, be alive, [reception] for yourself. 
-
-#### 
+So finally, the comment, “He adds frost to the snow.” Finally all you have to do is be alive, [reflecting] for yourself. 
 
 Within “just be alive,” there are lots of questions. “What should I do?” From moment to moment: “What should I do?” What is correct? Well, sometimes there is no way to judge; just do it. But immediately there is a question that is left: is that correct? After that, you should reflect upon yourself. And then right after reflecting upon yourself, let’s do it a different way. Just like a *[unintelligible]*. But it is not right always; still there is reflection there upon yourself: “Is that correct?” 
 
