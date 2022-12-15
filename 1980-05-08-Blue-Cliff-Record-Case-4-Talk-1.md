@@ -72,7 +72,7 @@ But this teacher was very straightforward to the old woman, even though she was 
 
 That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master in China, in the line of Rinzai. Tokusan was noted for the strict and rough training of the monks. 
 
-Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  Isan or Kuei Shan was the founder of one of the Zen schools in China. In those days, there were the five schools of Zen. So, Te Shan arrived at Kuei Shan. Probably Te Shan was trying to check out who Kuei Shan was. It’s just like before, visiting the famous temple in order to debate with the Zen Master on the Zen teachings, “Mind itself is Buddha.” 
+Anyway, “When Te Shan arrived at arrived at Kuei Shan”:  Isan or Kuei Shan was the founder of one of the Zen schools in China. In those days, there were the five schools of Zen. So, Te Shan arrived at Kuei Shan: probably Te Shan was trying to check out who Kuei Shan was. It’s just like before, visiting the famous temple in order to debate with the Zen Master on the Zen teachings, “Mind itself is Buddha.” 
 
 > ... he carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east.
 
@@ -94,7 +94,7 @@ So he went back again and he re-entered the teaching hall with full ceremony to 
 
 > As Kuei Shan sat there, Te Shan held up his sitting mat and said, “Teacher!” 
 
-At that time Kuei Shan sat there, sitting [zazen](glossary#zazen), and Te Shan held up his sitting mat. “Sitting mat” is what we call [zagu](glossary#zagu); this one. This is very traditional: wherever you may go and see the teachers, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this zagu and bow, and then after that you can talk and discuss. (Transcriber’s Note: The zagu is folded into a strip when not in use, hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows, and then did not do so.)
+At that time Kuei Shan sat there, sitting [zazen](glossary#zazen), and Te Shan held up his sitting mat. “Sitting mat” is what we call [zagu](glossary#zagu); this one. This is very traditional: wherever you may go, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this zagu and bow, and then after that you can talk and discuss. (Transcriber’s Note: The zagu is folded into a strip when not in use, hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows?)
 
 > Kuei Shan reached for his whisk ...
 
@@ -112,7 +112,7 @@ And then, as Te Shan saw Kuei Shan sitting there, that is really sort of like a 
 
 So immediately there is Kuei Shan sitting there. And Te Shan said “Teacher!” But when Te Shan said “Teacher!”, already Kuei Shan knew his mind, because Kuei Shan could read Te Shan’s mind through the word “Teacher.” A very holy air there. But Kuei Shan didn’t say anything, because it is completely beyond discussion: no matter how long you discuss about that, you cannot correct it, or you cannot accept it, or you cannot handle it. So immediately, he tried to take the whisk. 
 
-*The whisk* means daily routine, human daily life. Without daily living, you cannot exist. Even [enlightenment](glossary#enlightenment): how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way, you cannot. So I tell you very often, enlightenment is just like scenery you can see on the way during travel. It’s not something *extra*, something unusual, which makes you exciting. It is a pretty usual case: when you take a trip, very naturally you can attain enlightenment, you can see the scenery. That’s why Kuei Shan knows pretty well that for Te Shan enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very holy air. Kuei Shan knows that pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already an answer to Te Shan. 
+*The whisk* means daily routine, human daily life. Without daily living, you cannot exist. Even [enlightenment](glossary#enlightenment): how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way, you cannot. I tell you very often, enlightenment is just like scenery you can see on the way during travel. It’s not something *extra*, something unusual, which makes you exciting. It is a pretty usual case: when you take a trip, very naturally you can attain enlightenment, you can see the scenery. That’s why Kuei Shan knows pretty well that for Te Shan enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very holy air. Kuei Shan knows that pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already an answer to Te Shan. 
 
 Te Shan was also not a stupid monk, because he had practiced for many, many years, studying the Zen sutras, et cetera, so he was also very sharp. So immediately he shouted, he screamed, because [he thought], “What do you mean, *whisk*? What do you mean, *daily living*? You should keep your mouth shut! Enlightenment is completely beyond daily living or not daily living.” It’s sort of a “shut up!” So he shouted.
 
