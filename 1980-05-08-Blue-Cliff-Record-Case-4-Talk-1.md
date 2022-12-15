@@ -7,9 +7,11 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
 [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 
-## Transcript
+## Summary
 
-**This transcript is in rough draft stage.**
+Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the Diamond Sutra, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan or Isan is the founder of one of the schools of Zen, abbot the monastery, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
+
+## Transcript
 
 (Transcriber’s Note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
 
