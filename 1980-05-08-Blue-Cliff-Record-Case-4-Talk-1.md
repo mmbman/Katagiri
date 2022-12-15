@@ -9,7 +9,7 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the Diamond Sutra, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan or Isan is the founder of one of the schools of Zen, abbot the monastery, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
+Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the *Diamond Sutra*, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan or Isan is the founder of one of the schools of Zen, abbot the monastery, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
 
 ## Transcript
 
@@ -86,7 +86,7 @@ I think without dropping down his bundles et cetera, immediately he went inside 
 
 > But when Te Shan got to the monastery gate, he said, “Still, I shouldn’t be so coarse.”
 
-So he went out of the Buddha Hall, the teaching hall, but on the way to get out, he reflected a little bit upon what he had done. So he though, “I was so course. Rude.”
+So he went out of the Buddha Hall, the teaching hall, but on the way to get out, he reflected a little bit upon what he had done. So he though, “I was so coarse. Rude.”
 
 > So he reentered (the hall) with full ceremony to meet (Kuei Shan). 
 
@@ -106,7 +106,7 @@ This is very interesting, because Kuei Shan didn’t say anything but immediatel
 
 In this story, let’s imagine Te Shan. First, Te Shan went to the [Buddha Hall](glossary#buddha-hall), and he walked back and forth, to the west and east, and he said, “Nothing.” “Nothing” means there is nothing in the monastery. [He might think,] “I came here to check for something about Kuei Shan. I wanted to know who Kuei Shan is. But I already feel from the Buddha’s Teaching Hall that there is nothing, so it’s not necessary to see Kuei Shan.” So he left. That is really rude. *[He laughs.]* Extraordinary. Very rude. 
 
-But on the way to leaving the Zen monastery, he reflected upon himself: “Oh, I was a little bit course. I should go back to see Kuei Shan with [the correct attitude].” 
+But on the way to leaving the Zen monastery, he reflected upon himself: “Oh, I was a little bit coarse. I should go back to see Kuei Shan with [the correct attitude].” 
 
 And then, as Te Shan saw Kuei Shan sitting there, that is really sort of like a snake sitting there, with its head like this, [looking at Te Shan], and Te Shan just like a frog. *[Laughter.]* *[Unintelligible.]* I can imagine the situation. Te Shan really was rude and boasted of himself, “[I am a] Great Zen Master.” So he went back, a little bit reflecting on himself, but still, a very “holy” air. 
 
