@@ -15,6 +15,15 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 ---
 
+*Transcript updated December 14, 2022.*
+
+### [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+#### May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the *Diamond Sutra*, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan is the abbot the monastery, founder of one of the schools of Zen, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
+
+---
+
 *Transcript posted October 28, 2022.*
 
 ### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)

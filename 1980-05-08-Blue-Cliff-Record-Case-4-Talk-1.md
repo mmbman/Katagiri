@@ -9,7 +9,7 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the *Diamond Sutra*, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan or Isan is the founder of one of the schools of Zen, abbot the monastery, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
+Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the *Diamond Sutra*, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan is the abbot the monastery, founder of one of the schools of Zen, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
 
 ## Transcript
 
