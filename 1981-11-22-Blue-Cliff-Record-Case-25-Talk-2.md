@@ -222,7 +222,7 @@ So if you want to run a big business and make big money, you have to have big mo
 
 **Same person**: So it’s not your whole mind screaming. 
 
-**Katagiri**: Not the whole mind, no; just a part of my mind. As a whole, all I have to do is to kill my life, or to give life. Do you understand? To give life in the light of a flashing light. So *[unintelligible]*. But life is going, so get up, and wash your face. If you feel sleepy, pour cold water on yourself. Sometimes I don’t like it – but, just do it. From moment to moment, that’s all. Is that okay?
+**Katagiri**: Not the whole mind, no; just a part of my mind. As a whole, all I have to do is to kill my life or to give life. Do you understand? To give life in the light of a flashing light. So *[unintelligible]*. But life is going, so get up, and wash your face. If you feel sleepy, pour cold water on yourself. *[He laughs.]* Sometimes I don’t like it – but, just do it. From moment to moment, that’s all. Is that okay?
 
 **Same person**: I was thinking that, when I was sick for a couple weeks, or other people I have seen, some part resists very much, you know? Sickness, or getting up, or anything. But another part doesn’t seem to care either way, it’s just always the same. Just calm; you used the term calm or quiet. And I’ve experienced that, and I’ve seen that with some people. For example, I worked a bit with the Indian people in Alaska. In their tradition they had no religion, they were just hunters and fishermen. And when I got there there was lots of trouble: no work for the men, and there was pain, and not enough food. But one thing that was striking was, I came from Berkeley California, and one big difference was these people were as unhappy as people I’d left in the cities, but they didn’t seem to be as upset. I mean they were unhappy, but they were much calmer. I don’t know how to explain it exactly. 
 
@@ -230,9 +230,11 @@ So if you want to run a big business and make big money, you have to have big mo
 
 **Same person**: So I mean, they were hungry, but they didn’t seem to care so much. Or you know, somebody died, but it wasn’t such a big deal as with people in the city. So some part was always just quiet. And I have also seen that in sick people: on the one hand they scream, but on the other hand some part of the mind just goes. That’s what my question to you was about.
 
-**Katagiri**: Yes. But for instance, in Japan when I was in temples, it was very cold; the temperature was exactly the same as outside in the winter, no heating system. I didn’t feel happy or unhappy, because I had never experienced a wonderful house with perfect heating – I believed this is my life, so just accept. So, no trouble. But if I *know* this... *[Laughter.]* My goodness! Just two days ago, [the power goes out]: *Argh*! *[Laughter.]* So if you don’t know there is something different from the situation where you are, at that time there are no troubles, because you don’t know. But if you know, it’s big trouble. 
+**Katagiri**: Yes. But for instance, in Japan when I was at a temple, and the temple was very cold; the temperature was exactly the same as outside in the winter, no heating system. I didn’t feel happy or unhappy, because I had never experienced a wonderful house with perfect heating – I believed this is my life, so just accept it. So, no trouble. But if I *know* this... *[Laughter.]* My goodness! Just two days ago, [the power goes out]: *Argh*! *[Laughter.]* 
 
-But Buddhism is not discussing about that. Buddhism is that you have to know that [real] happiness, no trouble, when you are right in the middle of unhappiness, [which is] because people don’t know what is real happiness. So right in the middle of unhappiness, [you] are not confused.
+So if you don’t know there is something different from the situation where you are, at that time there are no troubles, because you don’t know. But if you know, it’s big trouble. 
+
+But Buddhism is not discussing about that. Buddhism is that you have to know that [real] happiness, no trouble, when you are right in the middle of unhappiness. Because people don’t know what is real happiness. So right in the middle of unhappiness, [you] are not confused.
 
 #### 1:19:02 end of recording
 
