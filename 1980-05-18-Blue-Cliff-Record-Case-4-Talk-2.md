@@ -9,7 +9,7 @@ description: May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan. Are they *board-carrying fellows* or *wild fox spirits*? *Wrong* and *sure enough*. Check!
+Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan. Are they board-carrying fellows or wild fox spirits? “Wrong” and “sure enough.” Check!
 
 ## Transcript
 
