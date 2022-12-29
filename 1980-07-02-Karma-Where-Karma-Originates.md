@@ -46,7 +46,7 @@ In this Twelve Chain Causation, *karma* is the second one, *samskara*, and also 
 
 #### 5:35
 
-The first one, *ignorance* – *mumyo* in Japanese – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that we are *doomed* not to understand. *Doomed* means fated. We are “doomed” not to understand what the truth is, as it is, intellectually. We are all always there, but we don’t understand; we are “doomed” not to understand truth as it is. This is what is called *pain*; *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel, and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. And *avidyā*, ignorance, and *craving* and *grasping*, this is what is called *klesha*, delusion. 
+The first one, *ignorance* – *mumyo* in Japanese – and also *craving* and *grasping* – those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that we are *doomed* not to understand. *Doomed* means fated. We are “doomed” not to understand what the truth is, as it is, intellectually. We are all always there, but we don’t understand; we are “doomed” not to understand truth as it is. This is what is called *pain*; *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. So even though intellectually we don’t understand, still we feel, and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. And *avidyā*, ignorance, and *craving* and *grasping*, this is what is called *klesha*, delusion. 
 
 And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*, and also *reception*, *birth*, *old age and death*: those are called *suffering*. Karma result; karma-vipāka (result of actions). Karma-vipāka means the body and mind you have now. For instance, *name and form* is your body. Body and mind, six consciousnesses, six objects, whatever you say, anyway, *name and form*, this is our body. And also *six consciousnesses*. And also if you have *six consciousnesses*, if you have the six organs, immediately you have to face six objects. Always six organs face six objects. This is *tangibility*, *contact*. Without contact…
 
@@ -120,7 +120,7 @@ But the problem is, maybe you think it’s pretty easy to return home, but I don
 
 #### 40:50
 
-[But this means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (Transcriber’s Note: These correspond to the four *dhyānas*.)
+[But this means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (Transcriber’s Note: These are the four *dhyānas*.)
 
 In the first stage of Zen, all unwholesome dharma [stops]. Unwholesome dharma means unwholesome things, including physical and mental, or whatever it is. If you get into zazen meditation, in the first stage of zazen, you can experience *no unwholesome thing*, because you don’t bring it up if you sit down like this. It’s really true. Maybe you cannot do anything, because your legs are fully cross-legged, crossing each other; your hands are like this [so] you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, so you can’t see anybody, facing the wall. And also your thinking is coming and sitting in zazen. So all things come back to zazen, and there is nothing you can do.
 
@@ -134,13 +134,15 @@ Well, if you sit down, there is completely nothing for you to do; but you can do
 
 So in zazen, you’re really playing with imagination. *[There is the loud sound of a plane in the background.]* But finally, there is nothing to do, because you realize how stupid you are. If you are chasing after the plane with thoughts, imagination, [you realize] how stupid you are. Finally you think: “How stupid zazen is.” *[Laughter.]* It’s not the fault of *zazen*, it’s *your* fault, don’t you think so? Because *you* are chasing after thought, imagination. And then finally you criticize *zazen*: how stupid zazen is. I don’t think so; *you* are stupid. *[He laughs.]* Don’t you think so? I’m sorry for you. *[Laughter.]*
 
-Well, if you return home exactly, you can experience this, this is what Buddhist scripture says. That is the first experience, the first stage of zazen. First believe… well it’s not necessary to believe it; if you don’t believe it, that’s okay, but …
+Well, if you return home exactly, you can experience this, this is what Buddhist scripture says. That is the first experience, the first stage of zazen. First believe… well, it’s not necessary to believe it. If you don’t believe it, that’s okay, …
 
 *[Tape change.]* 
 
 #### 46:37
 
-... but you start to poke your head into that joy. Because you don’t know, but you feel something. So you start to poke your head into *joy*. That is *prīti* in Sanskrit: *joyful interest*. But *joyful interest* is still your six consciousness always working; that’s why you start to poke your head into joyful interest. But [that is not happiness]; next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
+... but you start to poke your head into that joy. Because you don’t know, but you feel something. So you start to poke your head into *joy*. That is *prīti* in Sanskrit: *joyful interest*. 
+
+But *joyful interest* is still your six consciousness always working; that’s why you start to poke your head into joyful interest. But [that is not happiness]; next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
 
 So at the first stage you can experience five consciousnesses there. (Transcriber’s Note: elsewhere these are described as five mental factors, *cetasika*.) One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! And then finally ... nothing. *[He laughs.]* This is zazen. 
 
