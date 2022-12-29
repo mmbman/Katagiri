@@ -146,9 +146,9 @@ Te Shan was really straightforward. He thought how rude he was; immediately he r
 
 >> ... but how many people can?
 
-This is very nice; how many people can do it that way? If you have certain positions, it’s very difficult to be straightforward. Even though we realize how rude we are, still we stick around and hold on to our positions, because we don’t want to hurt the positions, fame, et cetera. So very naturally you cannot be straightforward. That’s why in a sense Engo really praises Te Shan. It’s great; he reflected on himself, and went back to see Kuei Shan. How many people can do that like [him]? But on the other hand: well it’s okay, but it’s not. *[He laughs.]* So, always going back and forth; that’s why you don’t understand this comment in the notes. 
+This is very nice; how many people can do it that way? If you have certain positions, it’s very difficult to be straightforward. Even though we realize how rude we are, still we stick around and hold on to our positions, because we don’t want to hurt the positions, fame, et cetera. So very naturally you cannot be straightforward. That’s why in a sense Engo really praises Te Shan. It’s great; he reflected on himself, and went back to see Kuei Shan. How many people can do that like [him]? But on the other hand: well it’s okay, but it’s not. *[He laughs.]* So, always going back and forth; that’s why you don’t understand these notes. 
 
-#### 
+#### 45:08
 
 > (So he reentered (the hall) with full ceremony to meet (Kuei Shan).)
 
