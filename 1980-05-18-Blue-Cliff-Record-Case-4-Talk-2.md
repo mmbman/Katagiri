@@ -36,9 +36,9 @@ But usually we get use of judging our life through the result. Of course result 
 
 For instance death. Do you like death? Well, death is beautiful. Whatever you say – death is beautiful, or death is ugly, or I don’t like death, or I like death – you cannot hit the mark, the bullseye of death itself as a process. All you have to do is [be] right on the process of death itself. 
 
-But it’s connected with human consciousness, looking at human doings as an experience, as a result. That’s why if you say something about process itself, always there is “yes, it’s good.” Okay, but it’s not good. Pay careful attention to it, okay? And then, well, it’s not complete, it’s not enough. But it’s not completely enough? Well it’s okay, it’s alright. So, always there is “okay,” but it’s not okay. Always there.
+But it’s connected with human consciousness, looking at human doings as an experience, as a result. That’s why if you say something about process itself, always there is “yes, it’s good.” Okay, but it’s not good. Pay careful attention to it, okay? And then, it’s not complete, it’s not enough. But is it completely not enough? Well, it’s okay, it’s alright. So, always there is “okay” – but it’s not okay. Always [like this].
 
-That’s why Engo Zen Master always says it in that way. That’s why it makes us confused. We don’t know what he is talking about. Well I will read it anyway; you don’t understand. 
+That’s why Engo Zen Master always says it in that way. That’s why it makes us confused. We don’t know what he is talking about. Well, I will read it anyway; you [won’t] understand. (Or you will?)
 
 #### 10:15
 
