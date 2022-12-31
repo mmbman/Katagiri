@@ -26,11 +26,11 @@ We will study Engo Zen Master’s notes [on the case].
 
 [Even if] you read the notes of the *Blue Cliff Record*, probably you don’t understand [the case]. [It’s] very complicated, because sometimes the effect *[unintelligible]*, [it depends on] the situation. Sometimes *[unintelligible]* is good, sometimes *[unintelligible]* is evil, so completely you don’t understand. But there is a very important point if you read the notes: the most important point you have to take into account is that Engo Zenji always is focusing on *process itself*. 
 
-*Process* is sort of [one’s doing] not as a result. Constantly Engo Zenji’s notes focus on process itself, working itself, not as a result. In our daily living, whatever we do, usually we see our doings from result. We judge. [But] we are mostly living in process itself, so Engo Zenji always takes us to see process itself and doing itself. 
+*Process* is sort of one’s doing not as a result. Constantly Engo Zenji’s notes focus on process itself, working itself, not as a result. In our daily living, whatever we do, usually we see our doings from result. We judge. [But] we are mostly living in process itself, so Engo Zenji always takes us to see process itself and doing itself. 
 
-But [then] this doing itself or process itself is [not something to do with] doings as a result. It’s a close relation, but pretty often we miss the process itself, that’s why Zen always takes us [there] – but [then] if we realize that we should pay attention to process itself, lots of people ignore the doings as result, or experience. We ignore consciousness. So very naturally our attitude toward human life is very *haughty*, because we are always staying in a certain high level of life. That is really haughty. 
+But [then] this doing itself or process itself is [something not to do with] doings as a result. It’s a close relation, but pretty often we miss the process itself, that’s why Zen always takes us [there]. But [then] if we realize that we should pay attention to process itself, lots of people ignore the doings as result, or experience. We ignore consciousness. So very naturally our attitude toward human life is very *haughty*, because we are always staying in a certain high level of life. That is really haughty. 
 
-So simultaneously we cannot ignore that it’s connected with human doings, human behavior as a result. It’s very complicated. But actually process itself is completely beyond human judgement and evaluation. This is life itself; there is no comment. 
+So simultaneously we cannot ignore that it’s connected with human doings, human behavior as a result. It’s very complicated. But actually process itself is completely beyond human judgement and evaluation. This is life itself. There is no comment. 
 
 #### 4:12
 
@@ -44,7 +44,7 @@ For instance death. Do you like death? Well, death is beautiful. Whatever you sa
 
 But it’s connected with human consciousness, looking at human doings as an experience, as a result. That’s why if you say something about process itself, always there is “yes, it’s good.” Okay, but it’s not good. Pay careful attention to it, okay? And then, it’s not complete, it’s not enough. But is it completely not enough? Well, it’s okay, it’s alright. So, always there is “it’s okay” – but it’s not okay. Always [like this].
 
-That’s why Engo Zen Master always says it in that way. That’s why it makes us confused. We don’t know what he is talking about. Well, I will read it anyway; you [won’t] understand. (Or you will?)
+That’s why Engo Zen Master always says it in that way. That’s why it makes us confused. We don’t know what he is talking about. Well, I will read it anyway; you [won’t] understand. (Or you will understand why you don’t understand?)
 
 #### 10:15
 
