@@ -24,9 +24,15 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 We will study Engo Zen Master’s notes [on the case].
 
-[Even if] you read the notes of the *Blue Cliff Record*, probably you don’t understand [the case]. [It’s] very complicated, because sometimes the effect *[unintelligible]*, [it depends on] the situation. Sometimes *[unintelligible]* is good, sometimes *[unintelligible]* is evil, so completely you don’t understand. But there is a very important point if you read the notes: the most important point you have to take into account is that Engo Zenji always is focusing on *process* itself. Process is sort of [one’s doing] not as a result. Constantly Engo Zenji’s notes focus on process itself, [working] itself, not as a result. In our daily living, whatever we do, usually we see our doings from result. [We] judge. [But] we are mostly living in process itself, so Engo Zenji always takes us to see process itself and doing itself. 
+[Even if] you read the notes of the *Blue Cliff Record*, probably you don’t understand [the case]. [It’s] very complicated, because sometimes the effect *[unintelligible]*, [it depends on] the situation. Sometimes *[unintelligible]* is good, sometimes *[unintelligible]* is evil, so completely you don’t understand. But there is a very important point if you read the notes: the most important point you have to take into account is that Engo Zenji always is focusing on *process itself*. 
 
-But [then] this doing itself or process itself is [not something to do with] doings as a result. It’s a close relation, but pretty often we miss the process itself, that’s why Zen always takes us [there] – but [then] if we realize that we should pay attention to process itself, lots of people ignore the doings as result, or experience. We ignore consciousness. So very naturally their attitude toward human life is very *haughty*, because they are always staying in a certain high level of life. That is really haughty. So simultaneously you cannot ignore that it’s connected with human doings, human behavior as a result. It’s very complicated. But actually process itself is completely beyond human judgement and evaluation. This is life itself; [there is] no comment. 
+*Process* is sort of [one’s doing] not as a result. Constantly Engo Zenji’s notes focus on process itself, working itself, not as a result. In our daily living, whatever we do, usually we see our doings from result. We judge. [But] we are mostly living in process itself, so Engo Zenji always takes us to see process itself and doing itself. 
+
+But [then] this doing itself or process itself is [not something to do with] doings as a result. It’s a close relation, but pretty often we miss the process itself, that’s why Zen always takes us [there] – but [then] if we realize that we should pay attention to process itself, lots of people ignore the doings as result, or experience. We ignore consciousness. So very naturally our attitude toward human life is very *haughty*, because we are always staying in a certain high level of life. That is really haughty. 
+
+So simultaneously we cannot ignore that it’s connected with human doings, human behavior as a result. It’s very complicated. But actually process itself is completely beyond human judgement and evaluation. This is life itself; there is no comment. 
+
+#### 4:12
 
 Like the other day I went to see somebody who has cancer, to talk with him. He said that he has really appreciated his sickness because he realized [that there is] no difference between life and death. Life is exactly the same as death, and death is exactly life: he really realized that point. And then he said that his practice called upon him... I talked to him about his brother’s life, because he had some problems. *[Unintelligible.]* [His brother’s problem was that he was] sort of an addict of smoking cigarettes. He really wanted to stop, but he couldn’t. [He said] that he says [he finds it] really boring to listen to that problem. *[He laughs]* Smoking cigarettes is not a big problem for him; his problem is right on the verge of life and death. [It’s not a] problem, his problem is really for us, so he smiled and he laughed. 
 
@@ -76,9 +82,11 @@ And then Ego Zenji says, “He has suffered defeat.” With that attitude alread
 
 The same applies to enlightenment, or your life. Buddha says if you have a bottle filled with water perfectly, [when] you shake it there is no sound. But if you have a bottle with a little water on the bottom and shake it... do you understand the difference? Big noise. *[He laughs.]* If you become famous and then at that time if you boast of yourself, then that means a little water in the bottom of the bottle, and you shake it: “I am a great person.” That is really *tanpankan*, the board-carrying fellow. 
 
-But I don’t mean that you should ignore your career. Your career is really wild fox: great. But on the other hand, the wild fox is exactly living next door to the board-carrying fellow. *[Laughter.]* Shaking each-others hand. Watch out! This is really true; that’s why Engo says it in that way. And Engo Zenji already realizes this, that’s why [he says], “What are you doing there? You are really making the people doubt. And also you are already defeated.”
+But I don’t mean that you should ignore your career. Your career is really wild fox: great. But on the other hand, the wild fox is exactly living next door to the board-carrying fellow. *[Laughter.]* They are shaking hands with each other. Watch out! 
 
-#### 
+This is really true; that’s why Engo says it in that way. And Engo Zenji already realizes this, that’s why [he says], “What are you doing there? You are really making the people doubt. And also you are already defeated.”
+
+#### 22:03
 
 And Engo says [then], “What are you doing there? Maybe you are expressing, manifesting the experience of Zen. But [what is it]? Engo Zenji says, 
 
