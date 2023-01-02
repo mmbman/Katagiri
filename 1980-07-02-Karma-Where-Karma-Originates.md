@@ -142,7 +142,7 @@ Well, if you return home exactly, you can experience this, this is what Buddhist
 
 ... but you start to poke your head into that joy. Because you don’t know, but you feel something. So you start to poke your head into *joy*. That is *prīti* in Sanskrit: *joyful interest*. 
 
-But *joyful interest* is still your six consciousness always working; that’s why you start to poke your head into joyful interest. But [that is not happiness]; next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
+But *joyful interest* is still your six consciousness always working; that’s why you start to poke your head into it. But [that is not happiness]; next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
 
 So at the first stage you can experience five consciousnesses there. (Transcriber’s Note: elsewhere these are described as five mental factors, *cetasika*.) One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! And then finally ... nothing. *[He laughs.]* This is zazen. 
 
