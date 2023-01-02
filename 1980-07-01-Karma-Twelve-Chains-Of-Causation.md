@@ -4,7 +4,7 @@ description: July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1980) \| 
-[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
+[Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates) 
 
 ## Summary
@@ -32,5 +32,5 @@ So before time and space is completely normal sense of ignorance. This is [the b
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1980) \| 
-[Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
+[Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates)

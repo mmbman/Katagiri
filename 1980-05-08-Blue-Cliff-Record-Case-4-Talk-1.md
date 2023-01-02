@@ -5,7 +5,7 @@ description: May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+[Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 
 ## Summary
 
@@ -221,4 +221,4 @@ Tomorrow, I would like to read the commentary by Engo Zen Master. It’s a very 
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+[Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
