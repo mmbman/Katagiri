@@ -47,7 +47,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
-Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. There is always hope.
+Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. There is always hope. Also: how to stop smoking.
 
 ---
 

@@ -147,6 +147,13 @@ Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei 
 
 ---
 
+### [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
+#### May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan, and the dynamics between “process itself” and “doings as a result.” The wild fox spirit and the board-carrying fellow live right next door to each other. “Wrong” and “sure enough.” Check!
+
+---
+
 ### [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 #### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
@@ -164,7 +171,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. There is always hope.
+Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. There is always hope. Also: how to stop smoking.
 
 ---
 

@@ -9,7 +9,7 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Also: how to stop smoking. There is always hope.
+Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. There is always hope. Also: how to stop smoking.
 
 ## Transcript
 
