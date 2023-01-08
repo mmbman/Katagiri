@@ -4,7 +4,7 @@ description: July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1980) \| 
-[Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
+[Previous](1980-07-03-Karma-Unmanifested) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
 ## Summary
@@ -189,5 +189,5 @@ That is the conclusion of my talk this week. Do you have any questions?
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1980) \| 
-[Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
+[Previous](1980-07-03-Karma-Unmanifested) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
