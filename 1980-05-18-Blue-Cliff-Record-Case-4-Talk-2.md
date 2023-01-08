@@ -162,7 +162,7 @@ And also Setchō added the comment to this, “Completely exposed.” Setchō ma
 
 >> At first too high, in the end too low. 
 
-The first time, he was really high. [He said,] “Nothing,” so he left immediately, without seeing Kuei Shan. And the second time, he reached the gate and reflected on himself, “that is really pride,” and went back. That is “too low”. So in the beginning he really boasted of himself, and secondly he reflected upon himself and was a little bit disappointed, so he went back.
+The first time, he was really high. [He said,] “Nothing,” and he left immediately, without seeing Kuei Shan. And the second time, he reached the gate and reflected on himself, “that is really pride, and that is low,” and went back. So in the beginning he really boasted of himself, and secondly he reflected upon himself and was a little bit disappointed, so he went back.
 
 >> When one realizes one’s fault one should reform...
 
@@ -174,15 +174,15 @@ This is very nice; how many people can do it that way? If you have certain posit
 
 #### 45:08
 
-> (So he reentered (the hall) with full ceremony to meet (Kuei Shan).)
+> So he reentered (the hall) with full ceremony to meet (Kuei Shan).
 
 Engo says,
 
 >> As before, he acts like this. It’s already his second defeat. Danger!
 
-“As before”: he left the first time, reflected on himself, and went back. The first time he left, saying “Nothing”; this is already he was defeated, because he shows [off] too much. That is, there are lots of traces there which are called enlightenment. That is already he was defeated, because Kuei Shan could read his attitude and mind, even though he didn’t speak. So he was already defeated; Kuei Shan Zen Master already saw through his practice. Secondly, he went back to see Kuei Shan, and he was also defeated, because Kuei Shan knows: “Aha! He came back.” 
+“As before”: he left the first time, reflected on himself, and went back. The first time he left, saying “Nothing”; this is already he was defeated, because he shows [off] too much. That is, there are lots of traces there which are called enlightenment. That is already he was defeated, because Kuei Shan could read his attitude and mind, even though he didn’t speak. So he was already defeated; Kuei Shan Zen Master already saw through his practice. Secondly, he went back to see Kuei Shan, and he was also defeated, because Kuei Shan knows: “Aha! He came back.” *[He chuckles.]*
 
-Just like real death. If you are right in the middle of real death, well you can say “You like death?” “Yes, sir.” “You don’t like death?” “Yes, sir.” You just say either; whatever you say is just like a flashing light. So the first time, you can leave, because you don’t like death: “I don’t care, but it’s death. I want to live more.” And then second, well let’s *[unintelligible]* for death, because death is here, so why don’t we see death again, with *[unintelligible]* attitude, what is the meaning of death. But real death is real Kuei Shan Zen Master always understanding this flashing light: red, white. So whatever he does, the real process of death named Kuei Shan understands pretty well. So, Te Shan was already defeated, because Kuei Shan saw through his [pride]. 
+Just like real death. If you are right in the middle of real death, well you can say “You like death?” “Yes, sir.” “You don’t like death?” “Yes, sir.” You can say either; whatever you say is just like a flashing light. So the first time, you can leave, because you don’t like death: “I don’t care. But it’s death; I want to live more.” And then second, well [that’s pretty good] for death, because death is here, so why don’t we see death again, with *[unintelligible]* attitude, what is the meaning of death. But real death is real Kuei Shan Zen Master, always understanding this flashing light: red, white. So whatever he does, the real process of death named Kuei Shan understands pretty well. So, Te Shan was already defeated, because Kuei Shan saw through his [pride]. 
 
 #### 47:42
 
