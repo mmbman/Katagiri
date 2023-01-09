@@ -174,7 +174,7 @@ This is very nice; how many people can do it that way? If you have certain posit
 
 #### 45:08
 
-> So he reentered (the hall) with full ceremony to meet (Kuei Shan).
+> (So he reentered (the hall) with full ceremony to meet (Kuei Shan).)
 
 Engo says,
 
@@ -190,7 +190,7 @@ Just like real death. If you are right in the middle of real death, well you can
 > 
 >> Kuei Shan watches this fellow with cold eyes. 
 
-When Te Shan went back to the teaching hall, Kuei Shan sat there in zazen. He already knew everything there; whatever [Te Shan] does – leaves or comes back – he knows pretty well. Whatever Te Shan did, he was defeated, because before whatever he did, Kuei Shan saw through his practice. That’s why Kuei Shan can watch Te Shan “with cold eyes” – that means no waves, just sit down there. And then at that time Te Shan is just like a frog, right in front of cold eyes, like a snake watching the frog. He couldn’t move. He cannot escape. If a snake glares at a frog, practically the frog cannot move, because the snake has strong powers. *[He laughs.]*
+When Te Shan went back to the teaching hall, Kuei Shan sat there in zazen. He already knew everything there; whatever [Te Shan] does – leaves or comes back – he knows pretty well. Whatever Te Shan did, he was defeated, because before whatever he did, Kuei Shan saw through his practice. That’s why Kuei Shan can watch Te Shan “with cold eyes” – that means no waves, just sit down there. And then at that time Te Shan is just like a frog, right in front of cold eyes – like a snake watching the frog. He couldn’t move. He cannot escape. If a snake glares at a frog, practically the frog cannot move, because the snake has strong powers. *[He laughs.]*
 
 So Kuei Shan watches this fellow with cold eyes... 
 
@@ -198,7 +198,7 @@ So Kuei Shan watches this fellow with cold eyes...
 
 *[Laughter.]*
 
-Te Shan doesn’t know exactly, but he’s really touching the tiger’s whiskers. It’s very dangerous, but he didn’t know. If you don’t know, everything is okay, you know? *[Laughter.]* If you know, it’s very dangerous. That’s why Engo says, “Oh, it’s dangerous.” He went back to see Kuei Shan, but Te Shan didn’t know, so that’s why. But Engo Zen Master knows pretty well. 
+Te Shan doesn’t know exactly, but he’s really touching the tiger’s whiskers. It’s very dangerous! But he didn’t know. If you don’t know, everything is okay, you know? *[Laughter.]* If you know, it’s very dangerous. That’s why Engo says, “Oh, it’s dangerous.” He went back to see Kuei Shan, but Te Shan didn’t know, so that’s why. But Engo Zen Master knows pretty well. 
 
 #### 50:08
 
@@ -238,13 +238,13 @@ Te Shan is really a wild fox, a really old bird.
 
 In a sense, Engo Zen Master praised Te Shan, because all patriarchs and Buddhas experience enlightenment and arrive at the stage which is called enlightenment, just like Te Shan. So his spirit is really powerful, just like a dragon flying in the sky: very strong, tough. You know Rinzai teachers are really tough and strong. *[He laughs.]* If you are grumbling about Zen, the Rinzai Zen Master will give a blow to you. 
 
-At San Francisco one of the students [had] practiced under the guidance of *[unintelligible]*. And this student said, “That Zen Master was always scolding me, screaming and shouting, without compassion.” So one day in the [dharma talk] he asked, “Buddha says to you, we should be compassionate, kind. Why do you always scold the students?” And the Zen Master said, “Stupid! Get out!” *[Laughter.]* 
+At San Francisco one of the students [had] practiced under the guidance of *[unintelligible]*. And this student said, “That Zen Master was always scolding me, screaming and shouting, without compassion.” So one day in the [dharma talk] he asked, “Buddha says to you that we should be compassionate, kind. Why do you always scold the students?” And the Zen Master said, “Stupid! Get out!” *[Laughter.]* 
 
 It’s really true. He got out! 
 
 If you get out, the story is over. Don’t give up. *[Laughter.]*
 
-If you want to be a Rinzai Zen, ... *[unintelligible]*. Maybe next life. I like very much this ... powerful, strong *[unintelligible]*. But if I do imitate Rinzai’s way, no one believes me. *[Laughter.]* So I give up! I must be Katagiri, okay? I don’t have any capability to combine Rinzai and Soto, just like ... [He is very smart] ... Rinzai and make it Soto, this is Buddhism. That’s pretty good. But I can’t do this. 
+If you want to be a Rinzai Zen [center], I wish I could, but... maybe next life. I like very much this powerful, strong *[unintelligible]*. But if I do imitate Rinzai’s way, no one believes me! *[Laughter.]* So I give up! Katagiri must be Katagiri, okay? I don’t have any capability to combine Rinzai and Soto, like Maezumi Roshi. He is very smart ... *[unintelligible]* can show this is Rinzai, and this is Soto, this is Buddhism. That’s pretty good. But I can’t do this. 
 
 Well, I think I should stop. 
 
@@ -268,27 +268,27 @@ There are still a few notes left, you should read them. Do you have some questio
 
 **Question**: *[Unintelligible]* 
 
-**Katagiri**: Well I don’t mean that exactly, just saying “Nothing.” *Mu* means manifestation of the true aspect of human life. So whoever Kuei Shan is, great Zen Master or not – [but] of what? Kuei Shan is human, and nothing but a part of impermanence and change. This means [Te Shan] really shows that experience of enlightenment he had. That is “nothing”. 
+**Katagiri**: Well I don’t mean that exactly, just saying “Nothing.” *Mu* means manifestation of the true aspect of human life. So whoever Kuei Shan is, great Zen Master or not – [but] of what? Kuei Shan is human, and nothing but a part of impermanence and change. This means [Te Shan] really shows the experience of enlightenment he had. That is “nothing”. 
 
-So directly he shows his experience, because he always stays at the highest level of spiritual life, which is called enlightenment. That’s why Kuei Shan, *unintelligible*, Buddhas, are all a part of impermanence. What shall I say? If you are always right in the middle of death, well, what should I say? Nothing. 
+So [Te Shan] directly shows his experience, because he always stays at the highest level of spiritual life, which is called enlightenment. That’s why Kuei Shan, *unintelligible*, Buddhas, are all part of impermanence. What shall I say? If you are always right in the middle of death, well, what should I say? Nothing. 
 
 But on the other hand, we have to see the flashing lights. Te Shan didn’t see this; [he was] just staying right in the middle of death. *[Unintelligible.]* That is the quality of his *[unintelligible].* Kuei Shan knew that point: of course he is still there, so sooner or later he has to get out there, and know the flashing lights. 
 
-**Same person**: He was expressing like *[unintelligible...]* very haughty. And then when he was leaving he came to realize that he should pay more respect. And then in the story he says he was defeated, when he came back. Well that’s very good.
+**Same person**: He was expressing like *[unintelligible...]* very haughty. And then when he was leaving he came to realize that he should pay more respect. And then in the story he says he was defeated, when he came back. Well that’s very good, isn’t it?
 
-**Katagiri**: Well yes, pretty good, in a sense pretty good. But anyway, “he was defeated” means whatever he does, his way doesn’t hit the bullseye. It is not “sure enough.” But it’s not wrong. 
+**Katagiri**: Well yes, pretty good, in a sense pretty good. But “he was defeated” means whatever he does, his way doesn’t hit the bullseye. It is not “sure enough.” But it’s not wrong. 
 
 **Same person**: He knew it was time to go back, he just presented himself...
 
 **Katagiri**: Sure. It’s pretty good. But already he was defeated. *[He laughs.]*
 
-We must be defeated. We try always [to get wind of] a big problem. We try to be a “good boy.” But it’s not necessary [in order] to bloom. Sometimes [there is] no way to escape blooming.
+We must be defeated. We try always [to get wind]; that’s a big problem. We try to be a “good boy.” But it’s not necessary [in order] to bloom. Sometimes [there is] no way to escape [blooming].
 
 **Different person**: Were both of them enlightened?
 
-**Katagiri**: Well, sure. But still the quality of enlightenment is different between the two. Te Shan always shows directly enlightenment itself. But Kuei Shan Zen Master shows enlightenment very quietly: nothing to say. His way, whatever he does, it’s really quiet, *[unintelligible]* very gentle – sometimes hard, but Kuei Shan doesn’t show enlightenment directly. 
+**Katagiri**: Well, sure. But still, the quality of enlightenment is really different between the two. Te Shan always directly shows enlightenment itself. But Kuei Shan Zen Master shows enlightenment very quietly: nothing to say. His way, whatever he does, it’s really quiet, *[unintelligible]* very gentle – sometimes hard, but Kuei Shan doesn’t show enlightenment directly. 
 
-So that’s why he reaches for his whisk. Whisk is the human world, dualistic world. Because Te Shan always stays at the highest level of spiritual life; there is no dualistic world, so always *[unintelligible]*. Kuei Shan knows this, but [...] Kuei Shan was not confused or tossed away by both. *[Unintelligible]* from moment to moment. So that’s why without saying anything he tried to reach the whisk; that means suggesting to Te Shan, “You are staying at the high level of spiritual life. It’s good, but watch out! There is still the world where you live. Where do you live now? You live in the dualistic world.” So that is a suggestion. That’s why immediately Te Shan shouted and left. “Shut up!” From the high level of spiritual life, there is no dualistic world. No matter how long you discuss the dualistic world... should we *[unintelligible]*? Do you like death or do you not like death? Whatever you say, at the high level of spiritual life, there is nothing to say. So immediately he shouted to Kuei Shan and left. Kuei Shan suggested very gently, “here it is.” He didn’t explain why, but Te Shan immediately noticed his way of suggestion, that’s why he shouted immediately and left. 
+So that’s why he reaches for his whisk. *Whisk* is the human world, dualistic world. Because Te Shan always stays at the highest level of spiritual life; there is no dualistic world, so always there. Kuei Shan knows both, but Kuei Shan was not confused or tossed away by both. *[Unintelligible]* from moment to moment. So that’s why without saying anything he tried to reach the whisk; that means suggesting to Te Shan, “You are staying at the high level of spiritual life. It’s good, but watch out! There is still the world where you live. Where do you live now? You live in the dualistic world.” So that is a suggestion. That’s why immediately Te Shan shouted and left: “Shut up!” From the high level of spiritual life, there is no dualistic world. No matter how long you discuss the dualistic world, *[unintelligible]*. Do you like death or do you not like death? Whatever you say, at the high level of spiritual life, there is nothing to say. So immediately he shouted to Kuei Shan and left. Kuei Shan suggested very gently, “here it is.” He didn’t explain why, but Te Shan immediately noticed his way of suggestion, that’s why he shouted immediately and left. 
 
 **Same person**: Why did he shout?
 
@@ -296,9 +296,9 @@ So that’s why he reaches for his whisk. Whisk is the human world, dualistic wo
 
 **Same person**: So he was angry? 
 
-**Katagiri**: No, not angry. Showing directly the [moon] of the truth. In the truth, nothing to say, no discussion. So if you want to learn the truth of *[unintelligible]*, die. To die means nothing to discuss. But we really want to discuss, we really want to poke our heads into the discussion about living, about dying. So that’s why it’s very difficult to die directly, that’s why some day we have to *cut off*. If I shout, maybe you get a big shock and [realize], “Oh, yes. [Just like that.]” That is directly showing the [moon] of the truth itself. So a Zen teacher always shows the shouts and [cuffs].
+**Katagiri**: No, not angry. Showing directly the [mood] of the truth. In the truth, nothing to say, no discussion. So if you want to learn the truth of *[unintelligible]*, die. To die means nothing to discuss. But we really want to discuss, we really want to poke our heads into the discussion about living, about dying. So that’s why it’s very difficult to die directly, that’s why some day we have to *cut off*. If I shout, maybe you get a big shock and [realize], “Oh, yes. [Just like that.]” That is directly showing the [mood] of the truth itself. So a Zen teacher always shows the shouts and [cuffs].
 
-Our consciousness is always complicated: always looking at something and discussing. That’s why it’s very strange there. You cannot see. So someday you have to *cut off*, and then just *[unintelligible]*. That’s pretty good for us. 
+Our consciousness is always complicated: always looking at something and discussing something. That’s why it’s very strange there. You cannot see. So someday you have to *cut off*, and then just *[unintelligible]*. That’s pretty good for us. 
 
 **Same person**: I wonder why he shook out his sleeves.
 
@@ -310,9 +310,9 @@ Our consciousness is always complicated: always looking at something and discuss
 
 **Same person**: Very dramatic.
 
-**Katagiri**: Yeah, dramatic. The Chinese people are like very [dramatic]. *[Loud laughter.]* If you read the koans there is lots of drama. For example Nansen making a fire ... He closes the doors, and makes smoke on purpose inside of the building, and then he screams, “Fire! Fire! Fire!” Really dramatic. *[He laughs.]* “Help! Help!” He did it on purpose. And then, many monks came together and tried to help him, and he said from inside, “If you say one word by which my mind attains enlightenment, I will open the door!” It’s very dramatic, don’t you think so? *[Laughter.]* Right before the fire, you know, “Say one word!” *[He laughs.]* [...] Joshu Zen Master at that same time ... tried to help, but Joshu Zen Master is really quiet, and Nansen is always screaming, “Help, help!” And then all the monks didn’t know what to do. So Joshu Zen Master threw the key through the window, and then Nansen opened the door with the key. That’s the whole story. 
+**Katagiri**: Yeah, dramatic. The Chinese people are like very [dramatic]. *[Loud laughter.]* If you read the koans there is lots of drama. For example Nansen making a fire ... He closes the doors, and makes smoke on purpose inside of the building, and then he screams, “Fire! Fire! Fire!” Really dramatic. *[He laughs.]* “Help! Help!” He did it on purpose. And then, many monks came together and tried to help him, and he said from inside, “If you say one word by which my mind attains enlightenment, I will open the door!” It’s really dramatic, don’t you think so? *[Laughter.]* Right before the fire, you know, “Say one word!” *[He laughs.]* [...] Joshu Zen Master at that same time ... tried to help, but Joshu Zen Master is really quiet, and Nansen is always screaming, “Help, help!” And then all the monks didn’t know what to do. So Joshu Zen Master threw the key through the window, and then Nansen opened the door with the key. That’s the whole story. 
 
-It’s dramatic, but it’s really human life. We are always making smoke inside ourselves: “Help, help.” And then we always want something to open the door. That is the key through the window. So we always do it dramatically. *[Unintelligible]* knows pretty well how dramatic human life is. 
+It’s dramatic, but it’s really human life, spiritual life. We are always making smoke inside ourselves: “Help, help.” And then we always want something to open the door. That is the key through the window. So we always do it dramatically. *[Unintelligible]* knows pretty well how dramatic human life is. 
 
 (Transcriber’s Note: According to *Radical Zen: The Sayings of Jōshū*, Jōshū set the fire and Nansen threw the key through the window.)
 
@@ -320,23 +320,25 @@ It’s dramatic, but it’s really human life. We are always making smoke inside
 
 **Question**: [Why do they say the monk turned into a fox?] *[Unintelligible.]*
 
-**Katagiri**: Well, the fox is okay, rabbit, or tree, it doesn’t matter what it is. I think in China and Japan the fox was believed to be a sort of magical animal, with the power to change its figure into a beautiful woman or boy to teach human beings. That is a fox, the Japanese people or the Chinese believed. 
+**Katagiri**: Well, fox is okay, rabbit, or tree, it doesn’t matter what it is. I think in China and Japan the fox was believed to be a sort of magical animal, with the power to change its figure into a beautiful woman or boy to teach human beings. That is a fox, the Japanese people or the Chinese believed. 
 
-**Different person**: Is that punishment or ...
+**Different person**: Was that a punishment or ...
 
-**Katagiri**: It’s not punishment. It appears to be punishment, but that’s not a deep understanding. *Wild fox* means you have to return to the human world, the dualistic world. Day by day when spring comes you have to be in spring, when winter comes you have to be you in winter. That means that you have to change, constantly. But this change is not change, [it is] fitting into reality, instead of staying at the high level of spirituality, where there is no dualistic world. If we stay there, always we create some problems. But when [summer] comes, you cannot wear winter clothes, you take off the winter clothes in the summer. So we have to accommodate yourself to the moment, moment by moment, but with open [eyes]. That is the fox.
+**Katagiri**: It’s not punishment. It appears to be punishment, but that’s not a deep understanding. *Wild fox* means you have to return to the human world, the dualistic world. Day by day, when spring comes you have to be in spring, when winter comes you have to be you in winter. That means that you have to change, constantly. But this change is not change, [it is] fitting into reality, instead of staying at the high level of spirituality, where there is no dualistic world. If we stay there, always we create some problems. But when [summer] comes, you cannot wear winter clothes, you take off the winter clothes in the summer. So we have to accommodate yourself to the moment, moment by moment, but with open [eyes]. That is the fox.
 
 **Different person**: But he was asked a question, and then he gave an answer he was turned into [a fox]. 
 
-**Katagiri**: Right. It is *[unintelligible]* “not fall into causation”; that was the answer at that time. 
+**Katagiri**: Right. “Not fall into causation”; that was the answer at that time. 
 
 **Same person**: *[Unintelligible.]*
 
-**Katagiri**: Well it’s not the right answer, but on the other hand, “not fall into causation” is also right, in a sense, because you cannot always take care of [yourself] according to the law of causation. If you take care of your life just according to causation, you cannot move an inch in the realm of causation, you cannot find freedom there. So in order to be free, you have to be free from causation, sooner or later. So “not fall into causation” is freedom from causation. But what is freedom from causation? It doesn’t mean to ignore [causation]. So intellectually, it’s [a suggestion], but basically you have to be right in the middle of the bullseye of life, constant change – what is the real meaning of death, what is the real process of life or death. You have to be there. And then look at the human world, flashing lights, white flashing light or red flashing light; that is causation, or freedom of causation, or not freedom of causation, always there. And then this old monk picked one; that’s why on the other hand he forgot this. It’s not punishment, but in the story he didn’t say the other aspect, so that’s why he became a “wild fox” – that means even though he forgot and he picked up one, well his life is what? His life has to go back to the dualistic world. When the spring comes, he has to be. When the winter comes, he has to be. So that is *wild fox*. And “for 500 years” means century after century, all humans do this in that way. 
+**Katagiri**: Well it’s not the right answer, but on the other hand, “not fall into causation” is also right, in a sense, because you cannot always take care of [life] just according to the law of causation. If you take care of your life just according to causation, you cannot move an inch in the realm of causation, you cannot find freedom there. So in order to be free, you have to be free from causation, sooner or later. So “not fall into causation” is freedom from causation. But what is freedom from causation? It doesn’t mean to ignore [causation]. So intellectually, it’s [a suggestion], but basically you have to be right in the middle of the bullseye of life, constant change – what is the real meaning of death, what is the real process of life or death. You have to be there. And then look at the human world, flashing lights, white flashing light or red flashing light; that is causation, or freedom of causation, or not freedom of causation, always there. And then this old monk picked one; that’s why on the other hand he forgot this. It’s not punishment, but in the story he didn’t say the other aspect, so that’s why he became a “wild fox” – that means even though he forgot and he picked up one, well his life is what? His life has to go back to the dualistic world. When the spring comes, he has to be. When the winter comes, he has to be. So that is *wild fox*. And “for 500 years” means century after century, all humans beings do this in that way. 
 
-And then, after that, the wild fox asks *[unintelligible]* please [give] some pithy remark in order to [free me] from [being a] fox. And so he says, “Not ignoring causation.” And then, he [was released.] So that is a flashing light, and then he can accept [that flashing light]. That means he completely awakens where he is, right in the middle of samsara. So if he picks up one, he cannot stay right in the middle of samsara; he attaches to something. 
+And then, after that, the wild fox asks [Baizhang], “Please give me some pithy remark, in order to free me from being a fox.” And so he says, “Not ignoring causation.” And then, he [was released.] So that is a flashing light. And then he can accept both flashing lights. That means he completely awakens where he is, right in the middle of samsara. If he picks up one, he cannot stay right in the middle of samsara; he attaches to something. 
 
-So we have to see flashing lights, but where you are is right in the middle of life and death; this is the basic nature of human being. Even though you don’t know, that is the place where you are. So that’s why Engo shows the other side. And then he realizes, “Oh, yes.” That means he awakened to where he is. And then he says, “Please perform a funeral service for me.” That means freedom. 
+So we have to see flashing lights. But where you are is right in the middle of life and death; this is the basic nature of human being. Even though you don’t know, that is the place where you are. So that’s why Engo shows the other side. 
+
+And then [the wild fox] realizes, “Oh, yes.” That means he awakened to where he is. And then he says, “Please perform a funeral service for me.” That means freedom. 
 
 This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for many monks to try to understand, [through] the practice again and again. But if you understand the basic teaching, the way of understanding Buddhism, it’s not difficult. 
 
