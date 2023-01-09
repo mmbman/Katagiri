@@ -15,6 +15,15 @@ Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen 
 
 ---
 
+*Transcript posted January 8, 2023.*
+
+### [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
+#### May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan, and the dynamics between “process itself” and “doings as a result.” The wild fox spirit and the board-carrying fellow live right next door to each other. “Wrong” and “sure enough.” Check!
+
+---
+
 *Transcript updated December 14, 2022.*
 
 ### [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
