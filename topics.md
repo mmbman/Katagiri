@@ -216,5 +216,14 @@ Japanese: Kaiin-zanmai
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
 
+---
+
+# Gateless Gate Index
+
+### Case 2: Baizhang and a Fox
+
+- [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2 (1:12:07)](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2#11207)
+
+
 
 [Home](index)
