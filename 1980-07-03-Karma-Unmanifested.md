@@ -5,7 +5,7 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-04-Karma-Taking-Care-of-Karma)
 
 ## Summary
 
@@ -216,4 +216,4 @@ For instance, maybe a few days ago if a person walked on a bridge and immediatel
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-04-Karma-Taking-Care-of-Karma)
