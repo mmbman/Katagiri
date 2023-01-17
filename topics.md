@@ -29,6 +29,7 @@ Sections:
 
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
+- [Karma: Taking Care of Karma (1:00:05)](1980-07-04-Karma-Taking-Care-of-Karma#10005)
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (36:34)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634)
 - [Shobogenzo: Genjokoan – Talk 1, Part 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
 - [Shobogenzo: Genjokoan – Talk 1, Part 2](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
