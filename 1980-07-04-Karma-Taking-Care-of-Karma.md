@@ -9,7 +9,7 @@ description: July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma. The triple world: the world of desire, the world of form, and the world of formlessness. The world of formlessness does not mean literally a formless world, it means to get things not in a dualistic way.  
+Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma. 
 
 ## Transcript
 
