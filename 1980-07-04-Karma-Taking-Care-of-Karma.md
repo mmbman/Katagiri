@@ -9,7 +9,7 @@ description: July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma. 
+Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma and ourselves. In a section on five consciousnesses, he describes fundamental aspects of Buddhist Psychology. *Sparśa* (contact) is more broad than we usually think: it is contact *as a whole*, and is very powerful. Contrary to its reputation, *vedanā* (reception or feeling) is described as being tranquil in its original nature. Katagiri Roshi uses the Suzuki Method as an analogy for how sparśa and vedanā work. Saṃjñā (perception) is compared to a carpenter marking wood. *Cetanā* (thought) is described as the boss of a company. *Citta* is mind: communicating between subject and object. Even after reaching the final goal of religion, these five consciousnesses remain. The human body and mind exist; they are given to us as karma. This is why Zen Master Dogen says, “Never the less, flowers fall with attachment, weeds grow with hatred.” We have to take care of this human body and mind with compassion. And because they also have karma, we can share our compassion with others, both human and nonhuman.
 
 ## Transcript
 
@@ -110,7 +110,7 @@ The first one is *contact*; in Sanskrit we say *sparśa*. And second is *feeling
 
 *Contact*, *sparśa*: this is not the contact which you have usually thought [about]. I don’t know how you understand contact according to psychology. But in Buddhism, contact is not the idea of contact [from the] psychological point of view; contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars always connecting with the rafters and many things, and supporting the whole building. And also each of [the things] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
 
-So *sparśa* is *contact as a whole*. This is very powerful: just like two goats fighting each other with their horns. They’re really bumping into each other; this is *contact*. 
+So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their horns. They’re really bumping into each other; this is *contact*. 
 
 #### 38:25
 
