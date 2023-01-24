@@ -175,6 +175,13 @@ Katagiri Roshi discusses the difference between *manifested* and *unmanifested* 
 
 ---
 
+### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
+#### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma, which is the same as studying ourselves. He describes some key concepts in Buddhist Psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because the body and mind still exist. This is why Zen Master Dogen says, “Never the less, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma: we need to take care of them with compassion. The Suzuki Method for music education is used as an example of how to share our compassion with others, particularly with regard to *vedanā* (*reception* or *feeling*).
+
+---
+
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 #### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
