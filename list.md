@@ -37,8 +37,8 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 1. [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 1. [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma) 
+1. [Karma: Attribution in Present Life](1980-07-10-Karma-Attribution-in-Present-Life)
 
-1. Karma: Attribution in Present Life
 1. Karma as Energy/ Emptiness
 1. Karma: Conclusion
 1. Diamond Sutra: Chapter 32: Emptiness and Mind
