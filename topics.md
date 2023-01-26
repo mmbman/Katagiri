@@ -112,6 +112,10 @@ Japanese: Kaiin-zanmai
 
 # Mahayana Sutras Index
 
+### Abhidharma Mahāvibhāṣa Śāstra
+
+- [Karma: Attribution in Present Life](1980-07-10-Karma-Attribution-in-Present-Life)
+
 ### Diamond Sutra
 
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
@@ -156,6 +160,10 @@ Japanese: Kaiin-zanmai
 ### Eightfold Path
 
 - [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)  - what “right” means
+
+### Sutta Nipata
+
+- [Karma: Attribution in Present Life (50:45)](1980-07-10-Karma-Attribution-in-Present-Life#5045)
 
 --- 
 
