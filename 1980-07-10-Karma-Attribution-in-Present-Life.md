@@ -5,7 +5,7 @@ description: July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-11-Karma-As-Energy-Emptiness)
 
 ## Summary
 
@@ -181,4 +181,4 @@ That’s why Dogen Zenji also says it like this. Because all beings are benefiti
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-11-Karma-As-Energy-Emptiness)
