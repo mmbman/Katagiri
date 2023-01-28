@@ -157,7 +157,7 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 ### [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 #### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. However, there is some review of the topic in the following talks.
+Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. However, there is substantial coverage of the topic in the following talks in this series.
 
 ---
 
