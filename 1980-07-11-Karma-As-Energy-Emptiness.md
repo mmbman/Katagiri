@@ -5,10 +5,7 @@ description: July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-10-Karma-Attribution-in-Present-Life) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
-
-## Summary
-
+[Next](1980-07-12-Karma-Conclusion)
 
 
 ## Transcript
@@ -20,9 +17,9 @@ description: July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-Today the subject I am going to deal with is the great source of energy called karma. Karma is nothing but a great source of energy. If you use a technical term, that is *emptiness*. 
+Today the subject I am going to deal with is the great source of energy called karma. Karma is nothing but a great source of energy. If you use the technical term, that is *emptiness*. 
 
-Yesterday I told you, karma is that which we have carried since the beginningless past, and we carry it toward the future. From this point, karma is just like one’s own property, or inheritance. There is no excuse to escape from [it]; this is reality. Because please remember what I said about karma according to twelve causations: ignorance, samskara, and consciousness. Samskara is the very primary human movement. This samskara makes it possible for all things to be, to exist. So to exist is also karma. When you were born in this world, you already carried karma. That means the moment when you were in the mothers’ womb, your future life, past present and future, is exactly set up, before you were conscious of it. A certain [flavor] of your life. Already my personality, my heredity, my “stinkiness”, whatever it is, all are set up, just like a perfect root. ... If you make a fruit and psychoactive whatever it is, it’s perfect. Whatever they are, it is usable for everyone. This is existence... the very moment when you  were in the mothers womb, this is the very primary ... 
+Yesterday I told you, karma is that which we have carried since the beginningless past, and we carry it toward the future. From this point, karma is just like one’s own property or inheritance. There is no [way] to escape from [it]; this is reality. Because please remember what I said about karma according to twelve causations: ignorance, samskara, and consciousness. Samskara is the very primary human movement. This samskara makes it possible for all things to be, to exist. So to exist is also karma. When you were born in this world, you already carried karma. That means the moment when you were in the mothers’ womb, your future life, past present and future, is exactly set up, before you were conscious of it. A certain [flavor] of your life. Already my personality, my heredity, my “stinkiness”, whatever it is, all are set up, just like a perfect root. ... If you make a fruit and psychoactive whatever it is, it’s perfect. Whatever they are, it is usable for everyone. This is existence... the very moment when you  were in the mothers womb, this is the very primary ... 
 
 And then, there is no reason why you are there. There is no reason why you are an American, as a Japanese, as Katagiri, carrying a certain heredity and customs, et cetera. No reason. It’s all completely set up.
 
@@ -136,16 +133,8 @@ That’s why Dogen Zenji says, “this human body is nothing but emptiness, from
   
 ####  1:04:56 end of recording
 
-( Transcriber’s Note:
-
-> The sixty-two viewpoints are based on self; so when egoistic views arise, just do zazen quietly, observing them. What is the basis of your body, its inner and outer possessions? You received your body, hair, and skin from your parents. The two droplets, red and white, of your parents, however, are empty from beginning to end; hence there is no self here. Mind, discriminating consciousness, knowledge, and dualistic thought bind life. What,
-ultimately, are exhaling and inhaling? They are not self. There is no self to be attached to. The deluded, however, are attached to self, while the enlightened are unattached. But still you seek to measure the self that is no self, and attach yourselves to arisings that are nonarising, neglecting to practice the Way. By failing to sever your ties with the world, you shun the true teaching and run after the false. Dare you say you are not acting mistakenly?
-> 
-> From *Zen Master Dogen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria.
-)
-
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-10-Karma-Attribution-in-Present-Life) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-12-Karma-Conclusion)

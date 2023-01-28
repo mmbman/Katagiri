@@ -4,7 +4,7 @@ description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1981) \| 
-[Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
+[Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
 ## Transcript
@@ -398,5 +398,5 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1981) \| 
-[Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
+[Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
