@@ -160,6 +160,7 @@ Japanese: Kaiin-zanmai
 ### Eightfold Path
 
 - [Blue Cliff Record, Case 3 – Talk 1 (1:04:29)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#10429)  - what “right” means
+- [Karma: Conclusion (36:20)](1980-07-12-Karma-Conclusion#3620) - Right Effort
 
 ### Sutta Nipata
 
