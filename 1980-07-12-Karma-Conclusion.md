@@ -7,6 +7,9 @@ description: July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
+## Summary
+
+Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. What is Right Effort? Also: what is grace? It is not something coming from heaven.
 
 ## Transcript
 
