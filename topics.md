@@ -114,7 +114,7 @@ Japanese: Kaiin-zanmai
 
 ### Abhidharma Mahāvibhāṣa Śāstra
 
-- [Karma: Attribution in Present Life](1980-07-10-Karma-Attribution-in-Present-Life)
+- [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 
 ### Diamond Sutra
 
@@ -164,7 +164,7 @@ Japanese: Kaiin-zanmai
 
 ### Sutta Nipata
 
-- [Karma: Attribution in Present Life (50:45)](1980-07-10-Karma-Attribution-in-Present-Life#5045)
+- [Karmaic Retribution in Present Life (50:45)](1980-07-10-Karmic-Retribution-in-Present-Life#5045)
 
 --- 
 

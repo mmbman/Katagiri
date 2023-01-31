@@ -5,7 +5,7 @@ description: July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](1980-07-10-Karma-Attribution-in-Present-Life)
+[Next](1980-07-10-Karmic-Retribution-in-Present-Life)
 
 ## Summary
 
@@ -198,4 +198,4 @@ That is the conclusion of my talk this week. Do you have any questions?
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](1980-07-10-Karma-Attribution-in-Present-Life)
+[Next](1980-07-10-Karmic-Retribution-in-Present-Life)

@@ -1,5 +1,5 @@
 ---
-title: "Karma: Attribution in Present Life"
+title: "Karmic Retribution in Present Life"
 description: July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
