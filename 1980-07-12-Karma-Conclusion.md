@@ -17,7 +17,7 @@ description: July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-This is my last talk on karma during this two week [sesshin]. 
+This is my last talk on karma during this two week *[unintelligible]*. 
 
 The term *karma* is popular for people who start to study Buddhism, but usually karma is translated as *action*. If I use the English term *action*, it is a little different from the word karma in Sanskrit. Karma is not exactly action. If you use the term karma, strictly speaking it emphasizes unmanifested karma, unmanifested action, unmanifested karmic impression left by your doing. If you use the word *action* in English, that is manifested karma, which appears on the surface of the water. If you understand karma like this, your life becomes decadent, because manifested karma – action – always appears and disappears, appears and disappears, it doesn’t stay for long. But as you know pretty well, as you feel something related with human action through your reality, through your daily living, you can realize there is always something being continued from yesterday, from the past, up till now, and which will continue toward the future too. So you can realize this something being continued from the beginningless past to the future. 
 
