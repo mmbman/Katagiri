@@ -7,6 +7,9 @@ description: July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
 [Next](1980-07-11-Karma-As-Energy-Emptiness)
 
+## Summary
+
+Katagiri Roshi discusses the importance of focusing on actual practice, as Dogen Zenji teaches. The teaching, practice, and realization are all interrelated, but if you have to emphasize one, pick actual practice. *Karma* does not mean simple cause and effect, or *action*, as a current popular understanding goes, but includes *unmanifested karma*, a sort of impression left behind from your actions. Karmic retribution in the three times, an early Buddhist teaching related to unmanifested karma, is illustrated by a story about a talking bear and a shockingly irresponsible woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way.
 
 ## Transcript
 
@@ -23,9 +26,9 @@ I have still three lectures to give you [...] on karma, particularly according t
 
 If you use the term *Soto tradition*, it is already a certain tradition opposed to other traditions. That is a problem, a human problem. Without words, we cannot communicate [our true hearts] with each other, so we use words; but if we use words, immediately we fall into a trap. So it’s pretty hard. We have to [be aware of] that. 
 
-When I came to the United States, for a time I stayed in Los Angeles and served at Zenshuji Temple. At that time I lived with a young American boy who was very serious as a Buddhist. He could speak Japanese pretty well, and he studied Buddhism by himself, so he knew a lot about Buddhism. One day I had a discussion with him about what Buddhism is. I explained Buddhism according to Dogen’s way, who doesn’t want to attach to certain idea of Buddhist teaching in terms of a certain school, Rinzai or Soto tradition, or Tendai or Kegong, or Lotus Sutra, et cetera. So I always emphasize the broad scale of Buddhism that Dogen tries to talk about. But he didn’t understand, because I use Dogen’s teaching, so finally he asked, “If you want to teach us general, broad-scale Buddhism, why do you use Dogen’s way? You are already attached to Dogen’s way.” *[He laughs.]* This is an important point. 
+When I came to the United States, for a time I stayed in Los Angeles and served at Zenshuji Temple. At that time I lived with a young American boy who was very serious as a Buddhist. He could speak Japanese pretty well, and he studied Buddhism by himself, so he knew a lot about Buddhism. One day I had a discussion with him about what Buddhism is. I explained Buddhism according to Dogen’s way, who doesn’t want to attach to certain idea of Buddhist teaching in terms of a certain school, Rinzai or Soto tradition, or Tendai or Kegong, or Lotus Sutra, et cetera. So I always emphasize the broad scale of Buddhism that Dogen tries to talk about. But he didn’t understand, because I use Dogen’s teaching. So finally he asked, “If you want to teach us general, broad-scale Buddhism, why do you use Dogen’s way? You are already attached to Dogen’s way.” *[He laughs.]* This is an important point. 
 
-Finally I said to him, “Buddhist teaching is always aiming at the original nature of human being, which is constantly free, and not belonging to a certain teaching – Buddhist teaching or Christian teaching, whatever it is.” And then finally, all you have to do is, as Dogen Zenji says... *[He laughs.]* Here I’m using Dogen’s way again, but Dogen says, “To learn Buddhism is to learn the self.” So whatever you may be, or whatever kind of religion you believe, whatever occupation you follow, or even if you don’t believe anything at all: that’s okay, that’s alright. Why don’t you learn the self? This is really because you are great. 
+Finally I said to him, “Buddhist teaching is always aiming at the original nature of human being, which is constantly free, and not belonging to a certain teaching – Buddhist teaching or Christian teaching, whatever it is. And then finally, all you have to do is, as Dogen Zenji says...” *[He laughs.]* Here I’m using Dogen’s way again, but Dogen says, “To learn Buddhism is to learn the self.” So whatever kind of religion you believe, whatever occupation you follow, or even if you don’t believe anything at all: that’s okay, that’s alright. Why don’t you learn the self? This is really because you are great. 
 
 But remember: human life, your life, is always moving where? In the moment. In the moment, many beings coexist simultaneously, regardless of whether you like [it] or not. That means you should totally accept all beings. Nevertheless, you can’t go back to the past, you have to go forward. In order to move forward, you have a privilege to make a choice of what to do. For this, broadly speaking, under all circumstances, whatever kind of occupation you have, whatever you do: do your best to take care of life, accepting all beings totally. 
 
@@ -33,7 +36,9 @@ And then, the problem is, you have to make a choice of what to do for the future
 
 How can you do your best? To do your best is with great determination you have to make a choice, from moment to moment. At that time, it’s beautiful. The more your life is clear or humble or modest, or very compassionate, the more you realize the weak points which your being possesses. At that time, it’s very difficult to do your best by yourself. 
 
-So finally, we have to have something you can depend on. That is a teaching, mentioned by Jesus Christ, mentioned by Buddha Shakyamuni, mentioned by Dogen – taught by great persons who existed in the past. Temporarily, why don’t you open your mind to listen, to depend on [a] teaching? Well, [today] I will explain that Dogen’s point is always focusing on actual practice. 
+So finally, we have to have something we can depend on. That is a teaching, mentioned by Jesus Christ, mentioned by Buddha Shakyamuni, mentioned by Dogen – taught by great persons who existed in the past. Temporarily, why don’t you open your mind to listen, to depend on [a] teaching? 
+
+Well, [today] I will explain that Dogen’s point is always focusing on actual practice. 
 
 #### 9:46
 
