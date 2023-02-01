@@ -171,7 +171,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the difference between *manifested* and *unmanifested* karma, and why we need to understand both. There is always hope. Also: how to stop smoking.
+Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is mentioned. Also: how to stop smoking.
 
 ---
 
@@ -179,6 +179,27 @@ Katagiri Roshi discusses the difference between *manifested* and *unmanifested* 
 #### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma, which is the same as studying ourselves. He describes some key concepts in Buddhist Psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because the body and mind still exist. This is why Zen Master Dogen says, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma: we need to take care of them with compassion. The Suzuki Method for music education is used as an example of how to share our compassion with others, particularly with regard to *vedanā* (*reception* or *feeling*).
+
+---
+
+### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
+#### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi discusses the importance of focusing on actual practice, as Dogen Zenji emphasizes. Teaching, practice, and realization are all interrelated, but if you have to emphasize one, pick actual practice. *Karma* does not mean simple cause and effect, or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the sort of impression left behind by your actions. Karmic retribution in the three times, an early Buddhist teaching related to unmanifested karma, is illustrated by a story about a talking bear and a shockingly irresponsible woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way.
+
+---
+
+### [Karma as Energy / Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
+#### July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Karma is not a psychological entity: karma is really consciousness reaching out, but also karma is really the human body, closely related. So if we want to know karma, we have to know the human body, and if we want to know the human body, we have to know consciousness. According to the Twelve Causations, the base of our existence as karma is ignorance, but this ignorance is really vitality, allowing us to enter the gate of the human world. We should appreciate this. But we can’t just appreciate it without making any effort, because we carry many kinds of karma, stored at the bottom of human body and mind. This karma comes up only when conditions are arranged, so it is important that we arrange good conditions. We can do so because karma is a great source of energy, which we call *emptiness*. That means we can think in terms of possibility, and “dream the impossible dream” of helping all beings. Also: how to work with emotions in zazen.
+
+---
+
+### [Karma: Conclusion](1980-07-12-Karma-Conclusion)
+#### July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. Time and occasion and conditions are completely free, so day by day we can move, in order deepen our lives, in order to help all beings. That is *Right Effort*. Also: What is grace? Grace is not something coming from heaven.
 
 ---
 
