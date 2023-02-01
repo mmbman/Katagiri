@@ -48,10 +48,14 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 
 1. Diamond Sutra: Chapter 32: Emptiness and Mind
+
 1. Blue Cliff Record, Case 5 – Talk 1
 1. Blue Cliff Record, Case 5 – Talk 2
+
 1. Diamond Sutra: Final Lecture
+
 1. No Title or Description Available – 07/30/1980
+
 1. Blue Cliff Record, Case 7 – Talk 1
 1. Blue Cliff Record, Case 7 – Talk 2
 
@@ -162,11 +166,17 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Mindfulness – Talk 5
 
 1. The Awakening of Faith 4/6/84
+
 1. Blue Cliff Record, Case 55 – Talk 3
+
 1. The Awakening of Faith 4/20/84
+
 1. Blue Cliff Record, Case 57 – Talk 1
+
 1. The Awakening of Faith 4/20/84
+
 1. Blue Cliff Record, Case 57 – Talk 2
+
 1. The Awakening of Faith 5/4/84
 1. The Awakening of Faith 5/11/84
 1. The Awakening of Faith 5/14/84: Two Kinds of Nowness
@@ -193,20 +203,30 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. A Basis for Practice
 
 1. Blue Cliff Record, Case 61 – Talk 1
+
 1. The Awakening of Faith 10/19/84
+
 1. Book of Equanimity: Dongshan's "Always Close" – Talk 1
 1. Book of Equanimity: Dongshan's "Always Close" – Talk 2
+
 1. Blue Cliff Record, Case 61 – Talk 2
+
 1. The Awakening of Faith 10/26/84
+
 1. The Four Sustenances – Talk 1
 1. The Four Sustenances – Talk 2
+
 1. Blue Cliff Record, Case 62 – Talk 1
+
 1. Buddha's Impermancence
+
 1. Blue Cliff Record, Case 62 – Talk 2
 1. Blue Cliff Record, Case 63
+
 1. Suffering: Three Stages
 1. Always There Is a Scream: Track 1 of 2
 1. Always There Is a Scream: Track 2 of 2
+
 1. Blue Cliff Record, Case 64: Case 64
 
 ### 1985
@@ -214,6 +234,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Buddha Nature: Something Universal
 1. True Heart is not Infactuation
 1. The Simple Practice
+
 1. Blue Cliff Record, Case 67
 1. Blue Cliff Record, Case 68 – Talk 1
 
@@ -221,25 +242,37 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. Blue Cliff Record, Case 68 – Talk 2
 1. Blue Cliff Record, Case 69 – Talk 1
+
 1. Buddha Dharma: Big Sky Does not Bother with the Function of a Small Cloud
+
 1. From Blue Cliff Record, Case 69, Note 2: Symmetry and Unsymmetry
 1. Blue Cliff Record, Case 69 – Talk 2
 1. Blue Cliff Record, Case 70 – Talk 1
+
 1. Zazen and Creating Space
 1. Truth, Phenomenology, Noumenology
 1. Creating Space Between
 1. Letting Go of Labels
+
 1. Blue Cliff Record, Case 71
+
 1. The Awakening of Faith 10/18/85
+
 1. Blue Cliff Record, Case 72
+
 1. The Awakening of Faith 10/25/85
+
 1. Blue Cliff Record, Case 73
+
 1. The Awakening of Faith 11/01/85
+
 1. Blue Cliff Record, Case 74
 1. Blue Cliff Record, Case 75
+
 1. The Awakening of Faith 11/15/85
 1. Two Points to Consider: The Great Matter of Birth and Death Saving all Being
 1. Sharing Our Lives: The Practice of Attendance (Using the Selfish Self)
+
 1. Blue Cliff Record, Case 76
 
 ### 1986
@@ -248,8 +281,11 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
 
 1. The Awakening of Faith 3/7/86
+
 1. Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1
+
 1. The Awakening of Faith 3/14/86
+
 1. Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2
 
 1. Principles of Practice: Purpose of Practice
@@ -260,6 +296,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. The Awakening of Faith 3/28/86
 1. The Awakening of Faith 4/11/86
+
 1. Lay Ordination Lecture 5 of 7: Receiving the Precepts
 
 1. Buddha's Birthday
@@ -268,7 +305,9 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Book of Equanimity: Case 5 – Talk 2
 
 1. Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts
+
 1. The Awakening of Faith 5/2/86
+
 1. Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts
 
 1. The Goldenness of the Earth, the Sweet Milk of the Long River
@@ -311,11 +350,16 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo Kokyo: Form and Mirror – Talk 2
 
 1. T'ien T'ai Buddhism: Historical Background
+
 1. Zen and Writing: Word and its Spirit
+
 1. T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Talk 1
 1. T'ein T'ai Buddhism: Outline of 4-Fold Teaching – Talk 2
+
 1. Blue Cliff Record, Case 79 – Talk 1
+
 1. T'ien T'ai Buddhism: Conclusion
+
 1. Bowing
 
 1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 1
@@ -332,12 +376,16 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. Dogen Four Points: Track 1 of 2
 1. Dogen Four Points: Track 2 of 2
+
 1. Blue Cliff Record, Case 80 – Talk 1
 1. Blue Cliff Record, Case 80 – Talk 2
+
 1. Zazen: Dropping off Body and Mind
 1. Inconceivable, Universal, Cosmic Life
+
 1. Blue Cliff Record, Case 81 – Talk 1
 1. Blue Cliff Record, Case 81 – Talk 2
+
 1. Platform Sutra – Talk 1
 
 1. Shobogenzo Bendowa: Entry to the Buddha Dharma
@@ -349,13 +397,18 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. Platform Sutra – Talk 2
 1. Platform Sutra – Talk 3
+
 1. Living in Vow Life after Life
+
 1. Platform Sutra – Talk 4
 1. Platform Sutra – Talk 5
 1. Platform Sutra – Talk 6
+
 1. Deepening the Experience of Our Lives – Talk 1
 1. Deepening the Experience of Our Lives – Talk 2
+
 1. Platform Sutra – Talk 7
+
 1. Prajna Paramita and Emptiness
 1. Karma in Buddhism – Part 1
 1. Karma in Buddhism – Part 2
@@ -368,16 +421,20 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. Obon Memorial – Part 1
 1. Obon Memorial – Part 2
+
 1. Blue Cliff Record, Case 84 – Talk 1
 1. Blue Cliff Record, Case 84 – Talk 2
+
 1. Impermanence and the Meaning of Silence
 1. Three Aspects of Buddha's Silence
 1. Shobogenzo Sansuikyo: Eastern Mountains Traveling on the Water
 1. On a Poem by the Boatman: Fishing with a Straight Hook
 1. What is Right Human Effort – Part 1
 1. What is Right Human Effort – Part 2
+
 1. Blue Cliff Record, Case 86 – Talk 1
 1. Blue Cliff Record, Case 86 – Talk 2
+
 1. Wisdom of Living
 1. Chanting Practive: Chanting Practice
 1. Disporting with the Buddhas: Transformation through Play
