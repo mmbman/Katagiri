@@ -73,6 +73,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 20 – Talk 1
 1. Blue Cliff Record, Case 20 – Talk 2
 1. Blue Cliff Record, Case 22
+
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 1
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 2
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 3
@@ -80,6 +81,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 5
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 6
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 7
+
 1. Blue Cliff Record, Case 23 – Talk 1
 1. Blue Cliff Record, Case 23 – Talk 3
 1. Blue Cliff Record, Case 24
@@ -129,10 +131,12 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 45 – Talk 2
 1. Blue Cliff Record, Case 46 – Talk 1
 1. Blue Cliff Record, Case 46 – Talk 2
+
 1. Arts and Buddhism – Part 1
 1. Arts and Buddhism – Part 2
 1. Westerners' Reluctance Toward Bowing – Part 1
 1. Westerners' Reluctance Toward Bowing – Part 2
+
 1. Blue Cliff Record, Case 49 – Talk 1
 1. Blue Cliff Record, Case 49 – Talk 2
 
@@ -145,16 +149,18 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 53
 1. Blue Cliff Record, Case 54
 1. Blue Cliff Record, Case 55 – Talk 1
+
 1. Precepts for Lay Ordination – Part 1
 1. Precepts for Lay Ordination – Part 2
+
 1. The Awakening of Faith 3/16/84
 
 1. [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
-
 1. Mindfulness – Talk 2
 1. Mindfulness – Talk 3
 1. Mindfulness – Talk 4
 1. Mindfulness – Talk 5
+
 1. The Awakening of Faith 4/6/84
 1. Blue Cliff Record, Case 55 – Talk 3
 1. The Awakening of Faith 4/20/84
@@ -168,6 +174,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. The Awakening the Faith 5/18/84: Alayavijnana & Tathagatagarbha
 1. The Awakening of Faith 5/22/84: Tathagatagarbha
 1. The Awakening of Faith 5/24/84: Tathagatagarbha & Alayavijinana
+
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 1
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 2
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 3
@@ -177,11 +184,14 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 8
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 10
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 11
+
 1. Blue Cliff Record, Case 58 – Talk 1
 1. Blue Cliff Record, Case 58 – Talk 2
 1. Blue Cliff Record, Case 59
 1. Blue Cliff Record, Case 60
+
 1. A Basis for Practice
+
 1. Blue Cliff Record, Case 61 – Talk 1
 1. The Awakening of Faith 10/19/84
 1. Book of Equanimity: Dongshan's "Always Close" – Talk 1
@@ -241,39 +251,49 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1
 1. The Awakening of Faith 3/14/86
 1. Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2
+
 1. Principles of Practice: Purpose of Practice
 1. Principles of Practice: Bodhicitta
 1. Principles of Practice: High Resolve
 1. Principles of Practice: Faith
 1. Prinicples of Practice: Direct Transmission
+
 1. The Awakening of Faith 3/28/86
 1. The Awakening of Faith 4/11/86
-1. Lay Ordination Lecture 5 of 7: Recieving the Precepts
+1. Lay Ordination Lecture 5 of 7: Receiving the Precepts
+
 1. Buddha's Birthday
 1. The Awakening of Faith 4/18/84
 1. Book of Equanimity: Case 5 – Talk 1
 1. Book of Equanimity: Case 5 – Talk 2
+
 1. Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts
 1. The Awakening of Faith 5/2/86
 1. Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts
+
 1. The Goldenness of the Earth, the Sweet Milk of the Long River
 1. Turning the Three Poisons into Wheels
+
 1. Meal Chants – Talk 1
 1. Meal Chants – Talk 2
 1. Meal Chants – Talk 3
+
 1. Blue Cliff Record, Case 78 – Talk 1
 1. Blue Cliff Record, Case 78 – Talk 2
+
 1. Gatha of Opening the Sutra
 1. Gatha of Closing the Sutra
 1. Settling in the Vast Openness of the Sky
 1. Taking Refuge in the Buddha
 1. Verse of Offering Incense
 1. Bowing
+
 1. Shobogenzo Hossho: Dharma Nature – Talk 5
 1. Shobogenzo Hossho: Dharma Nature – Talk 6
 1. Shobogenzo Hossho: Dharma Nature – Talk 7
 1. Shobogenzo Hossho: Dharma Nature – Talk 8
 1. Shobogenzo Hossho: Dharma Nature – Talk 9
+
 1. Shobogenzo Tsuki: The Moon – Talk 1
 1. Shobogenzo Tsuki: The Moon – Talk 2
 1. Shobogenzo Tsuki: The Moon – Talk 3
@@ -281,12 +301,15 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo Tsuki: The Moon – Talk 5
 1. Shobogenzo Tsuki: The Moon – Talk 6
 1. Shobogenzo Tsuki: The Moon – Talk 7
+
 1. Shobogenzo Hossho: Dharma Nature – Talk 10
 1. Shobogenzo Hossho: Dharma Nature – Talk 11
 1. Shobogenzo Hossho: Dharma Nature – Talk 12
 1. Shobogenzo Hossho: Dharma Nature – Talk 13
+
 1. Shobogenzo Kokyo: Form and Mirror – Talk 1
 1. Shobogenzo Kokyo: Form and Mirror – Talk 2
+
 1. T'ien T'ai Buddhism: Historical Background
 1. Zen and Writing: Word and its Spirit
 1. T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Talk 1
@@ -294,6 +317,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 79 – Talk 1
 1. T'ien T'ai Buddhism: Conclusion
 1. Bowing
+
 1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 1
 1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 3
 1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 4
@@ -301,6 +325,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 6
 1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 7
 1. Commentary on Shobogenzo Gabyo (Painted Rice Cake)
+
 1. Obedience
 
 ### 1987
@@ -314,12 +339,14 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 81 – Talk 1
 1. Blue Cliff Record, Case 81 – Talk 2
 1. Platform Sutra – Talk 1
+
 1. Shobogenzo Bendowa: Entry to the Buddha Dharma
 1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1
 1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 2
 1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 3
 1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 4
 1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 5
+
 1. Platform Sutra – Talk 2
 1. Platform Sutra – Talk 3
 1. Living in Vow Life after Life
@@ -359,8 +386,11 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. Lay Ordination Lecture (2nd Series: 1 of 3): Depending on the Dharma
 1. Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance
+
 1. Recording of Chants
+
 1. Lay Ordination Lecture: (2nd Series, 3 of 3): Restraint and Extermination
+
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 1
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 2
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 3
@@ -372,10 +402,14 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 9
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 10
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 11
+
 1. Review and Renew: Buddhism for the 21st Century
+
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 12
+
 1. Blue Cliff Record, Case 87, Lecture 1
 1. Blue Cliff Record, Case 87, Lecture 2
+
 1. Shobogenzo Baika: Plum Blossoms – Talk 1
 1. Shobogenzo Baika: Plum Blossoms – Talk 2
 1. Shobogenzo Baika: Plum Blossoms – Talk 3
