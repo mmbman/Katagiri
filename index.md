@@ -65,7 +65,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
-Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is mentioned. Also: how to stop smoking.
+Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is mentioned.
 
 ---
 
@@ -74,7 +74,7 @@ Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the dif
 ### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 #### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
-Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). (The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, sometimes referred to as the Twelve Links of Dependent Origination), noting that *karma* is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But *avidyā* is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures. Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
 ---
 
