@@ -185,7 +185,7 @@ Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma
 ### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 #### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the importance of focusing on actual practice, as Dogen Zenji emphasizes. Teaching, practice, and realization are all interrelated, but if you have to emphasize one, pick actual practice. *Karma* does not mean simple cause and effect, or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the sort of impression left behind by your actions. Karmic retribution in the three times, an early Buddhist teaching related to unmanifested karma, is illustrated by a story about a talking bear and a shockingly irresponsible woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way.
+Katagiri Roshi discusses karma in terms of Dogen’s understanding, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He discusses the importance of focusing on actual practice, as Dogen Zenji emphasizes. *Karma* does not mean simple cause and effect or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the sort of impression left behind by your actions. Karmic retribution in the three times, a teaching related to unmanifested karma, is illustrated by a story about a talking bear and a shockingly irresponsible woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way.
 
 ---
 
@@ -199,7 +199,7 @@ Karma is not a psychological entity: karma is really consciousness reaching out,
 ### [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 #### July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. Time and occasion and conditions are completely free, so day by day we can move, in order deepen our lives, in order to help all beings. That is *Right Effort*. Also: What is grace? Grace is not something coming from heaven.
+Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. Time and occasion and conditions are completely free, so day by day we can move, in order deepen our lives and help all beings. That is *Right Effort*. Also: What is grace? Grace is not something coming from heaven.
 
 ---
 
