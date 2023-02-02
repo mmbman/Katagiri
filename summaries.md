@@ -199,7 +199,7 @@ Karma is not a psychological entity: karma is really consciousness reaching out,
 ### [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 #### July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. Time and occasion and conditions are completely free, so day by day we can move, in order deepen our lives and help all beings. That is *Right Effort*. Also: Grace is not something coming from heaven.
+Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. Time and occasion and conditions are completely free, so day by day we can move, in order deepen our lives and help all beings. That is *Right Effort*. Also: Grace is not something that comes from heaven.
 
 ---
 
