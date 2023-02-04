@@ -108,7 +108,7 @@ The first one is *contact*; in Sanskrit we say *sparśa*. And second is *feeling
 
 #### 36:37
 
-*Contact*, *sparśa*: this is not the contact which you have usually thought [of]. I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars always connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
+*Contact*, *sparśa*: this is not the contact which you have usually thought [of]. I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
 
 So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their horns. *[He laughs.]* They’re really bumping into each other; this is *contact*. 
 
@@ -116,7 +116,7 @@ So sparśa is contact *as a whole*. This is very powerful: just like two goats f
 
 So [contact] is really creating a certain function. When it works, like they’re hitting each other, at that time something happens. That is what is called *feeling*: *vedanā*. 
 
-Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like] two goats bumping into each other. If you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
+Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like] two goats bumping into each other; and if you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
 
 And also when you receive something, there is the function which is called *grasping*: grabbing or attaching to something. This is a quality of vedanā, feeling. 
 
