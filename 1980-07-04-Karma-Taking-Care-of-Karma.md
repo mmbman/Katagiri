@@ -116,7 +116,7 @@ So sparśa is contact *as a whole*. This is very powerful: just like two goats f
 
 So [contact] is really creating a certain function. When it works, like they’re hitting each other, at that time something happens. That is what is called *feeling*: *vedanā*. 
 
-Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like] two goats bumping into each other; and if you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
+Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like] two goats bumping into each other – and if you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
 
 And also when you receive something, there is the function which is called *grasping*: grabbing or attaching to something. This is a quality of vedanā, feeling. 
 
