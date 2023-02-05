@@ -15,6 +15,15 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 ---
 
+*Posted February 4, 2023.*
+
+### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
+#### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi discusses karma in terms of Dogen’s understanding, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji emphasizes focusing on actual practice. *Karma* does not mean simple cause and effect or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the impression left behind by our actions. Karmic retribution, an early Buddhist teaching related to unmanifested karma, is illustrated by a story about a talking bear and a shockingly irresponsible woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way.
+
+---
+
 *Transcript posted January 24, 2023.*
 
 ### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
