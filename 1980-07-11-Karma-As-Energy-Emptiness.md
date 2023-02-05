@@ -112,7 +112,7 @@ For instance, if you do zazen and see the emotions, people say you should know t
 
 So if you really start to research in order to awaken to the anger in zazen, it’s a cause of confusion. If you really want to know what anger is, what emotion is, all you have to do is just sit down, with your best effort. Very naturally, it’s fading away – or all of a sudden you say, “Ah, this is anger.” You can see anger objectively, creating a little space with karma. That space is really good; you can take a deep breath right in the middle of anger. If you don’t have any space, the anger drives you to be crazy. 
 
-That’s why Dogen Zenji says, “When egoistic views arise, just do zazen quietly, observing them.” Just sitting is immediately observation. Observation and zazen are not two; just sitting is simultaneously observation. So observation is not to see something objectively. It is still observation to see something or to think something in a dualistic way, but observation in zazen is that zazen itself is observation. Just sitting down is observation. 
+That’s why Dogen Zenji says, “When egoistic views arise, just do zazen quietly, observing them.” Just sitting is immediately observation. Observation and zazen are not two; just sitting is simultaneously observation. So observation is not to see something objectively. It is still observation to see something or to think something in a dualistic way, but observation in zazen is that zazen itself is observation, just sitting down is observation. 
 
 #### 44:20
 
