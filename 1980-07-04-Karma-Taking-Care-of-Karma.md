@@ -108,7 +108,7 @@ The first one is *contact*; in Sanskrit we say *sparśa*. And second is *feeling
 
 #### 36:37
 
-*Contact*, *sparśa*: this is not the contact which you have usually thought [of]. I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
+*Contact*, *sparśa*: this is not the contact which you have usually thought [of]. (Transcriber’s Note: *contact* means contact of the six sense organs with six sense objects, plus six sense consciousnesses.) I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
 
 So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their horns. *[He laughs.]* They’re really bumping into each other; this is *contact*. 
 
@@ -118,11 +118,11 @@ So [contact] is really creating a certain function. When it works, like they’r
 
 Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like] two goats bumping into each other – and if you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
 
-And also when you receive something, there is the function which is called *grasping*: grabbing or attaching to something. This is a quality of vedanā, feeling. 
+And also when you receive something, there is the function which is called *grasping*: grabbing or attaching to something. This is a quality of vedanā, feeling. (Transcriber’s Note: *upādāna* or grasping is the ninth link in Twelvefold Causation. It follows *taṇhā* or craving, which follows vedanā.)
 
 And also, where the *vedanā* is located, that’s interesting. (Transcriber’s Note: perhaps “where it is located” means “where it comes into effect”.) Essentially, feeling is very quiet, tranquil. You don’t know that, but the original nature of *vedanā* [is very quiet], and also, the original nature of *vedanā* creates wholesome behavior in the human mind. This is the original nature of human feeling. That’s why through feeling you can create the religious sense, and the artistic sense. 
 
-That’s why we educate little children. You know the Japanese teacher of [violin] music, Mr. Suzuki? Suzuki’s Method. He teaches music to the little children. They don’t understand music, originally, but originally, human beings have feeling. That feeling is really [tranquil]; it’s accepting everything. By bumping into each other, getting a big shock, that is *contact*. So very naturally you can educate that feeling. Particularly in small children, it’s pretty easy to educate such a quiet, tranquil feeling. That’s why Mr. Suzuki always teaches us in that way. 
+That’s why we educate little children. You know the Japanese teacher of [violin] music, Mr. Suzuki? Suzuki’s Method. He teaches music to the little children. They don’t understand music, originally, but originally human beings have feeling. That feeling is really [tranquil]; it’s accepting everything. By bumping into each other, getting a big shock, that is *contact*. So very naturally you can educate that feeling. Particularly in small children, it’s pretty easy to educate such a quiet, tranquil feeling. That’s why Mr. Suzuki always teaches us in that way. 
 
 The same applies not only to music, but to religion, or sports, or whatever it is: that is, when you teach somebody when they are small, that’s pretty good. Even language, too: but not only teaching in a linguistic way, but teaching language through human feeling. They can get language through human feeling. 
 
