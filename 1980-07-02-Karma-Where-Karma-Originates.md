@@ -18,19 +18,21 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 <a name="000"></a>
 #### 0:00 start of recording 
 
-I said in the first early morning [zazen](glossary#zazen), “to deport oneself in  [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
+I said in the first early morning [zazen](glossary#zazen), “to deport oneself in [samādhi](glossary#samadhi).” I have to correct this term: “to *disport*,” not “deport”. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
 
 Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to Twelve Chain Causation. (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination).) Let me [review this] again; please remember: 
 
 First is *ignorance*: [in [Sanskrit](glossary#sanskrit),] *avidyā*.
 
-And *samskara*: This is the first stage of movement, psychologically or physically. This is human process and function. 
+And *samskara*: This is the first stage of movement, psychologically or physically – human process and function. 
 
-Next, *consciousness*, and *name and form*. (#3 *vijñāna* is *consciousness*; #4 *nāmarūpa* is name-and-form.) This is how all beings exist and we understand [them], through *name and form*.
+Next, *consciousness*  (*vijñāna*).
+
+And fourth, *name and form* (*nāmarūpa*) This is how all beings exist and we understand [them], through *name and form*.
 
 Fifth is *six consciousnesses*, six senses. (In Sanskrit, *Āyatana*.)
 
-Sixth is *tangibility*; *touch*. (*Sparśa* in Sanskrit, or *phassa* in Pali. More commonly in English, *contact*.)
+Sixth is *tangibility*; *touch*. (*Sparśa* in Sanskrit, or *phassa* in Pali. Katagiri translates this as *contact* in a later talk.)
 
 Seventh is *reception*, or *feeling*. (*Vedanā*.)
 
