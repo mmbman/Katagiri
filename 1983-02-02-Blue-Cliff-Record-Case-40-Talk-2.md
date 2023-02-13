@@ -5,7 +5,7 @@ description: February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1983) \| 
 [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
 
 ## Summary
 
@@ -170,4 +170,4 @@ Very naturally that is just like energies moving. So that is called *everything 
 
 [Home](index) \| [List](list#1983) \| 
 [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
