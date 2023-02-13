@@ -171,7 +171,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is mentioned.
+Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is also mentioned.
 
 ---
 
