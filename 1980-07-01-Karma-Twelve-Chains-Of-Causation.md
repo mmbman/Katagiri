@@ -13,11 +13,11 @@ Katagiri Roshi completely explains the Twelve Links of Dependent Origination... 
 
 ## Transcript
 
-#### start of recording
-
 (Transcriber’s Note: The online audio of this talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the next talk picks up after this one.)
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Listen to this talk on mnzencenter.org</a> 
+
+#### start of recording
 
 … the words come up. And then, now can people look at this form of circle? And then how do they agree with this existence of a form of circle coming from a movement? How? Just the words. Without words, we cannot get agreement. Don’t you think so?
 
