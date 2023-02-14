@@ -13,6 +13,8 @@ Katagiri Roshi completely explains the Twelve Links of Dependent Origination... 
 
 ## Transcript
 
+#### start of recording
+
 (Transcriber’s Note: The online audio of this talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the next talk picks up after this one.)
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Listen to this talk on mnzencenter.org</a> 
@@ -29,7 +31,7 @@ But this agreement is also important for us, okay? Don’t misunderstand. I don�
 
 The beginning of time and space is already ignorance, coming from your consciousness, don’t you think so? If you say *before*, already there is *after*, don’t you think? So already you think something – “time and space” – in the [dualistic](glossary#dualistic) sense: before and after, separate. But what is “before”? What is “after”? That is a very interesting, huge, system: [psychology] and theology. 
 
-What is the first beginning of the world? Who creates it? That’s interesting. *[He chuckles.]* Buddha did it? Or before [Shakyamuni Buddha](glossary#shakyamuni-buddha ), who are his teachers? Do you know that? Always we research, poke... investigate. So Buddha says, “Oh yes, I [had teachers].” Buddha [is] very straightforward: before Buddha Shakyamuni was born in this world, already thousands of Buddhas existed. [Thousands of years] before Buddha was born, [there’s] already [a] Buddha. And then he communicated with him and practiced under him, and then he became a Buddha. And then in the future, how can the Buddha transmit his teachings, when [Buddhism](glossary#buddhism) is completely destroyed? That is Maitreya Buddha. So that is really Buddhology: systemized, before and after. But, it’s important.
+What is the first beginning of the world? Who created it? That’s interesting. *[He chuckles.]* Buddha did it? Or before [Shakyamuni Buddha](glossary#shakyamuni-buddha ), who are his teachers? Do you know that? Always we research, poke... investigate. So Buddha says, “Oh yes, I [had teachers].” Buddha [is] very straightforward: before Buddha Shakyamuni was born in this world, already thousands of Buddhas existed. [Thousands of years] before Buddha was born, [there’s] already [a] Buddha. And then he communicated with him and practiced under him, and then he became a Buddha. And then in the future, how can the Buddha transmit his teachings, when [Buddhism](glossary#buddhism) is completely destroyed? That is Maitreya Buddha. So that is really Buddhology: systemized, before and after. But, it’s important.
 
 So before time and space is completely no sense of [ignorance]. This is *[unintelligible]* the Buddhas. That is the truth – regardless of whether the Buddha was [creating] this world, or he describes those forms, or not. Anyway, this is before time and space arises.
 
