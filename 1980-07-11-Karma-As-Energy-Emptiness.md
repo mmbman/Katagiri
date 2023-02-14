@@ -20,7 +20,7 @@ Karma is not a psychological entity: karma is consciousness reaching out, but al
 <a name="000"></a>
 #### 0:00 start of recording
 
-Today the subject I am going to deal with is the great source of energy called karma. Karma is nothing but a great source of energy. If you use the technical term, that is *emptiness*. 
+Today the subject I am going to deal with is the great source of energy [that is] our karma. Karma is nothing but a great source of energy. If you use the technical term, that is *emptiness*. 
 
 Yesterday I told you, karma is that which we have carried since the beginningless past, and we carry it toward the future. From this point, karma is just like one’s own property or inheritance. There is no [way] to escape from it; this is reality. 
 
