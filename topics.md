@@ -200,6 +200,11 @@ Japanese: Kaiin-zanmai
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
+<a name="BCR-43"></a>
+### Case 43: Tung Shan’s No Cold or Heat
+
+- [Karma as Energy / Emptiness (16:20)](1980-07-11-Karma-As-Energy-Emptiness#1620)
+
 <a name="BCR-46"></a>
 ### Case 46: Ching Ch’ing’s Sound of Raindrops
 
