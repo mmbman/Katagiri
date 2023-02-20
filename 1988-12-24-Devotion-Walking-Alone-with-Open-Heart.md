@@ -272,7 +272,7 @@ Do you have some questions? Anything is fine.
 
 I think it is not necessary to criticize, basically. If it is necessary, I think you should walk with that person, sharing your good aspect, instead of criticizing. If you see something lacking, give them your hands. [...] Try to walk with him or her, and give a hand to them. 
 
-In order to walk, you need a peaceful way of life, more or less; because you don’t walk alone, you have to walk with people. And then, conflict comes out not as an idea, conflict comes out as something real; you have to deal with them right now. If they stumble over the rock, then give them a hand, instead of saying, “Your walking is careless.” Give a hand to him or her, and spring back again, and walk.
+In order to walk, you need a peaceful way of life, more or less; because you don’t walk alone, you have to walk with people. And then, conflict comes out not as an idea, conflict comes out as something real; you have to deal with them right now. If they stumble on a rock, then give them a hand, instead of saying, “Your walking is careless.” Give a hand to him or her, and spring back again, and walk.
 
 #### 1:16:23 end of recording
 

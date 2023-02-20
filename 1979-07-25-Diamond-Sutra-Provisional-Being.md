@@ -98,7 +98,7 @@ So from this point, we are always moving toward the object. At that time, object
 
 We are always moving toward the object initiatively, participating in it, being engaged in it. At that time, the object starts working with you pretty well, simultaneously.
 
-This is one point, subject always moving toward object. On the other hand, another aspect is that the subject does not always initiatively move toward the object, sometimes the object moves toward the subject. For instance, when you walk on the street, and a big rock is there right in front of you, and you stumble over it. To stumble over it means the rock exists. That rock gives you a sense of *resistance*, or a kind of *antagonism*. 
+This is one point, subject always moving toward object. On the other hand, another aspect is that the subject does not always initiatively move toward the object, sometimes the object moves toward the subject. For instance, when you walk on the street, and a big rock is there right in front of you, and you stumble on it. To stumble on it means the rock exists. That rock gives you a sense of *resistance*, or a kind of *antagonism*. 
 
 What is a being which seems to be very accurate, touching your consciousness, touching your body? Your hand. But sometimes you cannot touch [something] with your body. Sort of [like] anger; your enemy. Your enemy, or your anger, [you] cannot touch with your body. But it’s really something existent, because that hatred gives a sense of antagonism to you. So at that time, the object becomes not a provisional being, the object becomes completely an actual being. 
 
