@@ -15,6 +15,15 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 ---
 
+*Posted February 21, 2023.*
+
+### [Karma: Conclusion](1980-07-12-Karma-Conclusion)
+#### July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness. This returns us to the reality of Buddha’s karma. We can reflect on ourselves and our actions without being stuck in the “ghost” of karma. Time and occasion and conditions are completely free, so day by day we can move toward the future, in order deepen our lives and help all beings. That is *Right Effort*. Also: Grace is not something that comes from heaven.
+
+---
+
 *Posted February 18, 2023.*
 
 ### [Karma as Energy / Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
