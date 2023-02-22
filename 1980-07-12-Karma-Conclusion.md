@@ -5,7 +5,7 @@ description: July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 
 ## Summary
 
@@ -138,4 +138,4 @@ Is that okay? *[He laughs.]* So of course I can say yes, grace is interdependent
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)

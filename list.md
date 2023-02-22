@@ -47,7 +47,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Karma as Energy / Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 1. [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 
-1. Diamond Sutra: Chapter 32: Emptiness and Mind
+1. [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 
 1. Blue Cliff Record, Case 5 – Talk 1
 1. Blue Cliff Record, Case 5 – Talk 2
