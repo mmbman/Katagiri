@@ -28,7 +28,7 @@ This chapter emphasizes what the key to supreme knowledge is. If we bear even on
 
 #### 2:25
 
-I often emphasize that Buddhism is sort of philosophy and psychology, [which is] systematized by human beings, through deeply understanding human life in reality. 
+I often emphasize that Buddhism is sort of philosophy and psychology, [which is] systematized by human beings through deeply understanding human life in reality. 
 
 So first of all, we cannot mold human life into Buddhist teaching, because Buddhist teaching comes from one’s life in reality. So even though you understand some aspect of Buddhism with your mind, and talk [about it], illuminate it in full detail for others – sometimes you don’t feel good, because that talk is really dead. 
 
