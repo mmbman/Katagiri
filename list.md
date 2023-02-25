@@ -39,6 +39,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 
+1. Karma: Two Aspects
 1. [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 1. [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 1. [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
@@ -53,8 +54,6 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 5 – Talk 2
 
 1. Diamond Sutra: Final Lecture
-
-1. No Title or Description Available – 07/30/1980
 
 1. Blue Cliff Record, Case 7 – Talk 1
 1. Blue Cliff Record, Case 7 – Talk 2
