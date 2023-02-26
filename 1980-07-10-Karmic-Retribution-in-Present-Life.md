@@ -20,7 +20,7 @@ Katagiri Roshi discusses karma in terms of Dogen’s understanding, including th
 
 First of all, I and all members of the sangha want to express appreciation to Doctor Huston Smith for his compassion in spending his valuable time with us, to guide us to Buddha’s Way. We really [benefit] from Doctor Smith, not only through his words, but behind the words. We deeply appreciate [your visit]. Thank you very much. 
 
-I have still three lectures to give you [...] on karma, particularly according to Dogen Zenji, the founder of Soto Zen. I pretty often emphasize Dogen Zenji’s way. If you use Dogen Zenji’s way, you immediately face the Soto tradition. 
+I still have three lectures to give you in this seminar on karma, particularly on karma according to Dogen Zenji, the founder of Soto Zen. I pretty often emphasize Dogen Zenji’s way. If you use Dogen Zenji’s way, you immediately face the Soto tradition. 
 
 If you use the term *Soto tradition*, it is already a certain tradition opposed to other traditions. That is a problem, a human problem. Without words, we cannot communicate [our true hearts] with each other, so we use words; but if we use words, immediately we fall into a trap. So it’s pretty hard. We have to [be aware of] that. 
 

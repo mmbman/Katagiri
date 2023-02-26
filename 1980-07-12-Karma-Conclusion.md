@@ -18,7 +18,7 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 <a name="000"></a>
 #### 0:00 start of recording
 
-This is my last talk on karma during this [two week practice period]. 
+This is my last talk on karma during this two week seminar. 
 
 The term *karma* is popular for people who start to study Buddhism, but usually karma is translated as *action*. But if you use the English term *action*, it is a little different from the word karma in Sanskrit. Karma is not exactly action. If you use the term karma, strictly speaking it emphasizes unmanifested karma, unmanifested action, which means the impression left by your doing. If you use the word *action* in English, that is manifested karma, which [is like something] appearing on the surface of the water. If you understand karma like this, your life becomes decadent – because manifested karma, action, always appears and disappears, appears and disappears. It doesn’t stay for long. 
 
