@@ -5,7 +5,7 @@ description: May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+[Next](1980-06-30-Karma-Two-Aspects)
 
 ## Summary
 
@@ -349,4 +349,4 @@ This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+[Next](1980-06-30-Karma-Two-Aspects)
