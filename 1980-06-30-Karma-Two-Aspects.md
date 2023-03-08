@@ -71,17 +71,15 @@ So both karma and also the continuation of the process of karma and its result i
 
 #### 22:44
 
-The Indian people were very afraid of karma, because karma was exactly the idea that if you do something good you will get something good, but if you do something wrong, you will have something wrong as a result. So always there was a strong power behind the Indian people’s lives, just like a shadow, which controlled their lives. The Indian people were very afraid of this idea of karma, because [that] karma was always behind them and in control. 
+The Indian people were very afraid of karma, because karma was exactly the idea that if you do something good you will get something good, but if you do something wrong, you will have something wrong as a result. So always there was a strong power behind the Indian people’s lives, just like a shadow, which controlled their lives. The Indian people were very afraid of this idea of karma, because [that] karma was always behind them and in control. Generally speaking, they believed karma according to three points:
 
-Generally speaking, they believed karma according to [one of] three points:
+One point was that karma, or our human body, karmic result, is [something that] is already created in the past. That was one point: you, and everybody, already created your body and mind in the past.
 
-One is that karma, or our human body, karmic result, is [something that] is already created in the past. That is one point: you, and everybody, already created your body and mind in the past.
+The second point was that karma, the human body, is that which certain gods made. 
 
-The second point is that karma, the human body, is that which certain gods made. 
+The third was that there is no cause: no one made the karma in the past. So human body and mind, or human action, whatever it is, just happened by chance.
 
-The third is that there is no cause: no one made the karma in the past. So human body and mind, or human action, whatever it is, just happened by chance.
-
-The first two are sort of fatalism, because you made already made [your karma] in the past. So that karma is already a certain frame of categories, which is called Katagiri. If I say Katagiri, Katagiri already has a certain *[unintelligible]*, which no one controls, which even I cannot control. *In the past* means [...] including the past before my birth. [So] this is caste. My karma is that which is already made in the past – so, I cannot do anything.
+The first two are sort of fatalism, because you already made [your karma] in the past. So that karma is already a certain frame of categories, which is called Katagiri. If I say Katagiri, Katagiri already has a certain sense of solid being, which no one controls, which even I cannot control, that I already made in the past, [...] including the past before my birth. [So] this is [caste]. My karma is that which is already made in the past – so, I cannot do anything.
 
 Or [also], if you say karma is that which god made, at that time there is nothing to do. That is really fatalism.
 
