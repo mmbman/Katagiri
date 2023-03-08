@@ -154,6 +154,13 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 ---
 
+### [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
+#### June 30, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it important to study karma? Is karma only for Buddhist people? Is Buddhism itself only an aspect of Eastern culture? Can trying to understand karma drive you crazy? Also: How to reconcile “aiming for the long range” with “no goal in zazen”.
+
+---
+
 ### [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 #### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
@@ -185,7 +192,7 @@ Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma
 ### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 #### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses karma in terms of Dogen’s understanding, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji emphasizes focusing on actual practice. *Karma* does not mean simple cause and effect or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the impression left behind by our actions. Karmic retribution, an early Buddhist teaching related to unmanifested karma, is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way. Also: Be the turtle.
+Katagiri Roshi discusses karma in terms of Dogen’s understanding, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji emphasizes focusing on actual practice. *Karma* does not mean simple cause and effect or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the impression left behind by our actions. Karmic retribution is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way. Also: Be the turtle.
 
 ---
 
