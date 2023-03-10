@@ -9,7 +9,7 @@ description: July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. However, there is substantial coverage of the topic in the following talks in this series. Still, we would really like to retrieve this talk someday.
+Katagiri Roshi completely explains the Twelve Links of Dependent Origination... probably, but the audio is lost. However, there is substantial coverage of the topic in the following talks in this series. Still, we would really like to retrieve this talk someday.
 
 ## Transcript
 
