@@ -9,7 +9,7 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi introduces the topic of *unmanifested karma*. He explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is also mentioned.
+Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is also mentioned.
 
 ## Transcript
 
