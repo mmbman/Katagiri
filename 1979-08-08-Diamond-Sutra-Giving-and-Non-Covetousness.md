@@ -44,8 +44,6 @@ This is very common, very common in the human world. That’s why we always figh
 
 That’s why Dogen Zenji says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
 
-> (Transcriber’s Note: This seems to be mostly the same as a section of *The Eighth Duino Elegy* by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)
->
 > Only we see death; but the beast is free   
 > and has its death always behind it and God before it,   
 > and when it walks it goes toward eternity,   
@@ -58,8 +56,9 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 > ...   
 > That’s what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
->   
->   
+>      
+> (Transcriber’s Note: This seems to be mostly the same as a section of *The Eighth Duino Elegy* by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)
+>
 >> (Here are a couple different translations for reference. Skip these if you are not interested.)
 >> 
 >> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
