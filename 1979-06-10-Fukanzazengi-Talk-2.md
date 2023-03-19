@@ -34,7 +34,7 @@ And fourth is the *internal organ system*. The internal organs work very smoothl
 
 The fifth is regulation of the *brain-nerve system*. That is, according to zazen, regulation of mind. 
 
-Also number six is, I told you yesterday, the whole personality or total personality; the personality that, according to general [Buddhism](glossary#buddhism), is [Buddha Nature](glossary#buddha-nature), or according Buddhist Psychology it is called [karma](glossary#karma).
+Also number six is, I told you yesterday, the whole personality or total personality; the personality that, according to general [Buddhism](glossary#buddhism), is [Buddha Nature](glossary#buddha-nature), or according Buddhist psychology it is called [karma](glossary#karma).
 
 That total personality has a double face. One face is karma; you have carried this from the past. And the other face is that total personality which is completely beyond human criticism; that is really Buddha Nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in [Fukanzazengi](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.”
 

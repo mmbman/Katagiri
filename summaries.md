@@ -73,7 +73,7 @@ Why should we not be disappointed with this world, if there seems to be nothing 
 ### [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 #### August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist Psychology.
+What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
 ---
 
@@ -185,7 +185,7 @@ Katagiri Roshi explains the difference between *manifested* and *unmanifested* k
 ### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
 #### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma, which is the same as studying ourselves. He describes some key concepts in Buddhist Psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because the body and mind still exist. This is why Zen Master Dogen says, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma: we need to take care of them with compassion. The Suzuki Method for music education is used as an example of how to share our compassion with others, particularly with regard to *vedanā* (*reception* or *feeling*).
+Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma, which is the same as studying ourselves. He describes some key concepts in Buddhist psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because the body and mind still exist. This is why Zen Master Dogen says, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma: we need to take care of them with compassion. The Suzuki Method for music education is used as an example of how to share our compassion with others, particularly with regard to *vedanā* (*reception* or *feeling*).
 
 ---
 

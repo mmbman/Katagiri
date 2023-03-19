@@ -48,7 +48,7 @@ Karma is really the source of individual life, but that is not inside, that is n
 
 #### 15:00
 
-There is a question. According to Buddhist Psychology, karma is divided into two: one is *manifested* karma, the second is *unmanifested* karma. Why is it that we have to emphasize *unmanifested* karma? 
+There is a question. According to Buddhist psychology, karma is divided into two: one is *manifested* karma, the second is *unmanifested* karma. Why is it that we have to emphasize *unmanifested* karma? 
 
 [We have to emphasize unmanifested karma] because karma is already with us and occupying the basis of human existence. And also, as I told you yesterday, this karma is sort of our *property*. And also it is a kind of *successor*: this is something you have, consciously or not, carried on from beginningless past; your *inheritance*. And also, it is a place where a person depends on. So from this point, karma is coming from beginningless past. How does it last up to this present life? Very naturally, we have to understand *unmanifested* karma because *manifested* karma is something which appears in a moment and disappears in the next moment. Of course, human action is *just do it*, and next moment, it’s gone. But if you really attach to only this human action which appears on the surface, then we don’t understand human beings, because even though the human action disappears right now, in the next moment, still you have sort of a *smell* of the action you have done.
 
