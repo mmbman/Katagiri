@@ -189,7 +189,7 @@ Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma
 
 ---
 
-### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
+### [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 #### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses karma in terms of Dogen’s understanding, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji emphasizes focusing on actual practice. *Karma* does not mean simple cause and effect or *action*, as a current popular understanding goes, but includes *unmanifested karma*, the impression left behind by our actions. Karmic retribution is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way. Also: Be the turtle.
@@ -318,7 +318,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 ### [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 #### February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi introduces a series of seven lectures on lay ordination (Jukai). In this first talk, he discusses the significance of lay ordination. The goal of lay ordination is explained as three points: first, realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration for living our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: the ordinary sense of knowledge; knowing something beyond the ordinary sense, in the world of impermanence; and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize the three points. Even if we don’t understand this, we can still take action to enter this world of the Buddha.
+Katagiri Roshi introduces a series of seven lectures on *Jukai*, lay ordination. In this first talk, he explains the goal of lay ordination as three points. The first point is realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration to live our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: knowledge in the ordinary sense, knowing something in the world of impermanence, and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize these three points. Even if we don’t understand them, we can still take action to enter this world of the Buddha.
 
 ---
 

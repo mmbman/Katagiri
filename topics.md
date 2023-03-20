@@ -114,7 +114,7 @@ Japanese: Kaiin-zanmai
 
 ### Abhidharma Mahāvibhāṣa Śāstra
 
-- [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
+- [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 
 ### Diamond Sutra
 
