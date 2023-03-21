@@ -59,11 +59,11 @@ The **nine points of view**: those are, “as stars, a fault of vision, a lamp, 
 
 Asanga says “partly because the characteristic of all conditioned beings are considered from the nine points of view” because we live in the conditioned world, we cannot escape from this. If you cannot escape from the world, you have to understand the world, what it is, because you have to *be* there. If you don’t understand, if you ignore understanding the place we’re living in, that is really a cause of human trouble. So the place and time where human beings are present has to be understood as best as we can. That is awareness. That’s why “the characteristics of all conditioned beings are considered from the nine points of view.”
 
-Asanga says the first three – **stars, a fault of vision, a lamp** – examine the characteristics of the conditioned world in terms of cognition. Buddhism is not the philosophy of ontology, not the study of existence, but the study of *knowing* – [knowing] the relationship between subject and object, how we should understand object and subject. And then, [knowing] how to practice, according to right understanding of subject and object. That is Buddhism; it’s not the philosophy of ontology. Ontology is that you always have to see something and analyze and synthesize philosophically, scientifically, researching a being which is [intact]. [...] This is science, this is philosophy. But Buddhism is not exactly ontology, the study of existence, but the study of knowing, understanding subject and object, and through the right understanding of subject and object we have to figure out the way to practice there. That is Buddhism. That’s why the first three – stars, a fault of vision, a lamp – examine the characteristic of the conditioned world in terms of cognition. 
+Asanga says the first three – stars, a fault of vision, a lamp – examine the characteristics of the conditioned world in terms of cognition. Buddhism is not the philosophy of ontology, not the study of existence, but the study of *knowing* – [knowing] the relationship between subject and object, how we should understand object and subject. And then, [knowing] how to practice, according to right understanding of subject and object. That is Buddhism; it’s not the philosophy of ontology. Ontology is that you always have to see something and analyze and synthesize philosophically, scientifically, researching a being which is [intact]. [...] This is science, this is philosophy. But Buddhism is not exactly ontology, the study of existence, but the study of knowing, understanding subject and object, and through the right understanding of subject and object we have to figure out the way to practice there. That is Buddhism. That’s why the first three – stars, a fault of vision, a lamp – examine the characteristic of the conditioned world in terms of cognition. 
 
-The next three – **a mock show, dew drops, a bubble** – [are] in terms of humanistic experience. According to humanistic experience, not only Buddhists but everybody – whoever they are, whatever they believe or whatever they don’t believe – as long as they live in this world as a human being, everyone without exception can experience the characteristic of the human world as mock show, dew drops, and a bubble. 
+The next three – a mock show, dew drops, a bubble – [are] in terms of humanistic experience. According to humanistic experience, not only Buddhists but everybody – whoever they are, whatever they believe or whatever they don’t believe – as long as they live in this world as a human being, everyone without exception can experience the characteristic of the human world as mock show, dew drops, and a bubble. 
 
-The last three – **a dream, a lightning flash, or a cloud** – [are] in terms of origination in time, in the system of the time process. Human life appears and disappears from moment to moment. That state of human beings is exactly universal. That’s why here it says the characteristic of the conditioned world is just like a dream, a lightning flash, or a cloud.
+The last three – a dream, a lightning flash, or a cloud – [are] in terms of origination in time, in the system of the time process. Human life appears and disappears from moment to moment. That state of human beings is exactly universal. That’s why here it says the characteristic of the conditioned world is just like a dream, a lightning flash, or a cloud.
 
 #### 18:21
 
@@ -179,23 +179,21 @@ This is “a fault of vision.” That’s why we have to be careful to understan
 
 And third, **a lamp**. 
 
-> 3\. The simile of the **lamp** illustrates two aspects of this world of ours: (a) A lamp goes on burning only as long as fuel is fed into it. So also this world continues only while we have cravings. 
+> 3\. The simile of the lamp illustrates two aspects of this world of ours: (a) A lamp goes on burning only as long as fuel is fed into it. So also this world continues only while we have cravings. 
 
-Craving is [part of] ignorance, because ignorance is intellectually you cannot pin down, emotionally you feel lost or terrified, volitionally you are always against [it]. That’s why craving very naturally comes up, because you cannot pin down ...
+Craving is [part of] ignorance, because ignorance is intellectually you cannot pin down, emotionally you feel lost or terrified, volitionally you are always against [something]. That’s why craving very naturally comes up, because you cannot pin down ...
 
 *[Tape change.]*
 
-... [uneasy,] the more you try to hang on. This is craving. Very naturally craving comes up. 
+... [uneasy] the more you try to hang on. This is craving. Very naturally craving comes up. 
 
-[...]
+“[...] So also this world continues only while we have cravings.” That’s why in a sense we have to use craving in the big scale. I don’t know *how* to use it in the big scale. The big scale is using craving for saving all sentient beings. 
 
-That’s why in a sense we have to use craving in the big scale. I don’t know *how* to use it in the big scale. The big scale is using craving for saving all sentient beings. This is the big scale. 
-
-And also craving is very dangerous because you create the cause of human troubles. You can’t live in peace and harmony. But on the other hand, cravings are very strong energies by which you can lead to the human world, you can take care of human life. For instance, you can seek for the truth constantly, whatever happens. This is really human craving. Craving also has two aspects of meaning. 
+And also craving is very dangerous because you create the cause of human troubles. You can’t live in peace and harmony. But on the other hand, cravings are very strong energies by which you can lead to the human world, you can take care of human life. For instance, you can seek for the truth constantly, whatever happens; this is really human craving. So craving also has two aspects of meaning. 
 
 > When craving ceases to supply the drive, the world will come to an end. 
 
-That doesn’t mean the complete destruction of the world. When craving ceases to supply the drive, the world will come to and end means ... you have to understand craving, from where it comes. In other words, what is the original nature, what is human nature. If you really understand craving, you can handle the craving in a better way. But practically, we don’t have a particular pattern... we should handle craving in this way, in that way – you cannot say so, because daily life is changing constantly. So broadly speaking, that’s why I told you before, constantly we have to be humble and modest in our daily living. And on the other hand, we have to be brave toward future life. At that time you can really use cravings in the big scale, for seeking for the truth. 
+That doesn’t mean the complete destruction of the world. “When craving ceases to supply the drive, the world will come to an end” means you have to understand where craving comes from – in other words, what is original nature, what is human nature. If you really understand craving, you can handle the craving in a better way. But practically, we don’t have a particular pattern: you cannot say we should handle craving in this way, or in that way, because daily life is changing constantly. That’s why I told you before, broadly speaking, we constantly have to be humble and modest in our daily living. And on the other hand, we have to be brave toward future life. At that time you can really use craving in the big scale, for seeking for the truth. 
 
 And the second point:
 
@@ -203,7 +201,7 @@ And the second point:
 
 In other words, the human world is very weak, in a sense human beings are very weak. Because they are liable to be destroyed by others [...] But as long as you have craving, you believe “I am strong.” On the other hand, cravings are very breakable, very weak, just like a lamp. 
 
-So very naturally, “continued existence of conditioned dharmas is all the time distinctly precarious.” Unstable, uneasy, always. You don’t know what it is. So finally, all you have to do is, day after day, from moment to moment, all you have to do is to make every possible effort to learn what life is. That’s all you have to do. Because intellectually, no matter how long you try to pin down what life is, you don’t know. So this is the final practice we have to do. 
+So very naturally, “continued existence of conditioned dharmas is all the time distinctly precarious.” [It is] always unstable, uneasy. You don’t know what it is. So finally, day after day, from moment to moment, all you have to do is to make every possible effort to learn what life is. That’s all you have to do. Because intellectually, no matter how long you try to pin down what life is, you don’t know. So this is the final practice we have to do. 
 
 That is the simile of the lamp. 
 
@@ -211,7 +209,7 @@ That is the simile of the lamp.
 
 Fourth: **a mock show**. A mock show, dew drops, a bubble – those three are humanistic experience every one can have. 
 
-> 4\. Furthermore, the appearance of this world is like a **mock show**, a magical illusion. Like a magical show it deceives, deludes, and defrauds us, is false when compared with ultimate reality. 
+> 4\. Furthermore, the appearance of this world is like a mock show, a magical illusion. Like a magical show it deceives, deludes, and defrauds us, is false when compared with ultimate reality. 
 
 Because by ignorance we can see the world, but the world is already something different from the real picture of the world, because it is something appearing on the surface. I told you before, the basic nature of existence is nothing but dynamic action. Just like [rapidly spinning a string with a coin tied to the end]. The basic nature of existence is constantly moving.The motion always leaves it’s own form, [in this case] that is the circle formed by the coin. Do you understand? So always you can see the form of the circle, but this is nothing but form, provisional being. When the movement stops, it disappears. This is the world we understand. That’s why when you decide something, next moment you aren’t satisfied – because it is nothing but the form of a circle created by the coin. But this form is not different from the movement itself. That’s why all we have to do is to understand the movement itself, *through* this form. 
 
@@ -251,13 +249,13 @@ Let’s read all of them. Number eight:
 
 > 8\. Like a **lightning flash**, each event is short-lived. Lasting but one brief moment, it disappears again. 
 
-The last three – a dream, a lightning flash, and clouds – are just like explaining the characteristic of the human world in terms of the origination in **time**. So a lightning flash [means] life is very short lived. 
+The last three – a dream, a lightning flash, and clouds – are explaining the characteristic of the human world in terms of the origination in time. So a lightning flash [means] life is very short lived. 
 
 > 9\. Finally, we should look upon things in the spirit in which we watch the **clouds** on a hot summer day. They change their shape all the time, but as far as our welfare is concerned, one shape is as good as another. So do the transformations of the earthly scene not at all concern out true welfare. 
 
-Everything is changing constantly, everything is short-lived. That means there is nothing to hold on [to]. Constantly we must be [like] white paper. Day by day, we must be white papers, accepting the past life. And then, we can change, just like a cloud. We can change, not personality change, but conditions, and opportunities, we can create. If you change your attitude toward your behaviors, very naturally we can create a better world. Just like a cloud; a cloud is always changing. The shape of the cloud is constantly changing. That is just like welfare for human beings. Understanding the human world. 
+Everything is changing constantly, everything is short-lived. That means there is nothing to hold on [to]. Constantly we must be [like] white paper. Day by day, we must be white papers, accepting the past life. And then, we can change, just like a cloud. [We do] not change personality, but we can change conditions, and we can create opportunities. If you change your attitude toward your behaviors, very naturally you can create a better world. Just like a cloud: a cloud is always changing, the shape of the cloud is constantly changing. That is just like welfare for human beings. Understanding the human world. 
 
-So that’s why, finally, he says “the transformations of the earthly scene not at all concern our true welfare.” We cannot destroy the human world, and we cannot destroy human consciousness. But what we can do is, we should be careful to take care of the shape of human life, the shape of human behavior. In other words, what kind of attitude we should take from moment to moment. Under certain conditions, all circumstances, we should do it. At that time, we can create a good world. 
+So that’s why finally he says, “the transformations of the earthly scene not at all concern our true welfare.” We cannot destroy the human world, and we cannot destroy human consciousness. But what we can do is, we should be careful to take care of the shape of human life, the shape of human behavior. In other words, what kind of attitude we should take from moment to moment. Under certain conditions, all circumstances, we should do it. At that time, we can create a good world. 
 
 Do you have some questions? I’m sorry, [I am losing] my voice.
 
