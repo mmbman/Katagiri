@@ -95,7 +95,7 @@ There are commentaries to the nine points of view by Doctor Conze in this book (
 
 The first one, 
 
-> 1. Like **stars**. 
+>  1. Like **stars**. 
 
 The conditioned world is just like stars. He explains three points:
 
@@ -157,7 +157,7 @@ So human life, the human world, [being] just like a star means a very short life
 
 #### 39:48
 
-> 2. The second item, **a fault of vision**, *timira*, may mean “darkness, blindness, a cataract.” 
+>  2. The second item, **a fault of vision**, *timira*, may mean “darkness, blindness, a cataract.” 
 
 Do you know cataract? Eye disease.
 
@@ -179,7 +179,7 @@ This is “a fault of vision.” That’s why we have to be careful to understan
 
 And third, **a lamp**. 
 
-> 3. The simile of the **lamp** illustrates two aspects of this world of ours: (a) A lamp goes on burning only as long as fuel is fed into it. So also this world continues only while we have cravings. 
+>  3. The simile of the **lamp** illustrates two aspects of this world of ours: (a) A lamp goes on burning only as long as fuel is fed into it. So also this world continues only while we have cravings. 
 
 Craving is [part of] ignorance, because ignorance is intellectually you cannot pin down, emotionally you feel lost or terrified, volitionally you are always against [it]. That’s why craving very naturally comes up, because you cannot pin down ...
 
@@ -211,7 +211,7 @@ That is the simile of the lamp.
 
 Fourth: **a mock show**. A mock show, dew drops, a bubble – those three are humanistic experience every one can have. 
 
-> 4. Furthermore, the appearance of this world is like a **mock show**, a magical illusion. Like a magical show it deceives, deludes, and defrauds us, is false when compared with ultimate reality. 
+>  4. Furthermore, the appearance of this world is like a **mock show**, a magical illusion. Like a magical show it deceives, deludes, and defrauds us, is false when compared with ultimate reality. 
 
 Because by ignorance we can see the world, but the world is already something different from the real picture of the world, because it is something appearing on the surface. I told you before, the basic nature of existence is nothing but dynamic action. Just like [rapidly spinning a string with a coin tied to the end]. The basic nature of existence is constantly moving.The motion always leaves it’s own form, [in this case] that is the circle formed by the coin. Do you understand? So always you can see the form of the circle, but this is nothing but form, provisional being. When the movement stops, it disappears. This is the world we understand. That’s why when you decide something, next moment you aren’t satisfied – because it is nothing but the form of a circle created by the coin. But this form is not different from the movement itself. That’s why all we have to do is to understand the movement itself, *through* this form. 
 
@@ -227,7 +227,7 @@ Do you know magicians? *[He chuckles.]* The magician always has a certain trick.
 
 Number five:
 
-> 5. The **dewdrops** may also be “hoar-frost.” That depends on the climate. Each thing is as evanescent as the dewdrops which soon evaporate under the sun’s rays. 
+>  5. The **dewdrops** may also be “hoar-frost.” That depends on the climate. Each thing is as evanescent as the dewdrops which soon evaporate under the sun’s rays. 
 
 This is really true, you can experience it in your life. 
 
@@ -237,7 +237,7 @@ I told you before, I was very impressed by some aspect of Buddhist teaching thro
 
 ### 1:01:39
 
-> 6. Like a **bubble** each experience bursts soon, and it can be enjoyed only for a moment. In Buddhist tradition, the bubble, a particularly unsubstantial entity, is usually related to the skandha of feeling. Dependent on three factors – enjoyer, enjoyable thing, and enjoyment – all joys quickly burst apart. And the same holds good of painful feelings also. 
+>  6. Like a **bubble** each experience bursts soon, and it can be enjoyed only for a moment. In Buddhist tradition, the bubble, a particularly unsubstantial entity, is usually related to the skandha of feeling. Dependent on three factors – enjoyer, enjoyable thing, and enjoyment – all joys quickly burst apart. And the same holds good of painful feelings also. 
 
 So like a bubble, each experience bursts soon, and can be enjoyed only for a moment, because human experience immediately bursts apart. Subject and object, from something else, immediately burst apart. For a moment you can feel good, but next moment, it disappears. You can really see your ideas and your thoughts [burst apart] in zazen, it’s really so, just like bubbles constantly come up. And you chase after one thought in zazen, you can ... constantly, because another bubble comes up, so you are interested in another bubble. Constantly it disappears. If you seek for it, if you catch that one bubble, immediately the bubble bursts apart. Subject and object, and also bubbles. So all separate, many pieces, your life bursts apart in pieces. All the discipline. Just like a waterfall. Waterfall coming down from the top; the water crashes into pieces [at the bottom]. The more something bursts apart in pieces, the more this pretty easily disappears quickly. 
 
@@ -245,15 +245,15 @@ That is also very characteristic of human intellect, the dualistic world.
 
 #### 1:04:28
 
-> 7. Only the enlightened are awakened to reality as it is; compared with their vision of true reality, our normal experience is that of a **dream**, unreal and not be taken seriously. Nagarjuna, in his great commentary, gives the following explanation of the simile of the dream: “(a) There is no reality in a dream, and yet, while one dreams, one believes in the reality of the things one sees in the dream. After one has woken up one recognizes the falseness of the dream and laughs at oneself. Just so a man who is plunged into the dreamy state which results from his fettered existence, has a belief in things which do not exist. But when he has found the Path, then, at the moment of enlightenment, he understands that there is no reality in them and he laughs at himself. (b) A dreamer, by the force of his dream, sees a thing where there is nothing. Just so a man, by the force of the dreamy state which results from ignorance, believes in the existence of all sorts of things which do not exist, such as I and mine, male and female, etc. (c) In a dream one rejoices although there is nothing enjoyable, one is angry although there is nothing to annoy, one is frightened although there is nothing to frighten. So do the beings with regard to the things of the world.” Therefor, like the things seen in a dream, the dharmas, although they do not exist, are nevertheless seen and heard and one is aware of them.
+>  7. Only the enlightened are awakened to reality as it is; compared with their vision of true reality, our normal experience is that of a **dream**, unreal and not be taken seriously. Nagarjuna, in his great commentary, gives the following explanation of the simile of the dream: “(a) There is no reality in a dream, and yet, while one dreams, one believes in the reality of the things one sees in the dream. After one has woken up one recognizes the falseness of the dream and laughs at oneself. Just so a man who is plunged into the dreamy state which results from his fettered existence, has a belief in things which do not exist. But when he has found the Path, then, at the moment of enlightenment, he understands that there is no reality in them and he laughs at himself. (b) A dreamer, by the force of his dream, sees a thing where there is nothing. Just so a man, by the force of the dreamy state which results from ignorance, believes in the existence of all sorts of things which do not exist, such as I and mine, male and female, etc. (c) In a dream one rejoices although there is nothing enjoyable, one is angry although there is nothing to annoy, one is frightened although there is nothing to frighten. So do the beings with regard to the things of the world.” Therefor, like the things seen in a dream, the dharmas, although they do not exist, are nevertheless seen and heard and one is aware of them.
 
 Let’s read all of them. Number eight:
 
-> 8. Like a **lightning flash**, each event is short-lived. Lasting but one brief moment, it disappears again. 
+>  8. Like a **lightning flash**, each event is short-lived. Lasting but one brief moment, it disappears again. 
 
 The last three – a dream, a lightning flash, and clouds – are just like explaining the characteristic of the human world in terms of the origination in **time**. So a lightning flash [means] life is very short lived. 
 
-> 9. Finally, we should look upon things in the spirit in which we watch the **clouds** on a hot summer day. They change their shape all the time, but as far as our welfare is concerned, one shape is as good as another. So do the transformations of the earthly scene not at all concern out true welfare. 
+>  9. Finally, we should look upon things in the spirit in which we watch the **clouds** on a hot summer day. They change their shape all the time, but as far as our welfare is concerned, one shape is as good as another. So do the transformations of the earthly scene not at all concern out true welfare. 
 
 Everything is changing constantly, everything is short-lived. That means there is nothing to hold on [to]. Constantly we must be [like] white paper. Day by day, we must be white papers, accepting the past life. And then, we can change, just like a cloud. We can change, not personality change, but conditions, and opportunities, we can create. If you change your attitude toward your behaviors, very naturally we can create a better world. Just like a cloud; a cloud is always changing. The shape of the cloud is constantly changing. That is just like welfare for human beings. Understanding the human world. 
 
