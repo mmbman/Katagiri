@@ -41,7 +41,7 @@ So strictly speaking, we live in the realm of the law of causation. This is the 
 
 But “the Tatagatha’s nirvana”: nirvana means freedom, liberation; perfect liberation from human suffering. “The Tatagatha’s nirvana is neither the same as the conditioned world in causation”... in other words, a perfect peaceful life is liberated from the law of causation. We live in the law of causation; that’s why we cannot ignore the law of causation. But there is no reason why we have to be completely tied up with the law of causation. We have to be *free from* the law of causation. 
 
-In other words, if you do something wrong, the result is wrong – this is the law of causation. But actually, even though you do something good, sometimes you don’t see the good result. And also sometimes even though you do something good, the result is not good. So, we have two aspects always. Your life is backed by the law of causation; you cannot ignore it. Whatever you do, whatever you [...], there is always causation. But on the other hand, you cannot understand human life exactly just according to the law of causation, because cause and effect are sometimes not exactly fitting, not exactly the same. 
+In other words, if you do something wrong, the result is wrong – this is the law of causation. But actually, even though you do something good, sometimes you don’t see the good result. And also sometimes even though you do something good, the result is not good. So, we have two aspects always. Your life is backed by the law of causation; you cannot ignore it. Whatever you do, [...] there is always causation. But on the other hand, you cannot understand human life exactly just according to the law of causation, because cause and effect are sometimes not exactly fitting, not exactly the same. 
 
 So even though your motivation is good, [sometimes] the result is not good. Have you experienced this? The motivation is good: “I want to help.” According to the motivation, you want to help somebody, but the result is completely reversed: you hurt somebody. And also people don’t accept your help, your motivation, so people really get angry with you. So even though the motivation is good as a cause, the result is not good. From this point, the basic nature of human life is completely free from the law of causation. But on the other hand, you cannot completely ignore the law of causation. That’s why reality is very contradictory. 
 
@@ -129,7 +129,7 @@ Thirdly:
 
 > ... (c) volitionally, one knocks against things...
 
-One knocks against things very naturally. [...] Some resistance is coming up very strongly from the will of volition. Intellectually you cannot pin down what it is, that’s why even though you decide something you aren’t satisfied. That’s why volitionally, consciously or unconsciously you resist against the determination you have made, and then you move to another determination. [Even if] you like the determination, the decision of something, what you have done is really being against [something], consciously or unconsciously. This is ignorance.
+One knocks against things very naturally. [...] Some resistance is coming up very strongly from the will of volition. Intellectually you cannot pin down what [anything] is, that’s why even though you decide something, you aren’t satisfied. That’s why volitionally, consciously or unconsciously you resist against the determination you have made, and then you move to another determination. [Even if] you like the determination, the decision of something, what you have done is really being against [something], consciously or unconsciously. This is ignorance.
 
 > ... stumbles about...
 
@@ -145,7 +145,7 @@ Even though you cannot know, no matter how long you stumble about and are irrita
 
 So this is really ignorance, okay? *[He chuckles.]* That’s why ignorance is really darkness of existence, which makes your life blind. But on the other hand, this is really vitality of human life, by which you can get into human existence. You can live next life; you can live tomorrow. It’s really vitality. 
 
-So ignorance has two aspects. Ignorance is not the good sense, but on the other hand, it’s the very good sense, because it’s really creating vitality of human life. Don’t you think so? We have lots of ignorance, [...], and lots of stinky characteristics. But don’t judge them as evil, unwholesome entities. Of course you should reflect upon your stinky characteristics, but on the other hand, you should appreciate them, because the more you have strong, stinky characteristics, the more you have a greater chance to attain enlightenment. Yes it is [true]. It is sure. So don’t judge your life seeing just one aspect of your personality. Because this is basic human nature, which is called ignorance. 
+So ignorance has two aspects. Ignorance is not the good sense, but on the other hand, it’s the very good sense, because it’s really creating vitality of human life. Don’t you think so? We have lots of ignorance, [...] and lots of stinky characteristics. But don’t judge them as evil, unwholesome entities. Of course you should reflect upon your stinky characteristics, but on the other hand, you should appreciate them, because the more you have strong, stinky characteristics, the more you have a greater chance to attain enlightenment. Yes it is [true]. It is sure. So don’t judge your life seeing just one aspect of your personality, because this is basic human nature, which is called ignorance. 
 
 If your life is just like a star, which is shining only in the darkness, that is the human world. Whatever you see – the human world, people, trees – this is something you can see [in] the darkness of ignorance. Do you understand this? That’s why the world is always perverted by human knowledge. You cannot see the true aspect of the human world as it is, because this is ignorance. But ignorance is not exactly what you would call sin, or guilt, et cetera, because I told you before, it has two aspects. 
 
@@ -231,7 +231,7 @@ Number five:
 
 This is really true, you can experience it in your life. 
 
-I told you before, I was very impressed by some aspect of Buddhist teaching through the study of Buddhism. At that time my feeling was sort of enlightenment. I really enjoyed it and I was very happy, because I could see the light in the human world, in the future, in my life, et cetera. So I was really happy. So sooner or later I would like to tell somebody. I told a friend. Immediately he said, “How stupid you are.” *[Laughter.]* 
+I told you before, I was very impressed by some aspect of Buddhist teaching through the study of Buddhism. At that time my feeling was sort of enlightenment. I really enjoyed it and I was very happy, because I could see the light in the human world, in the future, in my life, et cetera. I was really happy, so sooner or later I would like to tell somebody. I told a friend. Immediately he said, “How stupid you are.” *[Laughter.]* 
 
 [...]
 
@@ -263,7 +263,7 @@ Do you have some questions? I’m sorry, [I am losing] my voice.
 
 #### 1:11:37
 
-The nine point of view are not a matter of discussion. Even though you understand them or not, these nine points of view must penetrate your skin, muscle, bone, and marrow, okay? How? You have to experience, and also we should [express in our] life, taking care of human life with your best [effort]. Taking care of human life as a Buddha, instead of taking care of human life with your emotions, your affective preferences, et cetera. Anyway, completely beyond good or bad, right and wrong, we should take best care of human life. At that time very naturally you can experience the human world just like stars, dewdrops, bubbles, et cetera. And also zazen is more basic human experience. It is very true. If you do zazen, very naturally that human world penetrates your skin and muscle and bone. 
+The nine points of view are not a matter of discussion; whether you understand them or not, these nine points of view must penetrate your skin, muscle, bone, and marrow, okay? How? You have to experience [them], and also you should [express them in your] life, taking care of human life with your best [effort]. Taking care of human life as a Buddha, instead of taking care of human life with your emotions, your affective preferences, et cetera. Anyway, completely beyond good or bad, right and wrong, we should take best care of human life. At that time very naturally you can experience the human world just like stars, dewdrops, bubbles, et cetera. And also zazen is more basic human experience. It is very true. If you do zazen, very naturally that human world penetrates your skin and muscle and bone. 
 
 Unfortunately I have to go to Omaha this weekend; I cannot be the [...]. But we have lots of things to do from now on, so we need lots of help. [...] will organize that one please. Please help, even thirty minutes or ten minutes.
   
