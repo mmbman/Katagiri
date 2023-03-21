@@ -79,13 +79,13 @@ Remember this point, otherwise you misunderstand this verse.
 
 So they are living there, but they are not defiled or contaminated by the dualistic world, and then they get the power of liberation, freedom. 
 
-This is very important to us. I told you before, all of us exist, all of us must live, according to the law of causation. If we do something, whatever happens, we have to take responsibility. Our motivation is good but result is not good. This is life, according to causation. “We have to be free from causation” doesn’t mean we should ignore our doings; we have to take responsibility for our doings forever. That is a really a good attitude toward the law of causation. Because we live in it, we should respect the law of causation. For this, for the long range or for a short period of time, we should take responsibility for our doings. At that time, it is really the meaning of accepting the law of causation. 
+This is very important for us. I told you before, all of us exist, all of us must live, according to the law of causation. If we do something, whatever happens, we have to take responsibility. [If] our motivation is good but result is not good, this is life, according to causation. “We have to be free from causation” doesn’t mean we should ignore our doings; we have to take responsibility for our doings forever. That is a really a good attitude toward the law of causation. Because we live in it, we should respect the law of causation. For this, for the long range or for a short period of time, we should take responsibility for our doings. At that time, it is really the meaning of accepting the law of causation. 
 
-And then next, each of us individually must be Buddha. That means that Buddha gains power of liberation without being contaminated by the law of causation. So still, from moment to moment you must be completely free, in order to create future life, from day to day. Even though you understand your life according to your past life: such and such happened; this is something you have to reflect upon, and take responsibility for your life, what you have done. But for the future, still there is freedom. You can create new life toward the future, without being *bogged down* with this life which you have done. 
+And then next, each of us individually must be Buddha. That means that Buddha gains the power of liberation without being contaminated by the law of causation. So still, from moment to moment you must be completely free, in order to create future life, from day to day. Even though you understand your life according to your past life. Such-and-such happened: this is something you have to reflect upon, and take responsibility for your life, what you have done. But for the future, still there is freedom. You can create new life toward the future, without being *bogged down* with this life which you have done. 
 
 So there are two contradictory aspects. You should be straightforward toward your life which you have done. At that time, you can really respect your past life, and you can really respect the law of causation. On the other hand, you must be brave toward the future, without being stuck there. 
 
-So you are very humble. To be brave is not arrogance, okay? You must be very humble and modest. Respecting the law of causation, accepting the life you have done, taking responsibility for your doings – and nevertheless, you never be stuck there. Be brave toward the future, in order to reach a beautiful ideal image of human life.
+To be brave is not arrogance, okay? You must be very humble and modest. Respecting the law of causation, accepting the life you have done, taking responsibility for your doings – and nevertheless, you never be stuck there. Be brave toward the future, in order to reach a beautiful ideal image of human life.
 
 That is Asanga’s comment: “The Buddha gains the power of liberation without being defiled by the world.”
 
@@ -101,21 +101,21 @@ The conditioned world is just like stars. He explains three points:
 
 > (a) Stars are distant and unreachable. One cannot get to them; they are unattainable, as all dharmas are. One cannot lay hands on them, cannot possess them. 
 
-Stars are very distant and unreachable – this is very understandable. One cannot get to them; they are unattainable, as all [dharmas] are. Because the conditioned world is always changing constantly. So it’s very difficult to hold on constantly. Just [...] So like list stars. 
+Stars are very distant and unreachable – this is very understandable. “One cannot get to them; they are unattainable, as all [dharmas] are.” Because all the conditioned world is constantly changing, so it’s very difficult to hold on [to something] just for you. So, it’s just like stars. 
 
 > (b) They are small in size, insignificant, when seen on the background of the vast vacuity of space. 
 
-I think so. Smalls are just tiny entities in size. So in comparison with the vast vacuity of space, star is very small in size, in significance, just like a poppy seed, or a [...] If you compare. 
+I think so. Stars are just tiny entities in size. In comparison with the vast vacuity of space, a star is very small in size, small in significance, just like if you compare a poppy seed to the Himalayan mountains.
 
-So the conditioned world is constantly changing and moving, we cannot grasp in our hand, we cannot understand exactly what it is, because it is changing constantly. No matter how long you live in this world, you cannot pin down what it is. What is life, this human world. But we have to understand. But actually, your whole life, you have to learn what life is, what the human world is, constantly. Because the world is really unattainable, huge. 
+So the conditioned world is constantly changing and moving, we cannot grasp it in our hand. We cannot understand exactly what it is, because it is changing constantly. No matter how long you live in this world, you cannot pin down what is life, what is the human world. But we have to understand. Actually, your whole life, you  have to learn what life is, what the human world is, constantly, because the world is really unattainable, huge. 
 
 > (c) They can be seen only when there is no sun. As the stars are no longer visible when the sun comes to shine, so also the things of the world are seen only in the darkness of ignorance, and are no longer noticed when the normal mental reactions to them come to a stop, after the true non-dual cognition of the Absolute has taken place. All mental elements, as Vasubandhu says, disappear when right cognition is realized, just as the stars disappear when the sun shines. They become invisible, and all views cease.
 
-The third point is that the human world is just like stars, because stars can be seen only in the darkness of ignorance. Ignorance is explained by Doctor Conze here, a very interesting explanation:
+The third point is that the human world is just like stars because stars can be seen only in the darkness of ignorance. Ignorance is explained by Doctor Conze here, it’s a very interesting explanation:
 
 > Ignorance means that (a) intellectually, one sees nothing, for ignorance is a condition unfavorable to knowledge ...
 
-So intellectually one can see nothing. That means we are, I told you during the seminar, every one exists right in the middle of the truth, and we want to know, but we cannot know. So intellectually we really want to know what the truth is, what is the place where we live in. What is life, which we have to take care of. We want to know intellectually, but we don’t know. 
+So intellectually one can see nothing. That means, I told you during the seminar, everyone exists right in the middle of the truth, and we want to know, but we cannot know. So intellectually we really want to know what the truth is, what is the place we live in, what is [this] life which we have to take care of. We want to know intellectually – but we don’t know. 
 
 So ignorance is always a condition unfavorable to knowledge. So intellectually always there is something unstable. You cannot pin down what it is. This is the human world. 
 
@@ -123,13 +123,13 @@ And secondly, he says:
 
 > ... (b) emotionally, one feels lost and terrified...
 
-Because intellectually you don’t know. The intellectual part of human life occupies almost [the most] part of human life. Always we handle human life intellectually. But if your intellect cannot meet, cannot touch, cannot pin down what life is, what the human world is, it’s really unstable, it’s really unease. We don’t feel comfortable. So emotionally one feels lost and terrified. Very naturally, you are concerned about the next moment, the future. If you’re concerned about the future too much, that is fear. Because the present is really unstable [...] that’s why we don’t feel comfortable. That’s why the present is very uncomfortable, much less the future. That’s why we are very concerned about the future. 
+Because intellectually you don’t know. The intellectual part of human life occupies [the most] part of human life. Always we handle human life intellectually. But if your intellect cannot meet, cannot touch, cannot pin down what life is, what the human world is – it’s really unstable, it’s really uneasy. We don’t feel comfortable. So emotionally one feels lost and terrified. Very naturally, you are concerned about the next moment, the future. If you’re concerned about the future too much, that is fear. Because the present is really unstable, uneasy, that’s why we don’t feel comfortable. That’s why the present is very uncomfortable, much less the future. That’s why we are very concerned about the future. 
 
 Thirdly:
 
 > ... (c) volitionally, one knocks against things...
 
-One knocks against things very naturally. Volitionally is, what would you say, resistance. Some of the resistance is coming up very strongly from the will of volition, very naturally. Because intellectually you cannot pin down what it is, that’s why even though you decide something, you don’t satisfy. That’s why volitionally, consciously or unconsciously you resist against the determination you have made. And then you move to another determination. But whatever you like the determination, the decision of something, what you have done is really something being against, consciously or unconsciously. This is ignorance.
+One knocks against things very naturally. [...] Some resistance is coming up very strongly from the will of volition. Intellectually you cannot pin down what it is, that’s why even though you decide something you aren’t satisfied. That’s why volitionally, consciously or unconsciously you resist against the determination you have made, and then you move to another determination. [Even if] you like the determination, the decision of something, what you have done is really being against [something], consciously or unconsciously. This is ignorance.
 
 > ... stumbles about...
 
@@ -141,15 +141,15 @@ Very naturally you are irritated.
 
 > ... and wants to get to the light.
 
-Still you cannot know. No matter how long you stumble about and are irritated, still there is a beautiful hope: you want to get to the light. So human beings are very weak, in a sense. On the other hand, they are very strong, because whatever happens, always we want to get to the light. We want to have hope, beautiful hope in the future. 
+Even though you cannot know, no matter how long you stumble about and are irritated, still there is a beautiful hope: you want to get to the light. Human beings are very weak, in a sense, but on the other hand they are very strong, because whatever happens, always we want to get to the light. We want to have hope, beautiful hope in the future. 
 
-So this is really ignorance, okay? *[He chuckles.]* That’s why ignorance is really darkness of existence. Which makes your life blind. But on the other hand, this is really vitality of human life, by which you can get into human existence. You can live the next life; you can live tomorrow. It’s really vitality. 
+So this is really ignorance, okay? *[He chuckles.]* That’s why ignorance is really darkness of existence, which makes your life blind. But on the other hand, this is really vitality of human life, by which you can get into human existence. You can live next life; you can live tomorrow. It’s really vitality. 
 
-So ignorance has two aspects. Ignorance is not the good sense, but on the other hand, it’s the very good sense, because it’s really creating vitality of human life. Don’t you think so? We have lots of ignorance, lots of [...], and lots of stinky characteristics. But don’t judge them unwholesome entities. Of course you should reflect upon your stinky characteristics, but on the other hand, you should appreciate them, because the more you have strong, stinky characteristics, the more you have a greater chance to attain enlightenment. Yes it is. It is sure. So don’t judge your life seeing just one part, one aspect of your personality. Because this is the basis of human nature, which is called ignorance. 
+So ignorance has two aspects. Ignorance is not the good sense, but on the other hand, it’s the very good sense, because it’s really creating vitality of human life. Don’t you think so? We have lots of ignorance, [...], and lots of stinky characteristics. But don’t judge them as evil, unwholesome entities. Of course you should reflect upon your stinky characteristics, but on the other hand, you should appreciate them, because the more you have strong, stinky characteristics, the more you have a greater chance to attain enlightenment. Yes it is [true]. It is sure. So don’t judge your life seeing just one aspect of your personality. Because this is basic human nature, which is called ignorance. 
 
-If your life is just like a star, which is shining only in the darkness, that is the human world. Whatever you see – the human world, people, trees – this is something you can see [after] the darkness of ignorance. Do you understand this? That’s why the world is always perverted by human knowledge. So you cannot see the true aspect of the human world as it is, because this is ignorance. But ignorance is not exactly sin, or guilt, et cetera. Because I told you before, it has two aspects. 
+If your life is just like a star, which is shining only in the darkness, that is the human world. Whatever you see – the human world, people, trees – this is something you can see [in] the darkness of ignorance. Do you understand this? That’s why the world is always perverted by human knowledge. You cannot see the true aspect of the human world as it is, because this is ignorance. But ignorance is not exactly what you would call sin, or guilt, et cetera, because I told you before, it has two aspects. 
 
-And fourth: 
+And fourthly: 
 
 > (d) Alternatively, the word *tārakā* (in Sanskrit) can also mean “meteor.” In that case, because of its short life, the meaning is analogous to that of no. 8, the “lightning flash.”
 
@@ -167,13 +167,15 @@ So we are already sickness.
 
 The other someone called me by telephone. He really got angry with me, and with the Zen center, with the Zen students, saying, “You don’t know what kind of people you have! The people you have in the Zen community are all sick!” I really wanted to tell him, “More or less, everybody is sick.” *[Laughter.]* “... including you!” 
 
-He got really angry with me emotionally, that’s why I didn’t say anything. Whatever I would say, he couldn’t accept. He didn’t understand. Anyway, everyone is sick. Just as a cataract overpowers [the eyes]. But they don’t believe they are sick, because they don’t notice the cataract. So they believe [they are] a wonderful person, of course. 
+He got really angry with me emotionally, that’s why I didn’t say anything. Whatever I would say, he couldn’t accept. He didn’t understand, so... 
 
-And finally he said, “If one of your students does something as a sick person, I will sue you, I will bring you to court.” *[Laughter.]* He was very angry. 
+Anyway, everyone is sick, very sick. Just as a cataract overpowers [the eyes]. But they don’t believe they are sick, because they don’t notice the cataract. So they believe [they are] a wonderful person, of course. 
 
-Okay, this is the fault of vision. That’s why we have to be careful to understand ourselves and others. And also, whatever kind of view we have, or whatever kind of ideas we have, the idea you have, your ideas are nothing but perverted already. It doesn’t mean they’re wrong. We understand just the surface, just a part of human life, not the total picture. This is your understanding, ideas. Whatever you say – nihilism, or communism, or democracy – that is just part of understanding. So that is perverted: we attach to it. So we should keep it warm in individual life, and polish it until it becomes universal. So that is very important [...] For this, life must be handled in humility toward your ideas, your understanding, or others’ understand, for others’ lifestyle, et cetera. Polish it. For this, you must be patient sometimes. You must be brave. You must be silent sometimes. You must continue to practice silently, et cetera. Those practices are very important. 
+And finally the man said, “If one of your students does something as a sick person, I will sue you, I will bring you to court.” *[Laughter.]* He really got angry.
 
-#### 
+This is “a fault of vision.” That’s why we have to be careful to understand ourselves and others. And also, whatever kind of views we have, or whatever kind of ideas we have, are nothing but perverted already. It doesn’t mean they’re wrong, [but] we understand just the surface, just a part of human life, not the total picture. That is your understanding, your ideas. Whatever you say – nihilism, or communism, or democracy – that is just part of understanding. We attach to it, so that is *perverted*. So we should keep it warm in individual life, and polish it until it becomes universal. That is very important for us. For this, we must handle life with humility toward our ideas, our understanding, or for other’s understanding, other’s lifestyle, et cetera. And polish it. For this, you must be patient sometimes. You must be brave. You must be silent sometimes. You must continue to practice silently, et cetera. Those practices are very important. 
+
+#### 45:03
 
 And third, **a lamp**. 
 
