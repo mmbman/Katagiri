@@ -18,10 +18,10 @@ description: July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [At the end, there is a] famous verse in the Diamond Sutra. It says:
 
-> As stars, a fault of vision, a lamp,
-> A mock show, dew drops, or a bubble,
-> A dream, a lightning flash, or cloud,
-> So should one view what is conditioned.
+> As stars, a fault of vision, a lamp,  
+> A mock show, dew drops, or a bubble,  
+> A dream, a lightning flash, or cloud,  
+> So should one view what is conditioned.  
 >
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), p. 69.)
 
