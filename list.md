@@ -53,7 +53,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Blue Cliff Record, Case 5 – Talk 1
 1. Blue Cliff Record, Case 5 – Talk 2
 
-1. Diamond Sutra: Final Lecture
+1. [Diamond Sutra: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
 
 1. Blue Cliff Record, Case 7 – Talk 1
 1. Blue Cliff Record, Case 7 – Talk 2
