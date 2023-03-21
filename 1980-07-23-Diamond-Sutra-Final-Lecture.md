@@ -85,7 +85,7 @@ And then next, each of us individually must be Buddha. That means that Buddha ga
 
 So there are two contradictory aspects. You should be straightforward toward your life which you have done. At that time, you can really respect your past life, and you can really respect the law of causation. On the other hand, you must be brave toward the future, without being stuck there. 
 
-To be brave is not arrogance, okay? You must be very humble and modest. Respecting the law of causation, accepting the life you have done, taking responsibility for your doings – and nevertheless, you never be stuck there. Be brave toward the future, in order to reach a beautiful ideal image of human life.
+To be brave is not arrogance, okay? You must be very humble and modest. Respecting the law of causation, accepting the life you have done, taking responsibility for your doings – and nevertheless, never be stuck there. Be brave toward the future, in order to reach a beautiful ideal image of human life.
 
 That is Asanga’s comment: “The Buddha gains the power of liberation without being defiled by the world.”
 
@@ -153,7 +153,7 @@ And fourthly:
 
 > (d) Alternatively, the word *tārakā* (in Sanskrit) can also mean “meteor.” In that case, because of its short life, the meaning is analogous to that of no. 8, the “lightning flash.”
 
-So human life, the human world, [being] just like a star means a very short life, just like a meteor.
+So human life [or] the human world [being] just like a star means a very short life, just like a meteor.
 
 #### 39:48
 
