@@ -5,7 +5,7 @@ description: July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-12-Karma-Conclusion) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-23-Diamond-Sutra-Final-Lecture)
 
 ## Transcript
 
@@ -168,4 +168,4 @@ In the koan I told you about: not ignoring causation, cause and effect, and not 
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1980-07-12-Karma-Conclusion) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
+[Next](1980-07-23-Diamond-Sutra-Final-Lecture)
