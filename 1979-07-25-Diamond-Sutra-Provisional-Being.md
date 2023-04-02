@@ -174,7 +174,7 @@ Do you understand provisional being?
 
 #### 56:18
 
-**Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the Buddha, he was practicing meditation in a garden in one of his lifetimes, and this king came up to him and remembered him, and got extremely angry, and butchered him, chopped him down into pieces. And the Buddha just calmly watched him ... Is that king, in the Buddha’s perception, a provisional being?
+**Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the Buddha, in one of his lifetimes he was practicing meditation in a garden, and this king came up to him and remembered him, and got extremely angry, and butchered him, chopped him down into pieces. And the Buddha just calmly watched him ... Is that king, in the Buddha’s perception, a provisional being?
 
 **Katagiri**: Compassion? Yes, that is the motivation of his becoming a monk, leaving the castle. He saw something ... farmers. Is that what you mean? Cultivating?
 
@@ -194,7 +194,7 @@ Do you understand provisional being?
 
 **Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people aren’t real. If somebody comes up to you and starts chopping at you... *[Laughter.]*
 
-**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because someone chops your neck and your hands; if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* 
+**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because if someone chops your neck and your hands, if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* 
 
 No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
 
@@ -204,23 +204,23 @@ Don’t you think so?
 
 **Person**: Oh yes! *[Laughter.]*
 
-**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to Buddha’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know. That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
+**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to Buddha’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know; that means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
 
-**Person**: That’s like taking each moment as it comes [*unintelligible*]?
+**Person**: That’s like taking each moment as it comes [...]?
 
-**Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad – it’s not okay, it’s not easy, but there is another possibility, in the moment. In the moment, possibility, [*unintelligible*]. 
+**Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad... it’s not okay, it’s not easy, but there is another possibility in the moment. In the moment, possibility, [*unintelligible*]. 
 
 #### 1:01:36
 
 **Question**: [Roshi](glossary#roshi)? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
 
-**Katagiri**: [No-self](glossary#no-self) doesn’t mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, through the present life you can realize how sublime it is, how unfathomable your self is. [That] you cannot understand yourself in the present, according to present time, because your life is pretty broad. Sometimes you don’t understand. Sometimes you understand who you are, but strictly speaking you *don’t* understand who you are, because your life has been connected with past life. 
+**Katagiri**: No self doesn’t mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, through the present life you can realize how sublime it is, how unfathomable your self is; [you understand that] you cannot understand yourself according to present time, because your life is pretty broad. Sometimes you don’t understand [yourself]. Sometimes you understand who you are, but strictly speaking you *don’t* understand who you are, because your life has been connected with past life. 
 
-But if we say it like this, immediately we say there is something which exists for long, from the past, through the present, to the future. That is perception of a soul, okay? So, I don’t think so. But even though *no soul* – still there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say so.
+But if we say it like this, immediately we say there is something which exists for long, from the past, through the present, to the future. That is perception of a soul, okay? So, I don’t think so. But even though *no soul* – still, there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say so.
 
 Finally, the self is broad, but what is that? I cannot explain. But, it’s there. It’s there, but it is not something which exists eternally, because you cannot pin down what it is. 
 
-Buddhism is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. That means, that understanding that everything is working dynamically leads you to touch the core of real life, which is fully alive.
+Buddhism is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. Understanding that everything is working dynamically leads you to touch the core of real life, which is fully alive.
 
 #### 1:05:11 end of recording
 
