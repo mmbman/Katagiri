@@ -97,7 +97,6 @@ Japanese: Kaiin-zanmai
 
 ### Fukanzazengi
 
-
 - [Fukanzazengi – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 - [Fukanzazengi – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
 - [Fukanzazengi – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
@@ -105,6 +104,7 @@ Japanese: Kaiin-zanmai
 - [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 - [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
+- [Diamond Sutra: Provisional Being (20:52)](1979-07-25-Diamond-Sutra-Provisional-Being#2052) – “think not-thinking”
 - [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1 (1:01)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#101)
 
