@@ -160,7 +160,7 @@ That’s why it says, “If, Subhuti, these Bodhisattvas should have perception 
 
 The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. If you reach the other shore, you should leave it there. That means, no perception of the subject, no perception of the object. 
 
-That means, if you study at school in order to get a master’s degree or Ph.D. – get the degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid. That’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people, because you are always proud of yourself too much. “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, bow. Then: what do you want? I want to teach you. Give me money.” *[He laughs.]*
+That means, if you study at school in order to get a master’s degree or Ph.D. – get the degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid. That’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people, because you are always proud of yourself too much. “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, bow. Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
 
 That makes it pretty hard to communicate with each other. So – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
 
@@ -192,7 +192,7 @@ Do you understand provisional being?
 
 **Different person**: It seems to me that it wouldn’t be very good if you would act like that, if you would act like people aren’t real. If somebody comes up to you and starts chopping at you... *[Laughter.]*
 
-**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because if someone chops your neck and your hands, if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* 
+**Katagiri**: Well, don’t commit suicide. *[Laughter.]* Because if someone chops your neck and your hands – if you have a chance, you should take off. *[Loud laughter.]* Because it is also provisional being. *[Laughter.]* 
 
 No; provisional being is possibility, the eternal possibility. To kill you, or not to kill you. You see? Provisional being. But it really depends on you: to kill you or not to kill you. To animate you or to kill. 
 
