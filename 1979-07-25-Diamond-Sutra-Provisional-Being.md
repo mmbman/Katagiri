@@ -140,9 +140,7 @@ On the other hand, the function of aesthetic contemplation is through your consc
 
 *[Tape change.]*
 
-... [Aesthetic contemplation] is kind of a religious way of understanding. But aesthetic contemplation is still in the realm of philosophy or psychology; the philosophical or metaphysical realm. 
-
-Religiously, particularly in [Buddhism](glossary#buddhism)... practically, with our body, we participate, directly participate. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because you merge yourself into your object with your wisdom. You don’t participate in the object carelessly; you don’t participate at random. You participate in it very carefully, with wisdom. You merge yourself into your object. So, even though you participate, this participation is not *defiled* participation or human activity. This is *undefiled* human activity. So this is religious activity. 
+... [Aesthetic contemplation] is kind of a religious way of understanding, but aesthetic contemplation is still in the realm of philosophy or psychology, the philosophical or metaphysical realm. Religiously, particularly in [Buddhism](glossary#buddhism), we participate practically, directly, with our body. But, you participate in your object with wisdom. At that time, the activity of participation in your object becomes very pure; [there is] a sense of purity, undefiled practice, because you merge yourself into your object with your wisdom. You don’t participate in the object carelessly; you don’t participate at random. You participate in it very carefully, with wisdom. You merge yourself into your object. So, even though you participate, this participation is not *defiled* participation or human activity. This is *undefiled* human activity. So this is religious activity. 
 
 #### 49:22
 
@@ -150,11 +148,11 @@ That’s why, according to Buddhism, the subject is no perception of subject, an
 
 But provisional being is not to defile the object, not to ignore the existence of your object. You should take care of your object. *How*? This is the practice: how. 
 
-So, in the common sense, we are always participating. At that time, provisional being turns into actual being. So there is no gap. But, without deep understanding, without wisdom, you can participate in it and also, finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom. So there is some control or adjustment for your emotional expression, or a conscious pattern. There is a pattern of body and mind situation. 
+So, in the common sense, we are always participating. At that time, provisional being turns into actual being. So there is no gap. But, without deep understanding, without wisdom, you can participate in it and also, finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom, so there is some control or adjustment for your emotional expression, or a conscious pattern. There is a pattern of body and mind situation. 
 
-That’s why Buddha always says, everything is emptiness. That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. Everything exists temporarily. But that doesn’t mean through that you should fall into pessimism. No. That is pointing out how to participate in provisional being; how to take care of it.
+That’s why Buddha always says everything is emptiness. That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. Everything exists temporarily. But that doesn’t mean through that you should fall into pessimism. No, that is pointing out how to participate in provisional being, how to take care of it.
 
-So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes a cause of neutral: nothing to say. 
+So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes a cause of neutral, nothing to say. 
 
 #### 52:40
 
@@ -162,7 +160,7 @@ That’s why it says, “If, Subhuti, these Bodhisattvas should have perception 
 
 The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. If you reach the other shore, you should leave it there. That means, no perception of the subject, no perception of the object. 
 
-That means, if you study at school in order to get a master’s degree or Ph.D. – get a degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid; that’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people. Because you are always proud of yourself too much: “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, [bow](glossary#bowing). Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
+That means, if you study at school in order to get a master’s degree or Ph.D. – get the degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid. That’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people, because you are always proud of yourself too much. “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, bow. Then: what do you want? I want to teach you. Give me money.” *[He laughs.]*
 
 That makes it pretty hard to communicate with each other. So – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
 
