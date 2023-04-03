@@ -172,17 +172,19 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. Blue Cliff Record, Case 57 – Talk 1
 
-1. The Awakening of Faith 4/20/84
+1. The Awakening of Faith 4/27/84
 
 1. Blue Cliff Record, Case 57 – Talk 2
 
 1. The Awakening of Faith 5/4/84
 1. The Awakening of Faith 5/11/84
-1. The Awakening of Faith 5/14/84: Two Kinds of Nowness
+
+1. [The Awakening of Faith: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness)
+
 1. The Awakening the Faith 5/16/84: Time
-1. The Awakening the Faith 5/18/84: Alayavijnana & Tathagatagarbha
+1. The Awakening the Faith 5/18/84: Alayavijnana and Tathagatagarbha
 1. The Awakening of Faith 5/22/84: Tathagatagarbha
-1. The Awakening of Faith 5/24/84: Tathagatagarbha & Alayavijinana
+1. The Awakening of Faith 5/24/84: Tathagatagarbha and Alayavijinana
 
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 1
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 2
