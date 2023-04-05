@@ -11,9 +11,9 @@ description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 **This transcript is in rough draft stage.**
 
-<a href=”https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2” target=”_blank”>Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
-<a name=”000”></a>
+<a name="000"></a>
 #### 0:00 start of recording
 
 Yesterday I mentioned, the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who you are. Such as, tasting, realizing manas, psychologically speaking. At that time, the realization of manas guides you to touch, what would you say, karmic life, coming from past life. That is [alayavijñāna](glossary#alayavijñāna). 
