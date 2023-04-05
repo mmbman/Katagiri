@@ -1,5 +1,5 @@
 ---
-title: “Shobogenzo: Genjokoan – Talk 2”
+title: "Shobogenzo: Genjokoan – Talk 2"
 description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
@@ -52,39 +52,37 @@ So, let’s see the [Genjokoan](shobogenjo#genjokoan). Do you have Genjokoan? *[
 
 And, last sentence, there is a conclusion there. Last one. 
 
-Last sentence, it says: “Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth’s being gold, and by participation, develops the long river into butter.”
+Last sentence, it says: 
 
-> Brazier:
-> 
-> (77) ‘Wind nature always abiding’ (fū shō jō jū) means that the breeze blowing from the House of Buddha brings forth a golden age on earth and ripens the ambrosia in heaven.
-> 
-> Okumura:
-> 
-> (77) Since the wind’s nature is ever present, the wind of the Buddha’s family enables us to realize the gold of the great Earth and to transform the [water of] the long river into cream.
-> 
-> Tanahashi:
-> 
-> (77) The nature of wind is permanent; because of that, the wind of the buddha house brings forth the gold of the earth and ripens the cream of the long river.
-> 
-> Nishijima & Cross:
-> 
-> (77) Because the nature of air is to be ever-present, the behavior of Buddhists has made the earth manifest itself as gold and has ripened the Long River into curds and whey.
-> 
-> (Transcriber’s Note: I will include alternative translations from “Dark Side of the Mirror” by David Brazier, “Realizing Genjokoan” by Shohaku Okumura, “Treasury of the True Dharma Eye” edited by Kazuaki Tanahashi, and the Nishijima & Cross translation of Shobogenzo, in that order. Comparison may be useful. The line numbering, which is somewhat arbitrary, here is borrowed from Brazier. I do not know what translation Katagiri Roshi is using.)
-
-*[More of the group figuring out what page to be on. Page 35, apparently.]*
-
-#### 10:45
+> Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth’s being gold, and by participation, develops the long river into butter.
+>
+> (Probably from the translation by Thomas Cleary: [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
+>
+>> (Transcriber’s Note: I will include alternative translations from “Dark Side of the Mirror” by David Brazier, “Realizing Genjokoan” by Shohaku Okumura, “Treasury of the True Dharma Eye” edited by Kazuaki Tanahashi, and the Nishijima & Cross translation of Shobogenzo, in that order. Comparison may be useful. The line numbering, which is somewhat arbitrary, here is borrowed from Brazier. 
+>>
+>> Brazier:
+>> 
+>> (77) ‘Wind nature always abiding’ (fū shō jō jū) means that the breeze blowing from the House of Buddha brings forth a golden age on earth and ripens the ambrosia in heaven.
+>> 
+>> Okumura:
+>> 
+>> (77) Since the wind’s nature is ever present, the wind of the Buddha’s family enables us to realize the gold of the great Earth and to transform the [water of] the long river into cream.
+>> 
+>> Tanahashi:
+>> 
+>> (77) The nature of wind is permanent; because of that, the wind of the buddha house brings forth the gold of the earth and ripens the cream of the long river.
+>> 
+>> Nishijima & Cross:
+>> 
+>> (77) Because the nature of air is to be ever-present, the behavior of Buddhists has made the earth manifest itself as gold and has ripened the Long River into curds and whey.
+>> 
 
 The wind of Buddhism: I think... in this case [Dogen Zenji](glossary#dogen) uses ‘wind’ because he quoted the story of [Zen Master](glossary#zen-master) Hōtetsu of Mount Mayoku using a fan, et cetera. That’s why he is talking about the wind, created by fan. That’s why we uses the “wind of Buddhism”; (it) means Buddha’s family. So in this case,  wind means lifestyle; refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family, okay? So, their life has really refined lifestyle they’re on. What is this? That is, to manifest the earth. “The earth” means alayavijñāna, karmic life. “Being gold”: turn earth, turn alayavijñāna, into gold, means tathāgatagarbha. “And then, by participation”: you have to participate in this practice, directly. And then at that time you can develop - long river means the human life. “Long river”: human life, human world, handed down from century after century; long, long river. “Into butter”: sweet butter, sweet milk, wonderful milk - means Buddha’s world; peaceful, harmonious world. 
 
-#### 13:01
 
 What is the responsibility, what is the duty for us, if you want to be present in this world as a human being? That is, a human being who has great refined lifestyle of Buddha’s family. What is the duty? Our duty is to turn the earth - alayavijñāna, alaya world, karmic life - into gold - means tathāgatagarbha, Buddha’s world. How? You should participate in it(?), directly. Regardless of whether you judge your life, “I am enlightened,” or “unenlightened”; it doesn’t matter. All you have to do is, you should participate in this practice, directly, day by day. And then, at that time, your life ripens, very naturally. So, you can develop the long river: your whole life, including past, present, future, into the butter, sweet butter - means into the peaceful, harmonious world. That is your total personality coming up.
 
 How do you develop the whole personality? It’s not your business. Your business is, just to participate in this practice. That’s it! And then, whole personality coming up just like water under the ground, coming up if your pipe touches the water vine(?) - naturally water – *[shoop]* – coming up. 
-
-#### 15:00
 
 When you see the water coming up from the ground, it is called ‘whole personality’. By which, people are really impressed; and people really want to have, to see such a person. It is necessary for us. And we have such a capability. So, finally, our purpose is just like this. That’s why it is a conclusion of [Genjokoan](shobogenjo#genjokoan).
 
@@ -110,35 +108,37 @@ Let’s divide [Genjokoan](shobogenjo#genjokoan) into eleven sections...
 
 First paragraph. Would you read first paragraph?
 
-**Reader**: “When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings. When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death. Because the [Buddha Way](glossary#buddha-way) originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.”
+**Reader**:
 
-> Brazier:
->     
-> (1) Birth and death, practice and daily life, delusion and enlightenment, ordinary beings and all the Buddhas; such is the Buddha’s Dharma of all Dharmas.  
-> (2) As the myriad Dharmas are other than self, when one is in their midst, there are no creating and destroying, no sentient beings and all Buddhas, no delusion and enlightenment.  
-> (3) Out of abundance and lack springs forth the original Dao of Buddha, and for this there is making and destroying, delusion and enlightenment, and there are living Buddhas.  
-> (4) So it is and nevertheless, blossom falls bittersweet and weeds spread amidst woeful resignation.  
-> 
-> Okumura:
->     
-> (1) When all dharmas are the [Buddha Dharma](glossary#buddha-dharma), there is delusion and realization, practice, life and death, buddhas and living beings.  
-> (2) When the ten thousand dharmas are without [fixed] self, there is no delusion and no realization, no buddhas and no living beings, no birth and no death.  
-> (3) Since the Buddha Way by nature goes beyond [the dichotomy of] abundance and deficiency, there is arising and perishing, delusion and realization, living beings and buddhas.  
-> (4) Therefore flowers fall even though we love them; weeds grow even though we dislike them.  
-> 
-> Tanahashi:
-> 
-> (1) As all things are [buddha dharma](glossary#buddha-dharma), there is delusion, realization, practice, birth [life] and death, buddhas and sentient beings.  
-> (2) As myriad things are without an abiding self, there is no delusion, no realization, no buddha, no sentient being, no birth and death.  
-> (3) The buddha way, in essence, is leaping clear of abundance and lack; thus there is birth and death, delusion and realization, sentient beings and buddhas.  
-> (4) Yet in attachment blossoms fall, and in aversion weeds spread.  
-> 
-> Nishijima & Cross:
->     
-> (1) When all dharmas are [seen as] the Buddha-Dharma, then there is delusion and realization, there is practice, there is life and there is death, there are buddhas and there are ordinary beings.  
-> (2) When the myriad dharmas are each not of the self, there is no delusion and no realization, no buddhas and no ordinary beings, no life and no death.  
-> (3) The Buddha’s truth is originally transcendent over abundance and scarcity, and so there is life and death, there is delusion and realization, there are beings and buddhas.  
-> (4) And though it is like this, it is only that flowers, while loved, fall; and weeds while hated, flourish.  
+> When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings. When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death. Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.
+
+>> Brazier:
+> >    
+>> (1) Birth and death, practice and daily life, delusion and enlightenment, ordinary beings and all the Buddhas; such is the Buddha’s Dharma of all Dharmas.  
+>> (2) As the myriad Dharmas are other than self, when one is in their midst, there are no creating and destroying, no sentient beings and all Buddhas, no delusion and enlightenment.  
+>> (3) Out of abundance and lack springs forth the original Dao of Buddha, and for this there is making and destroying, delusion and enlightenment, and there are living Buddhas.  
+>> (4) So it is and nevertheless, blossom falls bittersweet and weeds spread amidst woeful resignation.  
+>> 
+>> Okumura:
+> >    
+>> (1) When all dharmas are the Buddha Dharma, there is delusion and realization, practice, life and death, buddhas and living beings.  
+>> (2) When the ten thousand dharmas are without [fixed] self, there is no delusion and no realization, no buddhas and no living beings, no birth and no death.  
+>> (3) Since the Buddha Way by nature goes beyond [the dichotomy of] abundance and deficiency, there is arising and perishing, delusion and realization, living beings and buddhas.  
+>> (4) Therefore flowers fall even though we love them; weeds grow even though we dislike them.  
+>> 
+>> Tanahashi:
+>> 
+>> (1) As all things are buddha dharma, there is delusion, realization, practice, birth [life] and death, buddhas and sentient beings.  
+>> (2) As myriad things are without an abiding self, there is no delusion, no realization, no buddha, no sentient being, no birth and death.  
+>> (3) The buddha way, in essence, is leaping clear of abundance and lack; thus there is birth and death, delusion and realization, sentient beings and buddhas.  
+>> (4) Yet in attachment blossoms fall, and in aversion weeds spread.  
+>> 
+>> Nishijima & Cross:
+>>     
+>> (1) When all dharmas are [seen as] the Buddha-Dharma, then there is delusion and realization, there is practice, there is life and there is death, there are buddhas and there are ordinary beings.  
+>> (2) When the myriad dharmas are each not of the self, there is no delusion and no realization, no buddhas and no ordinary beings, no life and no death.  
+>> (3) The Buddha’s truth is originally transcendent over abundance and scarcity, and so there is life and death, there is delusion and realization, there are beings and buddhas.  
+>> (4) And though it is like this, it is only that flowers, while loved, fall; and weeds while hated, flourish.  
 
 #### 22:15
 
@@ -366,7 +366,7 @@ Okay, do you have a question? I’m sorry, I didn’t finish.
 
 **Katagiri**: Okay, first, I recommended a book, “Beyond Boredom and Anxiety”. In this book, I think he mentions about expert of mountaineers and rock climbers, et cetera. They mention about the oneness with the rock mountain and his body and his mind. But he or she doesn’t feel any tiredness and consciousness; just the flow of experience, that’s it. 
 
-> (Note: The book [Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition](https://www.amazon.com/dp/0787951404/ref=cm_sw_em_r_mt_dp_U_12kgFbNB8X9GK) by Mihaly Csikszentmihalyi is available but expensive. However, the modern update is probably [Flow: The Psychology of Optimal Experience](https://www.amazon.com/dp/0061339202/ref=cm_sw_em_r_mt_dp_U_q5kgFb0P5YW6R) by the same author - which appears to be a popular, mainstream book. And yes, you should follow the trail, here, and check it out.)
+> (Note: The book [Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition](https://www.amazon.com/dp/0787951404/ref=cm_sw_em_r_mt_dp_U_12kgFbNB8X9GK) by Mihaly Csikszentmihalyi is available but expensive. However, the modern update is probably [Flow: The Psychology of Optimal Experience](https://www.amazon.com/dp/0061339202/ref=cm_sw_em_r_mt_dp_U_q5kgFb0P5YW6R) by the same author – which appears to be a popular, mainstream book. It is well worth checking out.)
 
 ... What do you mean, just the flow of experience? Just the flow of activity, when you climb the mountain - what is it? Just the flow of activities called “climbing the mountain”. At that time, where are they, what are they? Right in the middle of perpetual flow of activities, there is rock, mountain, tree, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called “perpetual flow of activities,” called “climbing the mountain”. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscured.” The other side means, rest of the existence. Whole world comes into you. That is, what? Just practice, just practice. Total manifestation of perpetual flow of activities. And then, if you experience, philosophically, etymologically speaking, that is Buddhist psychology, Buddhist philosophy. And that makes you confused. But it helps.
 
