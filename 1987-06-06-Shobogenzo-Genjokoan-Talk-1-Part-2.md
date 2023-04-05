@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo: Genjokoan – Talk 1, Part 2"
+title: "Shobogenzo Genjokoan: Consciousness"
 description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
@@ -16,13 +16,15 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-... [Buddha](glossary#buddha)’s teaching. In other words, I mentioned, [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, (are) never separate from each other. So, you should understand deeply the emerging of enlightenment and salvation. 
+\[...] [In the previous talk] I mentioned [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, [are] never separate from each other. You should understand deeply the merging of enlightenment and salvation. 
 
-I think enlightenment is seeing deeply into the human world, human beings, and next, salvation is to realize how to put enlightenment into practice. In other words, how to save yourself. How to get peace and harmony, in every single form of your life. Not in the particular realm of human life; in every single form of human life. Stand up, position of stand up, form of standing up, and form of sitting, form of talking, form of washing; anyway, there is salvation. If you don’t realize this one, no matter how long you study [Buddhism](glossary#buddhism), understanding deeply, Buddhism doesn’t make sense for you, for a human being. So that’s why [Dogen Zenji](glossary#dogen) presents very deep understanding, and also everyday life, how to take care of everyday life; that is Eihei Shingi. If you ignore Eihei Shingi, Buddhism doesn’t make sense for human beings. But if you ignore: of course, religion exists, Buddhism exists; but it is nothing but still you are playing with religion or Buddhism in the world of conceptualization; that’s it. In the world of conceptualization, no end of fighting. Constantly fighting, constantly arguing, constantly struggling for human life. Always. So, you have to know where is salvation, where is peace. Where is peace? Where is harmony? You have to realize. You have to research. You have to continually make thorough investigation into this salvation.
+I think enlightenment is seeing deeply into the human world, human beings. And next, salvation is to realize how to put enlightenment into practice – in other words, how to save yourself; how to get peace and harmony in every single form of your life. Not in a particular realm of human life; in every single form of human life. [In the] form of standing up, and the form of sitting, the form of talking, the form of washing, there is salvation. If you don’t realize this, no matter how long you study [Buddhism](glossary#buddhism), understanding deeply, [still] Buddhism doesn’t make sense for you, for a human being. 
 
-#### 3:10
+That’s why [Dogen Zenji](glossary#dogen) presents [a] very deep understanding, and also how to take care of everyday life: that is *Eihei Shingi*. If you ignore *Eihei Shingi*, Buddhism doesn’t make sense for human beings. If you ignore it, of course religion exists, Buddhism exists, but it is nothing but you are still playing with religion or Buddhism in the world of conceptualization, that’s all. In the world of conceptualization, there is no end of fighting. Constantly fighting, constantly arguing, constantly struggling for human life – always. So, you have to know where is the salvation, where is peace. Where is peace? Where is harmony? You have to realize. You have to research. You have to continually make thorough investigation into this salvation.
 
-... Traditionally you understand salvation, you mentioned yesterday - but that is that. But salvation for me is to stand up right now, right here, in peace and harmony. That is salvation. From this, from that state of existence, you can really take a deep, slow, long breath. And then you can make a big space, where you can really accept all sentient beings. That is salvation; so called compassion, we say. So compassion is really deep meaning for us. Where is the compassion? 
+You understand salvation in a traditional sense, as you mentioned yesterday, but that is that. Salvation for me is to stand up right now, right here, in peace and harmony. That is salvation. From that state of existence, you can really take a deep, slow, long breath. And then you can make a big space, where you can really accept all sentient beings. That is salvation; so-called compassion, we say. 
+
+So compassion [has] really deep meaning for us. Where is compassion? 
 
 #### 4:10
 

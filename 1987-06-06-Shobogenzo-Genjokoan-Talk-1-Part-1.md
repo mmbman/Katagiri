@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo: Genjokoan – Talk 1, Part 1"
+title: "Shobogenzo Genjokoan: Egolessness"
 description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
@@ -16,7 +16,7 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan), for which you have the textbook. The title is, in English, “The Issue At Hand”. (Transcriber’s Note: The translation is probably Thomas Cleary’s; [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
+At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan), for which you have the textbook. The title is, in English, “The Issue At Hand”. (Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 
 There are two crucial points in practicing and studying [Buddhism](glossary#buddhism) in general. The first one is the practice of egolessness. I don’t know how I can say it; you don’t understand “the practice of egolessness”... or excuse me, probably you have questions how you should practice egolessness. But anyway, temporarily I’ll use [the term] *the practice of egolessness*. 
 
@@ -182,11 +182,9 @@ Salvation and enlightenment both work together. But usually, we very much love w
 
 Just like a sportsman, jumping from the top of a cliff into the ocean in Acapulco. How much tension do they have? Without tension you cannot jump from the top of a cliff to the bottom of the ocean; how can you jump? But it’s not *too* much. [And] it’s not slackening of tension. Tension is nothing but his whole body and mind working together. So he doesn’t feel tense. But his whole body and mind is manifested; it is nothing but the manifestation of tension. At that time, he or she can accept or receive [everything]: earth, ocean, emotions, feelings. Rock, top of a cliff, position – anything. The same applies to spiritual practice. 
 
-But then we don’t like it. We are always trying to live our own way; particularly when you get into spiritual life. Intellectually, you really want to have freedom, but when you get into it, you don’t like it! But when you don’t do it, how can you create productive life in the process of action, so-called “jumping into the ocean”? [The diver] creates a beautiful form; this is nothing but productive life. That is *art*. It’s really a beautiful art. Even though it's on the TV screen, you feel it's really beautiful. His process, movement, action from moment to moment is perfect. It’s a circle. It’s not a circle, it’s straight – but it’s a circle, moving. Do you understand that one? If you don’t believe it, you should watch the jumping divers in the next Olympic games. It’s a beautiful art; it's such a beautiful form there. Human art, [like a] painting drawn by a human body and mind, including all. And then, this is a *[unintelligible]*. It's beautiful. 
+But then we don’t like it. We are always trying to live our own way; particularly when you get into spiritual life. Intellectually, you really want to have freedom, but when you get into it, you don’t like it! But when you don’t do it, how can you create productive life in the process of action, so-called “jumping into the ocean”? [The diver] creates a beautiful form; this is nothing but productive life. That is *art*. It’s really a beautiful art. Even though it's on the TV screen, you feel it's really beautiful. His process, movement, action from moment to moment is perfect. It’s a circle. It’s not a circle, it’s straight – but it’s a circle, moving. Do you understand that one? If you don’t believe it, you should watch the jumping divers in the next Olympic games. It’s a beautiful art; it's such a beautiful form there. Human art, [like a] painting drawn by a human body and mind, including all. And then, this is a *[unintelligible]*. It's beautiful. So how do you do it?
 
-So, how do you do it?
-
-So the same applies to the spiritual life. You don’t understand spiritual life, that’s why we take divers as example. Much more, you who are seeking for a spiritual life should follow in that way. Otherwise, you can never understand a spiritual life. Spiritual life is touching the liberation, freedom directly. 
+So the same applies to the spiritual life. You don’t understand spiritual life, that’s why we take divers as an example. Much more so, you who are seeking for a spiritual life should follow in that way. Otherwise, you can never understand a spiritual life. Spiritual life is touching the liberation, freedom directly. 
 
 #### 40:32
 
