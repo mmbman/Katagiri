@@ -58,27 +58,27 @@ Last sentence, it says:
 >
 > (Probably from the translation by Thomas Cleary: [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 >
->> (Transcriber’s Note: I will include alternative translations from “Dark Side of the Mirror” by David Brazier, “Realizing Genjokoan” by Shohaku Okumura, “Treasury of the True Dharma Eye” edited by Kazuaki Tanahashi, and the Nishijima & Cross translation of Shobogenzo, in that order. Comparison may be useful. The line numbering, which is somewhat arbitrary, here is borrowed from Brazier. 
+>> (Transcriber’s Note: I will include alternative translations from *Shōbōgenzō:
+The True Dharma-Eye Treasury* translated by Nishijima & Cross, *Realizing Genjokoan* by Shohaku Okumura, *Treasury of the True Dharma Eye* edited by Kazuaki Tanahashi, and *The Dark Side of the Mirror* by David Brazier, in that order. Comparison may be useful, but if you’re not interested, you can skip this part. The line numbering here, which is somewhat arbitrary, is borrowed from Brazier. 
+>>
+>> Nishijima & Cross:
+>> 
+>> (77) Because the nature of air is to be ever-present, the behavior of Buddhists has made the earth manifest itself as gold and has ripened the Long River into curds and whey.
+>>
+>> Okumura:
+>> 
+>> (77) Since the wind’s nature is ever present, the wind of the Buddha’s family enables us to realize the gold of the great Earth and to transform the [water of] the long river into cream.
+>>
+>> Tanahashi:
+>> 
+>> (77) The nature of wind is permanent; because of that, the wind of the buddha house brings forth the gold of the earth and ripens the cream of the long river.
 >>
 >> Brazier:
 >> 
 >> (77) ‘Wind nature always abiding’ (fū shō jō jū) means that the breeze blowing from the House of Buddha brings forth a golden age on earth and ripens the ambrosia in heaven.
 >> 
->> Okumura:
->> 
->> (77) Since the wind’s nature is ever present, the wind of the Buddha’s family enables us to realize the gold of the great Earth and to transform the [water of] the long river into cream.
->> 
->> Tanahashi:
->> 
->> (77) The nature of wind is permanent; because of that, the wind of the buddha house brings forth the gold of the earth and ripens the cream of the long river.
->> 
->> Nishijima & Cross:
->> 
->> (77) Because the nature of air is to be ever-present, the behavior of Buddhists has made the earth manifest itself as gold and has ripened the Long River into curds and whey.
->> 
 
 The wind of Buddhism: I think... in this case [Dogen Zenji](glossary#dogen) uses ‘wind’ because he quoted the story of [Zen Master](glossary#zen-master) Hōtetsu of Mount Mayoku using a fan, et cetera. That’s why he is talking about the wind, created by fan. That’s why we uses the “wind of Buddhism”; (it) means Buddha’s family. So in this case,  wind means lifestyle; refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family, okay? So, their life has really refined lifestyle they’re on. What is this? That is, to manifest the earth. “The earth” means alayavijñāna, karmic life. “Being gold”: turn earth, turn alayavijñāna, into gold, means tathāgatagarbha. “And then, by participation”: you have to participate in this practice, directly. And then at that time you can develop - long river means the human life. “Long river”: human life, human world, handed down from century after century; long, long river. “Into butter”: sweet butter, sweet milk, wonderful milk - means Buddha’s world; peaceful, harmonious world. 
-
 
 What is the responsibility, what is the duty for us, if you want to be present in this world as a human being? That is, a human being who has great refined lifestyle of Buddha’s family. What is the duty? Our duty is to turn the earth - alayavijñāna, alaya world, karmic life - into gold - means tathāgatagarbha, Buddha’s world. How? You should participate in it(?), directly. Regardless of whether you judge your life, “I am enlightened,” or “unenlightened”; it doesn’t matter. All you have to do is, you should participate in this practice, directly, day by day. And then, at that time, your life ripens, very naturally. So, you can develop the long river: your whole life, including past, present, future, into the butter, sweet butter - means into the peaceful, harmonious world. That is your total personality coming up.
 
@@ -110,15 +110,18 @@ First paragraph. Would you read first paragraph?
 
 **Reader**:
 
-> When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings. When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death. Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas. Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.
+> When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
+> When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
+> Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas.  
+> Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
 
->> Brazier:
-> >    
->> (1) Birth and death, practice and daily life, delusion and enlightenment, ordinary beings and all the Buddhas; such is the Buddha’s Dharma of all Dharmas.  
->> (2) As the myriad Dharmas are other than self, when one is in their midst, there are no creating and destroying, no sentient beings and all Buddhas, no delusion and enlightenment.  
->> (3) Out of abundance and lack springs forth the original Dao of Buddha, and for this there is making and destroying, delusion and enlightenment, and there are living Buddhas.  
->> (4) So it is and nevertheless, blossom falls bittersweet and weeds spread amidst woeful resignation.  
->> 
+>> Nishijima & Cross:
+>>     
+>> (1) When all dharmas are [seen as] the Buddha-Dharma, then there is delusion and realization, there is practice, there is life and there is death, there are buddhas and there are ordinary beings.  
+>> (2) When the myriad dharmas are each not of the self, there is no delusion and no realization, no buddhas and no ordinary beings, no life and no death.  
+>> (3) The Buddha’s truth is originally transcendent over abundance and scarcity, and so there is life and death, there is delusion and realization, there are beings and buddhas.  
+>> (4) And though it is like this, it is only that flowers, while loved, fall; and weeds while hated, flourish.  
+>>
 >> Okumura:
 > >    
 >> (1) When all dharmas are the Buddha Dharma, there is delusion and realization, practice, life and death, buddhas and living beings.  
@@ -133,12 +136,13 @@ First paragraph. Would you read first paragraph?
 >> (3) The buddha way, in essence, is leaping clear of abundance and lack; thus there is birth and death, delusion and realization, sentient beings and buddhas.  
 >> (4) Yet in attachment blossoms fall, and in aversion weeds spread.  
 >> 
->> Nishijima & Cross:
->>     
->> (1) When all dharmas are [seen as] the Buddha-Dharma, then there is delusion and realization, there is practice, there is life and there is death, there are buddhas and there are ordinary beings.  
->> (2) When the myriad dharmas are each not of the self, there is no delusion and no realization, no buddhas and no ordinary beings, no life and no death.  
->> (3) The Buddha’s truth is originally transcendent over abundance and scarcity, and so there is life and death, there is delusion and realization, there are beings and buddhas.  
->> (4) And though it is like this, it is only that flowers, while loved, fall; and weeds while hated, flourish.  
+>> Brazier:
+> >    
+>> (1) Birth and death, practice and daily life, delusion and enlightenment, ordinary beings and all the Buddhas; such is the Buddha’s Dharma of all Dharmas.  
+>> (2) As the myriad Dharmas are other than self, when one is in their midst, there are no creating and destroying, no sentient beings and all Buddhas, no delusion and enlightenment.  
+>> (3) Out of abundance and lack springs forth the original Dao of Buddha, and for this there is making and destroying, delusion and enlightenment, and there are living Buddhas.  
+>> (4) So it is and nevertheless, blossom falls bittersweet and weeds spread amidst woeful resignation.  
+>> 
 
 #### 22:15
 
@@ -202,37 +206,38 @@ So if you do it, how do you decorate human world with hatred, with sadness? That
 
 And then, next... I think the contents of the next paragraph is the contents of all sentient beings. What is the contents of all sentient beings?
 
-> Brazier:
-> 
-> (5) How deluded, to think oneself the teacher of myriad Dharmas! When myriad Dharmas come forth to train and enlighten the self, that is enlightenment.  
-> (6) All Buddhas are busy greatly enlightening delusion.  
-> (7) Those who are greatly deluded about enlightenment are ordinary beings.  
-> (8) So people who are enlightened are continually being enlightened within enlightenment.  
-> (9) Those in the middle of delusion get more deluded.  
-> 
-> Okumura: 
-> 
-> (5) Conveying oneself toward all things to carry out practice-enlightenment is delusion. All things coming and carrying out practice-enlightenment through the self is realization.  
-> (6) Those who greatly realize delusion are buddhas.  
-> (7) Those who are greatly deluded in realization are living beings.  
-> (8) Furthermore, there are those who attain realization beyond realization  
-> (9) and those who are deluded within delusion.  
-> 
-> Tanahashi:
-> 
-> (5) To carry the self forward and illuminate myriad things is delusion. That myriad things come forth and illuminate the self is awakening.  
-> (6) Those who have great realization of delusion are buddhas;  
-> (7) those who are greatly deluded about realization are sentient beings.  
-> (8) Further, there are those who continue realizing beyond realization   
-> (9) and those who are in delusion throughout delusion.  
-> 
-> Nishijima & Cross:
-> 
-> (5) Driving ourselves to practice and experience the myriad dharmas is delusion. When the myriad dharmas actively practice and experience ourselves, that is the state of realization.  
-> (6) Those who greatly realize delusion are buddhas.   
-> (7) Those who are greatly deluded about realization are ordinary beings.   
-> (8) There are people who further attain realization on the basis of realization.  
-> (9) There are people who increase their delusion in the midst of delusion.  
+>> Nishijima & Cross:  
+>> 
+>> (5) Driving ourselves to practice and experience the myriad dharmas is delusion. When the myriad dharmas actively practice and experience ourselves, that is the state of realization.  
+>> (6) Those who greatly realize delusion are buddhas.   
+>> (7) Those who are greatly deluded about realization are ordinary beings.   
+>> (8) There are people who further attain realization on the basis of realization.  
+>> (9) There are people who increase their delusion in the midst of delusion.  
+>> 
+>> Okumura:  
+>> 
+>> (5) Conveying oneself toward all things to carry out practice-enlightenment is delusion. All things coming and carrying out practice-enlightenment through the self is realization.  
+>> (6) Those who greatly realize delusion are buddhas.  
+>> (7) Those who are greatly deluded in realization are living beings.  
+>> (8) Furthermore, there are those who attain realization beyond realization  
+>> (9) and those who are deluded within delusion.  
+>>  
+>> Tanahashi:  
+>>   
+>> (5) To carry the self forward and illuminate myriad things is delusion. That myriad things come forth and illuminate the self is awakening.  
+>> (6) Those who have great realization of delusion are buddhas;  
+>> (7) those who are greatly deluded about realization are sentient beings.  
+>> (8) Further, there are those who continue realizing beyond realization   
+>> (9) and those who are in delusion throughout delusion.  
+>> 
+>> Brazier:
+>> 
+>> (5) How deluded, to think oneself the teacher of myriad Dharmas! When myriad Dharmas come forth to train and enlighten the self, that is enlightenment.  
+>> (6) All Buddhas are busy greatly enlightening delusion.  
+>> (7) Those who are greatly deluded about enlightenment are ordinary beings.  
+>> (8) So people who are enlightened are continually being enlightened within enlightenment.  
+>> (9) Those in the middle of delusion get more deluded.  
+>>
 
 #### 42:58
 
@@ -276,25 +281,26 @@ That delusion is really supported by enlightenment. That’s why next sentence s
 
 In the saying, “When the buddhas are indeed the buddhas, there is no need to be self conscious of being buddha. Nevertheless, it is realizing buddhahood. Buddhas go on realizing.”
 
-> Brazier:
-> 
-> (10) When All Buddhas really are All Buddhas the self does not need to know All Buddhas.  
-> (11) So, thus, we can say, enlightened Buddhas go on enlightening Buddhas.  
-> 
-> Okumura: 
->     
-> (10) When buddhas are truly buddhas they don’t need to perceive they are buddhas;  
-> (11) however, they are enlightened buddhas and they continue actualizing buddha.  
-> 
-> Tanahashi:
-> 
-> (10) When buddhas are truly buddhas, they do not necessarily notice that they are buddhas.  
-> (11) However, they are actualized buddhas, who go on actualizing buddha.  
-> 
-> Nishijima & Cross:
-> 
-> (10) When buddhas are really buddhas, they do not need to recognize themselves as buddhas.  
-> (11) Nevertheless, they are buddhas in the state of experience, and they go on experiencing the state of buddha.  
+>> Nishijima & Cross:  
+>> 
+>> (10) When buddhas are really buddhas, they do not need to recognize themselves as buddhas.  
+>> (11) Nevertheless, they are buddhas in the state of experience, and they go on experiencing the state of buddha.  
+>>
+>> Okumura:  
+>>    
+>> (10) When buddhas are truly buddhas they don’t need to perceive they are buddhas;  
+>> (11) however, they are enlightened buddhas and they continue actualizing buddha.  
+>> 
+>> Tanahashi:  
+>> 
+>> (10) When buddhas are truly buddhas, they do not necessarily notice that they are buddhas.  
+>> (11) However, they are actualized buddhas, who go on actualizing buddha.  
+>> 
+>> Brazier:  
+>> 
+>> (10) When All Buddhas really are All Buddhas the self does not need to know All Buddhas.  
+>> (11) So, thus, we can say, enlightened Buddhas go on enlightening Buddhas.  
+>> 
 
 That’s why, “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength, by practicing this. Katagiri mentions, Buddha mentions, [ancestor](glossary#ancestor) mentions. Please give me something!” But, no way; I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it, participate directly in the perpetual flow of energy, at that time, there is no way to know. But, it is, you can realize it.
 
@@ -314,21 +320,22 @@ Nevertheless, it is realizing buddhahood. Buddhas go on realizing means, that wa
 
 Next, in seeing how do we do this... he says, that practice seems to be very hard. But he mentions, there is a way. He says, “In seeing forms with the whole body-mind, hearing sounds with whole body-mind, though one intimately understands, it isn’t like reflecting images in the mirror. It is not like water and the moon. When you witness one side, one side is obscure.”
 
-> Brazier:
-> 
-> (12) Though one may deeply understand the forms of body and mind, though one may deeply understand what body and mind are saying, still this is not like a reflection in a mirror, nor like the moon in water, which is only realized on one side when the other side is dark.
-> 
-> Okumura:
-> 
-> (12) In seeing color and hearing sound with body and mind, although we perceive them intimately, [the perception] is not like reflections in a mirror or the moon in water. When one side is illuminated, the other is dark.
-> 
-> Tanahashi:
-> 
-> (12) When you see forms or hear sounds, fully engaging body-and-mind, you intuit dharma intimately. Unlike things and their reflections in the mirror, and unlike the moon and its reflection in the water, when one side is illumined, the other side is dark.
-> 
-> Nishijima & Cross:
-> 
-> (12) When we use the whole body and mind to look at forms, and when we use the whole body and mind to listen to sounds, even though we are sensing them directly, it is not like a mirror’s reflection of an image, and not like water and the moon. While we are experiencing one side, we are blind to the other side.
+>> Nishijima & Cross:
+>> 
+>> (12) When we use the whole body and mind to look at forms, and when we use the whole body and mind to listen to sounds, even though we are sensing them directly, it is not like a mirror’s reflection of an image, and not like water and the moon. While we are experiencing one side, we are blind to the other side.
+>> 
+>> Okumura:
+>> 
+>> (12) In seeing color and hearing sound with body and mind, although we perceive them intimately, [the perception] is not like reflections in a mirror or the moon in water. When one side is illuminated, the other is dark.
+>> 
+>> Tanahashi:
+>> 
+>> (12) When you see forms or hear sounds, fully engaging body-and-mind, you intuit dharma intimately. Unlike things and their reflections in the mirror, and unlike the moon and its reflection in the water, when one side is illumined, the other side is dark.
+>> 
+>> Brazier:
+>> 
+>> (12) Though one may deeply understand the forms of body and mind, though one may deeply understand what body and mind are saying, still this is not like a reflection in a mirror, nor like the moon in water, which is only realized on one side when the other side is dark.
+>>
 
 #### 58:30
 
@@ -366,7 +373,7 @@ Okay, do you have a question? I’m sorry, I didn’t finish.
 
 **Katagiri**: Okay, first, I recommended a book, “Beyond Boredom and Anxiety”. In this book, I think he mentions about expert of mountaineers and rock climbers, et cetera. They mention about the oneness with the rock mountain and his body and his mind. But he or she doesn’t feel any tiredness and consciousness; just the flow of experience, that’s it. 
 
-> (Note: The book [Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition](https://www.amazon.com/dp/0787951404/ref=cm_sw_em_r_mt_dp_U_12kgFbNB8X9GK) by Mihaly Csikszentmihalyi is available but expensive. However, the modern update is probably [Flow: The Psychology of Optimal Experience](https://www.amazon.com/dp/0061339202/ref=cm_sw_em_r_mt_dp_U_q5kgFb0P5YW6R) by the same author – which appears to be a popular, mainstream book. It is well worth checking out.)
+> (Note: The book [Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition](https://www.amazon.com/dp/0787951404/ref=cm_sw_em_r_mt_dp_U_12kgFbNB8X9GK) by Mihaly Csikszentmihalyi is available but expensive. However, the more recent [Flow: The Psychology of Optimal Experience](https://www.amazon.com/dp/0061339202/ref=cm_sw_em_r_mt_dp_U_q5kgFb0P5YW6R) by the same author is now a popular mainstream book. It is well worth checking out.)
 
 ... What do you mean, just the flow of experience? Just the flow of activity, when you climb the mountain - what is it? Just the flow of activities called “climbing the mountain”. At that time, where are they, what are they? Right in the middle of perpetual flow of activities, there is rock, mountain, tree, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called “perpetual flow of activities,” called “climbing the mountain”. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscured.” The other side means, rest of the existence. Whole world comes into you. That is, what? Just practice, just practice. Total manifestation of perpetual flow of activities. And then, if you experience, philosophically, etymologically speaking, that is Buddhist psychology, Buddhist philosophy. And that makes you confused. But it helps.
 
