@@ -16,7 +16,7 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan), for which you have the textbook. The title is, in English, “The Issue At Hand”. (Transcriber’s Note: I do not know what translation Katagiri Roshi is using.)
+At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan), for which you have the textbook. The title is, in English, “The Issue At Hand”. (Transcriber’s Note: The translation is probably Thomas Cleary’s; [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 
 There are two crucial points in practicing and studying [Buddhism](glossary#buddhism) in general. The first one is the practice of egolessness. I don’t know how I can say it; you don’t understand “the practice of egolessness”... or excuse me, probably you have questions how you should practice egolessness. But anyway, temporarily I’ll use [the term] *the practice of egolessness*. 
 
