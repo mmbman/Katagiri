@@ -414,9 +414,9 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. Karma in Buddhism – Part 1
 1. Karma in Buddhism – Part 2
 
-1. [Shobogenzo Genjokoan: Egolessness](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
-1. [Shobogenzo Genjokoan: Consciousness](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
-1. [Shobogenzo Genjokoan: Flow](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
+1. [Shobogenzo Genjokoan – Talk 1 (Egolessness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+1. [Shobogenzo Genjokoan – Talk 2 (Consciousness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
+1. [Shobogenzo Genjokoan – Talk 3 (Flow)](1987-06-07-Shobogenzo-Genjokoan-Talk-2)
 1. [Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 1. [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 

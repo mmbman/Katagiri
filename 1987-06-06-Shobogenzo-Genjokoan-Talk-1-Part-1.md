@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo Genjokoan: Egolessness"
+title: "Shobogenzo Genjokoan – Talk 1 (Egolessness)"
 description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 

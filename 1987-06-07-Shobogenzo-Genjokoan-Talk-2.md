@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo Genjokoan: Flow"
+title: "Shobogenzo Genjokoan – Talk 3 (Flow)"
 description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
