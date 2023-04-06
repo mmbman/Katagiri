@@ -5,7 +5,7 @@ description: March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
 ## Summary
 
@@ -63,4 +63,4 @@ So according to Dogen’s point, Buddha Nature, there are two points.
 
 [Home](index) \| [List](list#1980) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)

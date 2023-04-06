@@ -4,7 +4,7 @@ description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
 [Home](index) \| [List](list#1987) \| 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
+[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 
 [Next](1987-06-20-Manas)
 
 ## Transcript
@@ -394,5 +394,5 @@ That’s spiritual teacher. If you become a spiritual teacher, you must be like 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [Home](index) \| [List](list#1987) \| 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2) \| 
+[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 
 [Next](1987-06-20-Manas)

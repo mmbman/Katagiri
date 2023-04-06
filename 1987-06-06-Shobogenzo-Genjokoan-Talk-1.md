@@ -5,7 +5,7 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 
 ## Transcript
 
@@ -250,4 +250,4 @@ Is that okay? Do you have any other questions? We will have [more] discussion [l
 
 [Home](index) \| [List](list#1987) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-2)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
