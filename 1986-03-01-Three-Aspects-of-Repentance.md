@@ -5,7 +5,7 @@ description: "March 1, 1986 Dharma Talk by Dainin Katagiri Roshi"
 
 [Home](index) \| [List](list#1986) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
 ## Summary
 
@@ -180,4 +180,4 @@ So I cannot say, “I am a teacher,” attaching to my position; but on the othe
 
 [Home](index) \| [List](list#1986) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1-Part-1)
+[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
