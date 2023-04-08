@@ -73,7 +73,7 @@ Why should we not be disappointed with this world, if there seems to be nothing 
 ### [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 #### August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
+What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *shō* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
 ---
 

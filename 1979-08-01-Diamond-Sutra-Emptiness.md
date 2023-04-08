@@ -9,7 +9,7 @@ description: August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *sho* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
+What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *shō* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
 ## Transcript
 
@@ -32,7 +32,7 @@ The Buddha asked Subhuti: “Is there any dharma which the Tathāgata has fully 
 
 #### 3:52
 
-In Japanese, enlightenment is described by three different characters. One is *kaku*: awareness. The second is [*satori*](glossary#satori) – you are very familiar with this term, satori. The third is *sho*: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, the original nature of existence. The original nature of existence is, *truth*. 
+In Japanese, enlightenment is described by three different characters. One is *kaku*: awareness. The second is [*satori*](glossary#satori) – you are very familiar with this term, satori. The third is *shō*: that is usually translated as “realization”. So enlightenment, broadly speaking, is to know or to awaken to the real nature, the original nature of existence. The original nature of existence is, *truth*. 
 
 According to the first term, *kaku*, awareness, this kind of enlightenment is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called awareness is at the conscious level. So whoever you are, if you practice [zazen](glossary#zazen) – or even though you don’t practice zazen – if you do your best to take care of your life, living in peace with all sentient beings with your best effort, at that time, whoever you are, everybody can experience awareness, which allows you to touch the core of existence. 
 
@@ -50,19 +50,19 @@ That is satori. Usually people understand Zen as cultivating the experience of s
 
 #### 11:27
 
-The final goal is that you must be free from the experience of satori. That is the third, the one which is called *sho*, which literally means “verification”. Verification which is called *sho* is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
+The final goal is that you must be free from the experience of satori. That is the third, the one which is called *shō*, which literally means “verification”. Verification which is called shō is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
 
-That is the third one, which is called *sho*, usually translated as realization. This third enlightenment is the highest spiritual level, in which you can be free from awareness and satori. There is no trace of satori, no trace of awareness. That is called *sho*, verification, because you are already one with the original nature of existence, even though you don’t realize it. You are already right in the middle of the nature of existence. 
+That is the third one, which is called shō, usually translated as realization. This third enlightenment is the highest spiritual level, in which you can be free from awareness and satori. There is no trace of satori, no trace of awareness. That is called shō, verification, because you are already one with the original nature of existence, even though you don’t realize it. You are already right in the middle of the nature of existence. 
 
-By this *sho*, enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike it. That is the total picture of [the] existence you have. 
+By this shō, enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike it. That is the total picture of [the] existence you have. 
 
-This is enlightenment. That’s why Buddha says, “Is there any dharma which the Tathāgata has fully known as ‘the utmost, right and perfect enlightenment’?” This is really pointing to the third enlightenment, which is called *sho*: perfect, right, supreme enlightenment. But if you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called sho, is nothing you can get in your hand. But, you can *be with it*, always, constantly. 
+This is enlightenment. That’s why Buddha says, “Is there any dharma which the Tathāgata has fully known as ‘the utmost, right and perfect enlightenment’?” This is really pointing to the third enlightenment, which is called shō: perfect, right, supreme enlightenment. But if you get *something* at the conscious level, it is not real enlightenment, it is called awareness, or satori, et cetera. Real satori enlightenment, which is called shō, is nothing you can get in your hand. But, you can *be with it*, always, constantly. 
 
 That is enlightenment, real enlightenment. That’s why, if you are called Buddha – does Buddha experience enlightenment, which he has known perfectly, as perfect, right, supreme enlightenment? Subhuti says, “No.” 
 
 #### 16:04
 
-So let’s see about this utmost, right, perfect enlightenment, represented as *sho* in Japanese.
+So let’s see about this utmost, right, perfect enlightenment, represented as shō in Japanese.
 
 The commentary by Conze says: 
 
