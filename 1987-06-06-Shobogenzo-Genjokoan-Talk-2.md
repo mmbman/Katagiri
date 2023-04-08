@@ -78,9 +78,9 @@ In other words, if you say consciousness, consciousness should have its own obje
 
 That’s why manas is very interesting, because it is the foundation of ego, the foundation of the six consciousnesses. *Manas is ego consciousness* means [it is] – how can I say it – the first stage of conscious vibration. Conscious vibration means to make separate; to separate everything. Philosophically, that is – what would you say? I forgot the term. That is the one of the philosophies; to know, to recognize; the study of recognizing.
 
-*Person*: Epistemology?
+**Question**: Epistemology?
 
-*Katagiri*: Epistemology. So, ego consciousness is a very minute vibration of consciousness, to separate, to dichotomize – simultaneously, all of a sudden. (By *simultaneously*, he may mean *instantaneously*.) Automatically, beyond your speculation. This is what is always happening. When I see this table, immediately I see this table, and then next, ego consciousness always [has] lots of energies. [It is] not only the capacity to separate everything, but also it has lots of energy to continue to contact with the object. In other words, [it is] the “stickiness” to the object.
+**Katagiri**: Epistemology. So, ego consciousness is a very minute vibration of consciousness, to separate, to dichotomize – simultaneously, all of a sudden. (By *simultaneously*, he may mean *instantaneously*.) Automatically, beyond your speculation. This is what is always happening. When I see this table, immediately I see this table, and then next, ego consciousness always [has] lots of energies. [It is] not only the capacity to separate everything, but also it has lots of energy to continue to contact with the object. In other words, [it is] the “stickiness” to the object.
 
 So that is ego consciousness: separation, and also attachment there. That is very deep, very deep. 
 
