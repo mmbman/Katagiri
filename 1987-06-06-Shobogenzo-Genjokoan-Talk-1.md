@@ -42,7 +42,9 @@ But according to me, maybe wisdom and compassion is still a pretty theoretical t
 
 *Wisdom* is regarded as [*enlightenment*](glossary#enlightenment) – in which you really see deeply into the original nature of existence, or how the world is structured. You try to see it, and then when you touch something deep, then you attain enlightenment, and you say, “How wonderful the world is.” Visually or emotionally or intellectually, something fills your heart. This is enlightenment. Alright? 
 
-And also, *compassion* is not merely kindness or friendliness; compassion is *salvation*. Are you familiar with salvation? What do you understand [from the word] salvation? If I use the term salvation, how do you feel?
+And also, *compassion* is not merely kindness or friendliness; compassion is *salvation*. 
+
+Are you familiar with salvation? What do you understand [from the word] salvation? If I use the term salvation, how do you feel?
 
 **Person**: Being saved.
 
