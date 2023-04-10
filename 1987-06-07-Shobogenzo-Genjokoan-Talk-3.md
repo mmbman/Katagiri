@@ -92,8 +92,9 @@ Let’s divide [Genjokoan](shobogenjo#genjokoan) into eleven sections...
 > Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas.  
 > Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
 
-
 Okay. The first section is divided into four sentences. 
+
+#### 
 
 > When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
 
@@ -107,41 +108,41 @@ Alayavijñāna means karmic life. If you see karmic life through meditation, you
 
 If you go beyond, free from conceptualization of karmic life, at that time you really participate directly in alayavijñāna, which means tathāgatagarbha. Tathāgatagarbha is only when you participate in it, in deep understanding, the profound taste of alayavijñāna, then alayavijñāna turns into Buddha’s world, tathāgatagarbha.
 
-Yesterday I mentioned, whole space, *koku*, fall down to the earth and be *crushed*. Then, that is the time when oak tree becomes buddha. We are always separated. When whole skies, whole world are crushed. We must be buddha. When you become buddha? Whole world, crushed. Nothing to compare. What do you mean? Just energy, working. And then, you become buddha. When you become buddha, that is the time when whole earths are crushed. That is direct participation in alayavijñāna, instead of understanding the human world, human life in the world of conceptualization. That is very tricky, very tricky. It’s very difficult to participate in that, the alayavijñāna directly, and turn it into tathāgatagarbha. It’s very difficult. Because, our head, it’s very strong; stubborn. *[He chuckles.]* Oh, it’s stubborn.
+Yesterday I mentioned, [all of] space, *kokū*, falls down to the earth and is *crushed*, and then that is the time when an oak tree becomes Buddha. We are always separated. When the whole sky, whole worlds are crushed, we must be Buddha. When do you become Buddha? When the whole world is crushed; [when there is] nothing to compare. “What do you mean?” Just energy, working; and then, you become Buddha. When you become Buddha, that is the time when the whole earth is crushed. That is direct participation in alayavijñāna, instead of understanding human life in the world of conceptualization. That is very tricky. It’s very difficult to participate in the alayavijñāna directly and turn it into tathāgatagarbha. It’s *very* difficult. Because our head is very strong, stubborn.
 
-#### 29:27
-
-That’s why immediately Dogen Zenji mentions, all things are... not all things you have thought. All are buddhas. Anyway, you should deal with this. At that time, see the world, see yourself. You live alone? No. You are there, with all sentient beings. That’s why delusion and enlightenment, cultivation of practice, and birth and death, and buddhas and all sentient beings, exist simultaneously. This is true reality. 
-
-What is this? This is your world, created by you? No. This is the world created by the past of your life? No. It is something more than that. It’s really expansive, the existence of the world. That’s why he says. 
+That’s why immediately Dogen Zenji [says that] all things are not the all things you have thought; all are Buddhas. You should deal with this. At that time, see the world, see yourself. Do you live alone? No. You are there, with all sentient beings. That’s why delusion and enlightenment, cultivation of practice, and birth and death, and buddhas and all sentient beings, exist simultaneously. This is true reality. What is this? Is this your world, created by you? No. Is this the world created by your life in the past? No. It is something more than that. It’s really expansive, the existence of the world. That’s why [it says this]. 
 
 #### 30:30
 
-And then, next, 
+And then, next:
 
-> When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
+> When the myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
 
-Then at that time, you are you, but you are not you. You are all sentient beings. You are supported by all sentient beings. So you shouldn’t always attach to yourself: “I am great.” I don’t think (so); this is really egoistic. If you become really great, in other words, if you really become mature, you don’t know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water. People just participating in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It’s not a stream of water, so always bumping, lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we all research(?).
+(Transcriber’s Note: Katagiri Roshi says *dharmas* instead of *things* here.)
 
-That’s why myriad dharmas are all not self. When you see the world in universal perspective, all don’t have it’s own ego-sense. No; exactly flow of energy, nothing but the flow of energy, penetrating, exchanging their own position with somebody else. I change my position with somebody’s position. In other words, I can talk with a bird, I can talk with a wok(?). I can talk with an Indian elephant. ... The elephant can shake hands with the Indian ... monkey. Do you understand that one? Intellectually you don’t understand this, but this is a buddha’s world. Buddha’s world is shaking hand: if you pick up this one, whole world pick up. You don’t believe it, but this is really true. This is outlook on human world in terms of buddha’s eye. Because you live with all sentient beings. Without all sentient beings, how can (you) survive? No possibility.
+Then at that time, you are you, but you are not you – you are all sentient beings. You are supported by all sentient beings. So you shouldn’t always attach to yourself: “I am great.” I don’t think so; this is really egoistic! If you become *really* great, in other words if you really become mature, you don’t know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water; people just participating in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It’s not a stream of water, so always bumping. Lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we *[unintelligible]*.
 
-So in the next, if so, what is true reality? He said, 
+That’s why “when myriad dharmas are all not self...” When you see the world in universal perspective, all [doesn’t] have its own ego-sense. No; it’s exactly the flow of energy, nothing but the flow of energy; penetrating, exchanging their own position with somebody else. I change my position with somebody’s position. In other words, I can talk with a bird, I can talk with a rock. I can talk with an Indian elephant. The elephant can shake hands with the Indian monkey. Do you understand that one? Intellectually you don’t understand this, but this is the Buddha’s world. Buddha’s world is shaking hands: if you pick up this one, the whole world picks it up. You don’t believe it, but this is really true. This is the outlook on the human world in terms of Buddha’s eye. Because you live with all sentient beings. Without all sentient beings, how can you survive? There is no possibility.
+
+#### 33:40
+
+And then next, if so, what is true reality? He said:
 
 > Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas.  
 
-What are the all sentient beings you can see, with your naked eye? They are not all sentient beings, seen with your naked eye; something more than abundance and paucity, being or not being. Completely beyond this one. That is what? Buddha? I can see the trees, I can see the birds. But birds doesn’t have their own nature, their own ego; tree doesn’t have its own ego; and then, that is a true picture of the trees and birds. Saying, going beyond being and not being, like or dislike, paucity and abundance. That is true reality, of everything. So, complete different world, coming up. 
+What are the *all sentient beings* you can see with your naked eye? They are not *all sentient beings* seen with your naked eye; something more than abundance and paucity, being or not being. Completely beyond this. That is what? Buddha? I can see the trees, I can see the birds. But birds don’t have their own ego; a tree doesn’t have its own ego; and then, that is a true picture of the trees and birds. [...] going beyond being and not being, like or dislike, paucity and abundance. That is the true reality, of everything. So, a completely different world is coming up. 
 
 #### 35:12
 
-Next, last sentence says, 
+Next, the last sentence (in this section) says, 
 
 > Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
 
-Yesterday, Shoken Floyd Winecoff asked me, when you feel (pensive?) ... talking about sadness. Religiously speaking, if you see your karmic life, there is some deep sadness there. For instance, if I look at myself, there is a deep sadness there. Because I cannot handle it... I cannot control, anyway. It can be controlled, but it’s not usual way. You cannot control it in the usual way. It can be controlled, but not in the usual way; that’s why it’s very difficult. So in a sense, deep sadness there. 
+Yesterday, Shoken Floyd Winecoff asked me [...] about sadness. Religiously speaking, if you see your karmic life, there is some deep sadness there. For instance, if I look at myself, there is a deep sadness there. Because I cannot control it; you cannot control it in the usual way. It can be controlled, but not in the usual way. That’s why it’s very difficult. So in a sense, [there is] deep sadness there. 
 
-Deep sadness means, completely beyond speculation, when you see something, you feel sad, you feel pensive. So when the flower falls, you feel, well, pensive. And say, “Please, stay on the branch,” you know? When weeds grows, you *hate* it. I’ve really experienced this hatred in the everyday cleaning my temple yard. *[He chuckles.]* Big temple yard, and by myself, picking up. I didn’t have a big machine, or chemicals to kill the weeds, so I had to pick up weeds every day. When you see them, you know, it’s really questionable. I always ask them, “What are you doing here? (What am I doing here?) That is your lifestyle, spending your... picking up grasses like this? This is purpose of monk’s life?” *[Laughter.]* So I thought, “Oh, big mistake.” *[Laughter.]* “Why did I become a monk?” *[Laughter.]* I have no choice, so always, I did it, you know? 
+*Deep sadness* means, completely beyond speculation, when you see something, you feel sad, you feel pensive. So when the flower falls, you feel pensive, and you say, “Please, stay on the branch,” you know? When weeds grow, you *hate* it. I’ve really experienced this hatred in the everyday cleaning my temple yard. *[He chuckles.]* Big temple yard, and picking up by myself. I didn’t have a big machine, or chemicals to kill the weeds, so I had to pick up weeds every day when I saw them, you know? It’s really questionable. I always asked [myself], “What [am I] doing here? This is my lifestyle, picking up grasses like this? This is the purpose of a monk’s life?” *[Laughter.]* So I thought, “Oh, [this was a] big mistake.” *[Laughter.]* “Why did I become a monk?” *[Laughter.]* But I had no choice, so I always did it, you know? 
 
-So, it’s really hatred; hatred coming up. Beyond grasses and flowers, blooms, flower blooms and weeds grows, beyond your hatred or love. Before, before or in advance, it’s blooming. Do you understand? Your blooming of life is already, in the same as blooming of flower. So your life is what? Just a blooming flower. Your life is what? Growth of the weeds. It’s the same thing. But when you see the weeds, you separate it; and then, you hate it. But basically, weeds grows in the same way as your presence. Before you poke your head into it, it already grows, the flower blooms. 
+So, that’s really hatred coming up. Beyond grasses and flowers, blooms, flower blooms and weeds grows, beyond your hatred or love. Before, before or in advance, it’s blooming. Do you understand? Your blooming of life is already, in the same as blooming of flower. So your life is what? Just a blooming flower. Your life is what? Growth of the weeds. It’s the same thing. But when you see the weeds, you separate it; and then, you hate it. But basically, weeds grows in the same way as your presence. Before you poke your head into it, it already grows, the flower blooms. 
 
 But on the other hand, you cannot ignore that feeling. So Dogen Zenji says, let’s come back to everyday life as a human being. What do feel, this one? What do you feel, flowers, weeds? Do you feel love? Do you feel the love (of) weeds? Are you sure you love the weeds? Are you sure? We cut the grasses always, and then some people say, “don’t cut the grasses,” you know? Are you sure you love the weeds? Are you sure you love the insects and the mosquitos? Are you sure? But - you hate? Are you sure? You don’t hate, you don’t love; I don’t know. 
 
