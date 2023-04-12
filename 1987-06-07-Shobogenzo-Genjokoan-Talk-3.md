@@ -85,20 +85,20 @@ Let’s divide [Genjokoan](shobogenjo#genjokoan) into eleven sections...
 
 (From 18:20 to 21:05, Katagiri Roshi divides the text into sections. These sections mostly line up with the paragraphs in the Thomas Clearly translation we have today (see [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm)), with some differences.)
 
-(He has someone read the first paragraph:)
+(He has someone read the first section:)
 
 > When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
 > When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
 > Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas.  
 > Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
 
-Okay. The first section is divided into four sentences. 
+Okay. The first section is divided into four sentences. The first one is:
 
-#### 
+#### 22:28
 
 > When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
 
-[The translator] says “Buddha’s teachings”; I think originally [Dogen] said “Buddha-dharma.” Buddha-dharma means the whole universe. *Whole universe* means not a huge avocado seed, okay? It’s not like a huge avocado seed. In other words, the universe is not a huge lump of the earth body. Do you understand? Buddha-dharma means, I told you already, a perpetual flow of energies, always going, and acting. And it’s quiet; but it’s dynamic: it’s always going. That is huge; boundless. There are no boundaries. Always huge, huge. That’s why I sometimes use “vast expanse of existence.” It’s vast. It’s really vastness. 
+[The translator] says “Buddha’s teachings”; I think originally [Dogen] said “Buddha-dharma.” Buddha-dharma means the whole universe. *Whole universe* means not a huge avocado seed, okay? It’s not like a huge avocado seed. In other words, the universe is not a huge lump of the earth body. Do you understand? Buddha-dharma means, I told you already, a perpe tual flow of energies, always going, and acting. And it’s quiet; but it’s dynamic: it’s always going. That is huge; boundless. There are no boundaries. Always huge, huge. That’s why I sometimes use “vast expanse of existence.” It’s vast. It’s really vastness. 
 
 So first of all, you have to see the human world, human beings, in terms of Buddha’s eye. So the first section is talking about the outlook on the world: how you should see the world, how you understand the human world. So first of all, you have to see the world in terms of Buddha’s eye. 
 
@@ -156,44 +156,51 @@ So if you do it, how do you decorate the human world with hatred, with sadness? 
 
 And then, I think the next paragraph is the contents of all sentient beings. What is the contents of all sentient beings?
 
-> Acting on and witnessing myriad things with the burden of oneself is “delusion.” Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
+> Acting on and witnessing myriad things with the burden of oneself is “delusion.” ...
 
-So here it says, “acting on [and] witnessing myriad things” means cultivating practice and verifying myriad things *by conveying oneself to them* is delusion. In other words, first we try to move toward nature and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. [...] But, he says, it is delusion. Yes, it is delusion, because you see the world in terms of your eyes, your feelings: delusion. But is it real delusion? No, no. No way. That is a little bit narrow understanding. That delusion is going in the Buddha’s land, supported by all sentient beings. Because there is no other way! No other way.
+So here it says, “acting on [and] witnessing myriad things” means cultivating practice and verifying myriad things *by conveying oneself to them* is delusion. In other words, first we try to move toward nature and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. [...] But, he says, it is delusion. Yes, it is delusion, because you see the world in terms of your eyes, your feelings; [that is] delusion. But is it real delusion? No, no; no way. That is a little bit narrow understanding. That delusion is going in the Buddha’s land, supported by all sentient beings. Because there is no other way! No other way.
 
-If it is delusion, which you should hate – at that time, [is] all sentient nature coming to you and helping you? In the 1960’s and 70’s, always the hippies said, “I don’t know where I am going. The Universe takes care of me.” Something like that. Can you say so? *[He chuckles.]* No way. If you do it, your life becomes a mess. 
+If it is delusion, which you should hate – at that time, [is] all sentient nature coming to you and helping you? In the 1960’s and 70’s, always the hippies said something like, “I don’t know where I am going. The Universe takes care of me.” Can you say that? *[He chuckles.]* No way. If you do it, your life becomes a mess. 
 
-So first of all, you have to move toward the nature, toward the world, and take care of it. And then, at that time, you can verify the presence of the world, with you. That’s why we have to do it. But, it is delusion. But we say, “It is right. Enlightenment.” I don’t think it is. Prejudice. Ego. So that’s why, if you see the very ... energetic businessmen, and politicians, whoever they are; you really respect them, because he’s always acting positively, creating something. He’s a wonderful person. But I don’t think it’s wonderful. It is a delusion. 
+So first of all, you have to move toward nature, toward the world, and take care of it. And then, at that time, you can verify the presence of the world with you. That’s why we have to do it. But, it is delusion. We say, “It is right; it is Enlightenment.” I don’t think it is. [That is] prejudice; ego. That’s why if you see the very energetic businessmen and politicians – whoever they are – you really respect them, because they are always acting positively, creating something. [You think] they are wonderful people. But I don’t think it’s wonderful. *[He chuckles.]* It is a delusion. 
 
+But the point is, there is no other way *except* the deluded way, in order to reach whole world. So the important point is, don’t be stuck in the delusion. You can use delusion properly. How? Simply deal with delusions; as simply as you can. There is no reason you should be stuck, or you should be proud of yourself; no matter [whether] you are successful in business, or politics, et cetera. Even if I become a saint, there is no reason I should be proud of myself. No way. Because it is delusion. That is my karmic life. 
 
-
-> Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. There are also those who attain enlightenment on top of enlightenment, and there are those who are further deluded in the midst of delusion. 
-
-So, acting on and witness myriad things with the burden of one’s self is delusion. Acting on and witnessing oneself in the advent of myriad things is enlightenment.
-
-
-
-
-But that delusion, the point is: there is no other way, except deluded way, in order to reach whole world. So, important point is: Don’t be stuck in delusion. You can use properly delusion. How? Simply deal with delusions; as simple as you can. There is no reason you should be stuck, you should (be) proud of yourself; no matter how long, no matter what. You are successful in business, or politics, et cetera; even though I became a saint, there is no reason I should be proud of myself. No way. Because it is delusion. That is my karmic life. Just like an owl can see everything at night; something like that. “By practice, I became a saint”: it is wonderful? No; it’s not wonderful. It is just like a owl...
+It is just like an owl can see everything at night; something like that. “By practice, I became a saint” – is this wonderful? No, it’s not wonderful. It is just like an owl...
 
 *[Tape change.]*
 
-... because I create it. But on the other hand, please deal with... If so, it is wrong? No, it’s not wrong. Behind this delusion, huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion. Please use delusion in universal perspective. That is a [bodhisattva](glossary#bodhisattva) practice. That’s why bodhisattvas suffer from their life, and also from peoples’ life, all sentient beings’ life: how to save, how to help all sentient beings. Is that clear? 
+... because I create it. But on the other hand, if so, it is wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion; please use delusion in universal perspective. That is the [bodhisattva](glossary#bodhisattva) practice. That’s why bodhisattvas suffer from their life, and also from [other] people’s life, all sentient beings’ life: how to help all sentient beings.
 
-And then, that’s why next, he says, “acting on, witness(ing) oneself in advent of myriad things is enlightenment”. So already there is... your life, your delusion is already manifested in the advent of myriad things. That is your way of life. That is a unique way to approach, to know the total picture of the life, human world. 
+#### 48:01
 
-#### 48:38
+And then, that’s why next he says, 
 
-So, delusion and enlightenment work together. So that’s why ... always [bodhisattva](glossary#bodhisattva) is characterized by working with all sentient beings hand in hand, instead of getting into buddha’s position. Becoming buddha - they don’t want! So, always working. But behind bodhisattva’s delusion, there is a buddha there. So-called enlightenment. That’s why, if you read scriptures, always bodhisattva appears in front. And behind, the buddhas. Always the buddha is behind the bodhisattva, supporting. 
+>> Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
 
-So if you read the scriptures, there is something very quiet, silent, beyond [bodhisattvas](glossary#bodhisattva) activities in the front. There is something - quietness. That quietness is described sometimes (as) [emptiness](glossary#śūnyatā).
+So your life, your delusion is already manifested in the advent of myriad things. That is your way of life. That is a unique way to approach [knowing] the total picture of life, the human world. 
 
-It’s very interesting: if you sit down quietly and read scriptures, very naturally, you can see first, the [bodhisattva](glossary#bodhisattva) for activities, and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
+So, delusion and enlightenment work together. So that’s why a [bodhisattva](glossary#bodhisattva) is always characterized by walking with all sentient beings hand in hand, instead of getting into Buddha’s position, becoming Buddha. They don’t want that! So, [they are] always walking. But behind the bodhisattva’s delusion, there is a Buddha there; so-called enlightenment. That’s why, if you read scriptures, always the bodhisattva appears in front, and behind [there are] Buddhas. Always the Buddha is behind the bodhisattva, supporting. 
+
+So if you read the scriptures, there is always something very quiet, silent, beyond a [bodhisattva](glossary#bodhisattva)’s activities in the front. There is some quietness. That quietness is described sometimes as [emptiness](glossary#śūnyatā).
+
+It’s very interesting: if you sit down quietly and read scriptures, very naturally, you can see first, the [bodhisattva](glossary#bodhisattva) for activities and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
 
 #### 50:17
 
-Next, “great enlightenment about delusion is buddhas”. That’s why you should know what delusion is. That is called buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become [bodhisattva](glossary#bodhisattva). Bodhisattva: then you can help, you can share. For instance, you always try to help, but people don’t accept you. This is [suffering](glossary#suffering). But suffering is okay... Not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all people, all kinds of people. Whatever happens, accepting or not accepting, anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is a bodhisattva. 
+Next,
 
-That delusion is really supported by enlightenment. That’s why next sentence says, “great delusion about enlightenment is sentient beings.” That is called *you*. Ordinary people. Ordinary people are persons who have attained ... really deeply ... what delusion is. Then, this is called all sentient beings.
+> Great enlightenment about delusion is Buddhas;  ...
+
+You should know what delusion is; that is called Buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become a [bodhisattva](glossary#bodhisattva). And then you can help, you can share. 
+
+For instance, you always try to help, but people don’t accept you. This is [suffering](glossary#suffering). But suffering is okay... Not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people, whatever happens, accepting or not accepting. Anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is a bodhisattva. 
+
+That delusion is really supported by enlightenment. That’s why next sentence says, 
+
+> great delusion about enlightenment is sentient beings. 
+
+That is called *you*. Ordinary people. Ordinary people are persons who have attained ... really deeply ... what delusion is. Then, this is called all sentient beings.
 
 #### 52:17
 
@@ -209,8 +216,6 @@ In the saying,
 That’s why, “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength, by practicing this. Katagiri mentions, Buddha mentions, [ancestor](glossary#ancestor) mentions. Please give me something!” But, no way; I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it, participate directly in the perpetual flow of energy, at that time, there is no way to know. But, it is, you can realize it.
 
 So, it’s... just like your body soaks in the stream. And then, your whole body (is) wet. But, we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; and next moment, some thirst comes again. So if you really quench your thirst, you jump into the water; you soak your body and mind into the river. And then, the river water soaks through your huge pores, just like a bamboo basket. Your body is just like a bamboo basket; do you understand? Like the pores. But you don’t believe it. If you soak it, and then water falls through there, lots of immediate holes there. That is the pores.
-
-#### 55:37
 
 That’s why you sense when the buddhas are indeed the buddhas, at that time, you become buddhas. With great enlightenment about delusion, is all sentient beings. That is you. Great enlightenment about delusion is buddhas; great delusion about enlightenment is sentient beings, because, how to save all sentient beings? How to guide deluded, stubborn people to buddha’s way? It’s very hard. It’s really tired. *[Laughter.]* But this is... anyway, there is no other way. So you have to continue to live. That is great delusion about enlightenment. This is called sentient being. This is called *you*. 
 
