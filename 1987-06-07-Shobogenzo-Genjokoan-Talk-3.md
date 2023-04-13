@@ -46,7 +46,7 @@ So you should live in the vast, expansive realm of the world, surrounded by all 
 
 #### 9:40
 
-So, let’s look at [Genjokoan](topics#genjokoan).
+So, let’s look at [*Genjokoan*](topics#genjokoan).
 
 At the last sentence, there is a conclusion there. The last sentence says: 
 
@@ -68,19 +68,19 @@ So, what is the responsibility, what is the *duty* for us, if you want to be pre
 
 How do you develop the whole personality? It’s not your business. Your business is just to participate in this practice. That’s it! And then, the whole personality is coming up, just like water under the ground coming up if your pipe touches the water [line], naturally water – *[shoop!]* – comes up. 
 
-When you see the water coming up from the ground, it is called *whole personality*. By which people are really impressed, and people really want to see such a person. It is necessary for us; and we have such a capability. So, finally, our purpose is just like this. That’s why it is the conclusion of [Genjokoan](shobogenjo#genjokoan).
+When you see the water coming up from the ground, it is called *whole personality*. By which people are really impressed, and people really want to see such a person. It is necessary for us; and we have such a capability. So, finally, our purpose is just like this. That’s why it is the conclusion of *Genjokoan*.
 
 So, what is the practice for us? *[He chuckles.]* Well, we always say, “We want to attain enlightenment, we want to be enlightened person,” et cetera. We are always “juggling” in the realm of [samsara](glossary#samsara): “You are wrong,” “I am right,” you know? “I practiced for ten years, with this person,” “You are always lazy; you are not Buddhist.” And always, “I love him, so he is my teacher.” It’s ridiculous! *[He laughs, and there is some laughter.]* And then sometimes someone tells you bitter things: “Oh, I don’t like him. He is not my teacher.” Something like that. We’re always juggling like this. 
 
 How do you understand? How do you share your life with all sentient beings, in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, [and] shaking hands – actually, practically, you never built up a peaceful world from day to day. No way. Always you are fighting; [suffering](glossary#suffering). That’s why Dogen Zenji [speaks] like this.
 
-What is our practice? Whoever you are, whatever it is, what you have to do is, try to turn the alayavijñāna into tathāgatagarbha. Turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what [Genjokoan](shobogenjo#genjokoan) explains.
+What is our practice? Whoever you are, whatever it is, what you have to do is, try to turn the alayavijñāna into tathāgatagarbha. Turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what *Genjokoan* explains.
 
 #### 17:56
 
 Let’s go back to the first paragraph. 
 
-Let’s divide [Genjokoan](shobogenjo#genjokoan) into eleven sections... 
+Let’s divide *Genjokoan* into eleven sections... 
 
 (From 18:20 to 21:05, Katagiri Roshi divides the text into sections. These sections mostly line up with the paragraphs in the Thomas Clearly translation we have today, with some differences. See [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm))
 
@@ -97,7 +97,7 @@ Okay. The first section is divided into four sentences. The first one is:
 
 > When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
 
-[The translator] says “Buddha’s teachings”; I think originally [Dogen] said “Buddha-dharma.” Buddha-dharma means the whole universe. *Whole universe* means not a huge avocado seed, okay? It’s not like a huge avocado seed. In other words, the universe is not a huge lump of the earth body. Do you understand? Buddha-dharma means, I told you already, a perpetual flow of energies, always going, and acting. And it’s quiet; but it’s dynamic: it’s always going. That is huge; boundless. There are no boundaries. Always huge, huge. That’s why I sometimes use “vast expanse of existence.” It’s vast. It’s really vastness. 
+[The translator] says “Buddha’s teachings”; I think originally [Dogen] said “Buddha-dharma.” Buddha-dharma means the whole universe. *Whole universe* is not like a huge avocado seed, okay? In other words, the universe is not a huge lump of the earth body. Do you understand? Buddha-dharma means, I told you already, a perpetual flow of energies, always going, and acting. And it’s quiet; but it’s dynamic: it’s always going. That is huge; boundless. There are no boundaries. Always huge, huge. That’s why I sometimes use “vast expanse of existence.” It’s vast. It’s really vastness. 
 
 So first of all, you have to see the human world, human beings, in terms of Buddha’s eye. So the first section is talking about the outlook on the world: how you should see the world, how you understand the human world. So first of all, you have to see the world in terms of Buddha’s eye. 
 
@@ -249,7 +249,7 @@ This last sentence,
 
 > when you witness one side, one side is obscure.
 
-This is a crucial point of buddha’s practice. If you explain this one, then the teaching of [egolessness](glossary#egolessness), interconnection, interpenetration, interdependent co-origination, comes up. But, when you witness one side, the other side is obscure, [it means] the whole world is penetrated to you. At that time, your life becomes very secure, very secure. Stand up and walk. Gassho becomes gassho; gassho settles in gassho, exactly. Because the whole world is gassho. The whole world is walking. That’s why Dogen Zenji says, “the mountain walks.” Intellectually, you cannot believe it, but from this point of view, the mountain walks. How do you know? You just walk. And then, the whole mountain walks. 
+This is a crucial point of Buddha’s practice. If you explain this one, then the teaching of [egolessness](glossary#egolessness), interconnection, interpenetration, interdependent co-origination, comes up. But, when you witness one side, the other side is obscure, [it means] the whole world is penetrated to you. At that time, your life becomes very secure, very secure. Stand up and walk. Gassho becomes gassho; gassho settles in gassho, exactly. Because the whole world is gassho. The whole world is walking. That’s why Dogen Zenji says, “the mountain walks.” Intellectually, you cannot believe it, but from this point of view, the mountain walks. How do you know? You just walk. And then, the whole mountain walks. 
 
 The same applied to sports, and everything. Without this, you cannot taste the profundity of sports, the profundity of arts, the profundity of physics. No. 
 
@@ -267,9 +267,9 @@ Okay, do you have questions? I’m sorry I didn’t finish.
 
 **Question**: Could you go back to this last point, “When you witness one side, the other side is obscure”? I didn’t understand...
 
-**Katagiri**: Okay, first, I recommended a book, “Beyond Boredom and Anxiety”. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about about the oneness with the rock face and his body and his mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
+**Katagiri**: Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about about the oneness with the rock face and his body and his mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
 
-(Transcriber’s Note: The book [Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition](https://www.amazon.com/dp/0787951404/ref=cm_sw_em_r_mt_dp_U_12kgFbNB8X9GK) by Mihaly Csikszentmihalyi is available but expensive. However, the more recent update by the same author, [Flow: The Psychology of Optimal Experience](https://www.amazon.com/dp/0061339202/ref=cm_sw_em_r_mt_dp_U_q5kgFb0P5YW6R)  is now a popular mainstream book. It is well worth checking out.)
+(Transcriber’s Note: The book *Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition* by Mihaly Csikszentmihalyi is available but expensive. However, the more recent update by the same author, *Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)
 
 What do you mean, just the flow of experience? Just the flow of activity, when you climb the mountain – what is it? Just the flow of activities called “climbing the mountain” – at that time, where are they, what are they? Right in the middle of the perpetual flow of activities, there is rock, mountain, trees, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called *perpetual flow of activities*, called *climbing the mountain*. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscured.” *The other side* means the rest of the existence. The whole world comes into you. 
 
