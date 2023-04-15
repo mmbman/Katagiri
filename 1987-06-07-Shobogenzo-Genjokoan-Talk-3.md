@@ -105,9 +105,9 @@ If you go beyond, free from conceptualization of karmic life, at that time you r
 
 Yesterday I mentioned, [all of] space, *kokū*, falls down to the earth and is *crushed*, and then that is the time when an oak tree becomes Buddha. We are always separated. When the whole sky, whole worlds are crushed, we must be Buddha. When do you become Buddha? When the whole world is crushed; [when there is] nothing to compare. What do I mean? Just energy, working; and then, you become Buddha. When you become Buddha, that is the time when the whole earth is crushed. That is direct participation in alayavijñāna, instead of understanding human life in the world of conceptualization. That is very tricky. It’s very difficult to participate in the alayavijñāna directly and turn it into tathāgatagarbha. It’s *very* difficult. Because our head is very strong, stubborn.
 
-That’s why immediately Dogen Zenji [says that] *all things* are not the all things you have thought; all are Buddhas. You should deal with this. At that time, see the world, see yourself. Do you live alone? No. You are there, with all sentient beings. That’s why delusion and enlightenment, cultivation of practice, and birth and death, and buddhas and all sentient beings, exist simultaneously. This is true reality. 
+That’s why immediately Dogen Zenji [says that] *all things* are not the all things you have thought; all are Buddhas. You should deal with this. At that time, see the world, see yourself: do you live alone? No; you are there with all sentient beings. That’s why delusion and enlightenment, cultivation of practice, and birth and death, and buddhas and all sentient beings, exist simultaneously. This is true reality. 
 
-What is this? Is this your world, created by you? No. Is this the world created by your life in the past? No. It is something more than that. It’s really expansive, the existence of the world. That’s why [it says this]. 
+What is this (true reality)? Is this your world, created by you? No. Is this the world created by your life in the past? No. It is something more than that. It’s really expansive, the existence of the world. That’s why [it says this]. 
 
 #### 30:30
 
