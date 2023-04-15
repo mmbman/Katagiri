@@ -46,13 +46,13 @@ So you should live in the vast, expansive realm of the world, surrounded by all 
 
 #### 9:40
 
-So, let’s look at [*Genjokoan*](topics#genjokoan).
+Let’s look at [*Genjokoan*](topics#genjokoan).
 
 At the last sentence, there is a conclusion. The last sentence says: 
 
-> Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth's being gold and by participation develops the long river into butter
+> Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth's being gold and by participation develops the long river into butter.
 >
-> (From a translation by Thomas Cleary: [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
+> (From a translation of *Genjokoan* by Thomas Cleary: [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 
 “The wind of Buddhism”: In this case [Dogen Zenji](glossary#dogen) uses *wind* because he quoted the story of [Zen Master](glossary#zen-master) Hōtetsu of Mount Mayoku using a fan, et cetera. That’s why he is talking about the wind, created by fan. The “wind of Buddhism” means Buddha’s family. So in this case, wind means *lifestyle*; the refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family. So, their life has [a] really refined lifestyle [...] What is it? That is to manifest the earth. *The earth* means *alayavijñāna*, karmic life. 
 
