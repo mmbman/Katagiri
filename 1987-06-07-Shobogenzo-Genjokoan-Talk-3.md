@@ -155,19 +155,23 @@ And then, I think the next paragraph is the contents of all sentient beings. Wha
 
 > Acting on and witnessing myriad things with the burden of oneself is “delusion.”
 
-[That] means cultivating practice and verifying myriad things *by conveying oneself to them* is delusion. In other words, first we try to move toward nature and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. [...] But, he says, it is delusion. Yes, it is delusion, because you see the world in terms of your eyes, your feelings; [that is] delusion. But is it real delusion? No, no way; that is a little bit narrow understanding. That delusion is going in the Buddha’s land, supported by all sentient beings. Because there is no other way! No other way.
+[That] means cultivating practice and verifying myriad things *by conveying oneself to them* is delusion. 
 
-If it is delusion, which you should hate – at that time, [is] all sentient nature coming to you and helping you? In the 1960’s and 70’s, always the hippies said something like, “I don’t know where I am going. The Universe takes care of me.” Can you say that? *[He chuckles.]* No way. If you do it, your life becomes a mess. 
+In other words, first we try to move toward nature and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. [...] But, he says, it is delusion. Yes, it is delusion, because you see the world in terms of your eyes, your feelings; [that is] delusion. But is it real delusion? No, no way; that [would be] a little bit narrow understanding. That delusion is going in the Buddha’s land, supported by all sentient beings. Because there is no other way! No other way.
 
-So first of all, you have to move toward nature, toward the world, and take care of it. And then, at that time, you can verify the presence of the world with you. That’s why we have to do it. But, it is delusion. We say, “It is right; it is Enlightenment.” I don’t think it is. [That is] prejudice; ego. That’s why if you see the very energetic businessmen and politicians – whoever they are – you really respect them, because they are always acting positively, creating something. [You think] they are wonderful people. But I don’t think it’s wonderful. *[He chuckles.]* It is a delusion. 
+If it is delusion, which you should hate – at that time, [is] all sentient nature coming to you and helping you? In the 1960’s and 70’s, the hippies always said something like, “I don’t know where I am going. The Universe takes care of me.” Can you say that? *[He chuckles.]* No way. If you do it, your life becomes a *mess*. 
+
+So first of all, you have to move toward nature, toward the world, and take care of it. And then, at that time, you can verify the presence of the world with you. That’s why we have to do it. But, it is delusion. We say, “It is right; it is Enlightenment;” [but] I don’t think it is. [That is] prejudice; ego. That’s why if you see the very energetic businessmen and politicians – whoever they are – you really respect them, because they are always acting positively, creating something; [you think] they are wonderful people. But I don’t think it’s wonderful. *[He chuckles.]* It is a delusion. 
 
 But the point is, there is no other way *except* the deluded way, in order to reach whole world. So the important point is, don’t be stuck in the delusion. You can use delusion properly. How? Simply deal with delusions; as simply as you can. There is no reason you should be stuck, or you should be proud of yourself; no matter [whether] you are successful in business, or politics, et cetera. Even if I become a saint, there is no reason I should be proud of myself. No way. Because it is delusion. That is my karmic life. 
 
-It is just like an owl can see everything at night; something like that. “By practice, I became a saint” – is this wonderful? No, it’s not wonderful. It is just like an owl...
+It is something like [that] an owl can see everything at night. “By practice, I became a saint” – is this wonderful? No, it’s not wonderful. It is just like an owl...
 
 *[Tape change.]*
 
-... because I create it. But on the other hand, if so, it is wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion; please use delusion in universal perspective. That is the [bodhisattva](glossary#bodhisattva) practice. That’s why bodhisattvas suffer from their life, and also from [other] people’s life, all sentient beings’ life: how to help all sentient beings.
+... because I create it. 
+
+But on the other hand, if so, it is wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion; please use delusion in universal perspective. That is the [bodhisattva](glossary#bodhisattva) practice. That’s why bodhisattvas suffer from their life, and also from [other] people’s life, all sentient beings’ life – how to help all sentient beings.
 
 #### 48:01
 
@@ -177,11 +181,11 @@ And then, that’s why next he says,
 
 So your life, your delusion is already manifested in the advent of myriad things. That is your way of life. That is a unique way to approach [knowing] the total picture of life, the human world. 
 
-So, delusion and enlightenment work together. So that’s why a [bodhisattva](glossary#bodhisattva) is always characterized by walking with all sentient beings hand in hand, instead of getting into Buddha’s position, becoming Buddha. They don’t want that! So, [they are] always walking. But behind the bodhisattva’s delusion, there is a Buddha there; so-called enlightenment. That’s why, if you read scriptures, always the bodhisattva appears in front, and behind [there are] Buddhas. Always the Buddha is behind the bodhisattva, supporting. 
+So, delusion and enlightenment work together. That’s why a bodhisattva is always characterized by walking with all sentient beings hand in hand, instead of getting into Buddha’s position, becoming Buddha. They don’t want that! So, [they are] always walking. But behind the bodhisattva’s delusion, there is a Buddha there; so-called enlightenment. That’s why, if you read scriptures, always the bodhisattva appears in front, and behind [there are] Buddhas. Always the Buddha is behind the bodhisattva, supporting. 
 
-So if you read the scriptures, there is always something very quiet, silent, beyond a [bodhisattva](glossary#bodhisattva)’s activities in the front. There is some quietness. That quietness is described sometimes as [emptiness](glossary#śūnyatā).
+So if you read the scriptures, there is always something very quiet, silent, beyond a bodhisattva’s activities in the front. There is some quietness. That quietness is described sometimes as [emptiness](glossary#śūnyatā).
 
-It’s very interesting: if you sit down quietly and read scriptures, very naturally, you can see first, the [bodhisattva](glossary#bodhisattva) for activities and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
+It’s very interesting: if you sit down quietly and read scriptures, very naturally, you can see first the bodhisattva’s activities and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
 
 #### 50:17
 
@@ -189,21 +193,21 @@ Next,
 
 > Great enlightenment about delusion is Buddhas;  ...
 
-You should know what delusion is; that is called Buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become a [bodhisattva](glossary#bodhisattva). And then you can help, you can share. 
+You should know what delusion is: that is called Buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become a bodhisattva. And then you can help, you can share. 
 
-For instance, you always try to help, but people don’t accept you. This is [suffering](glossary#suffering). But suffering is okay... Not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people, whatever happens, accepting or not accepting. Anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is a bodhisattva. 
+For instance, [if] you always try to help, but people don’t accept you. This is [suffering](glossary#suffering). But suffering is okay... [Well,] not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people, whatever happens, accepting or not accepting. Anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is [being] a bodhisattva. 
 
 That delusion is really supported by enlightenment. That’s why the next sentence says, 
 
 > great delusion about enlightenment is sentient beings. 
 
-That is called *you*. Ordinary people. Ordinary people are persons who have attained ... really deeply ... what delusion is. Then, this is called all sentient beings.
+That is called *you*. Ordinary people. Ordinary people are persons who have attained [...] really deeply [...] what delusion is. Then, this is called all sentient beings.
 
 #### 52:17
 
 > There are also those who attain enlightenment on top of enlightenment, and there are those who are further deluded in the midst of delusion.
 
-What you have to do is, you are always acting and helping all sentient beings as a Buddha. But on the other hand, you are [also] the [bodhisattvas](glossary#bodhisattva) who suffers a lot. So always you are doing [that] in the realm of delusion. But on the other hand, there is a great supporter there, called Buddha. So, who is helping people? Buddha helps, in the realm of Buddhas.
+What you have to do is, you are always acting and helping all sentient beings as a Buddha. But on the other hand, you are [also] the bodhisattva who suffers a lot. So you are always doing [that] in the realm of delusion, but on the other hand, there is a great supporter there called Buddha. So who is helping people? Buddha helps, in the realm of Buddhas.
 
 #### 53:10
 
@@ -211,17 +215,15 @@ In the saying,
 
 > When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood, Buddhas go on realizing.
 
-That’s why, “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri mentions, Buddha mentions, [ancestor](glossary#ancestor) mentions. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
+That’s why [we ask,] “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri mentions this, Buddha mentions this, [ancestors](glossary#ancestor) mention this. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
 
-So, it’s just like your body soaks in the stream. And then, your whole body is wet. But, we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; then next moment, some thirst comes again. So if you really quench your thirst, you jump into the water; you soak your body and mind in the river. And then, the river water soaks through your huge pores, just like a bamboo basket. Your body is just like a bamboo basket. Do you understand? Like the pores. But you don’t believe it. If you soak it, and then water falls through there, lots of immediate holes there. That is the pores. *[He chuckles.]*
+So, it’s just like your body soaks in the stream, and then your whole body is wet, but we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; then next moment, some thirst comes again. So to really quench your thirst, you jump into the water; you soak your body and mind in the river. And then, the river water soaks through your huge pores. Your body is just like a bamboo basket. Do you understand? Like the pores. But you don’t believe it. If you soak [your body], then water falls through there, lots of [...] holes, the pores. *[He chuckles.]*
 
-That’s why it says here, “when the Buddhas are indeed the Buddhas, at that time, you become Buddhas.” With “great enlightenment about delusion” is all sentient beings. That is *you*. Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. Because, how to save all sentient beings? How to guide deluded, stubborn people to Buddha’s way? It’s very hard. *[He chuckles.]* It’s really tiring. *[Laughter.]* But there is no other way, so you have to continue to [do it]. That is great delusion about enlightenment. This is called sentient beings; this is called *you*. 
+That’s why it says here, “when the Buddhas are indeed the Buddhas, at that time, you become Buddhas.” With *great enlightenment about delusion* is all sentient beings; that is *you*. Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. Because, how to save all sentient beings? How to guide deluded, stubborn people to Buddha’s way? It’s very hard. *[He chuckles.]* It’s really tiring. *[Laughter.]* But there is no other way, so you have to continue to [do it]. That is great delusion about enlightenment. This is called sentient beings; this is called *you*. And then, if you do it, that is called “Buddha becomes Buddha.” 
 
-And then, if you do it, that is called “Buddha becomes Buddha.” But, how do we know? Who proves this? 
+But, how do we know? Who proves this? There is no need to be self conscious of being Buddhas. No. Because, [it is] just perpetual flow of energies. You just be there. Just like being present in a jet airplane, [as] I always mention: just be there. 
 
-There is no need to be self conscious of being Buddhas. No. Because, [it is] just perpetual flow of energies. You just be there. Just like being present in a jet airplane, [as] I always mention: just be there. 
-
-Nevertheless, it is realizing Buddhahood. Buddhas go on realizing means, that way of practice naturally makes your life mature. Before you know it. This is called *shugyō*; practice. He translated it “cultivating practice.” Practice is constant cultivation. There is no “top,” no end; constantly cultivating.
+“Nevertheless, it is realizing Buddhahood, Buddhas go on realizing” means, that way of practice naturally makes your life mature. Before you know it. This is called *shugyō*; practice. He translated it “cultivating practice.” Practice is constant cultivation. There is no “top,” no end. Constantly cultivating.
 
 #### 57:50
 
@@ -231,11 +233,9 @@ Next, how do we do this? That practice seems to be very hard, but, he mentions, 
 
 So, all you have to do is [...] you should throw away [your] whole body and mind into your object. At that time, your body is reflected in the realm of your object, and interconnected and interpenetrating each-other at super-speed – just like moon and water, both never disturbed. Just creating the world; so-called “how beautiful it is”. You feel this one, simultaneously. 
 
-That’s why it says, “it isn’t like reflecting image in the mirror, it is not like water and the moon.” Because if you see the water and the moon, you separate them. If you attain enlightenment, all sentient beings are reflected in your whole body and mind. 
+That’s why it says, “it isn’t like reflecting image in the mirror, it is not like water and the moon.” Because if you see the water and the moon, you separate them. If you attain enlightenment, all sentient beings are reflected in your whole body and mind. And then, you say, “I am the Universe!” *[He laughs.]* That’s ridiculous. And then when [...] you walk a little far from the earth, three feet and five feet and walking, and then you say, “I am a saint. The whole universe helps my life, and [I am] free from it.” That is not real enlightenment. That’s ridiculous. That is called *prejudice*, okay? *[Laughter.]*
 
-And then, you say, “I am the Universe!” *[He laughs.]* That’s ridiculous. And then when [...] you walk a little far from the earth, three feet and five feet and walking, and then you say, “I am a saint. The whole universe helps my life, and [I am] free from it.” That is not real enlightenment. That’s ridiculous. That is called *prejudice*, okay? *[Laughter.]*
-
-So that’s why it says, “it is not like a reflecting image in the mirror.” If you believe religion is to experience miracles like flying in the sky, that is just like the relationship between water and the moon. That’s [all]. But real enlightenment is not like that. That’s why he says it *isn*’t like a reflecting image in the mirror, it is not like water and the moon. When you witness one side, one side is obscure. So, what is *real* enlightenment, what is real activity of human beings? At that time, when the moon is reflected in the water, the whole water becomes moon. That’s it. The whole universe. 
+So that’s why it says, “it is not like a reflecting image in the mirror.” If you believe religion is to experience miracles like flying in the sky, that is just like the relationship between water and the moon. That’s [all]. But real enlightenment is not like that. That’s why he says it *isn’t* like a reflecting image in the mirror, it is not like water and the moon. When you witness one side, one side is obscure. So, what is *real* enlightenment, what is real activity of human beings? At that time, when the moon is reflected in the water, the whole water becomes moon. That’s it. The whole universe. 
 
 So you cannot see the moon, because the moon has penetrated and disappeared, melted away into your body and mind. You can experience [this]; the way you climb mountains, and then you have a consciousness, and always using a consciousness. But the more you really devote yourself into the rock [climbing], because no choice to escape, so it requires enormous attention to it. At that time, mind penetrates; your body and mind finally melt away. So where is it? What is this? What are they? They are just body; there is no rock. Rock has penetrated your body; just your body is there. But your body still goes through the rock climbing procedures, using boots, using a rope, et cetera. But your body doesn’t confuse them, because mind is there, rock is there. But all are penetrated and melted away, so whole the body is rock, whole body is the mountain. And then, how do we know? Just climb. The activity of climbing; perpetual flow of activity, called climbing, from moment to moment. That’s it.
 
