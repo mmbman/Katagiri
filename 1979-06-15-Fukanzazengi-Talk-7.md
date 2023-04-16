@@ -158,7 +158,7 @@ Nakagawa Roshi (probably [Sōen Nakagawa](glossary#sōen-nakagawa)), at the last
 
 That’s interesting, isn’t it? Everybody [searches], “Who? Who? Who?” ... “Maybe I?” *[Laughter.]* But [the person] says, “No, no, no. I don’t either.” He’s a nice guy, huh? 
 
-Finally, all *[unintelligible]* gone. “Yes.” *[Laughter.]*
+Finally, all *[unintelligible]* gone. *Yes.* *[Laughter.]*
 
 *[The laughter eventually dies down, and Katagiri laughs.]* 
 
