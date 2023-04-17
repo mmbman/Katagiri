@@ -44,9 +44,9 @@ In the spiritual world, there are lots of terms: *Buddhas*, and *enlightenment*,
 
 #### 5:00
 
-But as you know pretty well, [Buddhism](glossary#buddhism) says that the world, or human life, or myriad, myriad things, or every single thing, are produced by the truth of *interdependent co-origination*. In other words, there is nothing which is produced by its own *being*, it’s own nature, it’s own substance. In other words, according to the senses, the table exists by its nature, by its own energy, by its own substance. Okay? 
+But as you know pretty well, [Buddhism](glossary#buddhism) says that the world, or human life, or myriad, myriad things, or every single thing, are produced by the truth of *interdependent co-origination*. In other words, there is nothing which is produced by its own *being*, it’s own nature, it’s own substance. 
 
-In philosophy we say the earth, [wind], water and fire, the four elements. The world is produced by the five elements, then the table has five elements. That is its own energy and power or substance to produce itself. That is a very common [belief].
+In other words, according to the senses, the table exists by its nature, by its own energy, by its own substance. In philosophy we say the earth, [wind], water and fire, the four elements. The world is produced by the five elements, then the table has five elements. That is its own energy and power or substance to produce itself. That is a very common [belief].
 
 But Buddhism talks about the teaching of the truth of interdependent co-origination, which means that there is nothing which every single being is produced by its own energy or nature or substance, but by myriad, myriad conditions, going and coming together at super-speed. So we don’t know! The table doesn’t have its own nature, its own power. Even a seed, a pumpkin seed or poppy seed, doesn’t have its own nature to produce. But a seed grows by... well, its own power, but on the other hand, [by] lots of energies around.
 
