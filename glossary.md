@@ -309,7 +309,7 @@ Dharma as action, activity.
 ## Dhātu
 
 - [Save All Sentient Beings (26:00)](1980-03-15-Save-All-Sentient-Beings#2600)
-- [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+- [Genjokoan: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
 ## Diamond Sutra
 

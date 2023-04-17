@@ -1,5 +1,5 @@
 ---
-title: "A, B, and C Worlds"
+title: "Genjokoan: A, B, and C Worlds"
 description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
@@ -32,7 +32,7 @@ Next he says,
 >
 > > (From “The Issue at Hand” translated by Thomas Cleary, with some word changes. The text is available on  [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 
-Three sentences here. Let’s say [...] the first one, according to my terms, mentions the *A world*. *A world*, *B world*, *C world*; the first sentence is *A world*. That is, [Dogen Zenji](glossary#dogen) says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, the seen world, that is the *A world*, the mundane world, simply speaking.
+Three sentences here. Let’s say [...] the first one, according to my terms, [refers to] the *A world*. *A world*, *B world*, *C world*; the first sentence is *A world*. That is, [Dogen Zenji](glossary#dogen) says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, the seen world, that is the *A world*, the mundane world, simply speaking.
 
 Then second is *B world*. Dogen says, “When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.” *B world* is the spiritual world, simply speaking. 
 
