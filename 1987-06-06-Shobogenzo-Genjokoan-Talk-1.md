@@ -16,27 +16,27 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 <a name="000"></a>
 #### 0:00 start of recording
 
-At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan), for which you have the textbook. The title is, in English, “The Issue At Hand”. (Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
+At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan). You have the textbook; the title in English is “The Issue At Hand.” (Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 
-There are two crucial points in practicing and studying [Buddhism](glossary#buddhism) in general. The first one is the practice of egolessness. I don’t know how I can say it; you don’t understand “the practice of egolessness”... or excuse me, probably you have questions how you should practice egolessness. But anyway, temporarily I’ll use [the term] *the practice of egolessness*. 
+There are two crucial points in practicing and studying [Buddhism](glossary#buddhism) in general. The first one is the practice of egolessness. I don’t know how I can say it; you don’t understand “the practice of egolessness”... or excuse me, [I should say,] probably you have questions how you should practice egolessness. But anyway, temporarily I’ll use [the term] *the practice of egolessness*. 
 
-In the early development of Buddhism, they used the term *anatman* – that means “[no-self](glossary#no-self)”. I use *no-self* and *egolessness* with almost the same meaning. And in relation with idea of egolessness or no-self, there is another teaching called [karma](glossary#karma). That is a little bit complicated. If you see the idea of karma in terms of Buddhist history, it is very difficult for us to understand karma very clearly, because that idea has been connected with the teaching of original Indian thought based on the *Upanishads* and *Bhagavad Gita*, et cetera. [Buddha](glossary#buddha) didn’t ignore the original Indian thought, he accepted it smoothly, but he digested that [concept of] *anatman* in a different way. Well, I don’t want to explain this now, so I think you should [just] remember that the teaching of *anatman* or *no-self* is little bit complicated, if you try to understand what is the point of egolessness or no-self according to the development of Buddhist teaching. But now I want to study egolessness focusing on “The Issue At Hand,” *Genjokoan*, taught by Dogen.
+In the early development of Buddhism, they used the term *anatman*; that means “[no-self](glossary#no-self)”. I use *no-self* and *egolessness* with almost the same meaning. And in relation with idea of egolessness or no-self, there is another teaching called [karma](glossary#karma). That is a little bit complicated. If you see the idea of karma in terms of Buddhist history, it is very difficult for us to understand karma very clearly, because that idea has been connected with the teaching of original Indian thought based on the *Upanishads* and *Bhagavad Gita*, et cetera. [Buddha](glossary#buddha) didn’t ignore the original Indian thought, he accepted it smoothly, but he digested that [concept of] *anatman* in a different way. Well, I don’t want to explain this now, so I think you should [just] remember that the teaching of *anatman* or *no-self* is little bit complicated, if you try to understand what is the point of egolessness or no-self according to the development of Buddhist teaching. But now I want to study egolessness focusing on “The Issue At Hand,” *Genjokoan*, taught by Dogen.
 
 #### 4:34
 
-The first crucial point in Buddhism is to practice egolessness or no-self. Simply speaking, egolessness or no-self is not to deny the existence of the self, but to go beyond, or to be *free*. Or, to go *deeply* into the self. And then the deepest level of existence, ego or the self, is something cosmic, something universal, which is directly connected with your five [skandhas](glossary#skandha), six senses, and eight consciousnesses, et cetera. And [you can] experience it very clearly, and you can manifest it, without moving or without transforming anything, or without breaking [anything], even a speck of dust. Self is self, but self is acting or manifesting completely in [a] productive state of human action. That is “cosmic self,” we say. If you go really deeply into the self, finally you can see. Okay? 
+The first crucial point in Buddhism is to practice egolessness or no-self. Simply speaking, egolessness or no-self is not to deny the existence of the self, but to go beyond, or to be *free*. Or, to go *deeply* into the self, and then the deepest level of existence, ego or the self, is something *cosmic*, something universal, which is directly connected with your five [skandhas](glossary#skandha), six senses, and eight consciousnesses, et cetera. And [you can] experience it very clearly, and you can manifest it, without moving or without transforming anything, or without breaking [anything], even a speck of dust. Self is self, but self is acting or manifesting completely in [a] productive state of human action. That is *cosmic self*, we say. If you go really deeply into the self, finally you can see [this].
 
-But temporarily we call [it] egolessness. That’s why, ego is there, but no-self, not-ego. “Not” in this case means to be free, to be not restricted by anything. The self is there, the self is not destroyed or restricted, but [it is] very productive, from day to day. 
+But temporarily we call [it] egolessness. [...] Ego is there, but [we say] no-self, not-ego. *Not* in this case means to be free, to be not restricted by anything. The self is there, the self is not destroyed or restricted, but [it is] very productive, from day to day. 
 
-So, it’s a little bit complicated, a little bit contradictory situation, if you try to understand the total picture of egolessness. That is, intellectually, a little bit contradictory state of the function of the ego, the function of a self. [If] you study all the Buddhist scriptures, Buddha mentions to deny the ego, but on the other hand, Buddha emphasizes how important the ego is. So that ego is not the small scale of ego, but the big scale of ego. So even though you study all the Buddhist scriptures, [it is a] very contradictory situation of understanding of ego. [It is] two things. 
+So it’s a little bit complicated, a little bit [of a] contradictory situation, if you try to understand the total picture of egolessness. Intellectually, that is a little bit contradictory, [the] state [or] the function of the ego, the function of a self. [If] you study all the Buddhist scriptures, Buddha says to deny the ego, but on the other hand, Buddha emphasizes how important the ego is. That ego is not the small scale of ego, but the big scale of ego. So even though you study all the Buddhist scriptures, [it is a] very contradictory situation of understanding of ego. [It is] two things. 
 
 So [egolessness is] not merely to deny or destroy ego. Usually people misunderstand the teaching of egolessness, regard it as a way to destroy, or ignore, or keep away from. But it is not. 
 
 #### 9:20
 
-So I think the first crucial point is to practice egolessness; the second crucial point is to see how you can practice it. 
+I think the first crucial point is to practice egolessness; the second crucial point is to see how you can practice it. 
 
-So generally speaking, probably for most people that have the chance to hear the teaching of Buddhism, it is based on two points: wisdom and compassion. I think all of you know [those]. If you are asked by somebody, “What is Buddhism,” maybe you can say, “Buddhism is wisdom and compassion.” Those are the contents, the quality of Buddha’s teaching, [that] has been handed down to human beings from generation to generation, in whatever ages we are facing. 
+Generally speaking, for most people that have the chance to hear the teaching of Buddhism, it is based on two points: wisdom and compassion. I think all of you know [that]. If you are asked by somebody, “What is Buddhism,” maybe you can say, “Buddhism is wisdom and compassion.” Those are the contents, the quality of Buddha’s teaching, [that] has been handed down to human beings from generation to generation, in whatever ages we are facing. 
 
 But according to me, maybe wisdom and compassion is still a pretty theoretical teaching. We *seem* to understand it, but compassion is not something all of you understand exactly. So, I want to use another term. This term will probably make you more confused. That’s alright. But anyway, let’s see these two crucial points from a different angle. 
 
@@ -64,7 +64,7 @@ Are you familiar with salvation? What do you understand [from the word] salvatio
 
 **Person**: I see salvation as more positive. Expressing gratitude and joyfulness...
  
-**Katagiri**: Great. That's an interesting point. Okay. More positive. Positive life is including the undesirable world or desirable world. Including all, otherwise you cannot express or manifest a positive, productive life. So that's one way. Any other?
+**Katagiri**: Great. That's an interesting point. More positive. Positive life is including the undesirable world or desirable world. Including all, otherwise you cannot express or manifest a positive, productive life. So that's one way. Any other?
 
 Speak up, that's alright. Anything? How do you understand it? 
 
@@ -88,7 +88,7 @@ Speak up, that's alright. Anything? How do you understand it?
 
 Okay, any other person?
 
-**Person**: It could be also positively being included.
+**Person**: It could also be positively being included.
 
 **Katagiri**: Being included ...?
 
@@ -100,7 +100,7 @@ Okay, any other person?
 
 **Katagiri**: Would you say that once more? Salvation is what?
 
-**Person 8**: The saving or the rescuing of sentient beings from suffering.
+**Person**: The saving or the rescuing of sentient beings from suffering.
 
 **Katagiri**: Oh, I see. 
 
@@ -110,7 +110,7 @@ But, at that time, how do you feel, directly, from that? That is the point. I’
 
 **Katagiri**: Peace! That’s it. If you use the usual term: peace. 
 
-But peace is very popular. The more something is popular, the more people misunderstand it. But if something is not popular, then people are more careful to understand it. This is the human world. *[He chuckles.]* 
+But peace is very popular. The more something is popular, the more people misunderstand it. If something is not popular, then people are more careful to understand it. This is the human world. *[He chuckles.]* 
 
 Buddhism is not popular now; that’s why you really struggle, paying attention what Buddhism is, what your life is. Being free from existing philosophy, psychology, religion, Western culture – you really pay attention carefully. But in the future, probably Buddhism could be popular in the United States. At that time, I don’t know, it could be good for you, or not. I bet you, anyway. *[Laughter.]* You could see the many people who misunderstand it. 
 
@@ -124,7 +124,7 @@ Of course, strictly speaking, the term *peace* is different from *salvation*, te
 
 **Person**: And that includes the idea of salvation, in all the senses, too.
 
-**Katagiri**: Right. Let me say like this. [With wisdom,] salvation means that the overall picture of your life must be liberated from... *anything*. This is one point.
+**Katagiri**: Right. Let me say it like this. [With wisdom,] salvation means that the overall picture of your life must be liberated from... *anything*. This is one point.
 
 The second point is that such a salvation is not something limited by any idea, any sciences, anything, but it is something alive – peacefully, harmoniously – from which you can take a deep, slow, long breath. In other words, *relief*. Very deep relief there. 
 
@@ -148,19 +148,21 @@ From salvation, you can feel this deep gratitude, and celebrating your life, wit
 
 #### 23:25
 
-Okay. Salvation. So two crucial points I mentioned, alright? Wisdom and compassion; in other words, in my terms, this is enlightenment and salvation. Salvation means peace and harmony. Peace and harmony is not idealistical, theoretical, or not talking about human life in terms of the world of conceptualization, but it is something you have to manifest from moment to moment, through the form. Okay? 
+So two crucial points I mentioned, alright? Wisdom and compassion; in other words, in my terms, this is enlightenment and salvation. Salvation means peace and harmony. Peace and harmony is not idealistical, theoretical, or not talking about human life in terms of the world of conceptualization, but it is something you have to manifest from moment to moment, through the form. Okay? 
 
 For instance: You’re sitting there. Where is the salvation? Where is the salvation, when you sit down there? I want to ask, where is the salvation? If you understand salvation, next, where is the salvation? 
 
 **Person**: Everywhere.
 
-**Katagiri**: Everywhere; yes. Only everywhere is very *vague*. *[Laughter.]* Everywhere... Where can you see that everywhere from? *[Laughter.]* When you say everywhere, who’s talking about everywhere? *You* are talking about everywhere. *[He laughs.]* So everywhere comes from here; but if you are not there, you cannot say everywhere. Do you understand? When you say *everywhere*, at that time, you are [a] really important pivot, [the] pivotal position of existence. And then with that pivotal position of your life, it is very peaceful and harmonious. At that time, you can see everywhere. But when you are very confused, you cannot see the everywhere. You are limited; that’s why you are very confused. Is that clear?
+**Katagiri**: Everywhere; yes. Only everywhere is very *vague*. *[Laughter.]* Everywhere... Where can you see that everywhere from? *[Laughter.]* When you say *everywhere*, who’s talking about everywhere? *You* are talking about everywhere. *[He laughs.]* 
 
-So when you say *everywhere*, yes we understand it, but it’s very vague, very abstract. So finally, where is *everywhere*? Where is [the] *cosmos*? Where is the universe? [If we say,] “The universe is...” – immediately we can see the universe is a word, out of our life. But it is not [our of our life]. If you see the universe like this, out of *you*, you never understand the universe. Because such a universe or cosmos is nothing but the theoretical, nothing but the world of conceptualization; that’s it. So in the conceptualization you are always playing a game; like chasing after your own tail, like a [cat](glossary#cat). 
+So everywhere comes from here; but if you are not there, you cannot say everywhere. Do you understand? When you say *everywhere*, at that time, you are [a] really important pivot, [the] pivotal position of existence. And then with that pivotal position of your life, it is very peaceful and harmonious. At that time, you can see everywhere. But when you are very confused, you cannot see the everywhere. You are limited; that’s why you are very confused. Is that clear?
+
+So when you say *everywhere*, yes we understand it, but it’s very vague, very abstract. So finally, where is *everywhere*? Where is [the] *cosmos*? Where is the universe? [If we say,] “The universe is...” – immediately we can see the universe is a word, out of our life. But it is not [our of our life]. If you see the universe like this, out of *you*, you never understand the universe. Because such a universe or cosmos is nothing but the theoretical, nothing but the world of conceptualization; that’s [all]. So in the conceptualization you are always playing a game; like chasing after your own tail, like a [cat](glossary#cat). 
 
 [We always do this.] In philosophy, in psychology, in physics, even in religion, we do it. That’s why finally, it’s [sort of] fun, but simultaneously, fun is not always fun; it’s trouble. We are fighting and killing each other, under the beautiful flag of religion. 
 
-Particularly priests. I have been a monk since I was 18 years old. I am talking about compassion and egolessness... how much do I understand egolessness? You know, my mouth is always moving, just like the croaking frog Dogen Zenji mentions, the croaking frog in the rice field. Just like a cricket at Hokyoji in the autumn. *[Some laughter.]* But, it doesn’t connect with me. Just my mouth moves, that’s it. Lots of noise. But I have never experienced directly what egolessness *is*. Do you understand? You don’t understand. *[He laughs.]* 
+Particularly priests. I have been a monk since I was 18 years old. I am talking about compassion and egolessness... how much do I understand egolessness? You know, my mouth is always moving, just like the croaking frog Dogen Zenji mentions, the croaking frog in the rice field. Just like a cricket at Hokyoji in the autumn. *[Some laughter.]* But it doesn’t connect with me. Just my mouth moves, that’s it. Lots of noise, but I have never experienced directly what egolessness *is*. Do you understand? You don’t understand. *[He laughs.]* 
 
 The question I ask you, “Do *you* understand,” it is already something questionable. But what I want to tell you is, egolessness is not something conceptualized or understandable, or [reasonable]. No, it’s not. You have to directly touch it. I don’t know, how can I say it? I have been talking about [Buddha Nature](glossary#buddha-nature), compassion, wisdom, for many, many years – but I always slip off. *Real* egolessness, *real* compassion, I haven’t realized it for a long, long time. But, talking is better than nothing. If I talk about compassion through my head, it penetrates my skin and marrow. So talking or preaching is pretty nice. But if I preach, if I teach something compassionate, and then I fully believe that “I am good Buddhist” – no way! *[He laughs.]* That’s prejudice and ego. Okay? You don’t notice. Particularly when you become priest, you must be *very* careful, very careful, because you are a person who conveys the teaching of egolessness to others, by which people must be relieved and liberated, and guided to have a productive life. But we don’t do it.
 
