@@ -164,6 +164,14 @@ That means constantly take care of the unmanifested karma you have done. Because
 
 So very naturally, you can see your life not only in terms of manifested karma, but also unmanifested karma which manifested karma is backed by. So very naturally you can see your life extending to the beginningless past and endless future. This is called *eko*, or *virtuous quality*, or “learn that one withdraws one step and turns the light inward on oneself.” Very naturally that means that you can learn humility, and modesty, compassion, toward oneself and another. 
 
+(Transcriber’s Note: From the [Terebess Glossary of Zen Terms](https://terebess.hu/zen/szoto/szotar/szotar.html):
+
+Ekō　回向 The dedication read after recitation of a sutra, to direct the merit gained from the recitation to a certain person or group.
+ 
+Ekō henshō 回光返照 Turning the Light Around and Shining Back; “turn around your light and look back on the radiance.”
+
+See also [Turning the Light Around and Shining Back: ekō henshō](https://terebess.hu/zen/szoto/szotar/BackStepLight.pdf) from the same source.)
+
 That’s why here it says, “That flesh is a great bodhisattva who had bestowed abundant benefits and happiness on all beings.” And also Dogen Zenji comments on this, saying, “As it shows, we should always aspire to reward those to whom we are indebted. At that same time, however, we shouldn’t seek any reward from those who are indebted to us.” This is exactly the same as I have mentioned. 
 
 #### 1:13:17
