@@ -127,11 +127,11 @@ And then next moment, consciousness joins with it, and then we don’t understan
 
 But intuition is still intuition, still *part* of consciousness. Function is a little different. 
 
-So if consciousness joins with the function of the sense organs, sense object, then consciousness makes everything narrow, for consciousness just focuses on one thing. And then we say, “Aha. That is the sound of the gong.” That is a judgement; evaluation. Do you like it? Next moment, immediately: do you like it, or don’t you like it. [You say,] “I don’t like it.” But you have to be here, so you cannot escape from hearing the sound. So you hate it, you hate it, you hate it... finally, you scream. If you scream, screaming leads you into bewilderment, so you cannot stay here. So finally, you leave. Something like this is stumbling, always. That is human suffering, constantly. 
+So if consciousness joins with the function of the sense organs, sense object, then consciousness makes everything narrow, for consciousness just focuses on one thing. And then we say, “Aha. That is the sound of the gong.” That is a judgement; evaluation. Next moment, immediately, do you like it, or don’t you like it? [You say,] “I don’t like it.” But you have to be here, so you cannot escape from hearing the sound. So you hate it, you hate it, you hate it... finally, you scream. If you scream, screaming leads you into bewilderment, so you cannot stay here. So finally, you leave. Something like this is stumbling, always. That is human suffering, constantly. 
 
 So all you have to do is, if you hear the sound, you become one. You become one with the sound in terms of functioning itself. At that time, the functioning of your ear should be communicated with not only your object, but also the whole world. This is the function of your sense organs. [It is] very natural. 
 
-So at that time, you become one with the sound. At that time, just the sound there. So your ear doesn’t manifest itself, but it’s behind. So it’s like a mute. But the sound is alive, with you, simultaneously. 
+So at that time, you become one with the sound. At that time, just the sound there. So your ear doesn’t manifest itself, but it’s behind [the sound]. So it’s like a mute. But the sound is alive, with you, simultaneously. 
 
 So this sentence is kind of a criticism, but it’s not criticism, it is really praise, admiring this monk. 
 
