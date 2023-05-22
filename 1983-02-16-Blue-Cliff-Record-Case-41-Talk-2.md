@@ -5,7 +5,7 @@ description: February 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1983) \| 
 [Previous](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
 
 ## Transcript
 
@@ -13,4 +13,4 @@ description: February 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [Home](index) \| [List](list#1983) \| 
 [Previous](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
