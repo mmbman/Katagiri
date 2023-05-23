@@ -9,7 +9,7 @@ description: March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 ## Summary
 
-Katagiri Roshi explores the pointer to Case 42 of *Blue Cliff Record*, in which Layman P’ang says, “Good snowflakes—they don’t fall in any other place.” As it says in the *Song of Jewel Mirror Samadhi*, “Inquiry and response come up together.” That means if we really devote ourselves to doing zazen beyond our evaluation, accepting totally, we manifest ourselves in a totally appropriate way. We must be present in the realm of silence so that our life springs forth. Very naturally, everything will respond. Even if we don’t say anything with our mouth, our whole body speaks volumes. Buddhism is not something divine, apart from us; the Buddha has to go down to the human world and work. 
+Katagiri Roshi explores the pointer to Case 42 of *Blue Cliff Record*, in which Layman P’ang says, “Good snowflakes—they don’t fall in any other place.” As it says in the *Song of Jewel Mirror Samadhi*, “Inquiry and response come up together.” That means if we really devote ourselves to doing zazen beyond our evaluation, accepting totally, we manifest ourselves in a totally appropriate way. We must be present in the realm of silence so that our life springs forth. Very naturally, everything will respond. Buddhism is not something divine, apart from us; the Buddha has to go down to the human world and work. Even if we don’t say anything with our mouth, our whole body speaks volumes. 
 
 ## Transcript
 
@@ -37,7 +37,7 @@ Case 42: “Layman P’ang’s Good Snowflakes”. The pointer:
 
 In the original text it says [tan ke]; it means bringing it out unique. *Tan* means directly, tersely. And [tan ke dokuro] means dealing with it simply. So “bringing it out unique [and alone]” means bringing it out directly and tersely, and dealing with it simply. 
 
-If you read Zen texts they sometimes say, “Going to where the light springs forth, immediately you have to speak up.” *A place where light springs forth* is no space, no room [where] something is conceptualized, because light springs forth constantly. So you have to always be going to where the light springs forth. It’s constantly moving, alive. And then that is, I always say, nothing to say, nothing to comment [on]. But you have to go there, [and] you have to immediately speak up, you have to say [something]. Even if you don’t say anything, your body, your hands, your posture speak up anyway. 
+If you read Zen texts they sometimes say, “Going to where the light springs forth, immediately you have to speak up.” *A place where light springs forth* is no space, no room [where] something is conceptualized, because light springs forth constantly, so you have to always be going to where the light springs forth. It’s constantly moving, alive. And then that is, I always say, nothing to say, nothing to comment [on]. But you have to go there, [and] you have to immediately speak up, you have to say [something]. Even if you don’t say anything, your body, your hands, your posture speak up anyway. 
 
 So first of all, we have to move to where light springs forth. That means in the realm of *gassho*, your life must spring forth. That means you have to be alive, beyond your like or dislike. Because you have to do [it]. If you have to do [it], you have to do [it]; no excuse. If you don’t like it, you can go away, but if you are here, you have to do it. So in the realm of gassho, you have to go to where your life must spring forth. 
 
