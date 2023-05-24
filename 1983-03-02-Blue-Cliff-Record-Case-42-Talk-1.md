@@ -15,8 +15,6 @@ Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’
 
 (Archive Issue: The online audio ends abruptly after about 30 minutes.)
 
-**This transcript is in rough draft stage.**
-
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
 #### 0:00 start of recording
