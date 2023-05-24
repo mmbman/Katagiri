@@ -304,7 +304,7 @@ Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjo
 ### [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
 #### March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’ang says, “Good snowflakes—they don’t fall in any other place.” As it says in the *Song of the Jewel Mirror Samadhi*, “Inquiry and response come up together.” If we really devote ourselves to doing zazen beyond our evaluation, accepting totally, we manifest ourselves in a totally appropriate way. Very naturally, everything will respond. We must jump into the realm of silence so that our life springs forth. Even if we don’t say anything with our mouth, our whole body speaks volumes. Buddha is not something divine, apart from us; Buddha has to go down to the human world and work. 
+Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’ang says, “Good snowflakes—they don’t fall in any other place.” As it says in the *Song of the Jewel Mirror Samadhi*, “Inquiry and response come up together.” If we really devote ourselves to doing zazen beyond our evaluation, accepting totally, we manifest ourselves in a totally appropriate way, and very naturally, everything will respond. We must jump into the realm of silence so that our life springs forth. Even if we don’t say anything with our mouth, our whole body speaks volumes. Buddha is not something divine, apart from us; Buddha has to go down to the human world and work. 
 
 ---
 
