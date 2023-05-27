@@ -147,9 +147,9 @@ But intuition is wonderful, because [in] intuition you immediately get the total
 
 But intuition is still intuition, still *part* of consciousness. Function is a little different. 
 
-So if consciousness joins with the function of the sense organs, sense object, then consciousness makes everything narrow, for consciousness just focuses on one thing. And then we say, “Aha. That is the sound of the gong.” That is a judgement; evaluation. Next moment, immediately, do you like it, or don’t you like it? [You say,] “I don’t like it.” But you have to be here, so you cannot escape from hearing the sound. So you hate it, you hate it, you hate it... finally, you scream. If you scream, screaming leads you into bewilderment, so you cannot stay here. So finally, you leave. Something like this is stumbling, always. That is human suffering, constantly. 
+So if consciousness joins with the function of the sense organs, sense object, then consciousness makes everything narrow, for consciousness just focuses on one thing. And then we say, “Aha. That is the sound of the gong.” That is a judgement, evaluation. Next moment, immediately, do you like it? Or don’t you like it? [You say,] “I don’t like it.” But you have to be here, so you cannot escape from hearing the sound. So you hate it, you hate it, you hate it... finally, you scream. If you scream, screaming leads you into bewilderment, so you cannot stay here. So finally, you leave. Something like this is stumbling, always. That is human suffering, constantly. 
 
-So all you have to do is, if you hear the sound, you become one. You become one with the sound in terms of functioning itself. At that time, the functioning of your ear should be communicated with not only your object, but also the whole world. This is the function of your sense organs. [It is] very natural. 
+So all you have to do is, if you hear the sound, you become one. You become one with the sound in terms of functioning itself. At that time, the functioning of your ear [is communicating] with not only your object, but also the whole world. This is the function of your sense organs. [It is] very natural. 
 
 So at that time, you become one with the sound. At that time, just the sound there. So your ear doesn’t manifest itself, but it’s behind [the sound]. So it’s like a mute. But the sound is alive, with you, simultaneously. 
 
@@ -161,7 +161,7 @@ And then,
 
 > Hsueh Tou said besides, “When P’ang first spoke I just would have made a snowball and hit him with it.”
 
-“I just would have made a snowball and hit him with it” means just the snow. It means snow becomes snow. It means let snow become as snow really is. When you see the snow, you become one with the snow. That’s all you have to do. This is function. 
+“I just would have made a snowball and hit him with it” means just the snow. It means snow becomes snow! It means let snow become as snow really is. When you see the snow, you become one with the snow, that’s all you have to do. This is function. 
 
 By functioning, there is naturally [the] truth of not ignoring cause and effect. Very naturally within the functioning of your life with the snow, very naturally there is the development of your life. And also the functioning of your feeling, and emotions, and consciousness, your physical situation – all works there. So first of all, you have to grab the snow, becoming one with it. That’s all we have to do. 
 
@@ -175,9 +175,9 @@ Do you have some questions?
 
 **Question**: Could you give an example of falling into cause and effect? 
 
-**Answer**: *Not falling into* means you cannot fall into it, anyway. *[He chuckles.]* If you fall into causation, you don’t understand causation. So you *cannot* fall into it. 
+**Katagiri**:  [...] You cannot fall into it, anyway. *[He chuckles.]* If you fall into causation, you don’t understand causation. So you *cannot* fall into it. 
 
-On the other hand, *you cannot fall into it* doesn’t mean you should completely ignore causation. You cannot ignore; it doesn’t mean ignore. So that is the real meaning of causation. 
+On the other hand, *you cannot fall into it* doesn’t mean you should completely ignore causation. So you cannot ignore it; it doesn’t mean ignore. That is the real meaning of causation. 
 
 For instance, my wallet or purse falls on the ground. There is not much money, anyway. *[Laughter.]* Anyway, my wallet is my wallet: if my wallet falls on the ground, I have to pick it up and put it in my pocket. But let’s look at this very simple example. 
 
