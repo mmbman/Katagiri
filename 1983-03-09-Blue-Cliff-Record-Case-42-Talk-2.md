@@ -179,7 +179,7 @@ Do you have some questions?
 
 On the other hand, *you cannot fall into it* doesn’t mean you should completely ignore causation. So you cannot ignore it; it doesn’t mean ignore. That is the real meaning of causation. 
 
-For instance, my wallet or purse falls on the ground. There is not much money, anyway. *[Laughter.]* Anyway, my wallet is my wallet: if my wallet falls on the ground, I have to pick it up and put it in my pocket. But let’s look at this very simple example. 
+For instance, my wallet or purse falls on the ground. There is not much money, anyway. *[Laughter.]* Anyway, my wallet is my wallet: if my wallet falls on the ground, I have to pick it up and put it in my pocket. But let’s look at this very simple example. (Transcriber’s Note: Katagiri Roshi actually says “purse” most of the time in this example, but since he talks about putting it in his pocket, I assume he meant “wallet”.)
 
 According to *not falling into causation*, *my wallet is on the ground* is everything belongs to me. The wallet I had or the wallet on the ground are all mine. So from this point, the wallet I had and the wallet falls on the ground in relation with cause and effect. But all are mine. So finally, all I have to do is, I have to take care of the wallet as my life. So from this point, I cannot fall into causation; cause and effect are the same. But all I have to do is, the two wallets, cause and effect are the same, because they belong to me. But what do I mean? How do we understand this? We understand through the *function*, so-called *fall*, and *pick up*. It falls, that’s why I have to pick it up. 
 
@@ -191,11 +191,13 @@ Everything is just like this. Do you understand?
 
 The two wallets are the same. And [drop] and pick up all belong to me. So everything, same thing. So cause and effect [are] the same. From this point, you cannot fall into causation. That means equality. 
 
-But you cannot mix up everything. Because, I [dropped it]. It’s functioning anyway. Wallet is functioning. Going down to the ground, and going up from the ground, to me, that is picking up. Everything is function. In terms of functioning, all I have to do is I must be I, as I really am, in relation with the wallet. How? I should be one with the wallet. What is that? Pick it up. Just pick it up. Why do you have to pick it up? Because if you don’t pick it up, you give people trouble. So you have to pick it up. That is cause and effect. You cannot ignore cause and effect, because you live with all sentient beings. But on the other hand, there is no cause and effect, because everything belongs to me. You don’t care; it’s not your business! So if I want to pick it up, I can pick it up; if I don’t want to pick it up, I don’t want to pick it up! But that is completely ignoring the reason of cause and effect, so you [give] people trouble. 
+But you cannot mix up everything. Because, I [dropped it]. It’s functioning anyway. Wallet is functioning, going down to the ground; and going up from the ground to me, that is picking up. Everything is function. In terms of functioning, all I have to do is I must be I, as I really am, in relation with the wallet. How? I should be one with the wallet. What is that? Pick it up. Just pick it up. Why do you have to pick it up? Because if you don’t pick it up, you give people trouble. So you have to pick it up. That is cause and effect. You cannot ignore cause and effect, because you live with all sentient beings. But on the other hand, there is no cause and effect, because everything belongs to me. You don’t care; it’s not your business! So if I want to pick it up, I can pick it up; if I don’t want to pick it up, I don’t want to pick it up! But that is completely ignoring the rhythm of cause and effect, so you [give] people trouble. 
 
-So you cannot ignore cause and effect, that’s why you have to just be one as wallet. I have to be what I am. What do you mean? *I* becomes one with the wallet. To become one with the wallet means pick it up. Why do you pick it up? Because I have to live with all sentient beings. I cannot give any trouble to anybody. Regardless of whether my motivation is good or bad, someone picks it up and put in their pocket is already trouble. So you have to pick it up. This is life according to cause and effect. But on the other hand, everything is yours. Everything is yours means you can [do] whatever you do. You can go everywhere. 
+You cannot ignore cause and effect, that’s why you have to just be one as wallet. I have to be what I am. What do you mean? *I* becomes one with the wallet. To become one with the wallet means pick it up. Why do you pick it up? Because I have to live with all sentient beings. I cannot give any trouble to anybody. Regardless of whether my motivation is good or bad, someone picking it up and putting in their pocket is already trouble. So you have to pick it up. This is life according to cause and effect. 
 
-But you cannot go everywhere. Because every day, you drop something and you have to pick it up. Because drop means that you act every day. *You act* means you drop something, you leave your trace. So you have to pick up. If you don’t, you give trouble to people. 
+But on the other hand, everything is yours. Everything is yours means you can [do] whatever you do. You can go everywhere.
+
+But you cannot go everywhere. Because every day, you drop something and you have to pick it up. Because *drop* means that you act every day. *You act* means you drop something, you leave your trace. So you have to pick up. If you don’t, you give trouble to people. 
 
 From moment to moment, you have to take responsibility for your life like this, but on the other hand, every moment you are free. So you can go anywhere, you can do anything, as you like. But on the other hand, there is [that] you cannot do as you like, because you have to live with all sentient beings. 
 
@@ -203,7 +205,7 @@ From moment to moment, you have to take responsibility for your life like this, 
 
 **Question**: Hojo-san? In that example, you dropping your wallet, if you got mad and just dropped it and it was a problem to pick it up, or somebody else might pick it up instead, is that a form of falling into causality? 
 
-**Katagiri**: Somebody pick it up. *[He laughs.]* 
+**Katagiri**: Somebody [picks] it up. *[He laughs.]* *[Laughter.]*
 
 **Question**: If you get angry because of the inconvenience?
 
@@ -215,19 +217,19 @@ From moment to moment, you have to take responsibility for your life like this, 
 
 **Question**: Yes, angry! *[Laughter]*
 
-**Katagiri**: *[Chuckles.]* Well, *angry* is not the angry you think. Angry is nothing but energy, because you cannot control it, don’t you think so? It comes up. *[He laughs.]* Angry is energy. From this point, did you make the anger? No. You didn’t make it.  You don’t know exactly from where it comes. But it comes because under the conditions, it comes up. So in terms of this function of the anger, only when the time is right, conditions arranged, very naturally there is cause and effect. Okay? Immediate cause and effect, because conditions are there, and anger comes up. That is the function of anger. 
+**Katagiri**: *[Chuckles.]* Well, *angry* is not the angry you think. Angry is nothing but energy, because you cannot control it, don’t you think so? It just comes up. *[He laughs.]* Anger is energy. From this point, did you make the anger? No. You didn’t make it. You don’t know exactly from where it comes. But it comes because under the conditions, it comes up. So in terms of this function of the anger, only when the time is right, conditions arranged, very naturally there is cause and effect. Okay? Immediate cause and effect, because conditions are there, and anger comes up. That is the function of anger. 
 
 So according to the function of that anger, that means anger becomes anger. What do I mean? Completely beyond your control. Anger becomes anger means it’s beyond your control, and that means anger is nothing but energy. 
 
-**Question**: Yeah, I see that. I guess I was looking at it as maybe an indication of somebody falling into cause and effect, of losing... Maybe I’m not sure exactly what it means to fall into cause and effect. 
+**Question**: Yeah, I see that. I guess I was looking at it as maybe an indication of somebody falling into cause and effect... of losing... Maybe I’m not sure exactly what it means to fall into cause and effect. 
 
-**Katagiri**: *Fall into cause and effect* means you just see the one-sided idea of cause and effect. But cause and effect is not an idea or concept which your life can be molded into. No. So very naturally cause and effect becomes a kind of symbol of a controller. Do you understand? That control is coming from you, but it’s not a controller. So if you see the cause and effect as a controller, you become sick; sick of cause and effect, sick of causation. 
+**Katagiri**: *Fall into cause and effect* means you just see the one-sided idea of cause and effect. But cause and effect is not an idea or concept which your life can be molded into. No. So very naturally cause and effect becomes a kind of symbol of a controller. Do you understand? That control is coming from you, but it’s not a controller. So if you see the cause and effect as a controller, you become sick: sick of cause and effect, sick of causation. 
 
-For instance, zazen. Zen is *just do it*. And then you’re always saying, “Just do it. Just do it.” *Just do it* becomes conceptualized. *[He laughs.]* That is called *sick of zen* (or perhaps *Zen sickness*). So we have to show something else, a different one. If you fall into Zen sickness, sick of just doing, you have to show something. That is study. Keep your mouth shut, study. Use your head. 
+For instance, zazen. Zen is *just do it*. And then you’re always saying, “Just do it. Just do it.” *Just do it* becomes conceptualized. *[He laughs.]* That is called *sick of zen* (or perhaps *Zen sickness*). So we have to show something else, a different one. If you fall into sick of Zen, sick of just doing, you have to show something. That is study. Keep your mouth shut, study. Use your head. 
 
 That is called *ittengo*, which means *one turning word*. So that is not falling into, but not ignoring: add a turning word. 
 
-So we are always [...] becoming sick. If you understand emptiness, you become sick of emptiness. *[He laughs.]* Particularly if you understand emptiness and it works in your life, you really become sick. Oh my goodness, it’s worse! [So,] “You should do it, you should do it!” Teaching is already you become sick, you know? If you become sick, then you can teach, anyway. *[He laughs.]* That’s why the teacher must be careful. Do you understand this? *[He chuckles some more.]*
+So we are always [...] becoming sick. If you understand emptiness, you become sick of emptiness. *[He laughs.]* Particularly if you understand emptiness and it works in your life, you really become sick. Oh my goodness, it’s worse! [So you say,] “You should do it, you should do it!” Teaching is already you become sick, you know? If you become sick, then you can teach, anyway. *[He laughs.]* That’s why the teacher must be careful. Do you understand this? *[He chuckles some more.]*
 
 But teaching is not good because... Well, the important point is that *you do*, you [initiate], that is best. But if [you are] teaching, and *then* you do, that is not good. 
 
