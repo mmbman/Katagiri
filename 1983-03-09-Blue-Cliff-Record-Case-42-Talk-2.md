@@ -25,13 +25,11 @@ description: March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 #### 0:00 start of recording
 
-... but transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything why everything moves and changes. That is the law of causation: cause and effect. 
+... but transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything why everything moves and changes. That is the law of causation: cause and effect. And also, cause and effect has its own rhythm. So you have to understand cause and effect. 
 
-And also, cause and effect has its own reason. 
+Simply speaking, cause and effect is... well, through cause and effect we have to understand human karmic life: personal karmic life and also non-personal karmic life, common karmic life. [There is] common retribution [and] personal retribution, through the law of causation. Personal retribution is if you do something good, you can get something good as a result. But common retribution [is that] if you do something, your behavior really affects others, affects society. So through the teaching of the cause and effect we have to understand karmic life – personal karmic life and also common, not-personal karmic life: influencing everybody, and also society, and nations, and birds and trees. That is a very important teaching.
 
-So you have to understand cause and effect. Simply speaking, cause and effect is... well, through cause and effect we have to understand human karmic life: personal karmic life and also non-personal karmic life, common karmic life. [There is] common retribution [and] personal retribution, through the law of causation. Personal retribution is if you do something good, you can get something good as a result. But common retribution [is that] if you do something, your behavior really affects others, affects society. So through the teaching of the cause and effect we have to understand karmic life – personal karmic life and also common, not-personal karmic life: influencing everybody, and also society, and nations, and birds and trees. That is a very important teaching.
-
-But anyway, today I want to say a little bit [more] about this cause and effect, because cause and effect has its own reason. That reason is *not falling into cause and effect, but not evading or ignoring cause and effect*. Simply speaking, you cannot ignore cause and effect, but on the other hand you cannot be bogged down with cause and effect, you must be free from cause and effect. This is a very important [consideration].
+But anyway, today I want to say a little bit [more] about this cause and effect, because cause and effect has its own rhythm. That rhythm is *not falling into cause and effect, but not evading or ignoring cause and effect*. Simply speaking, you cannot ignore cause and effect, but on the other hand you cannot be bogged down with cause and effect, you must be free from cause and effect. This is a very important [matter].
 
 #### 3:04
 
