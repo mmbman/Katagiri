@@ -15,6 +15,15 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 ---
 
+*Posted May 29, 2023.*
+
+### [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
+#### March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi discusses the rhythm of causation, which is *not falling into cause and effect* and *not ignoring cause and effect*.  Representing cause and effect is Layman P’ang; representing freedom from cause and effect or *emptiness* is the monk Ch’uan. If you understand emptiness, you can become sick of emptiness. To avoid Zen sickness, offer a turning word. Also: Teaching without doing is not a good deal. 
+
+---
+
 *Posted May 24, 2023.*
 
 ### [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
