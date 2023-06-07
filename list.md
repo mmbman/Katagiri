@@ -283,7 +283,7 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 
 1. The Awakening of Faith 3/7/86
 
-1. Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1
+1. [Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
 
 1. The Awakening of Faith 3/14/86
 
