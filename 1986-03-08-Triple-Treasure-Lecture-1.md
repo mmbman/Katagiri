@@ -182,13 +182,13 @@ You know the pilgrimage in Japan, or India? Religious pilgrimage is very helpful
 
 #### 1:01:00
 
-**Question**: When there’s a ritual about taking refuge... *[inaudible]*
+**Question**: When there’s a ritual about taking refuge in the Three Treasures... *[inaudible]*
 
-**Katagiri**: Result? Result of ritual? Oh yes, in a sense, result of ritual. But if you think of result of ritual, I think you should think also of the cause of ritual. The cause of ritual is you. *[He chuckles.]* *You* have to do it. And then you can see the result of ritual. Without cause of ritual, you cannot see the result of ritual. Do you understand? 
+**Katagiri**: [Is there a] result of ritual? Oh yes, in a sense, result of ritual; but if you think of [the] result of ritual, I think you should think also of the cause of ritual. The cause of ritual is *you*. *[He chuckles.]* *You* have to do it. And then you can see the result of ritual. Without the cause of ritual, you cannot see the result of ritual. Do you understand? 
 
-If you really want to have a result of ritual, you have to accept the *cause* of ritual. Cause of ritual, and process and conditions of rituals, around the cause. So that means what? That means actual practice of taking refuge itself. That is the cause, and conditions around the cause. So the cause of the ritual so-called taking refuge in the Buddha means you have to just chant. Initiatively, that is a cause of ritual. But on the other hand, you have to take care of your emotions, feelings, and circumstances, et cetera. So you have to practice the Triple Treasure as a ritual with your physical body, mental situation, and also all circumstances. And then, there is a result.
+If you really want to have a result of ritual, you have to accept the *cause* of ritual. Cause of ritual, and the process and conditions of rituals around the cause. So that means what? That means the actual practice of taking refuge itself. That is the cause, and the conditions around the cause. So the cause of the ritual called *taking refuge in the Buddha* means you have to just chant, initiatively. That is a cause of ritual. But on the other hand, you have to take care of your emotions, feelings, and circumstances, et cetera. So you have to practice the Triple Treasure as a ritual with your physical body, mental situation, and also all circumstances. And then, [there is] a result.
 
-But it’s pretty easy to stay with the result. And then, the Buddhist way is you should give the result to the universe, which you have had. That is egolessness, the practice of egolessness. It’s really the spirit of compassion: give it to somebody. Instead of arrogance and boasting of the result of the practice: “I did it,” You know, we always feel like this. It’s pretty easy for us to be cocky. Do you understand? We feel that, mentally, or in many ways. So you have to be free from that. That is so-called egolessness practice. 
+But it’s pretty easy to stay with the result. And then, the Buddhist way is you should give the result which you have had to the universe. That is egolessness, the practice of egolessness. It’s really the spirit of compassion: give it to somebody. Instead of arrogance and boasting of the result of the practice: “I did it.” *[He laughs.* You know, we always feel like this; it’s pretty easy for us to be cocky. Do you understand? We feel that, mentally, or in many ways. So you have to be free from that. That is so-called egolessness practice. 
 
 #### 1:04:21 end of recording
 
