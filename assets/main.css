@@ -4,8 +4,8 @@
 @import "{{ site.theme }}";
 
 blockquote {
-    color: #333;
-    border-left: 4px solid #333;
+    color: #333333;
+    border-left: 4px solid #333333;
     padding-left: 15px;
     font-size: 18px;
     letter-spacing: 0px;
