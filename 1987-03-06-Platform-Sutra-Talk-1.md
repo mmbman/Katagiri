@@ -1,7 +1,7 @@
 ---
 title: "Platform Sutra – Talk 1"
-description: March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
+## March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 

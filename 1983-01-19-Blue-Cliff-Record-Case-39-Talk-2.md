@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2"
-description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
+## January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1983) \| 
 [Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| 

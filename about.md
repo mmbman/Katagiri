@@ -1,6 +1,5 @@
 ---
 title: About This Website
-description:
 ---
 
 [Home](index) \| [List of Talks](list) \| [Summaries](summaries) \| [Search](search)

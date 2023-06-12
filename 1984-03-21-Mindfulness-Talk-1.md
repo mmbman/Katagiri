@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness – Talk 1"
-description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
+## March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1984) \| 
 [Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 

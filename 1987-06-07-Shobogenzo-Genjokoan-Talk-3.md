@@ -1,7 +1,7 @@
 ---
 title: "Shobogenzo Genjokoan – Talk 3 (Flow)"
-description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
+## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 

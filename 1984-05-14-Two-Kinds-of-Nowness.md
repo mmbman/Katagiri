@@ -1,7 +1,7 @@
 ---
 title: "The Awakening of Faith: Two Kinds of Nowness"
-description: May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
+## May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1984) \| 
 [Previous](1984-03-24-Mindfulness-Talk-4) \| 

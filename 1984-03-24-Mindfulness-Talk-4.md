@@ -1,7 +1,7 @@
 ---
 title: "Mindfulness – Talk 4"
-description: March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
+## March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1984) \| 
 [Previous](1984-03-23-Mindfulness-Talk-3) \| 

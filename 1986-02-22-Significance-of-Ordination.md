@@ -1,7 +1,7 @@
 ---
 title: "Lay Ordination Lecture 1 of 7: Significance of Ordination"
-description: "February 22, 1986 Dharma Talk by Dainin Katagiri Roshi"
 ---
+## February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1986) \| 
 [Previous](1985-06-22-Introduction-to-Buddhism) \| 

@@ -1,6 +1,5 @@
 ---
 title: Issues
-description:
 ---
 
 [Home](index) \| [List of Talks](list) \| [Summaries](summaries) \| [Search](search)

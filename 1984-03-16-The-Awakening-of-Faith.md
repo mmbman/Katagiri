@@ -1,12 +1,11 @@
 ---
 title: "The Awakening of Faith"
-description: March 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
+## March 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1984) \| 
 [Previous](1984-03-24-Mindfulness-Talk-4) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
-
 
 ### Transcript
 

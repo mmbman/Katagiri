@@ -1,7 +1,7 @@
 ---
 title: "Genjokoan: A, B, and C Worlds"
-description: June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
+## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1987) \| 
 [Previous](1987-06-20-Manas) \| 

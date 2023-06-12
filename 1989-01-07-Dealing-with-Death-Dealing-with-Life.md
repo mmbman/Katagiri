@@ -1,7 +1,7 @@
 ---
 title: "Dealing with Death, Dealing with Life"
-description: January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 ---
+## January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1989) \| 
 [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 

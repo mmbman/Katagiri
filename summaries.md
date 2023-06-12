@@ -1,6 +1,5 @@
 ---
 title: "Talk Summaries"
-description: 
 ---
 
 ---

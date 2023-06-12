@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 2"
-description: March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
+## March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1983) \| 
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 

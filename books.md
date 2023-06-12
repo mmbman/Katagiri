@@ -1,6 +1,5 @@
 ---
 title: Books
-description: 
 ---
 
 [List](list#appendices) \| 

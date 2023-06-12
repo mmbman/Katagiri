@@ -1,7 +1,7 @@
 ---
 title: "Shobogenzo Genjokoan – Talk 1 (Egolessness)"
-description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
+## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1987) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 

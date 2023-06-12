@@ -1,7 +1,7 @@
 ---
 title: "True Heart is Not Infatuation"
-description: January 12, 1985 Dharma Talk by Dainin Katagiri Roshi
 ---
+## January 12, 1985 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1985) \| 
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 

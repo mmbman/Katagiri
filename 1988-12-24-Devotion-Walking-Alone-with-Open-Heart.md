@@ -1,7 +1,7 @@
 ---
 title: "Devotion: Walking Alone with Open Heart"
-description: December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 ---
+## December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1988) \| 
 [Previous](1987-06-27-A-B-and-C-Worlds) \| 

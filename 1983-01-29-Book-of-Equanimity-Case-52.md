@@ -1,7 +1,7 @@
 ---
 title: "Book of Equanimity: Case 52"
-description: January 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
+## January 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1983) \| 
 [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
