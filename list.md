@@ -3,8 +3,6 @@ title: "List of Talks"
 description: 
 ---
 
-[Home](index) \| [Summaries](summaries) \| [About](about) \| [Search](search)
-
 Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989) [Appendices](#end)
 
 ### 1979
@@ -482,5 +480,3 @@ Go to: [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [19
 1. [Dealing With Death, Dealing With Life](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
 <a name="end">
-
-[Home](index) \| [Summaries](summaries) \| [About](about) \| [Search](search)
