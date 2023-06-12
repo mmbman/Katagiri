@@ -3,13 +3,7 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to Buddhist study. 
-
-- [About This Site](about)
-- [Talk Summaries](summaries)
-- [List of Talks](list)
-- [Topic Index](topics)
-- [Search](search)
+Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to Buddhist study. [About This Site](about)
 
 ## Latest Updates
 
