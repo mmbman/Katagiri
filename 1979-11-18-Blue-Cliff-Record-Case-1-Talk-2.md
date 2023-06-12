@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Ta
 description: November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
@@ -379,6 +379,6 @@ The commentary is very helpful for you, so if you have time, read the commentary
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)

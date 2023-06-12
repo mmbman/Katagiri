@@ -3,7 +3,7 @@ title: "Diamond Sutra: Emptiness and Mind"
 description: July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1980-07-23-Diamond-Sutra-Final-Lecture)
 
@@ -166,6 +166,6 @@ In the koan I told you about: not ignoring causation, cause and effect, and not 
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1980-07-23-Diamond-Sutra-Final-Lecture)

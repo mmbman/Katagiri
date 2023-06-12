@@ -3,7 +3,7 @@ title: "Introduction to Buddhism"
 description: June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1985) \| 
+[List](list#1985) \| 
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
 [Next](1986-02-22-Significance-of-Ordination)
 
@@ -193,6 +193,6 @@ Thank you very much.
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1985) \| 
+[List](list#1985) \| 
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
 [Next](1986-02-22-Significance-of-Ordination)

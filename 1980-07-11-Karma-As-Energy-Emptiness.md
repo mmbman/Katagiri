@@ -3,7 +3,7 @@ title: "Karma as Energy / Emptiness"
 description: July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
 [Next](1980-07-12-Karma-Conclusion)
 
@@ -160,6 +160,6 @@ That’s why Dogen Zenji says, “this human body is nothing but emptiness, from
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
 [Next](1980-07-12-Karma-Conclusion)

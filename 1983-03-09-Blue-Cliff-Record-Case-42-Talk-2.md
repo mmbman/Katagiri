@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 
 description: March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1983) \| 
+[List](list#1983) \| 
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
@@ -247,6 +247,6 @@ Well, that is a little bit going away [from the point]. *[He chuckles.]* But fun
 
 #### 1:12:52
 
-[Home](index) \| [List](list#1983) \| 
+[List](list#1983) \| 
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)

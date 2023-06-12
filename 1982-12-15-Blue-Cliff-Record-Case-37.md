@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the Worl
 description: December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1982) \| 
+[List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 
 [Next](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 
@@ -150,6 +150,6 @@ When I went to the missionary school in Saint Paul, I described about the truth 
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1982) \| 
+[List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 
 [Next](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)

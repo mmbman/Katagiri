@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 1"
 description: March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
@@ -61,6 +61,6 @@ So according to Dogen’s point, Buddha Nature, there are two points.
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)

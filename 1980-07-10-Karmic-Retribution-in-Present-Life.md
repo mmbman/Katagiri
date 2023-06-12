@@ -3,7 +3,7 @@ title: "Karma: Karmic Retribution in Present Life"
 description: July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
 [Next](1980-07-11-Karma-As-Energy-Emptiness)
 
@@ -194,6 +194,6 @@ That’s why Dogen Zenji also says it like this. Because all beings are benefiti
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
 [Next](1980-07-11-Karma-As-Energy-Emptiness)

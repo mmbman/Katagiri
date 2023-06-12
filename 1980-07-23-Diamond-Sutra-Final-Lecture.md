@@ -3,7 +3,7 @@ title: "Diamond Sutra: Final Lecture"
 description: July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
@@ -269,6 +269,6 @@ Unfortunately I have to go to Omaha this weekend, I cannot be the *[unintelligib
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)

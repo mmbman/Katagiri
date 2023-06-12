@@ -3,7 +3,7 @@ title: "Karma: Conclusion"
 description: July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
 [Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 
@@ -136,6 +136,6 @@ Is that okay? *[He laughs.]* So of course I can say yes, grace is interdependent
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
 [Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)

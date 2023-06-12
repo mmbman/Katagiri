@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1"
 description: April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
@@ -237,6 +237,6 @@ So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)

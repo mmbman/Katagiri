@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Tal
 description: February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1983) \| 
+[List](list#1983) \| 
 [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
 [Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
 
@@ -168,6 +168,6 @@ Very naturally that is just like energies moving. So that is called *everything 
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1983) \| 
+[List](list#1983) \| 
 [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
 [Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)

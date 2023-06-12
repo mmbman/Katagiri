@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2"
 description: May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
 [Next](1980-06-30-Karma-Two-Aspects)
 
@@ -347,6 +347,6 @@ This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1980) \| 
+[List](list#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
 [Next](1980-06-30-Karma-Two-Aspects)

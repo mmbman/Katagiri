@@ -3,7 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6"
 description: June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-13-Fukanzazengi-Talk-5) \| 
 [Next](1979-06-15-Fukanzazengi-Talk-7)
 
@@ -410,6 +410,6 @@ According to that, I told you about [Mount Sumeru](glossary#mount-sumeru). Right
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1979) \| 
+[List](list#1979) \| 
 [Previous](1979-06-13-Fukanzazengi-Talk-5) \| 
 [Next](1979-06-15-Fukanzazengi-Talk-7)

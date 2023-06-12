@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – T
 description: January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1983) \| 
+[List](list#1983) \| 
 [Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
 [Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 
@@ -89,6 +89,6 @@ In Japan there were two famous Zen Masters:  Bokusan Nishiari Zen Master (Nishia
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1983) \| 
+[List](list#1983) \| 
 [Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
 [Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)

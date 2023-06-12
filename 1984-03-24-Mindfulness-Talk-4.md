@@ -3,7 +3,7 @@ title: "Mindfulness – Talk 4"
 description: March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1984) \| 
+[List](list#1984) \| 
 [Previous](1984-03-23-Mindfulness-Talk-3) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
@@ -89,6 +89,6 @@ And then, “and make Buddha with demons.” So when you stumble over in the rea
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1984) \| 
+[List](list#1984) \| 
 [Previous](1984-03-23-Mindfulness-Talk-3) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)

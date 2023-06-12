@@ -3,7 +3,7 @@ title: "Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – T
 description: December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
 
-[Home](index) \| [List](list#1982) \| 
+[List](list#1982) \| 
 [Previous](1982-12-15-Blue-Cliff-Record-Case-37) \| 
 [Next](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 
@@ -281,6 +281,6 @@ If you do something wrong, maybe you bump your head against an electric pole and
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[Home](index) \| [List](list#1982) \| 
+[List](list#1982) \| 
 [Previous](1982-12-15-Blue-Cliff-Record-Case-37) \| 
 [Next](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)

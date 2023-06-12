@@ -3,7 +3,7 @@ title: "Glossary"
 description: A work-in-progress glossary of terms used in the talks.
 ---
 
-[Home](index) \| [List](list#appendices) \| 
+[List](list#appendices) \| 
 [Previous](1989-01-07-Dealing-with-Death-Dealing-with-Life) \| 
 [Next](dogen)
 
@@ -1187,4 +1187,4 @@ Japanese word meaning "Zen Master ". E.g., [Dogen Zenji](#dogen).
 
 [Next: Dogen Index](dogen)
 
-[Home](index) \| [List](list#glossary)
+[List](list#glossary)
