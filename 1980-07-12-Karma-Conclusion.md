@@ -7,11 +7,11 @@ description: July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
 [Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 
-## Summary
+### Summary
 
 Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness, freedom. This returns us to the reality of Buddha’s karma. We can reflect on ourselves and our actions without being stuck in the “ghost” of karma. Time and occasion and conditions are completely free, so day by day we can move toward the future, in order deepen our lives and help all beings. That is *Right Effort*. Also: Grace is not something that comes from heaven.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-conclusion" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

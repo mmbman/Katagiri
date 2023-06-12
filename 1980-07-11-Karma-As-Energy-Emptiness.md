@@ -7,11 +7,11 @@ description: July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
 [Next](1980-07-12-Karma-Conclusion)
 
-## Summary
+### Summary
 
 Karma is not a psychological entity: karma is consciousness, but also karma is really the human body, closely related. So if we want to know karma, we have to know the human body; and if we want to know the human body, we have to know consciousness. According to the Twelve Causations, the base of our existence as karma is ignorance; but this ignorance is really vitality, allowing us to enter the gate of the human world. We should appreciate this. But we can’t just appreciate it without making any effort, because we carry many kinds of karma, stored at the bottom of human body and mind. This karma comes up only when time is right and conditions are arranged, so it is important that we arrange good conditions. We can do so because karma is a great source of energy, which we call *emptiness*. That means we can think in terms of possibility, and “dream the impossible dream” of helping all beings. Also: how to work with emotions in zazen.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-as-energy-emptiness" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

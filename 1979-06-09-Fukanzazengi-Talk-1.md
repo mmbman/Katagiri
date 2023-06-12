@@ -7,11 +7,11 @@ description: June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1979-05-09-Diamond-Sutra-Introduction) \| 
 [Next](1979-06-10-Fukanzazengi-Talk-2)
 
-## Summary
+### Summary
 
 Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

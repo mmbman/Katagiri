@@ -7,11 +7,11 @@ description: March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
-## Summary
+### Summary
 
 Katagiri Roshi discusses the rhythm of causation, which is *not falling into cause and effect* and *not ignoring cause and effect*.  Representing cause and effect is Layman P’ang; representing freedom from cause and effect or *emptiness* is the monk Ch’uan. If you understand emptiness, you can become sick of emptiness. To avoid Zen sickness, offer a turning word. Also: Teaching without doing is not a good deal. 
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

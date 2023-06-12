@@ -7,11 +7,11 @@ description: July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-06-30-Karma-Two-Aspects) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates) 
 
-## Summary
+### Summary
 
 Katagiri Roshi completely explains the Twelve Links of Dependent Origination... probably, but the audio is lost. However, there is substantial coverage of the topic in the following talks in this series. Still, we would really like to retrieve this talk someday.
 
-## Transcript
+### Transcript
 
 (Transcriber’s Note: The online audio of this talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the next talk picks up after this one.)
 

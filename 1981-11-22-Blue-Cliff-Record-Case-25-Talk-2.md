@@ -7,11 +7,11 @@ description: November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Next](1982-11-17-Blue-Cliff-Record-Case-34)
 
-## Summary
+### Summary
 
 Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-25-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

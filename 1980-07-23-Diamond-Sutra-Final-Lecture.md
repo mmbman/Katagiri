@@ -7,7 +7,7 @@ description: July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

@@ -7,11 +7,11 @@ description: March 22, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-## Summary
+### Summary
 
 A maple leaf falling, showing its front and back, is sucked into a black hole. That’s total dynamic working. 
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

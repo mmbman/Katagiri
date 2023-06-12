@@ -7,11 +7,11 @@ description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
 [Next](1980-07-04-Karma-Taking-Care-of-Karma)
 
-## Summary
+### Summary
 
 Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. Unmanifested karma is the reason why we have to take responsibility for our individual behavior. The difference between *public karma* and *individual karma* is also mentioned.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

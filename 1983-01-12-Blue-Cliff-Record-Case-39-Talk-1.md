@@ -7,11 +7,11 @@ description: January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2) \| 
 [Next](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 
-## Summary
+### Summary
 
 Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance; we must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-39-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

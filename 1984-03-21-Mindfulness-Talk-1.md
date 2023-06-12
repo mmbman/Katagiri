@@ -7,11 +7,11 @@ description: March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-## Summary 
+### Summary 
 
 Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body as “impure”. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
 
-## Transcript
+### Transcript
 
 **This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
 

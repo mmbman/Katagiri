@@ -7,11 +7,11 @@ description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| 
 [Next](1982-11-24-Blue-Cliff-Record-Case-35)
 
-## Summary
+### Summary
 
 Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: How to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-34" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

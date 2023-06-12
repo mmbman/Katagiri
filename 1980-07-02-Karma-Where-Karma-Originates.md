@@ -7,11 +7,11 @@ description: July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
 [Next](1980-07-03-Karma-Unmanifested)
 
-## Summary
+### Summary
 
 Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (or the Twelve-Linked Chain of Causation, or the Twelve Links of Dependent Origination), noting that karma is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But avidyā is really *vitality*: this is how we get into the human world of the present moment. He describes four stages of zazen, and five related consciousnesses: *vitarka* (thought), *vicāra* (discursive thinking), *prīti* (joyful interest), *sukha* (happiness), and *samādhi* (oneness). The descriptions of *prīti* and *sukha* in particular may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures. Ultimately, the only way to understand karma is to do zazen. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

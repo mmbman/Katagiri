@@ -7,11 +7,11 @@ description: "February 22, 1986 Dharma Talk by Dainin Katagiri Roshi"
 [Previous](1985-06-22-Introduction-to-Buddhism) \| 
 [Next](1986-03-01-Three-Aspects-of-Repentance)
 
-## Summary
+### Summary
 
 Katagiri Roshi introduces a series of lectures on *Jukai*, lay ordination. In this first talk, he explains the goal of lay ordination as three points. The first point is realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration to live our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: knowledge in the ordinary sense, knowing something in the world of impermanence, and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize these three points. Even if we don’t understand them, we can still take action to enter this world of the Buddha.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Listen to this talk on mnzencenter.org</a>
 

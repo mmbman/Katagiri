@@ -7,11 +7,11 @@ description: May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
 [Next](1980-06-30-Karma-Two-Aspects)
 
-## Summary
+### Summary
 
 Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan, and the dynamics between “process itself” and “doings as a result.” The wild fox spirit and the board-carrying fellow live right next door to each other. “Wrong” and “sure enough.” Check!
 
-## Transcript
+### Transcript
 
 (Transcriber’s Note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
 

@@ -7,7 +7,7 @@ description: June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 
 [Next](1987-06-20-Manas)
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

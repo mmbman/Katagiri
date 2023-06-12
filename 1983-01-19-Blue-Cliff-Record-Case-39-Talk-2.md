@@ -7,11 +7,11 @@ description: January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| 
 [Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
-## Summary
+### Summary
 
 Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-39-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

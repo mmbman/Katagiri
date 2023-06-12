@@ -7,9 +7,9 @@ description: "March 8, 1986 Dharma Talk by Dainin Katagiri Roshi"
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
-## Summary
+### Summary
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

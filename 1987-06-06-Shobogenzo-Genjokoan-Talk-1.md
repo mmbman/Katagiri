@@ -7,7 +7,7 @@ description: June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

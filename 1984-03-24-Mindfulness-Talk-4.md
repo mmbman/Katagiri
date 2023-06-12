@@ -7,7 +7,7 @@ description: March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1984-03-23-Mindfulness-Talk-3) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

@@ -7,7 +7,7 @@ description: July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1980-07-23-Diamond-Sutra-Final-Lecture)
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

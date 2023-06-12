@@ -7,11 +7,11 @@ description: December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1982-12-15-Blue-Cliff-Record-Case-37) \| 
 [Next](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 
-## Summary
+### Summary
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-38-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

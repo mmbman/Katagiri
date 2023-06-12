@@ -7,11 +7,11 @@ description: June 30, 1980 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 
 [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) 
 
-## Summary
+### Summary
 
 Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it important to study karma? Is karma only for Buddhist people? Is Buddhism itself only an aspect of Eastern culture? Can thinking about karma drive you crazy? Also: How to reconcile “aiming for the long range” with “no goal in zazen”.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/july-30-1980-audio" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

@@ -8,7 +8,7 @@ description: May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
 [Next](1985-06-22-Introduction-to-Buddhism)
 
 
-## Transcript
+### Transcript
 
 **This transcript is in rough draft stage.**
 

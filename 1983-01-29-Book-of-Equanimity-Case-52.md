@@ -7,7 +7,7 @@ description: January 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
 [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/book-of-equanimity-case-52" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

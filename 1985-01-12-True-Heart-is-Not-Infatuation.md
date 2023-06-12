@@ -7,11 +7,11 @@ description: January 12, 1985 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
-## Summary
+### Summary
 
 **This transcript is in rough draft stage.**
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/true-heart-is-not-infatuation" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

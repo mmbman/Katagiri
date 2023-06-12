@@ -7,11 +7,11 @@ description: January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
 [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
-## Summary
+### Summary
 
 Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
 
-## Transcript
+### Transcript
 
 (Archive Issue: Case 40 Talks 1 and 2 are transposed in the online archive. The link here is to the audio for “Lecture 2”, which is actually Lecture 1.)
 

@@ -7,11 +7,11 @@ description: August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
-## Summary
+### Summary
 
 What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *shō* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
-## Transcript
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Listen to this talk on mnzencenter.org</a>
 
