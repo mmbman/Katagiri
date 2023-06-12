@@ -1,7 +1,7 @@
 ---
 title: "Karma: Two Aspects"
-description: June 30, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## June 30, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 

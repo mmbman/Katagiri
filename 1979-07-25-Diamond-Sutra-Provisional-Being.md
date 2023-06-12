@@ -1,7 +1,7 @@
 ---
 title: "Diamond Sutra: Provisional Being"
-description: July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1979) \| 
 [Previous](1979-06-15-Fukanzazengi-Talk-7) \| 

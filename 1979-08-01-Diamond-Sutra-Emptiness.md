@@ -1,7 +1,7 @@
 ---
 title: "Diamond Sutra: Emptiness"
-description: August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
+## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1979) \| 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 

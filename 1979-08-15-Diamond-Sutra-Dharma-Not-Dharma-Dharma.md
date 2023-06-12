@@ -1,7 +1,7 @@
 ---
 title: "Diamond Sutra: Dharma / Not Dharma / Dharma"
-description: August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
+## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1979) \| 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 

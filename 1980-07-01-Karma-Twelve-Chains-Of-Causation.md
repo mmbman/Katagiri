@@ -1,7 +1,7 @@
 ---
 title: "Karma: Twelve Chains of Causation"
-description: July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-06-30-Karma-Two-Aspects) \| 

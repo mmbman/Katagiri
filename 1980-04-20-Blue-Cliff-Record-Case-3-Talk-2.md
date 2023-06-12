@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2"
-description: April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 

@@ -1,7 +1,7 @@
 ---
 title: "Diamond Sutra: Giving and Non-Covetousness"
-description: August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
+## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1979) \| 
 [Previous](1979-08-01-Diamond-Sutra-Emptiness) \| 

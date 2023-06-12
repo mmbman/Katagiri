@@ -1,7 +1,7 @@
 ---
 title: "Save All Sentient Beings"
-description: March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 

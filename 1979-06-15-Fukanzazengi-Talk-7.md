@@ -1,7 +1,7 @@
 ---
 title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7"
-description: June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 ---
+## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1979) \| 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
