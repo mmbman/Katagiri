@@ -1,7 +1,7 @@
 ---
 title: "Karma as Energy / Emptiness"
-description: July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 

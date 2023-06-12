@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 20: Lung Ya’s Meaning of the Coming from the West – Talk 1"
-description: August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
+## August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1981) \| 
 [Previous](unfinished-1981-1) \| 

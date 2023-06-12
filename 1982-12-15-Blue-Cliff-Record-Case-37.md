@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World"
-description: December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
+## December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 

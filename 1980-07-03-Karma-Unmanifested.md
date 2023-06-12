@@ -1,7 +1,7 @@
 ---
 title: "Karma: Unmanifested Karma"
-description: July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 

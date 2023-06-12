@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1"
-description: November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
+## November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 

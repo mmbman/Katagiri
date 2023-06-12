@@ -1,7 +1,7 @@
 ---
 title: "Karma: Taking Care of Karma"
-description: July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 

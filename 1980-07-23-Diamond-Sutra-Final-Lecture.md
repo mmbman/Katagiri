@@ -1,7 +1,7 @@
 ---
 title: "Diamond Sutra: Final Lecture"
-description: July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 

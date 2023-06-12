@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument"
-description: July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1981) \| 
 [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| 

@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”"
-description: November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
+## November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1982) \| 
 [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| 

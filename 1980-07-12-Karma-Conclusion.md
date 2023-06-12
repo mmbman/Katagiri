@@ -1,7 +1,7 @@
 ---
 title: "Karma: Conclusion"
-description: July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 ---
+## July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 

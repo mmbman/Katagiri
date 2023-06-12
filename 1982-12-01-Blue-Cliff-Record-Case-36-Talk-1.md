@@ -1,7 +1,7 @@
 ---
 title: "Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1"
-description: December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 ---
+## December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1982) \| 
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
