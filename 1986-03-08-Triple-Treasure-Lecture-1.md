@@ -60,7 +60,7 @@ Why? What is the reason why we have to do this? Dogen Zenji says,
 
 > We take refuge in the Buddha because he is our great teacher. 
 
-*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, and merit of the universe, functioning of the universe, is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words, we say Buddha. 
+*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe, is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words, we say Buddha. 
 
 So Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, attribute of the universe, and functioning of the universe. Then Gotama Siddartha [became] Buddha. 
 
@@ -70,43 +70,43 @@ So Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the unive
 
 > We take refuge in the Buddhist community because it is composed of excellent friends.
 
-*Sangha* is community, but it’s not the usual sense of community, because this community has lots of people who try to follow the Buddha’s way. Because they are excellent friends for you. 
+*Sangha* is a community, but it’s not the usual sense of community, because this community has lots of people who try to follow the Buddha’s way. Because they are excellent friends for you. 
 
 [This is] not the usual sense of *good friends*. *Good friend* has three meanings:
 
-One is a good friend in the usual sense. If the friend gives you something of benefit, you say he is a *good friend*. 
+One is a good friend in the usual sense. If a friend gives you something of benefit, you say he is a *good friend*. 
 
 The second sense of a *good friend* is a person who commands respect from others, beyond a sense of give and take. Even though the person cannot give anything of benefit to you materialistically or practically, you can really respect [them] deeply. This is [the second] kind of good friend. 
 
 The third [sense of] *good friend* is completely beyond whether you can respect them or you can give [or get] something, et cetera. Even if you live far from him or her, he or she always influences your life in the wide sense. Even if you think of [them], it really helps. So that is a good friend. Even if you think of the presence of this person just for a moment, at that time he or she really helps your life. 
 
-It’s not merely the imaginable world. Imagination is a part of your life, so imagination is also important for us. The important point is how you can put the imaginable life into practice. You have to give life to the imaginary life. You cannot stay always in the imagination; you should take care of imagination, but you have to also think how you can put the imagination into practice. This is also important for us. 
+It’s not merely the imaginable world. Imagination is a part of your life, so imagination is also important for us. The important point is how you can put the imaginable life into practice. You have to give life to the imaginable life. You cannot stay always in imagination; you should take care of imagination, but you have to also think how you can put the imagination into practice. This is also important for us. 
 
-So that is the third meaning of the good friend. That is really excellent, in many ways. That third good friend is always helping you.
+So that is the third meaning of the good friend. That is really excellent. That third good friend is always helping you, in many ways.
 
-So that is community, we say *sangha*. This sangha is quite different from the usual sense of community. If people just gather and live together, it’s not *sangha*. Each of you has to be an *excellent friend* to others. Do you understand? Because you must be following Buddha’s teaching. You must be following the essence of the universe, and the virtue of the universe, the functioning of the universe, and then you become excellent friends to others. 
+So that is community, we say *sangha*. This sangha is quite different from the usual sense of community. If people just gather and live together, it’s not *sangha*. Each of you has to be an *excellent friend* to others, because you must be following Buddha’s teaching. You must be following the essence of the universe, and the virtue of the universe, the functioning of the universe. And then you become excellent friends to others. 
 
-But usually, you are not. That’s why in the United States, in the community, there are lots of problems, because most people think sangha is just the usual community. No, I don’t think so! I understand [why people think that], because the people who practice in the community are not different from others; all of you are just human beings. I agree, you are human beings – but [also] you are not human beings. Don’t forget this point! You are *Buddha*, anyway. If you forget you are Buddha, you become a usual human being. [You forget this because you don’t understand you are Buddha,] but Buddha means beyond whether you understand or not, you are exactly Buddha. 
+But usually, you are not. That’s why in the United States, in the community, there are lots of problems. Because most people think sangha is just the usual community. No, I don’t think so! I understand [why people think that], because the people who practice in the community are not different from others; all of you are just human beings. I agree. You are human beings – but [also] you are not human beings. Don’t forget this point! You are *Buddha*, anyway! If you forget you are Buddha, you become a usual human being. [You ignore this because you don’t understand you are Buddha.] But Buddha means beyond whether you understand or not, you are exactly Buddha. 
 
-*Buddha* means total qualification of living in this world, under all circumstances. Excellent qualifications of living in this world. No excuses. So we have to respect each other and all sentient beings. But we always forget we are Buddha. The reason is we don’t understand it; that’s it. [So] we don’t have any chance to communicate the spirit of Buddha; that’s why we cut it off. But that is really senseless as a human being. 
+*Buddha* means total qualification of living in this world, under all circumstances. Excellent qualifications of living in this world. No excuses. So we have to respect each other and all sentient beings. But we always forget we are Buddha. The reason is we don’t understand it; that’s it. [So] we don’t have any chance to communicate the spirit of Buddha; that’s why we cut it off. But as a human being, that is really senseless.
 
-So we are human beings, but we are not human beings. We shouldn’t forget this point. And then, if you are mindful of *you are Buddha*, that is really the driving force which gives life to you everyday. 
+So we are human beings, but we are not human beings. We shouldn’t forget this point. And then, if you are mindful that *you are Buddha*, that is really the driving force which gives life to you everyday. 
 
 #### 24:31
 
-And next Dogen Zenji says, 
+And next Dogen Zenji says:
 
 > It is only by taking refuge in the Three Treasures that one can become a disciple of the Buddha and become qualified to receive all the other precepts.
 
-So, only by taking refuge in the Triple Treasure can you become a disciple of the Buddha, in other words a son of the Buddha. I mentioned this last Friday morning: *A son of the Buddha* means... I mentioned already the meaning of the Buddha is exactly the same as the spirit of the universe, the cosmos. So *son of the Buddha* means that you have to completely accept the universe, where all sentient beings exist. There is no excuse to ignore anything in this world. If you accept yourself, you have to accept all sentient beings, not as something separate from your life, but as the contents of your life. 
+So, only by taking refuge in the Triple Treasure can you become a disciple of the Buddha, in other words *a son of the Buddha*. I mentioned this last Friday morning. I mentioned that the meaning of the Buddha is exactly the same as the spirit of the universe, the cosmos. So *a son of the Buddha* means that you have to completely accept the universe, where all sentient beings exist. There is no excuse to ignore anything in this world. If you accept yourself, you have to accept all sentient beings – not as something separate from your life, but as the *contents* of your life. 
 
-So in other words, each of your lives is not different from me. But if I accept all of your lives [as] something separate from me, that’s the intellectual world. So very naturally I can discriminate between I and you; so [there is] no sense of human warmness created by the human heart or spirit. So very naturally, you cannot communicate with each other.
+So in other words, each of your lives is not different from me. If I accept all of your lives [as] something separate from me, that’s the intellectual world. [In the intellectual world,] very naturally I can discriminate between I and you; so [there is] no sense of human warmness created by the human heart or spirit; so very naturally, we cannot communicate with each other.
 
-So *disciple of the Buddha* is that you have to be a *son of the Buddha*, that means you are a person who accepts all others’ lives, all sentient beings, as the contents of your life. At that time, you are called son of the Buddha, a disciple of the Buddha. 
+So *a disciple of the Buddha* is that you have to be a *son of the Buddha*, that means you are a person who accepts all others’ life, all sentient beings, as the contents of your life. At that time, you are called son of the Buddha, a disciple of the Buddha. 
 
-Or, the universe. The universe is vast. What do I mean? The universe completely accepts you. How? The universe accepts your life exactly as the content of the universe. The universe never separates its own life from your life. So all of your lives – trees’ lives, birds’ lives, and your lives; winter’s life, spring’s life – are exactly accepted as the content or quality of the universe. So that’s why the universe becomes Buddha. You are son of the Buddha. 
+Or, [consider] the universe. The universe is vast. What do I mean? The universe completely accepts you. How? The universe accepts your life exactly as the content of the universe. The universe never separates its own life from your life. So all of your lives – trees’ lives, birds’ lives, and your lives – winter’s life, spring’s life – are exactly accepted as the content or quality of the universe. So that’s why the universe becomes Buddha. You are son of the Buddha. 
 
-And then if you realize this, you can put this spirit into practice. How? You should accept others’ lives as the content of your life. And then others’ lives come very close to you, so the examples of others’ lives are not some other stories separate from you. The example of the others in their life is exactly content of your life, my life. So very naturally, other’s life becomes a mirror for me; my life becomes mirror for others. So always accept, and my life is accepted in others’ lives, others’ lives are reflected in my life. So [there is] always very close relation there.
+And then if you realize this, you can put this spirit into practice. How? You should accept others’ lives as the content of your life. And then others’ lives come very close to you, so the examples of others’ lives are not some other stories separate from you. The example of others in their life is exactly content of your life, my life. So very naturally, other’s life becomes a mirror for me; my life becomes a mirror for others. So always accept, and my life is reflected in others’ lives, others’ lives are reflected in my life. So [there is] always very close relation there.
 
 That’s why whatever kind of problem you bring up, or whatever lifestyle you follow, I cannot ignore [it]. I have to be a good listener. Under all circumstances, practicing constantly the six paramitas: giving, precepts, patience, effort, meditation, total calmness and wisdom. Practicing those six paramitas, I have to continually be a good friend to you, I have to be a good listener to all of you. And then, we can really communicate. And then you become a good friend for me, I become a good friend for you. 
 
