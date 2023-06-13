@@ -15,7 +15,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
-(Transcriber’s Note: The Case is included here for reference. Probably Katagiri Roshi read it, but the recording starts a bit late.)
+*(Transcriber’s Note: The Case is included here for reference. Probably Katagiri Roshi read it, but the recording starts a bit late.)*
 
 > When Layman P’ang took leave of Yao Shan, Shan ordered ten Ch’an travellers to escort him to the gate. The Layman pointed to the snow in the air and said, “Good snowflakes—they don’t fall in any other place.”
 >
@@ -89,7 +89,7 @@ That is zazen. [It is a] simple form, simple practice: let’s return home. That
 
 #### 27:27
 
-Dogen Zenji comments [...] on the statement, “Supernatural powers and their wondrous functioning: hauling water and carrying firewood.” (Transcriber’s Note: This is in *Shobogenzo Jinzū*: “On the Marvelous Spiritual Abilities”. The statement is from a verse by Layman P’ang.)
+Dogen Zenji comments [...] on the statement, “Supernatural powers and their wondrous functioning: hauling water and carrying firewood.” *(Transcriber’s Note: This is in* Shobogenzo Jinzū: “On the Marvelous Spiritual Abilities”. *The statement is from a verse by Layman P’ang.)*
 
 Hauling water and carrying firewood are nothing but daily living. Hauling water and carrying firewood are not something *you* do, they are nothing but tuning into the rhythm of the universe – not only tuning in to the rhythm of your life, but also the rhythm of the universe. That is energy. So hauling water is hauling water *you* do, but hauling water is the manifestation of Buddha. That is called *supernatural power* or *spiritual power*.
 
@@ -183,7 +183,7 @@ Do you have some questions?
 
 On the other hand, *you cannot fall into it* doesn’t mean you should completely ignore causation. So you cannot ignore it; it doesn’t mean ignore. That is the real meaning of causation. 
 
-For instance, my wallet or purse falls on the ground. There is not much money, anyway. *[Laughter.]* Anyway, my wallet is my wallet: if my wallet falls on the ground, I have to pick it up and put it in my pocket. But let’s look at this very simple example. (Transcriber’s Note: Katagiri Roshi actually says “purse” most of the time in this example, but since he talks about putting it in his pocket, I assume he meant “wallet”.)
+For instance, my wallet or purse falls on the ground. There is not much money, anyway. *[Laughter.]* Anyway, my wallet is my wallet: if my wallet falls on the ground, I have to pick it up and put it in my pocket. But let’s look at this very simple example. *(Transcriber’s Note: Katagiri Roshi actually says “purse” most of the time in this example, but since he talks about putting it in his pocket, I assume he meant “wallet”.)*
 
 According to *not falling into causation*, *my wallet* and *my wallet is on the ground* [both belong] to me. The wallet I had or the wallet on the ground are [both] money. So from this point, the wallet I had and the wallet falls on the ground in relation with cause and effect, but [both] are money. So finally, all I have to do is, I have to take care of the wallet [as money,] as my life. So from this point, I cannot fall into causation; cause and effect are the same [...] because they belong to me. But what do I mean? How do we understand this? We understand through the *function*, so-called *fall* and *pick up*. It falls, that’s why I have to pick it up. 
 
@@ -241,7 +241,7 @@ For instance, Takuan Zen Master, who [...] trained and cultivated Miyamoto Musas
 
 Well, forget it. *[Laughter.]*
 
-(Transcriber’s Note: I don’t know for sure, but it’s possible the above story is from a [Samurai movie](https://en.wikipedia.org/wiki/Samurai_I:_Musashi_Miyamoto). According to [Wikipedia](https://en.wikipedia.org/wiki/Takuan_Sōhō), that is where Takuan is portrayed as the mentor of Miyamoto Musashi.)
+*(Transcriber’s Note: I don’t know for sure, but it’s possible the above story is from a [Samurai movie](https://en.wikipedia.org/wiki/Samurai_I:_Musashi_Miyamoto). According to [Wikipedia](https://en.wikipedia.org/wiki/Takuan_Sōhō), that is where Takuan is portrayed as the mentor of Miyamoto Musashi.)*
 
 Well, that is a little bit going away [from the point]. *[He chuckles.]* But function is very important, anyway. You should do. 
 
