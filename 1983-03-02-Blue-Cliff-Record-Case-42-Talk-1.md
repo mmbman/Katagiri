@@ -97,6 +97,10 @@ Even though you accept totally and all sentient beings respond to your life, sti
 
 #### 29:04 end of recording
 
+---
+
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+
 [List](list#1983) \| 
 [Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| 
 [Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)

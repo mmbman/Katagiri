@@ -245,7 +245,11 @@ Well, forget it. *[Laughter.]*
 
 Well, that is a little bit going away [from the point]. *[He chuckles.]* But function is very important, anyway. You should do. 
 
-#### 1:12:52
+#### 1:12:52 end of recording
+
+---
+
+*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1983) \| 
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
