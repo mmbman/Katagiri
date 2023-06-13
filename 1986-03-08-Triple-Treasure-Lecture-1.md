@@ -24,7 +24,9 @@ I think the Triple Treasure in Zen Buddhism is the foundation of the Precepts. T
 
 Bodhidharma said that to receive means to awaken or to realize. I said before, *to realize* is to accept *and* to digest. You have to totally accept the universe as it is, beyond your understanding, because you live there. So realization means to accept, and also something which you have accepted must be digested through and through, until it turns into life energy. 
 
-So this is awakening; we say awakening or awareness, or realization. To receive is to awaken to awareness of Buddha Nature, awareness of the universe. And also Bodhidharma said that to awaken is to *transmit*. What you have awakened deeply from your body and mind must be transmitted from generation to generation, beyond your will. When you experience that point, you really appreciate human life, because you realize how sublime human life is. The feeling or experience of sublimity comes from something you have awakened, the depths of existence. 
+So this is awakening; we say awakening or awareness, or realization. To receive is to awaken to awareness of Buddha Nature, awareness of the universe. 
+
+And also Bodhidharma said that to awaken is to *transmit*. What you have awakened deeply from your body and mind must be transmitted from generation to generation, beyond your will. When you experience that point, you really appreciate human life, because you realize how sublime human life is. The feeling or experience of sublimity comes from something you have awakened, the depths of existence. 
 
 So to receive means to awaken, [and] to awaken means to transmit. What you have awakened is transmitted, beyond your will, beyond your control. Even though you don’t know, or you [don’t] like it, it is transmitted. That’s why from generation to generation, we all can learn the spirit of human beings: what human beings are, what the real spirit of human beings is. Whether you have education or you don’t have education, beyond your capability, it’s going, constantly, from generation to generation. That’s why whatever you are born as in this world, you have lots of opportunity to learn. 
 
@@ -34,9 +36,7 @@ So we have to awaken, [and] then, if you awaken, very naturally you can transmit
 
 So very naturally, this is constantly dharma transmission, from generation to generation. In the wide sense, there is constantly transmission of the exquisite image of human life, throughout all generations. That’s why finally we appreciate human life, and we try to help human beings. 
 
-So that is the Precepts in Zen Buddhism. The Precepts are Buddha Nature. And then to receive the precepts is to awaken Buddha Nature. What do I mean to awaken? That is to transmit. 
-
-So then, very naturally, you can create human culture, and you can build up the human world in peace and harmony. Under all circumstances, through all the ages, this is the human effort we do, constantly, repeatedly. 
+So that is the Precepts in Zen Buddhism. The Precepts are Buddha Nature. And then to receive the precepts is to awaken Buddha Nature. What do I mean to awaken? That is to transmit. So then, very naturally, you can create human culture, and you can build up the human world in peace and harmony. Under all circumstances, through all the ages, this is the human effort we do, constantly, repeatedly. 
 
 That is the Precepts. So the Triple Treasure is the very foundation of the Precepts; the first step of entering into the Universe.
 
