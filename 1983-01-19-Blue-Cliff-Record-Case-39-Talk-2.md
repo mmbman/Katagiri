@@ -19,7 +19,7 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 
 #### 0:00 start of recording
 
-(Transcriber’s Note: Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from *The Blue Cliff Record*. When we join this talk, Katagiri Roshi is discussing the Verse, which refers to the Case.
+*(Archive Issue: Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from the* Blue Cliff Record*. When we join this talk, Katagiri Roshi is discussing the Verse, which refers to the Case.*
 
 The Case: 
 
@@ -45,7 +45,7 @@ The Verse:
 >
 > A golden-haired lion—everybody look!
 
-From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
+*From* The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.*)
 
 ... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
@@ -96,7 +96,7 @@ It seems to correspond to walking: right leg, left leg. How can you walk? With y
 > Light and dark are relative to one another like forward and backward steps.  
 > All things have their function; it is a matter of use in the appropriate situations. 
 
-(Transcriber’s Note: “Like forward and backward steps” might be a misleading translation. A quick internet search suggests that [Zoketsu Norman Fischer](https://everydayzen.org/teachings/sandokai-3-talk-4-loon-lake-sesshin-2013/?sort=name&itemLimit=10&favorites=false&topic=sutras) and perhaps others agree. The translation we’re currently using is “like the front and back foot in walking,” which matches Katagiri Roshi’s explanation.)
+*(Transcriber’s Note: “Like forward and backward steps” might be a misleading translation. A quick internet search suggests that [Zoketsu Norman Fischer](https://everydayzen.org/teachings/sandokai-3-talk-4-loon-lake-sesshin-2013/?sort=name&itemLimit=10&favorites=false&topic=sutras) and perhaps others agree. The translation we’re currently using is “like the front and back foot in walking,” which matches Katagiri Roshi’s explanation.)*
 
 This is an interesting point you have to pay careful attention to. For instance, today I walked around the lake. At that time, if you see your motion, called *to walk*, at a distance, always there are two points you can grasp. That means, right leg, left leg. Because, what do you mean by *walking*? *I* walk, of course. *I* walk means *my* feet walk. My feet consist of the two, right or left. So if you see the picture of your motion called *to walk* at a distance, at that time two questions comes up: right leg, left leg. Does *to walk* come into being with right leg? No, negative. Can *to walk* be brought into being with the left leg? That's negative also. So, *to walk* consists of the two negative parts: no right leg, no left leg. Because *right leg*, *left leg* doesn’t [live] its own *concept*, so-called “I am right leg” or “I am left leg,” because it is constantly moving. For instance, when you move constantly, when you dance on the stage, *practically* there is nothing to insert into your motion, but still your consciousness is very “sneaky.” That's why consciousness still can sneak in to your motions. “Are you all right? Is your dance perfect, or not?” Sneaky. Strictly speaking, there is no space to let your intellectual sense get into, because this is the characteristic of perfect motion, with wholeheartedness. But if you see this motion, even for a moment, even slightly, at a distance, that motion becomes [“frozen,”] and then that motion is analyzed: so-called right leg, left leg. But simultaneously right leg, left leg both are negated, because in order to walk, you cannot say to walk is the motion of the right leg, and you cannot say either [it is] motion of left leg, so both are completely negated. 
 

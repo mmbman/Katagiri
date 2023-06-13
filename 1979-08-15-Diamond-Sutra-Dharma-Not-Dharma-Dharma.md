@@ -96,7 +96,7 @@ Dharmakaya Buddha means dharma body, or dharma itself, or the essential nature o
 
 The second, Nirmanakaya Buddha, is a visible Buddha. For example, Shakyamuni Buddha, who was born 2500 years ago in India as a human. This is Nirmanakaya Buddha. 
 
-The third, Sambhogakaya Buddha, that is where we can reach at the stage of the Buddha as a result, through one’s virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. (Transcriber’s Note: Katagiri Roshi says something like “virtual quality” here, but the word “virtual” has a different meaning than he probably intended, so I am substituting “virtuous”.)
+The third, Sambhogakaya Buddha, that is where we can reach at the stage of the Buddha as a result, through one’s virtuous quality and practice as a cause, in the context of the understandable ways. This is Sambhogakaya Buddha. *(Transcriber’s Note: Katagiri Roshi says something like “virtual quality” here, but the word “virtual” has a different meaning than he probably intended, so I am substituting “virtuous”.)*
 
 So, Dharmakaya Buddha – dharma itself, or the essential nature of Buddha himself – is completely beyond human speculation. You cannot grasp it. That’s why the no-dharmas [are those] through which Shakyamuni Buddha has experienced and preached, because dharma itself is completely beyond human speculation. But Nirmanakaya Buddha is the Buddha as human. So Buddha as a human tries to teach dharma itself, but that dharma explained by Shakyamuni Buddha as a human is no-dharma. It’s not real dharma, because dharma is completely beyond human speculation. 
 

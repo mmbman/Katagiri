@@ -216,7 +216,7 @@ So, when you do [zazen](glossary#zazen), that’s why zazen is [not just] for de
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. 
 
-Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because [Buddha](glossary#buddha) says, even a cat and dog are Buddha. If dogs and cats are Buddha, the cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic] consciousness, but whatever you say, it doesn’t hit the mark. (Transcriber’s Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means. However, needing a whip for cats? That I can relate to.) 
+Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because [Buddha](glossary#buddha) says, even a cat and dog are Buddha. If dogs and cats are Buddha, the cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic] consciousness, but whatever you say, it doesn’t hit the mark. *(Transcriber’s Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means.)*
 
 Anyway, you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. 
 

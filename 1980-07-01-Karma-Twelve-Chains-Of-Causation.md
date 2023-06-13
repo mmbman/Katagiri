@@ -13,7 +13,7 @@ Katagiri Roshi completely explains the Twelve Links of Dependent Origination... 
 
 ### Transcript
 
-(Transcriber’s Note: The online audio of this talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the next talk picks up after this one.)
+*(Archive Issue: The online audio of this talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the next talk picks up after this one.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

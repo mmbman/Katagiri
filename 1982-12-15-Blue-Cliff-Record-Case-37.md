@@ -144,7 +144,7 @@ When I went to the missionary school in Saint Paul, I described about the truth 
 
 #### 39:00
 
-*(Transcriber’s Note: At this point, the audio skips back to the beginning of (presumably) this one side of the tape, and repeats. That happens again at 1:18:31.)*
+*(Archive Issue: At this point, the audio skips back to the beginning of (presumably) this one side of the tape, and repeats. That happens again at 1:18:31.)*
 
 #### 1:58:02 end of recording
 

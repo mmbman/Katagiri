@@ -132,7 +132,7 @@ In terms of *C world*, Dogen Zenji says “the Buddha Way originally sprung fort
 
 But practically speaking, for instance, if you want to master dance or skiing or whatever, you can see the future vision of the skier, or rock climber, et cetera. But if you see the future vision, very naturally we try to have lots of expectations from that future vision...
 
-(Transcriber’s Note: The online audio ends at this point.)
+*(Archive Issue: The online audio ends at this point.)*
 
 #### 42:38 end of recording
 

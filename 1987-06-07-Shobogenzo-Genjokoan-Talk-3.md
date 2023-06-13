@@ -115,7 +115,7 @@ And then, next:
 
 > When the myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
 
-(Transcriber’s Note: Katagiri Roshi says *dharmas* instead of *things* here.)
+*(Transcriber’s Note: Katagiri Roshi says* dharmas *instead of* things *here.)*
 
 Then at that time, you are you, but you are not you – you are all sentient beings. You are supported by all sentient beings. So you shouldn’t always attach to yourself: “I am great.” I don’t think so; that is really egoistic! If you become *really* great, in other words if you really become mature, you don’t know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water; people just participate in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It’s not a stream of water, so [there is] always bumping. Lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we *[unintelligible]*.
 
@@ -267,7 +267,7 @@ Okay, do you have questions? I’m sorry I didn’t finish.
 
 **Katagiri**: Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about the oneness with the rock face and the climber’s body and mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
 
-(Transcriber’s Note: The book *Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition* by Mihaly Csikszentmihalyi is available but expensive. The more recent update by the same author, *Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)
+*(Transcriber’s Note: The book* Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition *by Mihaly Csikszentmihalyi is available but expensive. The more recent update by the same author,* Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)*
 
 What do I mean, just the flow of experience? “Just the flow of activity when you climb the mountain” – what is that? Just the flow of activities called “climbing the mountain” – at that time, where are they, what are they? Right in the middle of the perpetual flow of activities, there is rock, mountain, trees, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called *perpetual flow of activities*, called *climbing the mountain*. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscured.” *The other side* means the rest of the existence. The whole world comes into you. 
 

@@ -68,7 +68,7 @@ The commentary by Conze says:
 
 > Mahayanists are fond of saying that Buddha’s enlightenment is not real fact, and that likewise, the Dharma preached by the Buddha shouldn’t be misunderstood as a definite teaching of definite facts. In the Large Prajnaparamita Sutras the theme of this chapter has been treated at much greater length. A few parallels in “The Version in 8,000 Lines” may throw light on it, and show the connection with the basic doctrines of, first, the marklessness of all things, second, the marklessness of their [emptiness](glossary#śūnyatā), and third, the marklessness of their suchness.
 > 
-> (Transcriber’s Note: The current version of the book says, “(1) the marklessness of all things, (2) of their emptiness, and (3) of their Suchness.”)
+> *(Transcriber’s Note: The current version of the book says, “(1) the marklessness of all things, (2) of their emptiness, and (3) of their Suchness.”)*
 
 So let’s understand, let’s think, one by one.
 
@@ -94,7 +94,7 @@ If you try to get an answer to this question *why*, it means that already you lo
 
 One of the German poets said, “A rose exists without any reason. A rose blooms because it blooms.” 
 
-(Transcriber’s Note: The quote is from Angelus Silesius (Johann Scheffler), German mystic, 1624-1677. “The rose is without ‘why’; it blooms simply because it blooms. It pays no attention to itself, nor does it ask whether anyone sees it.”)
+*(Transcriber’s Note: The quote is from Angelus Silesius (Johann Scheffler), German mystic, 1624-1677. “The rose is without ‘why’; it blooms simply because it blooms. It pays no attention to itself, nor does it ask whether anyone sees it.”)*
 
 Rose exists without any reason. I think so: rose exists without any reason. Why the rose blooms in a beautiful, big garden, or in a small garden, or wherever. Or you say to a rose, “How happy you are. Wonderful, happy rose, you are.” Whatever you say, this is coming from human speculation. 
 

@@ -33,7 +33,7 @@ The Pointer:
 
 I very often emphasize that “cease and desist” is not your business. [If] you try to cease, you try to desist, [then] you never cease, you never desist. Because the more you try to cease, the more you realize that there is always something moving. So you never stop anything.
 
-(Transcriber’s Note: Where Katagiri Roshi says “nothing for your business” below, I have substituted “nothing that is your business” in a couple cases, but mostly left the phrase as-is.)
+*(Transcriber’s Note: Where Katagiri Roshi says “nothing for your business” below, I have substituted “nothing that is your business” in a couple cases, but mostly left the phrase as-is.)*
 
 So an import point is, [it is] only when there is absolutely nothing that is your business. All you have to do is, when you sit down, you just be one with the sitting. At that time that is called “to cease all affairs, all involvements.” That is in *Fukanzazengi*. If you read *Fukanzazengi* carefully, Dogen Zenji mentions making arrangement of circumstances: the room, and your body, clothes, your mind. Mainly the three adjustments: breathing, mind, and body; and also we have to take care of the circumstances. 
 

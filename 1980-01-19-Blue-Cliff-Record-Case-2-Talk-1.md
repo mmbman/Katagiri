@@ -50,7 +50,7 @@ That’s why Dogen Zenji says, in [*Shobogenzo*: “Life and Death” (Shōji)]
 
 #### 12:47
 
-(Transcribers Note: In the section below, Katagiri Roshi discusses a scale from zero to one hundred “points”. Where he says *points*, I have substituted *percent*, for clarity.)
+*(Transcribers Note: In the section below, Katagiri Roshi discusses a scale from zero to one hundred “points”. Where he says* points*, I have substituted* percent*, for clarity.)*
 
 I told you before, one of the famous [Zen Masters](glossary#zen-master) says, “Zen is that we should get one hundred percent, or zero percent. Zero percent or one hundred: exactly perfect. There is no other [score] between one hundred and zero.” I didn’t understand at the time, but this is really true. You should get one hundred percent. That means forget and release: forget yourself, and throw yourself into Buddha’s house. This is first, but you don’t understand *yet*.
 
@@ -180,7 +180,7 @@ If you use the word “Buddha,” it is still trailing mud and dripping water. O
 
 “Ch’an” means Zen: to say the word *Zen* or *Ch’an* “is a face full of shame.” Even though you say “Zen,” it’s really full of shame. If *Zen* is based on this word, it’s really a shame. Completely based on words? Forget it. 
 
-People say Zen is stupid; that’s okay. In Nichiren Buddhism – do you know [Nichiren](glossary#nichiren), founder of the Nichiren Buddhist school? He criticized Zen: “Zen is [something created by a] devil.” Maybe so. Maybe [created by] a devil[?] (Transcriber’s Note: It’s hard to discern whether he’s disagreeing or agreeing with Nichiren here.) Or somebody says, “Zen is pretty intellectual. Zen is pretty idealistic.” There are lots of criticism, don’t you think? [That’s good.] “Zen is *[unintelligible]*.” “Zen is ridiculous.” *Lots* of criticism – because Zen is freedom, free. Freedom is… do you know freedom? Freedom is a free state of being, which appears in many ways, in many situations. But it doesn’t bother us; [it only] appears. It is never contaminated by a certain condition. It always appears under certain conditions, but it’s never contaminated by ideas. That is what is called freedom. That’s why … if you use a particular term, “Zen,” it’s very *shameful*, because immediately you can see that idea of *denomination*. That’s why Engo Zenji says, “to say the word Ch’an is a face full of shame.”
+People say Zen is stupid; that’s okay. In Nichiren Buddhism – do you know [Nichiren](glossary#nichiren), founder of the Nichiren Buddhist school? He criticized Zen: “Zen is [something created by a] devil.” Maybe so. Maybe [created by] a devil[?] *(Transcriber’s Note: It’s hard to discern whether he’s disagreeing or agreeing with Nichiren here.)* Or somebody says, “Zen is pretty intellectual. Zen is pretty idealistic.” There are lots of criticism, don’t you think? [That’s good.] “Zen is *[unintelligible]*.” “Zen is ridiculous.” *Lots* of criticism – because Zen is freedom, free. Freedom is… do you know freedom? Freedom is a free state of being, which appears in many ways, in many situations. But it doesn’t bother us; [it only] appears. It is never contaminated by a certain condition. It always appears under certain conditions, but it’s never contaminated by ideas. That is what is called freedom. That’s why … if you use a particular term, “Zen,” it’s very *shameful*, because immediately you can see that idea of *denomination*. That’s why Engo Zenji says, “to say the word Ch’an is a face full of shame.”
 
 #### 57:02
 

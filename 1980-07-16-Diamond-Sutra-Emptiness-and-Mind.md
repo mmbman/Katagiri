@@ -122,7 +122,7 @@ So we don’t know where consciousness is. Is consciousness a part of the sense 
 
 And then in the moment, something happens. *Something happens* means psychological action, which is called *to know something* – that is the mind. But this mind has a certain *attitude* in a moment, in order to express what the mind is, what consciousness is. That is what is called *mind occurs in four stages*, or the mind attitude is taken. That is *contact*, *feeling*, *perception*, and *citta* means *volition* or *will*.
 
-(Transcriber’s Note: Perhaps Katagiri Roshi means *attitude* in the sense of *position* or *posture*?)
+*(Transcriber’s Note: Perhaps Katagiri Roshi means* attitude *in the sense of* position *or* posture*?)*
 
 **Same person**: ... the attitude of the mind? 
 

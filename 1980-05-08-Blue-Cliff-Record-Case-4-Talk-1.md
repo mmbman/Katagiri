@@ -13,7 +13,7 @@ Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei 
 
 ### Transcript
 
-(Transcriber’s Note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
+*(Archive Issue: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -94,7 +94,7 @@ So he went back again and he re-entered the teaching hall with full ceremony to 
 
 > As Kuei Shan sat there, Te Shan held up his sitting mat and said, “Teacher!” 
 
-At that time Kuei Shan sat there, sitting [zazen](glossary#zazen), and Te Shan held up his sitting mat. “Sitting mat” is what we call [zagu](glossary#zagu); this one. This is very traditional: wherever you may go, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this zagu and bow, and then after that you can talk and discuss. (Transcriber’s Note: The zagu is folded into a strip when not in use, hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows and then did not do so.)
+At that time Kuei Shan sat there, sitting [zazen](glossary#zazen), and Te Shan held up his sitting mat. “Sitting mat” is what we call [zagu](glossary#zagu); this one. This is very traditional: wherever you may go, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this zagu and bow, and then after that you can talk and discuss. *(Transcriber’s Note: The zagu is folded into a strip when not in use, hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows and then did not do so.)*
 
 > Kuei Shan reached for his whisk ...
 

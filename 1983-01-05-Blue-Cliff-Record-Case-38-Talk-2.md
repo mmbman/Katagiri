@@ -83,7 +83,7 @@ That means “both of you are pretty good.” The monk Lu P’i says “I am Iro
 
 In Japan there were two famous Zen Masters:  Bokusan Nishiari Zen Master (Nishiari Bokusan, 1821-1910), the other one is Hioki Zen Master (Hioki Mokusen, 1837-1920). Both of them were the abbot of Eiheiji Monastery. One was *very* strict: he never smiled; he was always very strong and very rough. His face was always a very rough face. Whenever anyone went to see him, he never smiled; that’s why everyone was very scared. But the other Zen Master was smiling very much, and he never scolded anybody. One of the Buddhists asked the Zen Master who never smiled: “Why do you always make your face without smiling?” The other Zen Master who was always calm and never scolded, smiled and asked, “Why do you do that?” [He said,] “It’s none of your business.” *[Laughter.]*
 
-(Transcriber’s Note: the online audio seems to include only the first side of the tape for this talk.)
+*(Archive Issue: the online audio seems to include only the first side of the tape for this talk.)*
 
 #### 42:31 end of recording
 

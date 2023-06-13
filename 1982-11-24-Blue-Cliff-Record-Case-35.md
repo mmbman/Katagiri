@@ -182,7 +182,7 @@ That is the scenery of Mount Wutai. That means completely accept the mountain’
 
 I told you several years ago, in Zen there are three ways of thinking and understanding. In the first stage, mountains are mountains. Second stage, mountains are not mountains. The third stage, mountains are mountains. (See [Diamond Sutra: Introduction](https://katagiritranscripts.net/1979-05-09-Diamond-Sutra-Introduction), etc.)
 
-(Transcriber’s Note: The conclusion of this talk seems to be missing.)
+*(Archive Issue: The conclusion of this talk seems to be missing.)*
 
 #### 45:05 end of recording.
 

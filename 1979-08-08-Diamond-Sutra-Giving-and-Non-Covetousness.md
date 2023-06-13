@@ -57,7 +57,7 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 > That’s what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
 >      
-> (Transcriber’s Note: This seems to be mostly the same as a section of *The Eighth Duino Elegy* by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)
+> *(Transcriber’s Note: This seems to be mostly the same as a section of* The Eighth Duino Elegy *by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)*
 >
 >> (Here are a couple different translations for reference. Skip these if you are not interested.)
 >> 
@@ -156,7 +156,7 @@ In Buddhism, that vastness of space is what is called [emptiness](glossary#śūn
 
 So, “Never do we have a pure space before us in which the flowers are always unfolded. It’s forever world and ... nowhere without not.” We always see the world created by us; “nowhere without not.” Always we see the world created by us, and believe that is important for us. But the most important thing is the vastness of space. The world created by us is a tiny world. We can see it from each individual telescope. This is also important for us, because that is the world in which we live. But in order to live in this small world, we have to know the bigger scale of the world. That is the vastness of space. According to Buddhism, it is called emptiness. Emptiness is not the [world]. I don’t know what it is. But *it is* emptiness – anywhere, anytime.
 
-(Transcriber’s Note: For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness”. The poem – in German – actually says something like “*never* nowhere without not,” or “never the nowhere minus the no”. In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)
+*(Transcriber’s Note: For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness”. The poem – in German – actually says something like “*never  *nowhere without not,” or “never the nowhere minus the no”. In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)*
 
 #### 32:17
 

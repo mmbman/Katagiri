@@ -13,7 +13,7 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 ### Transcript
 
-(Transcriber’s Note: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)
+*(Archive Issue: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -312,7 +312,7 @@ Our consciousness is always complicated: always looking at something and discuss
 
 It’s dramatic, but it’s really human life, spiritual life. We are always making smoke inside ourselves: “Help, help.” And then we always want something to open the door. That is the key through the window. So we always do it dramatically. *[Unintelligible]* knows pretty well how dramatic human life is. 
 
-(Transcriber’s Note: According to *Radical Zen: The Sayings of Jōshū*, Jōshū set the fire and Nansen threw the key through the window.)
+*(Transcriber’s Note: According to* Radical Zen: The Sayings of Jōshū, *Jōshū set the fire and Nansen threw the key through the window.)*
 
 #### 1:12:07
 

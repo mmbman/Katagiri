@@ -77,7 +77,7 @@ So when you are completely drawn in by the mountains and living with the mountai
 
 The other day Tony recommended that I read a book about mountain climbing. The title is *On Ice and Snow and Rock* by Gaston Rébuffat (a French mountain guide).
 
-> (Transcriber’s Note: Here is the entire quote that Katagiri Roshi references below.)
+>* (Transcriber’s Note: Here is the entire quote that Katagiri Roshi references below.)*
 > 
 > To climb smoothly between sky and earth, in a succession of precise and efficient movements, induces an inner peace and even a mood of gaiety; it is like a well-regulated ballet, with the roped climbers all in their respective places. A difficulty encountered poses a question; the movements to resolve it give reply. This is the intimate pleasure of communicating with the mountain, not with its grandeur and beauty but, more simply, more directly, with its material self, its substance, as an artist communicates with the wood, the stone, or the iron with which he is working. 
 > 
@@ -231,7 +231,7 @@ And then if you become a master of dance, both are working very smoothly. Withou
 
 **Katagiri**: But I don’t think so. [It’s the] same thing as climbing the mountains. 
 
-(Transcriber’s Note: At this point, an earlier part of the recording is repeated for some reason. The remainer of the talk seems to be lost.)
+*(Archive Issue: At this point, an earlier part of the recording is repeated for some reason. The remainer of the talk seems to be lost.)*
 
 ####  1:15:57 end of recording.
 

@@ -18,7 +18,7 @@ The conclusion to the series of talks on Fukanzazengi takes place during a drama
 <a name="000"></a>
 #### 0:00 start of recording 
 
-(Transcriber’s Note: A loud thunderstorm was going on during this talk. Katagiri Roshi’s words are occasionally punctuated by peals of thunder.)
+*(Transcriber’s Note: A loud thunderstorm was going on during this talk. Katagiri Roshi’s words are occasionally punctuated by peals of thunder.)*
 
 When the [Buddha Shakyamuni](glossary#shakyamuni-buddha) sat meditation,  [zazen](glossary#zazen), under a tree – *[there is a sound of thunder]* – there was a tremendous sound of thunder, that was more than this. But, his zazen was not disturbed by the thunder. And after zazen, he stood from his seat and practiced kinhin, walking meditation. At that time, the thunder was completely gone; the surroundings were very quiet. Near him there was one of the Buddhist laymen, who had watched the Buddha’s meditation. 
 
@@ -146,7 +146,7 @@ Or I always tell you, there is a scale. Why don’t you point out the *middle*? 
 
 #### 47:30
 
-(Transcriber’s Note: The following anecdote, at the end of the seven day sesshin, starts quietly, but quickly becomes difficult to transcribe because it’s hard to hear over all the laughter.)
+*(Transcriber’s Note: The following anecdote, at the end of the seven day sesshin, starts quietly, but quickly becomes difficult to transcribe because it’s hard to hear over all the laughter.)*
 
 **Katagiri**: If you think about zazen for seven days, you become good friends with zazen. How do you like it? Do you hate it? *[Soft laughter.]*
 

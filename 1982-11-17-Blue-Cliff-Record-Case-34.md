@@ -130,7 +130,7 @@ The point is, through the performance of dance what we have to do is to pay atte
 
 “He should be careful of his eyebrows”: So you have to say it carefully. Or whatever you say. But it’s pretty hard for us to pick up the real truth, the real beauty of art. So how can you pick up the real beauty of art, so-called dance, et cetera?
 
-“What is this old fellow’s hurry?” Why is it you want to be hurried to say something? (Transcriber’s Note: For a different comment on being “hurried”, see the talk [“Devotion: Walking Alone with Open Heart” at 53:15](1988-12-24-Devotion-Walking-Alone-with-Open-Heart#5315).)
+“What is this old fellow’s hurry?” Why is it you want to be hurried to say something? *(Transcriber’s Note: For a different comment on being “hurried”, see the talk* [Devotion: Walking Alone with Open Heart at 53:15](1988-12-24-Devotion-Walking-Alone-with-Open-Heart#5315)*.)*
 
 #### 37:17
 

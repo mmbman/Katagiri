@@ -150,7 +150,7 @@ That’s why a Zen Master said, “When you feel hungry, eat. When you feel slee
 
 Okay. Next time, we will study the chapters of the *Diamond Sutra* one by one. 
 
-The textbook is the combined textbook, *Buddhist Wisdom Books*, compiling two sutras, *Diamond Sutra* and *Heart Sutra*, translated by Doctor Conze. You can find a cheaper paperback. (Transcriber's Note: The updated book is [*Buddhist Wisdom: The Diamond Sutra and the Heart Sutra*](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
+The textbook is the combined textbook, *Buddhist Wisdom Books*, compiling two sutras, *Diamond Sutra* and *Heart Sutra*, translated by Doctor Conze. You can find a cheaper paperback. *(Transcriber's Note: The updated book is* [Buddhist Wisdom: The Diamond Sutra and the Heart Sutra](books#buddhist-wisdom) *by [Edward Conze](glossary#edward-conze).)*
 
 He also added his commentary [to the translations]. Those commentaries will be very helpful for you to understand the *Diamond Sutra*. Without the commentary, it’s very difficult to understand, because often you can see very contradictory expressions of the Buddhist teaching.
 
