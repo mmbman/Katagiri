@@ -8,5 +8,7 @@ header_pages:
   - search.md
 github:
   is_project_page: false
-social_links:
-  - { platform: facebook,  user_url: "https://www.facebook.com/KatagiriTranscripts" }
+minima:
+  skin: dark
+  social_links:
+    - { platform: facebook,  user_url: "https://www.facebook.com/KatagiriTranscripts" }
