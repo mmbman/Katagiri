@@ -59,7 +59,7 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 >      
 > *(Transcriber’s Note: This seems to be mostly the same as a section of* The Eighth Duino Elegy *by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)*
 >
->> (Here are a couple different translations for reference. Skip these if you are not interested.)
+>> *(Here are a couple different translations for reference. Skip these if you are not interested.)*
 >> 
 >> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
 >>  
