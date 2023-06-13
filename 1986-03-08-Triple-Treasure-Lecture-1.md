@@ -52,9 +52,9 @@ I think *take refuge* [does not mean] to escape from the human world or to escap
 
 And that is, in English we say *take refuge in*. Or another expression in English is to *go to Buddha for guidance*. But anyway, *take refuge in* means total, full devotion. 
 
-And also, Dogen Zenji says, [through] day and night, be mindful of the Triple Treasure. In your everyday life, be mindful of the Triple Treasure. 
+#### 14:00
 
-#### 
+And also, Dogen Zenji says, [through] day and night, be mindful of the Triple Treasure. In your everyday life, be mindful of the Triple Treasure. 
 
 Why? What is the reason why we have to do this? Dogen Zenji says, 
 
