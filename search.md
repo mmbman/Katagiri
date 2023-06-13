@@ -2,7 +2,6 @@
 title: Search
 description: 
 ---
-[Home](index) \| [List of Talks](list) \| [Summaries](summaries) \| [About](about)
 
 Search the Katagiri Transcripts site using the Google search engine. (Skip past the ads.)
 <div>
@@ -10,4 +9,4 @@ Search the Katagiri Transcripts site using the Google search engine. (Skip past 
 <div class="gcse-search"></div>
 </div>
 
-[Home](index) \| [List of Talks](list) \| [Summaries](summaries) \| [About](about)
+You can also try your luck with the incomplete [Topic Index](topics).
