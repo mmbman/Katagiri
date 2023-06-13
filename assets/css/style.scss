@@ -1,30 +1,30 @@
 ---
 ---
-// Breakpoints
-// $large-breakpoint: 64em;
-$large-breakpoint: 56em;
-//$medium-breakpoint: 42em;
-$medium-breakpoint: 36em;
-
-// Headers
-$header-heading-color: #fff;
-// $header-bg-color: #128D50;
-// $header-bg-color: #159957;
-// $header-bg-color: #1E6BB8;
-// $header-bg-color-secondary: #1E6BB8;
-// $header-bg-color: #314975;
-// $header-bg-color-secondary: #314975;
-// $header-bg-color: #276865;
-// $header-bg-color-secondary: #276865;
-$header-bg-color: #127878;
-$header-bg-color-secondary: #127878;
-
-// Text
-//$section-headings-color: #0C6828;
-$section-headings-color: #0C6848;
-$body-text-color: #232323;
-//$body-link-color: #1E6BB8;
-$body-link-color: #2060A0;
-$blockquote-text-color: #4B4B4B;
+// // Breakpoints
+// // $large-breakpoint: 64em;
+// $large-breakpoint: 56em;
+// //$medium-breakpoint: 42em;
+// $medium-breakpoint: 36em;
+// 
+// // Headers
+// $header-heading-color: #fff;
+// // $header-bg-color: #128D50;
+// // $header-bg-color: #159957;
+// // $header-bg-color: #1E6BB8;
+// // $header-bg-color-secondary: #1E6BB8;
+// // $header-bg-color: #314975;
+// // $header-bg-color-secondary: #314975;
+// // $header-bg-color: #276865;
+// // $header-bg-color-secondary: #276865;
+// $header-bg-color: #127878;
+// $header-bg-color-secondary: #127878;
+// 
+// // Text
+// //$section-headings-color: #0C6828;
+// $section-headings-color: #0C6848;
+// $body-text-color: #232323;
+// //$body-link-color: #1E6BB8;
+// $body-link-color: #2060A0;
+// $blockquote-text-color: #4B4B4B;
 
 @import "{{ site.theme }}";
