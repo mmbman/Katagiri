@@ -15,7 +15,7 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the fi
 
 **This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
 
-### Part 1
+#### Part 1
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321a.mp3" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
 
@@ -122,7 +122,7 @@ That’s why you don’t know. Even though you pick up breathing, you don’t kn
 
 So whatever you say – sesshin, or human body, breath, your eyes, [your eye nerves], activities, spiritual life – all are something alive. And then, you have to observe or contemplate that human body which is vividly living. Not an idea; not the human body separate from mind; not the human body separate from the trees, birds, or human activities. We have to see the human body which is vividly alive: living, jumping, hopping along. Because when your body is really hopping along or living, you don’t know what the human body is. That is called *transcend*. So *transcend* your ideas – your idea of purity or impurity, or good or bad. You don’t know, you cannot pin down ... 
 
-### Part 2
+#### Part 2
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321b.mp3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
 
@@ -300,7 +300,7 @@ Of course it is encouragement, but that encouragement really is available for a 
 
 For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never seen before. But gradually you don’t feel good, because you cannot tune into the usual life. You can notice that there is trouble with having a good relationship with your friend ...
 
-### Part 3
+#### Part 3
 
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
 
