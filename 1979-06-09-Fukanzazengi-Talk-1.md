@@ -84,7 +84,7 @@ There is [Katagiri](glossary#katagiri); that core of Katagiri is really supporte
 
 If I see myself – here is Katagiri – immediately there is a certain kind of a sense; a “smell.” A part of this “smell” consists of something I have created after my birth. The other aspect of my “smell” is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a “smell.” If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri’s “smell” is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is not something evaluated. That is called *Buddha* – or, the *original nature of existence*. But psychologically speaking, that is called *total personality*. Total personality; or maybe *trans-personality*, whatever you say. (Transcriber’s Note: “Trans-personality” may be referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
+But Katagiri’s “smell” is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is not something evaluated. That is called *Buddha* – or, the *original nature of existence*. But psychologically speaking, that is called *total personality*. Total personality; or maybe *trans-personality*, whatever you say. *(Transcriber’s Note: “Trans-personality” may be referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)*
 
 That trans-personality immediately *smells*: “I smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense. In a sense I feel good, but feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave, because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
@@ -116,7 +116,7 @@ If we meddle with our involvements or our affairs right in the middle of zazen, 
 
 And next, our *sensory system*. We have a sensory system; it's not necessary to destroy it to keep away the human world, because we have it already. So instead of maligning or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
-That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](topics#zazengi) chapter of [Shobogenzo](topics#shobogenzo), which is distinct from [Fukan zazengi](topics#fukanzazengi).)
+That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. *(Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](topics#zazengi) chapter of [Shobogenzo](topics#shobogenzo), which is distinct from [Fukan zazengi](topics#fukanzazengi).)*
 
 So first of all, you should make a choice of circumstances. What kind of a room do you have to use? You have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, you would see it completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
@@ -136,7 +136,7 @@ This is very simple movement. The two hands are unified; your eyes are not wide 
 
 And next, the *gut system*. For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
 
-(Transcriber’s Note: Parts of the next paragraph are very hard to make out.)
+*(Transcriber’s Note: Parts of the next paragraph are very hard to make out.)*
 
 Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. They’re going on. Even though your heart is beating, *[unintelligible]*, and then you put the gasoline into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
 
@@ -146,7 +146,7 @@ But there is one thing that you can control, and that is the breath. And the bre
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-(Transcriber’s Note: It looks like the translation Katagiri Roshi is using may be Norman Waddell's, as it says, “do not administer pros and cons.” See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations include “do not judge true or false,” or, “do not consider right and wrong.”)
+*(Transcriber’s Note: It looks like the translation Katagiri Roshi is using may be Norman Waddell's, as it says, “do not administer pros and cons.” See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations include “do not judge true or false,” or, “do not consider right and wrong.”)*
 
 That is the brain-nerve system. According to the brain-nerve system, we have to regulate the mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind ...
 

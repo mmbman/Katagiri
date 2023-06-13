@@ -160,7 +160,7 @@ So basically, it’s very easy: just do it. Just, proper posture. But it’s not
 
 #### 40:42
 
-**Question**: (Transcriber’s Note: This question is mostly unintelligible on the recording.) Roshi? ... [about] regulation ... if at some point you’re experiencing something that seems good, pleasant, then there’s a natural tendency to think you’re doing something right in terms of regulating your body ... Then maybe the next moment, you experience something [that seems like suffering], and there’s a natural tendency that you seem to be doing something wrong. Is that the correct way to look at it?
+**Question**: *(Transcriber’s Note: This question is mostly unintelligible on the recording.)* Roshi? ... [about] regulation ... if at some point you’re experiencing something that seems good, pleasant, then there’s a natural tendency to think you’re doing something right in terms of regulating your body ... Then maybe the next moment, you experience something [that seems like suffering], and there’s a natural tendency that you seem to be doing something wrong. Is that the correct way to look at it?
 
 **Katagiri**: Well, if you see the sleep, it’s not right, but it’s not wrong. 
 
@@ -248,7 +248,7 @@ For instance, I will show you [calligraphy](glossary#calligraphy) written by a f
 
 **Same person**: No.
 
-(Transcriber’s Note: It sounds like no one understands.)
+*(Transcriber’s Note: It sounds like no one understands.)*
 
 **Katagiri**: A first grade child, who is master of calligraphy. But a first grade child is a first grade child; they’re not a perfect master of calligraphy. So, in the realm of first grade children, he is a master, an expert. But he is still, well, a childish calligrapher. 
 
@@ -316,7 +316,7 @@ So, the teacher is important, but the teacher is a teacher – that *this* teach
 
 Can you see this? I want to ask you. I think so.
 
-(Transcriber’s Note: Presumably, the point of the above exchange is that these “other realms” aren’t “somewhere else” but rather are right here. In other words, we’re having a “psychic experience” all the time called “daily living.” Katagiri Roshi might be gesturing to indicate this, which doesn’t come across on the audio recording.)
+*(Transcriber’s Note: Presumably, the point of the above exchange is that these “other realms” aren’t “somewhere else” but rather are right here. In other words, we’re having a “psychic experience” all the time called “daily living.” Katagiri Roshi might be gesturing to indicate this, which doesn’t come across on the audio recording.)*
 
 #### 1:06:32
 
