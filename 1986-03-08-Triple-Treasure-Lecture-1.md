@@ -11,7 +11,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+***This transcript is in rough draft stage.***
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-1" target="_blank">*Listen to this talk on mnzencenter.org*</a>
 
@@ -110,29 +110,31 @@ And then if you realize this, you can put this spirit into practice. How? You sh
 
 That’s why whatever kind of problem you bring up, or whatever lifestyle you follow, I cannot ignore [it]. I have to be a good listener. Under all circumstances, practicing constantly the six paramitas: giving, precepts, patience, effort, meditation, total calmness and wisdom. Practicing those six paramitas, I have to continually be a good friend to you, I have to be a good listener to all of you. And then, we can really communicate. And then you become a good friend for me, I become a good friend for you. 
 
-That is called a disciple of Buddha, or we say a son of the Buddha. That’s why in the *Saddharma Pundarika Sutra* (the *Lotus Sutra*) Buddha says all sentient beings are a son of the Buddha. My son, my brother and sister. 
+That is called *a disciple of Buddha*, or we say *a son of the Buddha*. That’s why also in the *Saddharma Pundarika Sutra* (the *Lotus Sutra*), Buddha says all sentient beings are a son of the Buddha. [He called them] my son, my brother and sister. 
 
-What do I mean? You have to digest this. Because the universe completely accepts the whole [of] all sentient beings as the content of its life. So this is Buddha. And then you are the son of the Buddha, trees are the sons of the Buddha. 
+What do I mean? You have to digest this. Because the universe completely accepts [the whole of] all sentient beings as the content of its life. So this is Buddha. And then you are the son of the Buddha, trees are the sons of the Buddha. 
 
-So that’s why by taking refuge in the Three Treasures, Buddha, dharma, sangha, you can have a chance to become a son of the Buddha. And also you become qualified to receive all the other precepts. And then total devotion to the Triple Treasure turns into the motive power of giving life to everydayness. Just like energy. Just like gasoline for the car. *[He chuckles.]* It’s not gasoline, but it’s an example, okay? So taking refuge in the Triple Treasure turns into the motive power or driving force of coming *alive*, constantly. 
+So that’s why by taking refuge in the Three Treasures, Buddha, dharma, sangha, you can have a chance to become a son of the Buddha. And also you become qualified to receive all the other precepts. And then total devotion to the Triple Treasure turns into the motive power of giving life to everydayness. Just like energy; just like gasoline for the car. *[He chuckles.]* It’s not gasoline, but it’s an example, okay? So taking refuge in the Triple Treasure turns into the motive power or driving force of coming *alive*, constantly. 
 
 #### 33:20
 
-If so, what is taking refuge? What is the point? How can we realize, how can we touch that spirit of taking refuge which turns into motive power? Here it says, 
+If so, what is taking refuge? What is the point? How can we realize, how can we touch that spirit of taking refuge which turns into motive power? Here it says: 
 
 > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 
-Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. Spiritual communion means interacting communion of appeal and response. Appeal means... for instance, “I appeal for help.” Is that clear? I ask you to help. Not ask; [appeal] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do this, [if] I don’t do something particular, [still] I appeal to you, constantly, for help. 
+Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. Spiritual communion means interacting communion of appeal and response. Appeal means, for instance, “I appeal for help.” I ask you to help. Not *ask*; [appeal] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do this, [if] I don’t do something particular, [still] I appeal to you, constantly, for help. 
 
-So *I appeal* not to [a particular *I*] for help; this appeal is not open to the particular existence. I appeal [to the] whole universe for help. In this case, *the whole universe* means – I don’t know what it is, but you realize there is nothing to ask for help in this world, but you realize there is something you can appeal to beyond the human samsaric world, even though you don’t know what it is. 
+So *I appeal* not to [a particular *I*] for help; this appeal is not open to the particular existence. I appeal [to the] *whole universe* for help. In this case, *the whole universe* means [you] don’t know what it is. You realize there is nothing to ask for help in this world, but you realize there is something you can appeal to beyond the human samsaric world, even though you don’t know what it is. 
 
-So at that time how do you do it? You *pray*. You pray for your life, others’ lives, to ... what? Not [to something] particular: to the vastness of space and existence. How do you do [this] in a concrete way? You look up to the sky, and pray. What’s in the sky? We don’t know. Sky is called *akasha* in Sanskrit. *Akasha* is characterized by no obstruction; nothing to obstruct, nothing to interact with. Akasha allows all beings to be functioning in peace and harmony. 
+So at that time how do you do it? You *pray*. You pray for your life [or] others’ lives; [pray] to ... what? Not [to something] particular: to the vastness of space and existence. How do you do [this] in a concrete way? You look up to the sky, and pray. 
 
-So you don’t know what space is. When you look up to the sky and pray – “please help me,” or something like that – you don’t know what space is. But spiritually, in a deep sense, you already understand what space is, that’s why naturally you look up to the sky and pray. And also the altar in a church, and the altar in a Buddhist temple, the altar is a little higher than you, so you always look up to the upper space, and then you pray. And when you pray, you kneel down to the floor; that means you become lower, in other words, you become humble. You really become humble, and then at that time you look up to the sky and pray. Intellectually, you don’t understand it, but spiritually, everyone knows. 
+What’s in the sky? We don’t know. Sky is called *akasha* in Sanskrit. *Akasha* is characterized by no obstruction; nothing to obstruct, nothing to interact with. Akasha allows all beings to be functioning in peace and harmony. 
+
+So you don’t know what space is. When you look up to the sky and pray – “please help me,” or something like that – you don’t know what space is. But spiritually, in a deep sense, you already understand what space is, that’s why naturally you look up to the sky and pray. And also the altar in a church, and the altar in a Buddhist temple, the altar is a little higher than you, so you always look up to the upper space, and then you pray. And when you pray, you kneel down to the floor, that means you become lower; in other words, you become humble. You really become humble, and then at that time you look up to the sky and pray. Intellectually, you don’t understand it, but spiritually, everyone knows [this].
 
 So that is *appeal*. 
 
-And then, *response*. At that time, response comes from the whole universe, space, *akasha*. And then this is called the whole universe ... I used a different term: spirit of the universe, spirit of akasha, whatever. And then very naturally, if you completely feel that spirit of the universe, and appeal for the help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. But that is spiritually. In the broad sense, it’s really true. And then Buddha, the spirit of the universe, and you, the path of your life, the path of the universe, become one, interconnected, crossing each other. 
+And then, *response*. At that time, response comes from the whole universe, space, *akasha*. And then this is called the whole universe ... I used a different term: spirit of the universe, spirit of akasha, whatever. And then very naturally, if you completely feel that spirit of the universe, and appeal for the help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. But that is spiritually; [in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 
 That is called *do ko*; the *do ko* of *kanno-doko*. *Kan* means *appeal*. The *no* of *kanno* is *response*. *Do* of *doko* is *the path*. *Ko* of *doko* is *to cross*. So appeal and response come across, very quickly. 
 
