@@ -13,7 +13,7 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the fi
 
 ### Transcript
 
-**This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).**
+*This talk is split into three files in the audio archive: [Part 1](#part-1), [Part 2](#part-2), and [Part 3](#part-3).*
 
 #### Part 1
 
