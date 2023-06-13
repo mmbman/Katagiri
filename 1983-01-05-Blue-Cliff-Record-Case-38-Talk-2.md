@@ -13,7 +13,7 @@ The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, 
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-38-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-38-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 *(Archive Issue: The online audio for this talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)*
 

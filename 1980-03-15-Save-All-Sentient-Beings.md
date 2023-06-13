@@ -13,7 +13,7 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 <a name="000"></a>
 #### 0:00 start of recording

@@ -13,7 +13,7 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 
 **This transcript is in rough draft stage.**
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a>
 
 <a name="000"></a>
 #### 0:00 start of recording

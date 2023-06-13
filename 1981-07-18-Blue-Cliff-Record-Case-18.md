@@ -9,7 +9,7 @@ title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 *(Archive Issue: This entire talk is very nearly inaudible.)*
 

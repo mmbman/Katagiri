@@ -13,7 +13,7 @@ Katagiri Roshi discusses how we should practice with those who are ill or dying.
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-11365083" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-11365083" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 (Transcriber’s Note: An edited version of this talk, from a different transcript, [is available on cuke.com](http://www.cuke.com/pdf-wb2/90-1-wb-kat-lect-dying.pdf).)
 

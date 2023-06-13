@@ -13,7 +13,7 @@ Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-35" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-35" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 #### 0:00 start of recording
 

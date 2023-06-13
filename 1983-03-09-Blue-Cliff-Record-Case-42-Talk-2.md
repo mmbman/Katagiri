@@ -13,7 +13,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 *(Transcriber’s Note: The Case is included here for reference. Probably Katagiri Roshi read it, but the recording starts a bit late.)*
 

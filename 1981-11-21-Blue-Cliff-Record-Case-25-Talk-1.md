@@ -13,7 +13,7 @@ What happens when we unexpectedly come face-to-face with real life, such as bein
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-25" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 <a name="000"></a>
 #### 0:00 start of recording

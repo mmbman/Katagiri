@@ -13,7 +13,7 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-36-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-36-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 #### 0:00 start of recording
 

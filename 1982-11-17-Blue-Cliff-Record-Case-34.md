@@ -13,7 +13,7 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-34" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-34" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 (Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* where he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* means *customary*, so it depends more on the context; for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*. Cleary’s translation of the Notes to the case uses the word *ordinary*.)
 

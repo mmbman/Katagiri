@@ -13,7 +13,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/july-30-1980-audio" target="_blank">Listen to this talk on mnzencenter.org</a> 
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/july-30-1980-audio" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
 #### 0:00 start of recording
 
