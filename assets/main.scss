@@ -3,6 +3,10 @@
 
 @import "{{ site.theme }}";
 
+.page-content {
+    font-size: 18px;
+}
+
 blockquote {
     color: #666;
     border-left: 4px solid #aaa;
