@@ -3,6 +3,12 @@
 
 @import "{{ site.theme }}";
 
+.page-heading {
+    font-size: 42px;
+    letter-spacing: -1px;
+    line-height:1
+}
+
 .page-content {
     font-size: 18px;
 }
