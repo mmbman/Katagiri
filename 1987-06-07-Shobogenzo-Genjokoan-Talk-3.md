@@ -80,9 +80,9 @@ Let’s go back to the first paragraph.
 
 Let’s divide *Genjokoan* into eleven sections... 
 
-(From 18:20 to 21:05, Katagiri Roshi divides the text into sections. These sections mostly line up with the paragraphs in the Thomas Clearly translation we have today, with some differences. See [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm))
+*(From 18:20 to 21:05, Katagiri Roshi divides the text into sections. These sections mostly line up with the paragraphs in the Thomas Clearly translation we have today, with some differences. See [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm))*
 
-(He has someone read the first section:)
+*(He has someone read the first section:)*
 
 > When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
 > When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
