@@ -9,7 +9,7 @@ title: "Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 
 
 ### Summary
 
-Katagiri Roshi discusses the rhythm of causation, which is *not falling into cause and effect* and *not ignoring cause and effect*.  Representing cause and effect is Layman P’ang; representing freedom from cause and effect or *emptiness* is the monk Ch’uan. If you understand emptiness, you can become sick of emptiness. To avoid Zen sickness, offer a turning word. Also: Teaching without doing is not a good deal. 
+Katagiri Roshi discusses the rhythm of causation, which is *not falling into cause and effect and not ignoring cause and effect*.  Representing cause and effect is Layman P’ang; representing freedom from cause and effect or *emptiness* is the monk Ch’uan. If you understand emptiness, you can become sick of emptiness. To avoid Zen sickness, offer a turning word. Also: Teaching without doing is not a good deal. 
 
 ### Transcript
 

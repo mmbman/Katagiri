@@ -13,7 +13,7 @@ Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’
 
 ### Transcript
 
-(Archive Issue: The online audio ends abruptly after about 30 minutes.)
+*(Archive Issue: The online audio ends abruptly after about 30 minutes.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
@@ -93,7 +93,7 @@ So if you do zazen, don’t be hanging around the small self. “I am doing zaze
 
 Even though you accept totally and all sentient beings respond to your life, still it is just like a silver mountain, an iron wall. You cannot ...
 
-(Transcriber’s Note: The online audio ends here.)
+*(Archive Issue: The online audio ends here.)*
 
 #### 29:04 end of recording
 
