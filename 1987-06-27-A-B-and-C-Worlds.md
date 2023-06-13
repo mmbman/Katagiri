@@ -11,7 +11,7 @@ title: "Genjokoan: A, B, and C Worlds"
 
 **This transcript is in rough draft stage.**
 
-(Archive issue: The conclusion of this talk seems to be missing.)
+*(Archive issue: The conclusion of this talk seems to be missing.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Listen to this talk on mnzencenter.org</a> 
 

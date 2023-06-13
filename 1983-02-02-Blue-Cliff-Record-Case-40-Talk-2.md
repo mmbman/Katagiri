@@ -13,7 +13,7 @@ Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjo
 
 ### Transcript
 
-(Archive Issue: Case 40 Talks 1 and 2 are transposed in the online archive. The link here is to the audio for “Lecture 1”, which is actually Lecture 2.)
+*(Archive Issue: Case 40 Talks 1 and 2 are transposed in the online archive. The link here is to the audio for “Lecture 1”, which is actually Lecture 2.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-40-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a> 
 
