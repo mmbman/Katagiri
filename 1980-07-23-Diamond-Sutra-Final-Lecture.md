@@ -267,6 +267,8 @@ Unfortunately I have to go to Omaha this weekend, I cannot be the *[unintelligib
 
 #### 1:13:50 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 

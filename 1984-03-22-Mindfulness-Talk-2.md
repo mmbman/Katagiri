@@ -152,6 +152,8 @@ Total dynamic working *[he laughs]* is functioning with all beings, okay? Thatâ€
 
 #### end of part 3
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1984) \| 

@@ -177,6 +177,8 @@ And also, unfortunately, there are not many textbooks on karma. [...] There are 
 
 #### 1:03:36 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 

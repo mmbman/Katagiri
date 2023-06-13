@@ -87,6 +87,8 @@ And then, “and make Buddha with demons.” So when you stumble over in the rea
 
 ### End of Talk
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1984) \| 

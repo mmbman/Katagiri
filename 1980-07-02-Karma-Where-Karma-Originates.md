@@ -292,6 +292,8 @@ For instance, if you’re in this room, you are here. Even though your conscious
 
 #### 1:20:31 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 

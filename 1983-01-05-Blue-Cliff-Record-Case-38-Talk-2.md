@@ -87,6 +87,8 @@ In Japan there were two famous Zen Masters:  Bokusan Nishiari Zen Master (Nishia
 
 #### 42:31 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1983) \| 

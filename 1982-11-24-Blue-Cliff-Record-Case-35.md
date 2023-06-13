@@ -186,6 +186,8 @@ I told you several years ago, in Zen there are three ways of thinking and unders
 
 #### 45:05 end of recording.
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1982) \| 

@@ -136,6 +136,8 @@ But practically speaking, for instance, if you want to master dance or skiing or
 
 #### 42:38 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1987) \| 

@@ -212,6 +212,8 @@ For instance, maybe a few days ago if a person walked on a bridge and immediatel
 
 #### 1:15:03 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 

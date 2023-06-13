@@ -395,6 +395,8 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 #### 1:12:32 end of recording
 
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1981) \| 

@@ -32,6 +32,8 @@ This conversation goes between the Bodhisattva Avalokiteshvara and the Bodhisatt
 
 #### end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1985) \| 

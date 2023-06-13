@@ -345,6 +345,8 @@ This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for
 #### 1:19:11 end of recording
 
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 

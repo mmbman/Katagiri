@@ -67,6 +67,8 @@ So that is the practice of a dancer, practice of becoming a painter, practice of
 
 ### End of Talk
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1984) \| 

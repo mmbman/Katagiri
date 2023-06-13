@@ -217,6 +217,8 @@ Tomorrow, I would like to read the commentary by Engo Zen Master. It’s a very 
 #### 56:08 end of recording
 
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 

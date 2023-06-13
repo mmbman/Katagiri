@@ -380,6 +380,8 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 
 #### End of Part 3
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1984) \| 

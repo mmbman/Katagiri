@@ -198,6 +198,8 @@ But Gandhi’s example is very good for you. You can think of it. If you are Gan
 
 #### 1:10:03 end of recording
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1986) \| 

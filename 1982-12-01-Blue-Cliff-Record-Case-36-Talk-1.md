@@ -235,6 +235,8 @@ And then if you become a master of dance, both are working very smoothly. Withou
 
 ####  1:15:57 end of recording.
 
+---
+
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1982) \| 
