@@ -10,7 +10,7 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 ---
 
-*Posted May 29, 2023.*
+*Posted May 29, 2023*
 
 ### [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
 #### March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
@@ -19,7 +19,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 ---
 
-*Posted May 24, 2023.*
+*Posted May 24, 2023*
 
 ### [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
 #### March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
@@ -28,7 +28,7 @@ Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’
 
 ---
 
-*Posted March 9, 2023.*
+*Posted March 9, 2023*
 
 ### [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
 #### June 30, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -37,7 +37,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 
 ---
 
-*Posted February 21, 2023.*
+*Posted February 21, 2023*
 
 ### [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 #### July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -46,7 +46,7 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 
 ---
 
-*Posted February 18, 2023.*
+*Posted February 18, 2023*
 
 ### [Karma as Energy / Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 #### July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -55,7 +55,7 @@ Karma is not a psychological entity: karma is consciousness, but also karma is r
 
 ---
 
-*Posted February 4, 2023.*
+*Posted February 4, 2023*
 
 ### [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 #### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -64,7 +64,7 @@ Katagiri Roshi discusses karma in terms of Dogen’s understanding, including th
 
 ---
 
-*Posted January 24, 2023.*
+*Posted January 24, 2023*
 
 ### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
 #### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -73,7 +73,7 @@ Katagiri Roshi further outlines meditation, *dhyāna*, as the way to study karma
 
 ---
 
-*Posted January 8, 2023.*
+*Posted January 8, 2023*
 
 ### [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 #### May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -82,7 +82,7 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 ---
 
-*Updated December 14, 2022.*
+*Updated December 14, 2022*
 
 ### [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 #### May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
@@ -91,7 +91,7 @@ Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei 
 
 ---
 
-*Posted October 28, 2022.*
+*Posted October 28, 2022*
 
 ### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 #### February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
@@ -100,7 +100,7 @@ Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjo
 
 ---
 
-*Posted October 12, 2022.*
+*Posted October 12, 2022*
 
 ### [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 #### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi. 
@@ -109,7 +109,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 
 ---
 
-*Posted October 5, 2022.*
+*Posted October 5, 2022*
 
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. 
@@ -118,7 +118,7 @@ Katagiri Roshi explains the difference between *manifested* and *unmanifested* k
 
 ---
 
-*Posted September 30, 2022.*
+*Posted September 30, 2022*
 
 ### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 #### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi. 
@@ -127,7 +127,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 
 ---
 
-*Posted August 23, 2022.*
+*Posted August 23, 2022*
 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 #### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi. 
@@ -136,7 +136,7 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 
 ---
 
-*Posted August 23, 2022.*
+*Posted August 23, 2022*
 
 ### [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 #### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi. 
@@ -145,7 +145,7 @@ Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Reco
 
 ---
 
-*Posted August 23, 2022.*
+*Posted August 23, 2022*
 
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 #### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi. 
@@ -154,7 +154,7 @@ The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, 
 
 ---
 
-*Posted July 18, 2022.*
+*Posted July 18, 2022*
 
 ### [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 #### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi. 
@@ -163,7 +163,7 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudde
 
 ---
 
-*Posted June 8, 2022.*
+*Posted June 8, 2022*
 
 ### [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
 #### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi. 
@@ -172,7 +172,7 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 
 ---
 
-*Posted May 25, 2022.*
+*Posted May 25, 2022*
 
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
 #### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi. 
@@ -181,7 +181,7 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 
 ---
 
-*Posted May 22, 2022.*
+*Posted May 22, 2022*
 
 ### [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 #### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi. 
@@ -190,7 +190,7 @@ Wandering in the mountains, life flowing freely: how very like the sense of spri
 
 ---
 
-*Posted April 28, 2022.*
+*Posted April 28, 2022*
 
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 #### November 22, 1981 Dharma Talk by Dainin Katagiri Roshi. 
@@ -199,7 +199,7 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 
 ---
 
-*Posted April 15, 2022.*
+*Posted April 15, 2022*
 
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 #### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi. 
@@ -208,7 +208,7 @@ What happens when we unexpectedly come face-to-face with real life, such as bein
 
 ---
 
-*Posted April 11, 2022.*
+*Posted April 11, 2022*
 
 ### [Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
 #### November 24, 1982 Dharma Talk by Dainin Katagiri Roshi. 
@@ -217,7 +217,7 @@ Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure
 
 ---
 
-*Posted April 3, 2022.*
+*Posted April 3, 2022*
 
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 #### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi.
@@ -226,7 +226,7 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the fi
  
 ---
 
-*Posted March 19, 2022.*
+*Posted March 19, 2022*
 
 ### [Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
 #### November 17, 1982 Dharma Talk by Dainin Katagiri Roshi.
