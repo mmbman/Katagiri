@@ -16,20 +16,20 @@ body {
 }
 
 .wrapper {
-    max-width: -webkit-calc(800px -(100px * 2));
-    max-width: calc(800px -(100px * 2));
+    max-width: -webkit-calc(800px -(80px * 2));
+    max-width: calc(800px -(80px * 2));
     margin-right: auto;
     margin-left: auto;
-    padding-right: 100px;
-    padding-left: 100px
+    padding-right: 80px;
+    padding-left: 80px
 }
 
 @media screen and (max-width: 800px) {
     .wrapper {
-        max-width: -webkit-calc(800px -(40px));
-        max-width: calc(800px -(40px));
-        padding-right: 20px;
-        padding-left: 20px
+        max-width: -webkit-calc(800px -(80px));
+        max-width: calc(800px -(80px));
+        padding-right: 40px;
+        padding-left: 40px
     }
 }
 
