@@ -112,8 +112,7 @@ If this is just to take care of young birds [so they can] fly in the sky, well, 
 
 [Now] the Verse. This is [Setchō Zen Master](glossary#setchō-jūken)’s verse for the koan, and also [Engo Zen Master](engo-kokugon)’s comment on each verse. 
 
-**(Transcriber’s Note: First, here is Setchō Zen Master’s complete poem, without the comments.)
-**
+*(Transcriber’s Note: First, here is Setchō Zen Master’s complete poem, without the comments.)*
 > Sun Face Buddha, Moon Face Buddha;  
 > What kind of people were the Ancient Emperors?  
 > For twenty years I have suffered bitterly;  
@@ -123,7 +122,7 @@ If this is just to take care of young birds [so they can] fly in the sky, well, 
 >
 > (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
 
-**(Transcriber’s Note: And now, with the comments.)**
+*(Transcriber’s Note: And now, with the comments.)*
   
 > Sun Face Buddha, Moon Face Buddha
 
