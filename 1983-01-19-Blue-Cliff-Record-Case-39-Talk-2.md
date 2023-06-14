@@ -17,9 +17,7 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 
 *(Archive Issue: The beginning of this talk is missing, and about six minutes in the middle is repeated.)*
 
-#### 0:00 start of recording
-
-*(Archive Issue: Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from the* Blue Cliff Record*. When we join this talk, Katagiri Roshi is discussing the Verse, which refers to the Case.*
+*(Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from the* Blue Cliff Record*. When we join this talk, Katagiri Roshi is discussing the Verse, which refers to the Case.*
 
 The Case: 
 
@@ -46,6 +44,8 @@ The Verse:
 > A golden-haired lion—everybody look!
 
 *From* The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.*)
+
+#### 0:00 start of recording
 
 ... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
