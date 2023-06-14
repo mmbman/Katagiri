@@ -9,6 +9,8 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 ### Summary
 
+Taking refuge in the Triple Treasure - Buddha, dharma, and sangha - is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to generation after generation. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of the legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*.
+
 ### Transcript
 
 ***This transcript is in rough draft stage.***
@@ -20,7 +22,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 [Today I would like to] talk about the Triple Treasure. What is the significance of the Triple Treasure: taking refuge in Buddha, dharma, sangha?
 
-I think the Triple Treasure in Zen Buddhism is the foundation of the Precepts. The Precepts in Zen Buddhism are not a kind of moral code, which we believe forces us to not do something, not by our initiative will, but by something else. In Zen, the Precepts are Buddha Nature, the spirit of the universe; this is the Precepts themselves. To receive the Precepts is to realize or to awaken [to] the universe, Buddha Nature.
+I think the Triple Treasure in Zen Buddhism is the foundation of the Precepts. The Precepts in Zen Buddhism are not a kind of moral code which we believe forces us to not do something, not by our initiative will but by something else. In Zen, the Precepts are Buddha Nature, the spirit of the universe; this is the Precepts themselves. To receive the Precepts is to realize or to awaken [to] the universe, Buddha Nature.
 
 Bodhidharma said that to receive means to awaken or to realize. I said before, *to realize* is to accept *and* to digest. You have to totally accept the universe as it is, beyond your understanding, because you live there. So realization means to accept, and also something which you have accepted must be digested through and through, until it turns into life energy. 
 
@@ -48,7 +50,7 @@ In *Zen Master Dogen*, page 60, I think Dogen Zenji talks about this Triple Trea
 
 “No matter how much our life and body may change” means throughout limitless life, in immense spans of time. So we should respect and we should take refuge in the Triple Treasure throughout countless lives, in the immense expanse of time. 
 
-I think *take refuge* [does not mean] to escape from the human world or to escape [from one thing to another]. In Japanese, to take refuge is called *namu kie*. In Sanskrit, *namo* means full devotion or throwing away your body and mind. Namo means total devotion, full devotion to. *Full devotion* means just like the relation between your thought [...] and your stomach. Your stomach and your thought seem to be different; stomach is kind of different from your thought. But stomach is exactly the same as your thought, because it’s a very close relation. If \[your thought becomes upset] \[...] you have a stomach ache, stomach upset. So they are two, but they are not two, [they are] exactly working together, without leaving any trace of the stomach, of the thought. That is the reality where your stomach and thought work together. So that is called full devotion.
+I think *take refuge* [does not mean] to escape from the human world or to escape [from one thing to another]. In Japanese, to take refuge is called *namu kie*. In Sanskrit, *namo* means full devotion or throwing away your body and mind. *Namo* means total devotion, full devotion to. *Full devotion* means just like the relation between your thought [...] and your stomach. Your stomach and your thought seem to be different; stomach is kind of different from your thought. But stomach is exactly the same as your thought, because it’s a very close relation. If \[your thought becomes upset] \[...] you have a stomach ache, stomach upset. So they are two, but they are not two, [they are] exactly working together, without leaving any trace of the stomach, of the thought. That is the reality where your stomach and thought work together. So that is called full devotion.
 
 And that is, in English we say *take refuge in*. Or another expression in English is to *go to Buddha for guidance*. But anyway, *take refuge in* means total, full devotion. 
 
@@ -60,9 +62,7 @@ Why? What is the reason why we have to do this? Dogen Zenji says,
 
 > We take refuge in the Buddha because he is our great teacher. 
 
-*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe, is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words, we say Buddha. 
-
-So Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, attribute of the universe, and functioning of the universe. Then Gotama Siddartha [became] Buddha. 
+*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe, is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words, we say Buddha. Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, attribute of the universe, and functioning of the universe. Then Gotama Siddartha [became] Buddha. 
 
 >  We take refuge in the Law (the Dharma) because it is good medicine. 
 
