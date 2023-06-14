@@ -16,12 +16,12 @@ body {
 }
 
 .wrapper {
-    max-width: -webkit-calc(800px -(50px * 2));
-    max-width: calc(800px -(50px * 2));
+    max-width: -webkit-calc(800px -(60px * 2));
+    max-width: calc(800px -(60px * 2));
     margin-right: auto;
     margin-left: auto;
-    padding-right: 50px;
-    padding-left: 50px
+    padding-right: 60px;
+    padding-left: 60px
 }
 
 @media screen and (max-width: 800px) {
