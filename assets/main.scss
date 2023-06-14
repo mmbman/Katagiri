@@ -3,6 +3,7 @@
 
 @import "{{ site.theme }}";
 
+
 body {
 //     font: 400 16px/1.5 -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, Helvetica, Arial, sans-serif, "Apple Color Emoji", "Segoe UI Emoji", "Segoe UI Symbol";
     font: 400 18px/1.5 Palatino, "Palatino Linotype", "Palatino LT STD", "Book Antiqua", Georgia, serif;
@@ -12,6 +13,24 @@ body {
 
 .site-header {
      font: 400 16px/1.5 -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, Helvetica, Arial, sans-serif, "Apple Color Emoji", "Segoe UI Emoji", "Segoe UI Symbol"
+}
+
+.wrapper {
+    max-width: -webkit-calc(800px -(40px * 2));
+    max-width: calc(800px -(40px * 2));
+    margin-right: auto;
+    margin-left: auto;
+    padding-right: 40px;
+    padding-left:40px
+}
+
+@media screen and (max-width: 800px) {
+    .wrapper {
+        max-width: -webkit-calc(800px -(40px));
+        max-width: calc(800px -(40px));
+        padding-right: 20px;
+        padding-left: 20px
+    }
 }
 
 .page-heading {
