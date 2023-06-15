@@ -13,7 +13,7 @@ Taking refuge in the Triple Treasure – Buddha, dharma, and sangha – is the f
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-1" target="_blank">*Listen to this talk on mnzencenter.org*</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-1" target="_blank">***Listen to this talk on mnzencenter.org***</a>
 
 <a name="000"></a>
 #### 0:00 start of recording
