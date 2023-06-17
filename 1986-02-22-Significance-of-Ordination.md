@@ -52,7 +52,7 @@ Is that clear? This is realization.
 
 #### 10:34
 
-So let’s look at *knowing*. What do you mean, *knowing*? Maybe some day I talked about this: the three kinds of knowledge. 
+So let’s look at *knowing*. What do we mean, *knowing*? Maybe some day I talked about the three kinds of knowledge:
 
 The first [kind of knowledge] is the usual, ordinary sense of knowledge. That means discriminative knowledge, or analytical knowledge, which you can use every day. So if you have a family, if you have a friend, always you separate everything from your time. Some of the time is given to your friends, or your children, to help. Some part of the time should be given to this person, and some part of the time should be given to “B” person; and the rest of the time is mine, and I can use this time for *me*. You always separate things something like this. 
 
