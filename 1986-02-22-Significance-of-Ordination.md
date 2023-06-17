@@ -143,7 +143,7 @@ Every day, in many ways, we can help. I always say, using toilet paper – that 
 
 And that is the goal of ordination. So when you see this opportunity, I think that opportunity lets you turn over a new leaf. More or less – a little bit, or middle sized, or big size, it doesn’t matter. Anyway, to see this opportunity of receiving lay ordination is to let you turn over a new life. That is the first step; you can get into a different world from before. Even though you don’t know, [you can do it].
 
-And if you don’t understand this, still let’s create this opportunity. And then, on purpose, with your will, let’s go: getting into that world. This is also important for us. Alright?
+And if you don’t understand this, still let’s create this opportunity. And then, on purpose, with your will, let’s go. Getting into that world: this is also important for us. Alright?
 
 Okay. Next Saturday, we’ll explain a little more about the concrete aspects of the ceremony, one by one. 
 
