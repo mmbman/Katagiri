@@ -127,7 +127,7 @@ That is knowledge: to know, to realize. That is the meaning of *to realize* the 
 
 #### 40:12
 
-The second point [of lay ordination]: by *the profound and steadfast aspiration for living our lives with all beings in peace and harmony in the light of the Buddha*.
+The second point [of lay ordination]: *the profound and steadfast aspiration for living our lives with all beings in peace and harmony in the light of the Buddha*.
 
 I mentioned what is a place where you have to stand up constantly, in order to figure out a way how to live in peace and harmony. This is Buddha. This is the Buddha’s world: where you can see the total interchanging, one with another; interwoven, constantly. 
 
@@ -135,13 +135,13 @@ Practically speaking, your mind, your life, is always “wriggling” and “wob
 
 #### 42:04
 
-The third point: *By helping all beings*.
+The third point: *helping all beings*.
 
-Every day, in many ways, we can help. I always say, using toilet paper: that is already helping others! Don’t expect a big deal. From your every day life, you can help. Toilet paper: this is helping others. So, this is the third point: you always have to help somebody or something. 
+Every day, in many ways, we can help. I always say, using toilet paper – that is already helping others! Don’t expect a big deal. From your everyday life, you can help. Toilet paper: this is helping others. So, this is the third point: you always have to help somebody or something. 
 
-This is Zen teaching. Helping others means, helping the microphone when you use the microphone. When you use the toilet paper, you have to help the life of toilet paper. That is Zen teaching. People don’t believe this one. But this is really true. 
+*Helping others* means helping the microphone when you use the microphone. When you use the toilet paper, you have to help the life of toilet paper. That is Zen teaching. People don’t believe this one. But this is really true. 
 
-And that is the goal of ordination. So when you see this opportunity, I think that opportunity lets you turn over a new leaf. More or less. A little bit, or middle sized, or big size: it doesn’t matter. Anyway, to see this opportunity of receiving lay ordination is to let you turn over a new life. That is the first step; you can get into a different world from before. Even though you don’t know, [you can do it].
+And that is the goal of ordination. So when you see this opportunity, I think that opportunity lets you turn over a new leaf. More or less – a little bit, or middle sized, or big size, it doesn’t matter. Anyway, to see this opportunity of receiving lay ordination is to let you turn over a new life. That is the first step; you can get into a different world from before. Even though you don’t know, [you can do it].
 
 And if you don’t understand this, still let’s create this opportunity. And then, on purpose, with your will, let’s go: getting into that world. This is also important for us. Alright?
 
