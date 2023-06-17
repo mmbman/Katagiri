@@ -24,9 +24,9 @@ Let me say simply the significance of lay ordination in Buddhism first. The achi
 
 Number one: *realization of the truth, [that] all beings are Buddha*.
 
-The second point: by *the profound and steadfast aspiration for living our lives with all beings in peace and harmony, in the light of the Buddha*.
+The second point: *the profound and steadfast aspiration for living our lives with all beings in peace and harmony, in the light of the Buddha*.
 
-And number three: by *helping all beings*.
+And number three: *helping all beings*.
 
 This is the goal of lay ordination. The ceremony of lay ordination is to see this opportunity, in which we can realize these three important points. And if you don’t know this, we try to create this opportunity, in which we can realize those three important points. 
 
