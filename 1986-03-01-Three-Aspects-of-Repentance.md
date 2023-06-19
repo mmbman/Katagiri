@@ -86,9 +86,11 @@ So this the second condition.
 
 #### 32:02
 
-One more thing: technically, Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” “Passing through a thicket of brambles” means complicated troubles in the human world. [Life is] very complicated, but you have to pass through anyway, you have to always carry on despite the troubles. I don’t think you should ignore the troubles, you have to take care of the troubles, but you cannot stay with them. So that means passing through, constantly. 
+One more thing, technically: Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” 
 
-And also, “cutting down a thicket of sandalwood” means something good, something pretty, something beautiful. Very naturally, we attach to something good, something pretty, something sweet. But we have to cut it down too; we have to always cut it down and pass through this one too. It’s not so easy. Particularly, if you do something good, we want to be proud of ourselves. We want to attach to our lives. 
+“Passing through a thicket of brambles” means complicated troubles in the human world. [Life is] very complicated, but you have to pass through anyway, you have to always carry on despite the troubles. I don’t think you should ignore the troubles, you have to take care of the troubles, but you cannot stay with them. So that means passing through, constantly. 
+
+And also, “cutting down a thicket of sandalwood” means [cutting down] something good, something pretty, something beautiful. Very naturally, we attach to something good, something pretty, something sweet. But we have to cut it down too; we have to always cut it down and pass through this one too. It’s not so easy. Particularly, if you do something good, we want to be proud of ourselves. We want to attach to our lives. 
 
 And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to the purity *and to impurity*, too. This is the essential nature of repentance. 
 
