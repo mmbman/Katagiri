@@ -284,7 +284,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. The Awakening of Faith 3/14/86
 
-1. Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2
+1. [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
 
 1. Principles of Practice: Purpose of Practice
 1. Principles of Practice: Bodhicitta
