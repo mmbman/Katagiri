@@ -123,7 +123,7 @@ If this is just to take care of young birds [so they can] fly in the sky, well, 
 >
 > (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
 
-(*Transcriber’s Note*: And now, here is the poem with the comments, as Katagiri Roshi read it.)
+(*Transcriber’s note*: And now, here is the poem with the comments, as Katagiri Roshi read it.)
   
 > Sun Face Buddha, Moon Face Buddha
 
