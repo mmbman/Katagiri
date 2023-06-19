@@ -22,33 +22,33 @@ I told you already, [the ceremony of lay ordination] consists of repentance, the
 
 The ritual of lay ordination is based on the idea of repentance, which means perfect openness of your heart. Repentance is not to apologize to somebody or something. You should open yourself, completely. If you do it, then consciously or unconsciously you are ready to listen to the voiceless voice of the universe, exactly. This is our practice, okay? So that’s why repentance is called *formless repentance*. 
 
-Anyway, briefly speaking, first we do repentance, which means perfect openness of your heart, which allows you to be ready to the voiceless voice of the whole universe. That is repentance. 
+Anyway, briefly speaking, first we do repentance, which means perfect openness of your heart, which allows you to be ready to listen to the voiceless voice of the whole universe. That is repentance. 
 
-And then, the Triple Treasure is that if you open your heart, next, you have to behave in the realm of the universe. Not out of the universe, and not inside of the universe, because your whole body and mind is completely embraced by the whole universe, so you have to behave in the realm of the universe. You have to manifest your life in the realm of the universe; there is no other way to go. So how should we manifest ourselves in the realm of the universe? That is the Triple Treasure, [or] the Three Refuges. 
+And then, the Triple Treasure is that if you open your heart, next, you have to behave in the realm of the universe. Not out of the universe, and not inside of the universe, because your whole body and mind is completely embraced by the whole universe. So you have to behave in the realm of the universe, you have to manifest your life in the realm of the universe; there is no other way to go. So how should we manifest ourselves in the realm of the universe? That is the Triple Treasure, the Three Refuges. 
 
-The Three Refuges are the three goals in life. When you realize your existence in the realm of the universe, then, naturally, you can see the goal in life. In other words, how do you manifest your life in the realm of the universe, or with the universe, or with all sentient beings. 
+The Three Refuges are the three goals in life. When you realize your existence in the realm of the universe, then naturally you can see the goal in life – in other words, how [should] you manifest your life in the realm of the universe, or with the universe, or with all sentient beings. 
 
 Then, the Three Collective Pure Precepts. This is living in profound aspiration to help all sentient beings. 
 
 And then, the Ten Prohibitory Precepts are [how] to throw yourself into the universe. Putting aside your ego; putting aside [the assertion of yourself in the ego]. How do you put aside [the assertion of yourself] in the ego? Well, you have to follow the teaching, and at least [the] ten prohibitory precepts. 
 
-[Let’s repeat the] structure of the ritual.
+[Let’s repeat the] structure of the ritual:
 
-Repentance: this is perfect openness of your heart, which allows you to be ready to listen to the universe. This is completely beyond your judgement or understanding. If you do it, exactly you can open. So all you can do is, you should carry the continuity of this practice forever, day by day, regardless of whether you can feel the voice of the universe or not. [...] Your consciousness is always irritating to know or not to know. Perfect opening is completely beyond the irritation of your consciousness. Anyway you should open [your heart]. How? This is repentance. 
+Repentance: this is perfect openness of your heart, which allows you to be ready to listen to the universe. This is completely beyond your judgement or understanding. If you do it, exactly you can open. So all you can do is [...] carry the continuity of this practice forever, day by day, regardless of whether you can feel the voice of the universe or not. [...] Your consciousness is always irritating to know or not to know. Perfect opening is completely beyond the irritation of your consciousness. Anyway you should open [your heart]. How? This is repentance. 
 
-Next, the Three Treasures, this is the three goals in life. Everyone should go to that target. Our effort is directed toward the Three Treasures: Buddha, dharma, sangha. 
+Next, the Three Treasures: this is the three goals in life. Everyone should go to that target. Our effort is directed toward the Three Treasures: Buddha, dharma, sangha. 
 
 Next, your have to have very profound aspiration for living in peace and harmony with all sentient beings. This is the Three Collective Pure Precepts.
 
 And then next, individually, we have to throw ourselves into Buddha’s world, the universe, putting aside [the assertion of] yourself in the ego. Constantly we assert ourselves within egoistic life. 
 
-This is the structure of lay ordination. 
+That is the structure of lay ordination. 
 
 So today, I would like to talk a little more about the Three Treasures. I use a different term sometimes, the Triple Treasure, or the Three Refuges. Whichever term I use, they are all the same, okay? 
 
 #### 9:10
 
-So, I said already the Three Refuges refer to the three goals in life. But what is one’s goal in life toward which ones effort is directed if you become a Buddhist? Buddhist means universal being, okay? Anyway, without being caught by the idea of sectarianism, what is one’s goal in life toward which one’s effort is directed? If you become a universal being, what is the goal?
+So, I said already the Three Refuges refer to the three goals in life. But what is one’s goal in life toward which one's effort is directed if you become a Buddhist? Buddhist means universal being, okay? Anyway, without being caught by the idea of sectarianism, what is one’s goal in life toward which one’s effort is directed? If you become a universal being, what is the goal?
 
 Goal means the lofty ideal image of human being, which repose and bliss, or peace and harmony, originate from. So everyone unconsciously, seeking for or groping for something trustworthy, something dependable beyond worldly affairs. Which you can feel relieved. More or less everyone is constantly seeking for this, or groping for. That’s why we suffer. This is called *inception of suffering*. This is suffering. Even though you feel happy, there is suffering – because you want to keep it. Why do you want to keep it? So constantly, whatever your lifestyle may be, happy or unhappy, there is always suffering. Suffering means unsatisfaction. There is an unsatisfactory feeling there. Means you want to grasp or get something trustworthy perfectly, or dependable completely. This is that which we are always seeking for. 
 
