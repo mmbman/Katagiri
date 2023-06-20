@@ -18,15 +18,11 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 <a name="000"></a>
 #### 0:00 start of recording
 
-I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – Buddha, dharma, and sangha – the three collective pure precepts, and ten prohibitory precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
+I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – Buddha, dharma, and sangha – the Three Collective Pure Precepts, and Ten Prohibitory Precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
 
-The ritual of lay ordination is based on the idea of repentance, which means perfect openness of your heart. Repentance is not to apologize to somebody or something. You should open yourself, completely. If you do it, then consciously or unconsciously you are ready to listen to the voiceless voice of the universe, exactly. This is our practice, okay? So that’s why repentance is called *formless repentance*. 
+The ritual of lay ordination is based on the idea of repentance, which means perfect openness of your heart. Repentance is not to apologize to somebody or something. You should open yourself, completely. If you do it, then consciously or unconsciously you are ready to listen to the voiceless voice of the universe. This is our practice, okay? So that’s why repentance is called *formless repentance*. Anyway, briefly speaking, first we do repentance, which means perfect openness of your heart, which allows you to be ready to listen to the voiceless voice of the whole universe. That is repentance. 
 
-Anyway, briefly speaking, first we do repentance, which means perfect openness of your heart, which allows you to be ready to listen to the voiceless voice of the whole universe. That is repentance. 
-
-And then, the Triple Treasure is that if you open your heart, next, you have to behave in the realm of the universe. Not out of the universe, and not inside of the universe, because your whole body and mind is completely embraced by the whole universe. So you have to behave in the realm of the universe, you have to manifest your life in the realm of the universe; there is no other way to go. So how should we manifest ourselves in the realm of the universe? That is the Triple Treasure, the Three Refuges. 
-
-The Three Refuges are the three goals in life. When you realize your existence in the realm of the universe, then naturally you can see the goal in life – in other words, how [should] you manifest your life in the realm of the universe, or with the universe, or with all sentient beings. 
+And then, the Triple Treasure is that if you open your heart, next, you have to behave in the realm of the universe. Not outside of the universe, and not inside of the universe, because your whole body and mind is completely embraced by the whole universe. So you have to behave in the realm of the universe, you have to manifest your life in the realm of the universe; there is no other way to go. How should we manifest ourselves in the realm of the universe? That is the Triple Treasure, the Three Refuges. The Three Refuges are the three goals in life. When you realize your existence in the realm of the universe, then naturally you can see the goal in life – in other words, how you [should] manifest your life in the realm of the universe, with all sentient beings. 
 
 Then, the Three Collective Pure Precepts. This is living in profound aspiration to help all sentient beings. 
 
