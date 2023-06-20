@@ -116,11 +116,11 @@ So whatever you do, wherever you may be, you are doing it in the Buddha’s worl
 
 So that is in terms of functioning, Buddha refers to a person who consistently edifies all beings, wherever they may be. 
 
-*Dharma* means [Buddha] edifies animate and inanimate beings by virtue of appearing as Buddha statues, as paintings of Buddha, as statues of bodhisattvas – of Avalokiteshvara, and Manjusri, and Samantabhadra. [Samantabhadra represents] the principle of existence and practice; Avalokiteshvara is the symbol of a being who [represents] compassion and kindness; [Manjushri represents wisdom]. [And also, Buddha manifests itself] as Buddhist scriptures written in words. Buddha or truth manifests itself constantly [in this way] because it’s very difficult for human beings to have communion with the truth itself. It’s pretty hard. So very naturally human beings have very deep feelings and sensations, which we try to make into something through which we can have very deep, compassionate communion with the universe. That is the Buddhist arts, religious arts. That is a Buddha statue. A Buddha statue is not an idol; this is beautiful art. Art means manifestation of the perfect beauty coming from the human heart. 
+*Dharma* means [Buddha] edifies animate and inanimate beings by virtue of appearing as Buddha statues, as paintings of Buddha, as statues of bodhisattvas – of Avalokiteshvara, and Manjusri, and Samantabhadra – and also as Buddhist scriptures written in words. [Samantabhadra represents] the principle of existence and practice; Avalokiteshvara is the symbol of a being who [represents] compassion and kindness; [Manjushri represents] wisdom. [Buddha or truth manifests itself constantly as statues, as paintings, or as scriptures] because it’s very difficult for human beings to have communion with the truth itself. It’s pretty hard. So very naturally human beings have very deep feelings and sensations, which we try to make into something through which we can have very deep, compassionate communion with the universe; that is the Buddhist arts, religious arts. That is a Buddha statue. A Buddha statue is not an idol; this is beautiful art. Art means manifestation of the perfect beauty coming from the human heart. 
 
 *[Tape change.]*
 
-So from this point, not only the pictures and paintings and statues, but also the form of the trees, the color of the mountains, the sounds of the valley streams – all are teaching us, teaching the truth to us constantly. That’s why Dogen Zenji says the color of the mountains, the sounds of the valley streams, all are the voice and the features of Buddha Shakyamuni, or truth. Or, a Chinese poet says: “The sound of the valley streams is his long, broad tongue. The color of the mountains is his pure body. At night I hear the eighty-four thousand verses uttered. How can I show others what they say?” 
+So from this point, not only the paintings and statues, but also the form of the trees, the color of the mountains, the sounds of the valley streams – all are teaching us, teaching the truth to us constantly. That’s why Dogen Zenji says the color of the mountains, the sounds of the valley streams, all are the voice and the features of Buddha Shakyamuni, or truth. Or, a Chinese poet says: “The sound of the valley streams is his long, broad tongue. The color of the mountains is his pure body. At night I hear the eighty-four thousand verses uttered. How can I show others what they say?” 
 
 *Sangha* in terms of the functioning of the Triple Treasure refers to saving all beings from their suffering, and freeing them from the house of the Triple World – the house of worldly affairs. The sangha in this case means the profound aspiration for letting all beings be free from suffering, including subject and object. Because generally, sangha means peace and harmony. So in terms of the function of the sangha, I think there must be something actualized by you. That something actualized by you, so-called activity or action, human behavior, must last for a long time – not only in your lifetime, but life after life. In order to carry this refined human action for a long time, we need profound aspiration: so-called *vow*. So this action is based on vow: vow for helping all sentient beings [be] free from suffering. Not only you yourself individually – no. Then simultaneously, this profound aspiration for letting all beings be free from suffering naturally turns into human action to build up the peaceful, harmonious, human world – the so-called *Buddha land*.
 
@@ -134,17 +134,15 @@ Do you have questions?
 
 **Question**: Roshi? What do you see as the goal of American society? 
 
-**Katagiri**: American society and Japanese society and Phillipine society, wherever you may go, the most essential goals in life is the point I have mentioned. The goals in life I have mentioned are open to everywhere, anybody. Not only the particular race. 
+**Katagiri**: American society and Japanese society and Philippine society – wherever you may go, the most essential goals in life are the points I have mentioned. The goals in life I have mentioned are open to everywhere, anybody, not only a particular race. 
 
 **Same person**: I’d say the society is very different ...
 
-**Katagiri**: But it doesn’t matter. The surface is different, anyway. *[He laughs.]* Japanese society is different from American society. American customs, habits, and mores of the American people are different from the Japanese, of course. But it is not good enough to understand the different mores, lifestyles of the human beings, but also you have to realize *the same and one ground* where different lifestyle of the beings exist. That is the most important thing. But usually we try to understand the different aspects, different styles, of race, human beings, and then we thing we can create peace. No. So you have to find the same and one ground, where the many, many different lifestyles of existence exist in peace and harmony. That is the point I mentioned. That is the Triple Treasure. 
+**Katagiri**: But it doesn’t matter. The surface is different, anyway. *[He laughs.]* Japanese society is different from American society. The customs, habits, and mores of the American people are different from the Japanese, of course. But it is not good enough to understand the different mores or lifestyles of human beings, but also you have to realize *the same and one ground* where different lifestyle of the beings exist. That is the most important thing. But usually we try to understand the different aspects, different styles, of race, human beings, and then we thing we can create peace. No. You have to find the same and one ground, where the many, many different lifestyles of existence exist in peace and harmony. That is the point I mentioned. That is the Triple Treasure. 
 
-Of course, we should understand what is the different. Japanese culture is different from American culture; Japanese are different from Americans. Yes, they are. But it’s not good enough. If you only understand the different lifestyles of beings, we’re always fighting. 
+Of course, we should understand what is different. Japanese culture is different from American culture; Japanese are different from Americans. Yes, they are. But it’s not good enough. If you only understand the *different* lifestyles of beings, we’re always fighting. 
 
-Even though I say, I try to teach something universal, beyond American or Japanese, but I am Japanese, so always people say, “You are Japanese, so you are talking about the Japanese Buddhism.” I’m not! *[He laughs.]* I am Japanese, of course, who is different from you. But I am trying to disclose universal lifestyle. 
-
-Is that alright? 
+Even though I try to teach something universal, beyond American or Japanese, still I am Japanese, so people always say, “You are Japanese, so you are talking about the Japanese Buddhism.” I’m not! *[He laughs.]* I am Japanese, of course, who is different from you. But I am trying to disclose a universal lifestyle. 
 
 #### 57:48
 
@@ -158,33 +156,33 @@ Is that alright?
 
 **Same person**: I wondered what you were thinking. *[Laughter.]*
 
-**Katagiri**: No, not passive. *[He chuckles.]* Egoless is passive and positive. For instance, you cannot ignore the ego and egoless. You have both. It’s not real practice whether you should accept a style of ego, or a style of egolessness. No. It’s not important, alright? This is secondary. The important point is, first, how do you see humans – so-called Katagiri – as a whole? From where? From ego-style, or egoless-style? 
+**Katagiri**: No, not passive. *[He chuckles.]* Egoless is passive and positive. For instance, you cannot ignore ego and [egolessness]; you have both. It’s not real practice whether you should accept a style of ego or a style of egolessness. No. It’s not important, alright? This is secondary. The important point is, first, how do you see humans – [for example] Katagiri – as a whole? From where? From ego-style, or egoless-style? 
 
-For instance, maybe I told you before, rose... No; rose is another example. But let’s see an example. For instance, if I get the flu, and then two persons try to see me. One person, A, says, “I don’t want to catch the flu from you, so please, don’t give a lecture today. You should sleep.” This is A person. B person says, “Well, you got the flu, so please take a rest. It’s not necessary to give a talk today, because you’re very tired; it’s not so good for you. So please take a rest.” And then what kind of world comes up between the two? Do you understand? 
+Let’s look at an example. For instance, if I get the flu, and then two people try to see me. One person, *A*, says, “I don’t want to catch the flu from you, so please, don’t give a lecture today. You should sleep.” *B* person says, “You’ve got the flu, so please take a rest. It’s not necessary to give a talk today, because you’re very tired; it’s not so good for you. So please take a rest.” And then what kind of world comes up between the two? Do you understand? 
 
-Important point is not whether you should take ego or egolessness. The point is, how do you take care of one person, one reality, one event. In terms of where? Ego? Or egolessness? And then, quite a different world comes up. Do you understand?
+The important point is not whether you should [choose] ego or egolessness; the point is, how do you take care of one person, one reality, one event. In terms of what? Ego? Or egolessness? And then, quite a different world comes up. Do you understand? If *B* person says, “Oh, poor Katagiri, please take a rest, because you’ve got the flu, it’s very difficult for you to give a talk today,” that’s pretty nice, because *B* person is completely practicing egolessness. But *A* person says, “I don’t want to catch the flu from you”; that means *A* person deals with other person in terms of his own standpoint, so always he’s attached to himself. This is really manifestation of ego, don’t you think so? *[He laughs.]* So then, a different world comes up. Completely different. So very naturally, *B* and Katagiri can come together and also create a peaceful [mood] (or mode) of circumstances. And then, everyone can get into this peaceful [mood] of circumstances.
 
-Or if B person says, “Oh, poor Katagiri, please take a rest, because you got the flu, it’s very difficult for you to give a talk today.” That’s pretty nice. Because B person is completely practicing egolessness. But A person says, “I don’t want to catch the flu from you.” That means already... A person deals with other person in terms of his own standpoint. So always he’s attached to himself. This is really manifestation of ego. Don’t you think so? *[He laughs.]* So then, a different world comes up. Completely different. 
+That is called egolessness. Egolessness is not the idea of egolessness opposed to ego, because you cannot discuss always about egolessness and ego, which of the two are important. We cannot say, you know? *[He chuckles.]* We cannot always be practicing egolessness, because if you try to practice egolessness, immediately ego comes up, and so you can always see both. 
 
-So very naturally, B and Katagiri can come together and also create a peaceful mood of circumstances. And then, everyone can get into this peaceful mode of circumstances. Naturally. 
-
-That is called egolessness. So egolessness is not the idea of egolessness opposed to ego, because you cannot discuss always about egolessness and ego, which of the two are important. We cannot say, you know? *[He chuckles.]* We cannot always be practicing egolessness, because if you try to practice egolessness, immediately ego comes up, and so you can see always both. 
-
-**Question**: It seems like on the same point, if someone is threatening violence, and A submits, that would be egoless, and B does not submit, or asserts some sort of defence, hence that might be ego coming up. But being egoless doesn’t necessarily create peace and harmony. 
+**Question**: On the same point, it seems like if someone is threatening violence, and *A* submits, that would be egoless, and B does not submit, or asserts some sort of defense, that might be ego coming up – but that being egoless doesn’t necessarily create peace and harmony. 
 
 **Katagiri**: Sometimes. But egolessness can accept whatever situation happens.
 
 **Same person**: Egolessness is always acceptable?
 
-**Katagiri**: It’s [accepting] all kinds of events which occur in the egolessness world can be acceptable. For instance Gandhi. How did he deal with events and circumstances, human beings? Everyone’s really violent, et cetera. But he saw both, violent or nonviolent. But he doesn’t always discuss, so which was should I accept, violent or nonviolent? No. Because completely he stands up beyond idea of violent or nonviolent. It means he is constantly standing in total nonviolence, beyond the idea of violent or nonviolent. 
+**Katagiri**: It’s [accepting]; all kinds of events which occur in the egolessness world can be acceptable. 
 
-In other words, if you see the rose, I say, “Oh! Rose is beautiful.” But be careful: there is a thorn, a terrible thorn. If I say, “Rose has a terrible thorn behind the beauty,” or you say, “Oh yes, rose has a thorn, but how beautiful the rose is.” What’s the difference [between] my life and your life? You’re standing completely beyond the idea of thorn, which is terrible, or beautiful rose. Beyond this. And then you completely actually deal with the rose which has two [aspects]: thorn and beauty, ugliness and beauty. Beyond this. You are always standing in total beauty. If you stand up in the beautiful world, you can deal with, you can create or establish a peaceful world, comes up. 
+For instance, Gandhi. How did he deal with events and circumstances, human beings? Everyone’s really violent, et cetera, but he saw both: violent or nonviolent. But he doesn’t always discuss, “which should I accept, violent or nonviolent?” No. Because completely he stands up beyond the idea of violent or nonviolent. It means he is constantly standing in total nonviolence, beyond the idea of violent or nonviolent. 
+
+In other words, if you see the rose, I say, “Oh! Rose is beautiful.” But be careful: there is a thorn, a terrible thorn. If I say, “Rose has a terrible thorn behind the beauty,” and you say, “Oh yes, rose has a thorn, but how beautiful the rose is,” what’s the difference [between] my life and your life? You’re standing completely beyond the idea of thorn which is terrible or rose which is beautiful, and then you actually deal with the rose which has two [aspects]: thorn and [rose], ugliness and beauty. You are always standing in total beauty. If you stand up in the beautiful world, you can establish a peaceful world, [it] comes up. 
 
 So the same applied to Gandhi. Gandhi always stood up in the perfect peaceful world, whatever happened. And then he can see human beings, violent, with a thorn, behind the beauty. But he doesn’t always argue. He’s constantly standing [in] how beautiful human beings are. That’s it. Is that clear? A quite different world comes up. 
 
-So real peace is not discussion or idea of peace or not peace, or violent or not violent. You have to show real peace, or perfect non-violence. At that time, any kind of event which occurs in the realm of perfect nonviolence can be accepted by you. So finally, Gandhi was killed. But he forgave. That’s a martyr, in a deep sense. 
+So real peace is not discussion of the idea of peace or not-peace, or violent or not-violent. You have to show real peace, or perfect non-violence. At that time, any kind of event which occurs in the realm of perfect nonviolence can be accepted by you. 
 
-Maybe I can accept my death, but emotionally, I cannot accept death. *[He laughs.]* But as a whole, I can accept it. So part of my body, you know, my mind, consciousness, is screaming, “No, I don’t [accept death].” But as a whole, I can accept it. Because, [there is] no excuse. Not giving up, you know? 
+So finally, Gandhi was killed. But he forgave. That’s a martyr, in a deep sense. 
+
+Maybe I can accept my death. But emotionally, I cannot accept death. *[He laughs.]* But as a whole, I can accept it. So part of my body, you know, my mind, consciousness, is screaming, “No, I don’t [accept death].” But as a whole, I can accept it. Because, [there is] no excuse. [It’s not giving up], you know? 
 
 Do you have more questions? *[He laughs.]* 
 
@@ -192,7 +190,7 @@ Do you have more questions? *[He laughs.]*
 
 **Katagiri**: Yes. *[He laughs, and the group laughs.]* 
 
-But Gandhi’s example is very good for you. You can think of it. If you are Gandhi, what do you do? You have to think of that person. 
+But Gandhi’s example is very good for you. You can think of it. If you are Gandhi, what do you do? You have to think of *that* person. 
 
 #### 1:10:03 end of recording
 
