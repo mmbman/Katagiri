@@ -5,7 +5,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 [List](list#1986) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+[Next](1986-03-15-Triple-Treasure-Lecture-2)
 
 ### Summary
 
@@ -206,4 +206,4 @@ But it’s pretty easy to stay with the result. And then, the Buddhist way is yo
 
 [List](list#1986) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+[Next](1986-03-15-Triple-Treasure-Lecture-2)
