@@ -28,7 +28,7 @@ And then, the Triple Treasure is that if you open your heart, next, you have to 
 
 Then, the Three Collective Pure Precepts. This is living in profound aspiration to help all sentient beings. 
 
-And then, the Ten Prohibitory Precepts are [how] to throw yourself into the universe. Putting aside your ego; putting aside [the assertion of yourself in the ego]. How do you put aside [the assertion of yourself] in the ego? Well, you have to follow the teaching, and at least [the] ten prohibitory precepts. 
+And then, the Ten Prohibitory Precepts are [how] to throw yourself into the universe, putting aside your ego, putting aside [the assertion of yourself in the ego]. How do you put aside [the assertion of yourself] in the ego? Well, you have to follow the teaching, and at least [the] ten prohibitory precepts. 
 
 [Let’s repeat the] structure of the ritual:
 
