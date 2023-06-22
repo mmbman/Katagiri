@@ -180,7 +180,7 @@ So real peace is not discussion of the idea of peace or not-peace, or violent or
 
 So finally, Gandhi was killed. But he forgave. That’s a martyr, in a deep sense. 
 
-Maybe I can accept my death. But emotionally, I cannot accept death. *[He laughs.]* But as a whole, I can accept it. So part of my body, you know, my mind, consciousness, is screaming, “No, I don’t [accept death].” But as a whole, I can accept it. Because, [there is] no excuse. [It’s not giving up], you know? 
+Maybe I can accept my death. Emotionally, I cannot accept death. *[He laughs.]* But as a whole, I can accept it. So part of my body, you know, my mind, consciousness, is screaming, “No, I don’t [accept death].” But as a whole, I can accept it. Because, [there is] no excuse. [It’s not giving up], you know? 
 
 Do you have more questions? *[He laughs.]* 
 
