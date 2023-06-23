@@ -9,9 +9,9 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 
 ### Summary
 
-### Transcript
+The Triple Treasure – Buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, ethical, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue* or characteristics, and *functioning*. Also: how did Gandhi deal with events and circumstances? 
 
-**This transcript is in rough draft stage.**
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a>
 
