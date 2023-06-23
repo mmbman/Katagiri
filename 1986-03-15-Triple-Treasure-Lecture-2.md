@@ -9,7 +9,7 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 
 ### Summary
 
-The Triple Treasure – Buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, ethical, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue* or characteristics, and *functioning*. Also: how did Gandhi deal with events and circumstances? 
+The Triple Treasure – Buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, ethical, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue* or characteristics, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in the hell realms, so there are ample opportunities to take refuge. A Buddha statue is not an idol, it is a manifestation of perfect beauty coming from the human heart. Also: how Gandhi dealt with events and circumstances.
 
 ### Transcript
 
@@ -110,7 +110,7 @@ So whatever you do, wherever you may be, you are doing it in the Buddha’s worl
 
 So that is [how] in terms of functioning, Buddha refers to a person who consistently edifies all beings, wherever they may be. 
 
-*Dharma* means [Buddha] edifies animate and inanimate beings by virtue of appearing as Buddha statues, as paintings of Buddha, as statues of bodhisattvas – of Avalokiteshvara, and Manjusri, and Samantabhadra – and also as Buddhist scriptures written in words. [Samantabhadra represents] the principle of existence and practice; Avalokiteshvara is the symbol of a being who [represents] compassion and kindness; [Manjushri represents] wisdom. [Buddha or truth manifests itself constantly as statues, as paintings, or as scriptures] because it’s very difficult for human beings to have communion with the truth itself. It’s pretty hard. So very naturally human beings have very deep feelings and sensations, which we try to make into something through which we can have very deep, compassionate communion with the universe: that is the Buddhist arts, religious arts. That is a Buddha statue. A Buddha statue is not an idol; it is beautiful art. Art means manifestation of the perfect beauty coming from the human heart. 
+*Dharma* means [Buddha] edifies animate and inanimate beings by virtue of appearing as Buddha statues, as paintings of Buddha, as statues of bodhisattvas – of Avalokiteshvara, and Manjusri, and Samantabhadra – and also as Buddhist scriptures written in words. [Samantabhadra represents] the principle of existence and practice; Avalokiteshvara is the symbol of a being who [represents] compassion and kindness; [Manjushri represents] wisdom. [Buddha or truth manifests itself constantly as statues, as paintings, or as scriptures] because it’s very difficult for human beings to have communion with the truth itself. It’s pretty hard. So very naturally human beings have very deep feelings and sensations, which we try to make into something through which we can have very deep, compassionate communion with the universe: that is the Buddhist arts, religious arts. That is a Buddha statue. A Buddha statue is not an idol; it is beautiful art. *Art* means manifestation of the perfect beauty coming from the human heart. 
 
 *[Tape change.]*
 
