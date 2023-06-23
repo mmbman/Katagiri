@@ -347,6 +347,13 @@ Taking refuge in the Triple Treasure – Buddha, dharma, and sangha – is the f
 
 ---
 
+### [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
+#### March 15, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+The Triple Treasure – Buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, ethical, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue* or characteristics, and *functioning*. Also: how did Gandhi deal with events and circumstances? 
+
+---
+
 ### [Devotion: Walking Alone with Open Heart](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 #### December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 
