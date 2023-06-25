@@ -32,7 +32,7 @@ Dullness and distraction here are meant to exemplify all kinds of [delusion](glo
 
 And the other one is *distraction*: they present it in Sanskrit as [*auddhatya*](glossary#auddhatya). That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
-But in Fukanzazengi, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction but all kinds of delusions drop off from the first. This is shikantaza.
+But in *Fukanzazengi*, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction but all kinds of delusions drop off from the first. This is shikantaza.
 
 First let me say a little bit about the meaning of dullness and distraction. Broadly speaking, dullness and distraction are states where the mind acts reactively, like the swing of a pendulum. The body and mind lose their state of equilibrium in either distraction or dullness, just like a pendulum. 
 

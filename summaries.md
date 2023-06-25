@@ -14,7 +14,7 @@ Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the
 ### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 #### June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
 ---
 
@@ -49,14 +49,14 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 ### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 #### June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi talks about *body and mind dropping off* from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi talks about *body and mind dropping off* from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ---
 
 ### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 #### June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-The conclusion to the series of talks on Fukanzazengi takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness, and the meaning of the term *jijuyu* (usually translated as “self-fulfillment”) in *Bendowa*. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
+The conclusion to the series of talks on *Fukanzazengi* takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness, and the meaning of the term *jijuyu* (usually translated as “self-fulfillment”) in *Bendowa*. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
 ---
 

@@ -9,7 +9,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6"
 
 ### Summary
 
-Katagiri Roshi talks about *body and mind dropping off* from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from Fukanzazengi, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi talks about *body and mind dropping off* from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ### Transcript
 
@@ -68,7 +68,7 @@ At that time, something happens. We call that zazen. That is an occurrence we ca
 
 #### 21:38
 
-I already told you a few stories so far. [Dogen](glossary#dogen) gives lots of examples, but he didn’t explain concretely about each story. But the few stories I told you really [imply very well] the meaning of [shikantaza](glossary#shikantaza), \[which is] zazen based on body and mind dropping off. [Dogen] says [in Fukanzazengi]: 
+I already told you a few stories so far. [Dogen](glossary#dogen) gives lots of examples, but he didn’t explain concretely about each story. But the few stories I told you really [imply very well] the meaning of [shikantaza](glossary#shikantaza), \[which is] zazen based on body and mind dropping off. [Dogen] says [in *Fukanzazengi*]: 
 
 > In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout...
 

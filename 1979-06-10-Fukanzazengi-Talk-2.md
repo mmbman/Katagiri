@@ -36,9 +36,9 @@ The fifth is regulation of the *brain-nerve system*. That is, according to zazen
 
 Also number six is, I told you yesterday, the whole personality or total personality; the personality that, according to general [Buddhism](glossary#buddhism), is [Buddha Nature](glossary#buddha-nature), or according Buddhist psychology it is called [karma](glossary#karma).
 
-That total personality has a double face. One face is karma; you have carried this from the past. And the other face is that total personality which is completely beyond human criticism; that is really Buddha Nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in [Fukanzazengi](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.”
+That total personality has a double face. One face is karma; you have carried this from the past. And the other face is that total personality which is completely beyond human criticism; that is really Buddha Nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in [*Fukanzazengi*](glossary#fukanzazengi), [Dogen Zenji](glossary#dogen) says, “The origin of the way is perfect and all-pervading.”
 
-And then if you do zazen, the original face of existence appears, manifests itself. That is, as Dogen mentions in Fukanzazengi, perfect. The origin of the way, the origin of existence, is perfect and all-pervading; that is Buddha Nature. If you do zazen, immediately it appears. That is what is called the original nature of existence manifesting itself. 
+And then if you do zazen, the original face of existence appears, manifests itself. That is, as Dogen mentions in *Fukanzazengi*, perfect. The origin of the way, the origin of existence, is perfect and all-pervading; that is Buddha Nature. If you do zazen, immediately it appears. That is what is called the original nature of existence manifesting itself. 
 
 #### 6:19
 

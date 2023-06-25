@@ -9,7 +9,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
 ### Transcript
 
@@ -18,11 +18,11 @@ Katagiri Roshi begins a series of talks on Fukanzazengi, Zen Master Dogen’s un
 <a name="000"></a>
 #### 0:00 start of recording
 
-The last sentence of the main subject of [Fukanzazengi – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
+The last sentence of the main subject of [*Fukanzazengi* – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
 
 > For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.
 
-This is a sort of conclusion of the main subject in Fukanzazengi. If you do zazen, “the right dharma is manifesting itself” means that the original nature of the self is manifesting, very naturally. And also [it means] that “from the first, dullness and distraction are struck aside”: from the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true. You experience it in your daily living. Life is really based on this teaching. 
+This is a sort of conclusion of the main subject in *Fukanzazengi*. If you do zazen, “the right dharma is manifesting itself” means that the original nature of the self is manifesting, very naturally. And also [it means] that “from the first, dullness and distraction are struck aside”: from the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. This is the real meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true. You experience it in your daily living. Life is really based on this teaching. 
 
 When you yourself manifest, if you manifest yourself as you really are, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside” – because you are manifesting yourself as you really are, from moment to moment. In other words, you can stand up straight, right now, right here, [and] that means you can manifest yourself. So if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. From the first, they are struck aside.
 
@@ -108,7 +108,7 @@ We should be there. And finally, we should accept this, and we must be *present*
 
 #### 34:20
 
-*Circumstances*: In order to realize this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in Fukanzazengi, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
+*Circumstances*: In order to realize this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
 
 If we meddle with our involvements or our affairs right in the middle of zazen, we cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred of circumstances, or destroying circumstances, we just make arrangement. 
 
@@ -116,7 +116,7 @@ If we meddle with our involvements or our affairs right in the middle of zazen, 
 
 And next, our *sensory system*. We have a sensory system; it's not necessary to destroy it to keep away the human world, because we have it already. So instead of maligning or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
-That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. *(Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](topics#zazengi) chapter of [Shobogenzo](topics#shobogenzo), which is distinct from [Fukan zazengi](topics#fukanzazengi).)*
+That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. *(Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](topics#zazengi) chapter of [Shobogenzo](topics#shobogenzo), which is distinct from [*Fukan zazengi*](topics#fukanzazengi).)*
 
 So first of all, you should make a choice of circumstances. What kind of a room do you have to use? You have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, you would see it completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
@@ -210,7 +210,7 @@ According to a narrow understanding of human life, first you cut off the root of
 
 #### 1:05:26
 
-So, that is the conclusion of the main subject in Fukanzazengi. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is the meaning of the zazen [we always do]. 
+So, that is the conclusion of the main subject in *Fukanzazengi*. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is the meaning of the zazen [we always do]. 
 
 If you believe by the zazen that “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony this way, because if you believe that, then zazen is always something far from you. And not only zazen: you accept yourself as an unhappy person. So you yourself are also a person far from the real person, [if you are] opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult for you to deal with zazen and whatever you do. So, that is not the practice for us.
 
