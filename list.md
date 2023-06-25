@@ -458,7 +458,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 10
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 11
 
-1. Review and Renew: Buddhism for the 21st Century
+1. Review and Renew: Buddhism for the Twenty-First Century
 
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 12
 
