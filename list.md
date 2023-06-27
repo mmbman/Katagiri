@@ -122,9 +122,9 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Blue Cliff Record, Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
 1. [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
 1. [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
+1. [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
 
-1. Blue Cliff Record, Case 43 – Talk 1
-1. Blue Cliff Record, Case 43 – Talk 2
+1. Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 2
 1. Blue Cliff Record, Case 44 – Talk 1
 1. Blue Cliff Record, Case 44 – Talk 2
 1. Blue Cliff Record, Case 45 – Talk 1

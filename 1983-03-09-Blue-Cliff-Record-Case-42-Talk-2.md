@@ -5,7 +5,7 @@ title: "Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 
 
 [List](list#1983) \| 
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
 
 ### Summary
 
@@ -253,4 +253,4 @@ Well, that is a little bit going away [from the point]. *[He chuckles.]* But fun
 
 [List](list#1983) \| 
 [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
+[Next](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)

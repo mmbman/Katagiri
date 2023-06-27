@@ -7,10 +7,9 @@ title: "Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 1"
 [Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
-### Summary
-
-
 ### Transcript
+
+**This transcript is in rough draft stage.**
 
 *(Archive Issue: The audio ends abruptly at 1:01:19. However, the pointer and case are covered.)*
 
@@ -204,7 +203,7 @@ So, human life and death is not [like the] table disappears right now, right her
 
 So if you see this bottom basis of human existence with your consciousness, consciousness simultaneously turns over one hundred eighty degrees. This is a religious transformation. And then you can see your life in the universal perspective. [That is the] broad scale. Usually, we always see the human world with our consciousness which is very limited. That’s why we’re always looking at just the surface. But it’s not good enough; because life and death is connected with being, so-called space, which is vast, something more than you think. So very naturally in your life, many things come up which you have never known. At that time you are very confused. You really experience [that] if you do something, simultaneously something comes up which you have never seen before. 
 
-*(Archive issue: The audio ends unexpectedly at this point.)*
+*(Archive Issue: The audio ends unexpectedly at this point.)*
 
 #### 1:01:19 end of recording
 
