@@ -4,7 +4,7 @@ title: "Mindfulness – Talk 1"
 ## March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1984) \| 
-[Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 
+[Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
 
 ### Summary 
@@ -385,5 +385,5 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1984) \| 
-[Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 
+[Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
