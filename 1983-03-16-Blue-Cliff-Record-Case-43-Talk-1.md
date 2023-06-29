@@ -131,7 +131,7 @@ You know a boiling cauldron is very hot. He is going there. Not *he is going*; h
 
 I think so. Because you are already right in the middle of the heat. No space to suffer. It’s already there. Do you understand? 
 
-For instance, burning in a big furnace. It’s not necessary to do, *[laughter]*, but let’s imagine you’re right in there.  Well, if you die, then very naturally your body is carried directly to the big furnace, [...] and you’re immediately burning. A dead body doesn’t say anything, but if you’re alive, then right there, well you can’t explain, just *[fwoosh]*, that’s all. 
+For instance, burning in a big furnace. It’s not necessary to do, *[laughter,]* but let’s imagine you’re right in there. Well, if you die, then very naturally your body is carried directly to the big furnace, [...] and you’re immediately burning. A dead body doesn’t say anything, but if you’re alive, then right there, well you can’t explain, just *[fwoosh]*, that’s all. 
 
 *[Tape change.]*
 
