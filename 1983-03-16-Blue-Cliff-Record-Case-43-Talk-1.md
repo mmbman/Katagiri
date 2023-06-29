@@ -11,7 +11,7 @@ title: "Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 1"
 
 **This transcript is in rough draft stage.**
 
-*(Archive Issue: The audio ends abruptly at 1:01:19. However, the pointer and case are covered.)*
+*(Archive Issue: The audio ends abruptly at 1:01:19.)*
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-1" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
@@ -61,9 +61,9 @@ So that’s why it says, “Even the thousand sages cannot judge the ability to 
 
 > Without any further traces of obstruction, the whole being appears everywhere equally.
 
-Obstruction means [a] crack through which cold wind blows in. Particularly when you inhale and exhale, you feel your tension slacked. When you inhale, well, it’s alright, but when you exhale, you feel relaxed. At that time, it’s pretty easy to create a crack. And through this crack a cold wind blows in; that means your enemies, your partners attack you. The tiger attacks you immediately. And also when you inhale, you really have tension, and keep yourself as you are. Keep yourself in peace and harmony, keep yourself away from others, away from tigers. So very naturally you create tension. So inhale, it’s alright, but a little bit there is a danger because it creates tension. But exhale, it’s wonderful, you feel relaxed, but it’s pretty easy for us to create a crack. That’s why inhalation, exhalation is very important for us; through that you can know what’s going on there, who you are. That’s why we concentrate on breathing: inhalation, exhalation. 
+*Obstruction* means a crack through which cold wind blows in. Particularly when you exhale, you feel your tension slacked. When you inhale, well, it’s alright, but when you exhale, you feel relaxed; at that time, it’s pretty easy to create a crack. And through this crack a cold wind blows in; that means your enemies, your partners attack you. The tiger attacks you immediately. And also when you *inhale*, you really have tension, and keep yourself as you are: keep yourself in peace and harmony, keep yourself away from tigers. So very naturally you create tension. So inhale, it’s alright, but there is a little bit of danger because it creates tension. But exhale, it’s wonderful, you feel relaxed, but it’s pretty easy for us to create a crack. That’s why inhalation and exhalation is very important for us; through them you can know what’s going on there, who you are. That’s why we concentrate on breathing: inhalation, exhalation. 
 
-So, that’s why the concentration on exhalation, inhalation, should be an abstraction for your zazen. It’s just inhalation and exhalation must go in and out very smoothly, but it doesn’t mean ignore inhalation and exhalation. You should awaken to it, but you shouldn’t create any tension or excessive relaxation for exhalation or inhalation. So that is a little bit difficult, because it is something functioning, and you must be there. So it is a little difficult to explain, so you should really experience through this. 
+The concentration on exhalation, inhalation, shouldn’t be an obstruction for your zazen. It’s just inhalation and exhalation must go in and out very smoothly. But it doesn’t mean ignore inhalation and exhalation. You should awaken to it, but you shouldn’t create any tension or excessive relaxation through exhalation or inhalation. So that is a little bit difficult, because it is something functioning, and you must be there. It is a little difficult to explain, so you should really experience this. 
 
 So “without any further traces of obstruction, the whole being appears everywhere equally.” At that time you can manifest you as you are through exhalation and inhalation; but not only you, the whole world can be manifested. It is really true. But we don’t know, our consciousness cannot reach [it]. But if you do this, completely, it is real fact, real reality, you can really manifest yourself and simultaneously the whole world, equally. 
 
@@ -139,7 +139,7 @@ So that’s why here it says, “The multitude of sufferings cannot reach there.
 
 If you ignore heat, you don’t care [...] When I was at Eiheiji monastery, a friend of mine was always showing off how strong he was. Right in the middle of winter, he would wear just a thin kimono. No [undershirt] (*juban*), just underpants, and a very thin kimono. And this koromo was a summer koromo; it’s not warm. *[He laughs.]* So he was always showing off, saying to me, “Hey – how many clothes do you wear? Look at me!” *[Laughter.]*
 
-It’s pretty good, but I don’t think it is great, because it is just like an owl, which can see everything at night. Do you understand? *[He laughs.]* A human being cannot see everything at night, but an owl can see. So if you can live wearing just a little bit in the cold winter, even in Minneapolis, you’re fine, you’re great. [But] not great – you are still normal person. *[Laughter.]* I don’t think it is valuable, because this is nothing but karmic life. Just like an owl. In terms of human beings, you are jealous of an owl because it can see everything at night. “I wish I could see everything at night.” But should we find real value in such a life? Well, it is nothing but karmic life, as well as my karmic life, your karmic life. So if you really ignore winter and summer, well, you can wear the very thin komono...
+It’s pretty good, but I don’t think it is great, because it is just like an owl, which can see everything at night. Do you understand? *[He laughs.]* A human being cannot see everything at night, but an owl can see. So if you can live wearing just a little bit in the cold winter, even in Minneapolis, you’re fine, you’re great. [But] not great – you are still normal person. *[Laughter.]* I don’t think it is valuable, because this is nothing but karmic life. Just like an owl. In terms of human beings, you are jealous of an owl because it can see everything at night: “I wish I could see everything at night.” But should we find real value in such a life? Well, it is nothing but karmic life, as well as my karmic life, your karmic life. So if you really ignore winter and summer, well, you can wear the very thin komono...
 
 *[Tape change.]*
 
@@ -159,9 +159,7 @@ Anyway,
 
 This is very natural. If you want to go somewhere [where] there is no suffering, no pleasure, no life and death, why don’t you find it? 
 
-Buddha said to an old woman who suffered so much from her babies dying. She really asked Buddha Shakyamuni to save her suffering, to save her baby’s death. In other words she asked Shakyamuni Buddha to make her babies alive again. So Buddha said, “Maybe I could do that. But before this, why don’t you go to the village or city, to find a family in which there is nobody who died.” So she went to the country and to the city to find a family who didn’t have anyone who had died. But nothing. So, she really realized human death, and also suffering, which a mother should have from her babies death. She understood that. 
-
-So there is no other way to go. 
+Buddha said to an old woman who suffered so much from her babies dying. She really asked Buddha Shakyamuni to save her suffering, to save her baby’s death. In other words she asked Shakyamuni Buddha to make her babies alive again. So Buddha said, “Maybe I could do that. But before this, why don’t you go to the village or city, to find a family in which there is nobody who died.” So she went to the country and to the city to find a family who didn’t have anyone who had died. But nothing. So, she really realized human death, and also suffering, which a mother should have from her babies death. She understood that. So there is no other way to go. 
 
 > The monk said, “What is the place where there is no cold or heat?”
 
@@ -171,7 +169,7 @@ What is perfect peace or harmony, where there is no suffering, no distress – n
 
 That means when it is cold, cold is cold. Wherever you may go, cold is cold. So you should take care of cold as it really is, right in the middle of cold. Nothing else. When it is hot, you should find yourself in the heat. That is the cold kills you, or the heat kills you. In other words, exactly be one. You are centered; you are really stable in the cold, in the heat. At that time, the cold and you are really one. At that time, heat or cold don’t bother your life. 
 
-Dogen Zenji says, “For many, many years I have fought the snow-covered mountains.” So he didn’t like the snow. “But now I realize, snow creates the mountains.” Snow creates mountains: that’s a big difference. So for many years, snow covered the mountain; at that time, you don’t like snow, you don’t like winter. But now Dogen Zenji realizes, snow creates the mountains. So at that time, snow is beautiful scenery, snow has its own beautiful nature, a beautiful reason of snow’s life. So very naturally, snow is wonderful nature, as well as your life. That is really enlightenment for you. 
+Dogen Zenji says, “For many, many years I thought that the snow covered the mountains.” So he didn’t like the snow. “But now I realize, snow creates the mountains.” Snow creates mountains: that’s a big difference. So for many years, snow covered the mountain; at that time, you don’t like snow, you don’t like winter. But now Dogen Zenji realizes, snow creates the mountains. So at that time, snow is beautiful scenery, snow has its own beautiful nature, a beautiful reason of snow’s life. So very naturally, snow is wonderful nature, as well as your life. That is really enlightenment for you. 
 
 #### 49:20
 
