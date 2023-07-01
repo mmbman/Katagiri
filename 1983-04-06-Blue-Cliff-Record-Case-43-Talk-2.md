@@ -98,12 +98,77 @@ So the first two, those are the philosophical explanation. The philosophical exp
 
 #### 29:03
 
-*The biased within the correct*. Let’s look at the note. (Note A)
+*The biased within the correct*. Let’s look at the note (Note A):
 
 > ‘Correct’ symbolizes emptiness, nirvana; ‘biased’ symbolizes matter-energy, samsara. The intrinsic identity of emptiness and matter-energy, nirvana and samsara, and hence the complementary unity of wisdom and compassion, is basic to Mahayana, or Great Vehicle Buddhism.
 
-So biased means relative, the phenomenal world. The correct means the absolute. 
+So *biased* means relative, the phenomenal world. *The correct* means the absolute. The simple explanation of the five lines can be found in the book *Zen Dust*. Look at “The Koan of Five Lines” in *Zen Dust*, explained by Isshū Miura and Ruth Fuller Sasaki.
 
+First, *the biased within the correct*:
+
+>> In the middle of the first night, before the moon shines, ...
+
+That means complete darkness. But in darkness, many things exist. The problem is that your consciousness cannot reach [them], that’s all. But regardless of whether your consciousness can reach or not, there are many beings existing in the realm of darkness.
+
+>> No wonder, when they meet, they don’t recognize each other: ...
+
+We cannot see them, but they exist. And also they meet each other but they don’t recognize each other.
+
+>> Each is hidden, still embracing the aversion of former days.  
+
+“Each is hidden” means ... there is something unclear, uncertain. There is something, even though it is very dim, unclear, uncertain. That is the meaning of “each is hidden”. 
+
+“Embracing the aversion” means something beautiful which is inviolable. “Embracing aversion” means total beauty, perfect beauty, including aversion, suffering, pleasure, good and bad – all things. Embracing aversion is including all. Aversion and pleasure and peace are interconnected with each other, and then that is total perfect beauty.
+
+“Of former days” means there is something, but it is unclear, pretty dim, pretty uncertain. But it is something beautiful you cannot explain. 
+
+In the *Lotus Sutra* Chapter Four, you can see the parable of the poor son. Do you remember? The poor son used to be the son of a very noble, rich family. But unfortunately he started to wander all over the country, for fifty years. Some day he came to his father’s home by chance, and his father found him [...], his son. But the son doesn’t recognize him as his father. So the father tried to get him to stay in his home, but he ran away. So the father sent one of his servants to ask him to work at his father’s home as a janitor, cleaning the toilets, clearning the house, et cetera, anyway that what was a very low-level job. So he started to work, but still he didn’t recognize that he was his father. So again and again his father tried to let him recognize that house or that property or that treasure belonged to him, but it took a really long time. But finally he realized. The house was his house, the father was his father. So that means the son wandering for fifty years as a beggar, seems to be very poor, dirty. Wearing dirty rags. But never the less, there was really something beautiful which was indescribable. That means he used to be son of a noble, rich family. That means you are buddha. You are greatness of existence.
+
+This is not a particular son of a noble rich family. If I explain this [story] philosophically, you say “that is a philosophical explanation, which seems to be extra,” but it’s not, because it’s always illuminating in your life. But your consciousness, your knowledge, your senses cannot see it, that’s all. But if someone who really realized that point sees very easily that beautiful which is indescribable. 
+
+*[Tape change.]*
+
+... We are Buddha. Not we have Buddahood; we *are* Buddha. But even though apparently you are poor, wearing dirty rags, or you have a miserable life, or you are not sharp, not bright – but nevertheless, right in the middle of this poor, miserable life still there is something beautiful which you cannot ignore.
+
+This is natural law. Everyone possesses. Natural law is not something you should try to understand, analyzing and synthesizing. Of course Buddhism explains this philosophically, if you want to do that. But after studying, first of all you have to participate in this natural law. That means totally accept this. 
+
+Totally accept means in your daily life totally accept the natural law, you are Buddha. You are beings illuminating something beautiful which no one ignores. That means under all circumstances we have to look continually look at human existence with a very profound glance. Seeing deeply into the original picture of existence. That’s all we have to do, first. Even though you don’t understand, you should accept anyway. That means, listen to this with your heart. Listening to that rhythm of natural law by your intellectual sense is something coming *after* you really accept, you really listening to the rhythm of natural law with your heart. 
+
+With your heart means, later I will tell you, that practically, you must be patient. Continually. You don’t understand natural law, because you have never experienced it, but you are right there. If you are right there, all you have to do is just continue to live there. You should live with your total heart. If you try to live with your intellectual sense, with your six consciousnesses, it’s very hard. But that is something coming after total acceptance of your existence with your heart. And then, intellectual understanding comes, step by step. 
+
+That’s why Tozan Zen Master says “In the middle of the first night, before the moon shines.” Everything exists, everyone exists, all sentient beings exist, totally in equality in the realm of darkness. You never see them through your intellectual sense. That is darkness. But we meet each other. We meet each other but we don’t recognize it. We meet this rhythm of natural law, but we don’t recognize it. That’s all. 
+
+So what should we do? “Each is hidden, still embracing the aversion of former days.” That is what? That is we should believe there is something which is very dim, very unclear, but it is something beautiful which you cannot ignore. Just like a dim image of a mother for the baby. Hold it by her arm. The mother’s face is exactly dim, unclear, for the baby. Just like in the darkness. A dim image of the mother’s face comes out, illuminated by the light of a candle, in the darkness. Just like that. Just before you become completely blind, you can see a little bit, but you cannot see exactly. So the image of the mother for the baby is just like this, because the baby’s consciousness doesn’t work exactly. It’s very dim and unclear, but it’s really [there]. Baby is completely filled there in the realm of dim image of mother’s life. Baby’s life is exactly alive. It’s not a matter of discussion. All baby has to do is just stand up there and depend on it, totally accept. That is natural law. 
+
+So philosophically or intellectually, if you want to understand natural law philosophically or psychologically, first of all, your life must be firm, standing straight, in the realm of Buddha’s world. That means looking at the total picture of existence with a profound glance. Continually. That is just to stand up. When you do zazen, completely beyond useful practice or useless practice, completely beyond when you want to do zazen, just be present there. Firmly. At that time, probably you can a dim image of zazen’s face, appearing in the darkness. But it’s pretty good. If you see it, that’s pretty nice. 
+
+So that is the first line, *the biased within the correct*. It means the relative within the absolute. The absolute means vast expanse of horse pastures, which is called truth. All sentient beings exist there, completely beyond your speculation.
+
+#### 48:27
+
+The second: *the correct within the biased*.
+
+The absolute is not something separate from the relative. The absolute is exactly right in the middle of the relative. For this, it says:
+
+>> At dawn an old woman encounters an ancient mirror;  ...
+
+“At dawn”: that is space. There are discriminated entities in the spatial dimensions. That is at dawn.
+
+“An old woman” [represents] the many entities which exist in the time process. 
+
+“Encounters and ancient mirror”: ancient mirror means the truth, the absolute. Ancient does not mean old; ancient means completely beyond old and new. That means truth. 
+
+So at dawn, all sentient beings in the realm of space, in the realm of time, encounter in the realm of the absolute. That means regardless of whether you understand or not, we are constantly encountering there, reflected in the ancient mirror, the absolute. 
+
+So for this, practically, what should we do? Very naturally, according to the first line, you have to stand up straight; this is the first attitude. Constantly. Believe or not, stand up straight, every day. Secondly, try to research, try to learn human existence until you can touch the bottom of the river. That’s pretty hard. But that is continuous effort. If you stand up there, you cannot take a nap in the realm of standing straight. You have to stand up there in the realm of natural law, and next you have to make continuous effort, until you can reach the bottom of the river. That is the second. 
+
+So “at dawn an old woman encounters an ancient mirror” – at that time you can really reach the bottom of the river. At that time,
+
+>> Clearly she sees her face—there is no other reality.  
+
+Exactly you can see your own face. But this face is not an old face or miserable face or beautiful face. No. It’s not. If your face is reflected in the mirror, the absolute, by reaching the bottom of the river, at that time there is no other reality. Exactly you are one with the bottom of the river. 
+
+>> Don’t go on mistaking the image for the head.  
 
 
 
