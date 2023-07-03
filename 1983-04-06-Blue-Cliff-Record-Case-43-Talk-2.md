@@ -7,9 +7,15 @@ title: "Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 2"
 [Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
 
+### Summary
+
+Katagiri Roshi explains the Five Ranks, a Zen Buddhist teaching. *(Warning: the audio in the archive cuts out before the explanation of the fifth rank.)*
+
 ### Transcript
 
 **This transcript is in rough draft stage.**
+
+**Archive Issue**: The audio ends prematurely at 1:18:54.
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
@@ -166,13 +172,81 @@ So “at dawn an old woman encounters an ancient mirror” – at that time you
 
 >> Clearly she sees her face—there is no other reality.  
 
-Exactly you can see your own face. But this face is not an old face or miserable face or beautiful face. No. It’s not. If your face is reflected in the mirror, the absolute, by reaching the bottom of the river, at that time there is no other reality. Exactly you are one with the bottom of the river. 
+Exactly you can see your own face. But this face is not an old face or miserable face or beautiful face. No. It’s not. If your face is reflected in the mirror, the absolute, by reaching the bottom of the river, at that time there is no other reality. Exactly you are one with the bottom of the river. You are the bottom of the river. Because there is nothing to interrupt between you and the bottom of the river, because the water is completely limpid and clear. So if you see the bottom, that is you, exactly you. 
 
->> Don’t go on mistaking the image for the head.  
+But if you see that is the bottom separate from you, that is already you see your face in the mirror [as usual] in the common sense. At that time, it’s dualistic. At that time, you can see, “Oh, it is beautiful,” or “it is miserable,” but if you touch the bottom of the river, you cannot say anything, you cannot comment to your life exactly what it is. Is it good? Is it bad? No. All you have to do is, you just see your face in the mirror. There is no other reality, no other truth. That’s all you have to do. 
 
+That is continuous effort: stand up straight, according to the first line. But secondly, make continuous effort, until you can see the bottom of the river. Make continuous effort itself is to reach to see the bottom of the river. Remember this point! After making the effort for many, many years, and then you can see the bottom of the river – it’s not real effort. Real effort is identical with seeing the bottom of the river. That means you have to stand up straight first, whatever happens, then next, make continuous effort to move toward the bottom of the river. That’s all we have to do. 
 
+That is very quiet practice. No commentary, nothing to say. No showiness. So that’s why if you see your life deeply, you cannot say anything. Very quiet. While you can comment on your life, it is not yet to touch the bottom of the river. If you can understand really deeply, there is nothing to say. Very naturally understanding deeply human life makes you quiet. But it doesn’t mean keep silent; no. From this silence, from this no-words, lots of words come up, naturally. Just like a spring comes up from the ground. 
 
-####  end of recording
+That is the second. So philosophically; philosophically means in terms of natural law. You have to participate in natural law. How? Completely beyond your speculation, continually participating there, be present there, stand up straight there constantly, under all circumstances. That means, please, live. The truth, to live, is to live. This is the first point. Because you are great. Whatever you comment your life, anyway you are great. So please stand up there. And then next, let’s move toward the bottom of the river. That is continuous effort. 
+
+>> Don’t go on mistaking the image for the head.
+
+It comes from the Lankavatara Sutra (actually the Shurangama Sutra) There is a person named Yajnadatta who is really a crazy man, who saw his eyeballs and eyes on his head reflected in a mirror. He always enjoyed himself, how handsome his was. Every day he looked at his face in the mirror, enjoying his handsome looks. One day, I don’t know why, one day he stood up in front of the mirror but he couldn’t see his head. So he couldn’t see his eyes in his own head, because there is no head. So he was very confused that there was no head. So he ran out of the house, screaming, “Where is my head? Where is my head?” And then Buddha said, “Yajnadatta, your head is on top of your body. Touch it.” “Oh yes.”
+
+We always do this. So even though you don’t understand the rhythm of natural law, it’s always with you. But if you cannot see through your six consciousnesses, you’re always ... confused, and running out of the house and screaming. But this is really a perverted way of life; it makes you confused, continually. That’s why Buddha says, “Your head is on top of your body; why don’t you touch it?” That touch means you should touch your life with your heart; not with your intellect, not with your six consciousnesses, but they come after touching your life with your heart, and then naturally your consciousness starts to work. Otherwise, you don’t know how to use the function of your consciousness. 
+
+So that’s why here it says, “Don’t go on mistaking the image for the head.” Anyway this is a very philosophical attitude to human life; that means regardless of whether you understand or not, you should just face directly this attitude.
+
+And then next, how should we do it our daily life? That is the third and fourth. 
+
+#### 56:47
+
+The third and fourth are the teaching of the Five Ranks which is alive in a person’s life. The third, *coming from within the correct*:
+
+>> Within nothingness there’s a road out of the dust.  
+
+That means all sentient beings exactly coming from the absolute, means you cannot separate all sentient beings, phenomenal world, relative, from the absolute. If you understand intellectually, very naturally you separate. But realistically, in terms of real reality, you cannot separate. You cannot separate your body from your mind, mind from your body. You cannot separate good from evil, evil from good. Simultaneously there. So finally what is real reality? Real reality is really something. You don’t understand it. This is your life, which is present in that reality. That’s why philosophically how we should live, that’s why anyway, please pat your head, stand up there, and make continuous effort to live your best effort. 
+
+And next, the real reality we are present in is what? This is completely nothingness. Just like a pivot of nothing. Just one dot of nothingness. A dot still has width and length, but a pivot of nothingness has completely no sense of width and length, or thickness. Exactly nothing. That is the pivot of nothingness. This is your reality. This is exactly your reality. That’s why coming from within the correct, your reality reality really comes from this reality, this truth. The pivot of nothingness. 
+
+That’s why it says here in the first line, “Within nothingness there’s a road out of the dust.” It’s completely a road out of the dust; nothing to contaminate. If you say it’s a dot, it’s already something contaminated, because you can ... the dot. But a road completely out of the dust means the pivot of nothingness, with no sense of width, no sense of width or thickness. 
+
+>> If you can just avoid violating the present taboo name, ...
+
+In China, it is a very ... attitude toward people, particularly the superior person, we don’t use the real name. For instance Dogen, Dogen is his real name, that’s why we don’t use real name means Gen-zenji, Gen Zen Master, something like this. We don’t use the whole real name. That’s why we can see very often like this, just one word, one letter, instead of two letters. We don’t say Dogen Zenji, we say Gen Zenji, like this. That is a pride attitude in terms of Chinese custom. So that means you cannot touch the real name. You cannot touch the pivot of nothingness, the real name. But, its very difficult to touch.
+
+>> ... You’ll still surpass the eloquent ones of former dynasties who silenced every tongue.  
+
+But even though it’s very difficult to touch, that pivot of nothingness, it is what is reality where you are present in. But, you cannot take a nap there, so you have to say something. Even though you sit down quietly, still that means speaking up, about your life, about others. 
+
+So, “You will still surpass the eloquent ones of former dynasties” means there was a person named [...] who was in [...] dynasty, Tsu Dynasty in China, who was a very eloquent person, speaking very elagantly, very sharp, very bright person. So Tozan Zen Master who established this system of Soto Zen teaching lived in the Tang Dynasty, after the Tsu Dynasty. So in other words, Tan Shan Zen Master was exactly the same as [...], who was an eloquent person in the Tsu Dynasty. Because Tan Shan explains the pivot of nothingness, which is called the real reality you are present in. If you look at the real reality you are present in,  there is nothing to say, because always two ideas come up. You cannot evaluate, you cannot say good or bad, right or wrong. So finally, all ideas drop off, naturally. But there is still lots of words from this. That’s why he is silent, but he is a really eloquent person, talking about this.
+
+It means, practically, what should we do? That means be patient. Because your real reality is the pivot of nothingness. A road out of the dust. Completely. You are there constantly; if so, practically in your everyday life, under all circumstances, don’t be panicked. As Thich Nhat Hanh said, don’t get panicked. It means confused. Under all circumstances, be patient, quiet. Be [...] calm, inpeturbable. 
+
+That is a pretty difficult practice for us. Because we get use of making noise, pretty easily. Under all circumstances. So being quiet, being patient, is a very difficult practice for us. That’s why we have to practice this. If it was easy, it wouldn’t be necessary to practice. We have to practice something which is difficult for us, which we cannot bear. That is patience. 
+
+So the third, practically, when we have to practice patience every day. This is basic practice.
+
+Patience doesn’t mean just accept. It is not a passive way of life. Patience is accept your life while simultaneously moving toward the future in a positive way, doing something. That is called passive way. So that is silence. Silence is not to be silent, without doing anything. In the silence, we have to say many things. That means do something with your body, mind, and your heart. 
+
+#### 1:11:33
+
+The fourth, *arrival within the biased*.
+
+>> When two swords cross points, there’s no need to withdraw.  
+>> A good hand is like a lotus in fire—  
+>> Clearly he naturally has the energy to reach the heavens.
+
+The third, we have to be present in the realm of silence, from which many words spring up constantly. And the the fourth, if you live there, you become a very particular person, who no one can imitate. This is not only human beings. First of all, look at yourself and your friends. You always criticize somebody or praise somebody, but beyond criticism or beyond praise, people are really great entities, beyond your criticism. That’s why everyone is qualified to be present every day, under all circumstances. This is the real picture of you and others and everyone, all sentient beings. Microphone, table, floor, *tatamis*, cushions. Toilet paper, et cetera. All are the same, exactly. Because everything has a certain reason why they exist. Completely beyond you speculation, your judgement, your evaluation. That’s why Buddha says, we are Buddha. 
+
+So from this point, “When two swords cross points, there’s no need to withdraw.” That is just like swordsmanship. Very [...] with the sword. There is no way to escape, no way to move forward, no way to withdraw. Because microphone is microphone. You cannot abandon this entity, you cannot abandon others’ life, you cannot abandon the life of toilet paper. You have to accept this, you have to face it directly, with your heart. 
+
+So there is completely no need to withdraw, no need to move forward, no need to get the win, or loss and failure. No need. No conclusions. Breaking the ties. You are you, I am I, table is table. Both are completely equal. 
+
+At that time, you called *a good hand*. Good hand means expertise, an adept – an adept of sport, and adept of art. Adept of speaking, adept of Buddha’s teaching, adept of human life. That is called a good hand. Good hand is totally you are great, completely beyond human speculation. 
+
+What do I mean? “A good hand is like a lotus in fire”. A good hand is not a lotus blooming in the water, no. If so, that lotus is very [...]. It’s not a lotus. Because lotus is blooming in the mud pond. It’s very natural. But good hand means not like a lotus in the water; lotus in fire. That means under all circumstances, you are great. 
+
+Look at your life. If you always evaluate your life, according to data of nutrition or good health, according to scientific understanding. According to this, you have to sleep eight hours every day. If you don’t sleep, you cannot keep your body in good shape, and your brain doesn’t work. So you have to continue to keep your body in good shape; in order to do this, you have to follow the scientific data. At that time, you cannot get up early in the morning, four o'clock, come to the zendo and talk for thirty minutes about some aspect of Zen Buddhism. It’s ridiculous! It’s nonsense; it’s completely against the evaluation of human life according to the data, scientific understanding. But if you don’t want, please keep your life according to the data, the scientific or philosophical understanding. That’s alright. But if so, you become lotus blooming in the water, that’s all. 
+
+Remember this. My teacher said... I complained a little bit about life... 
+
+***(Archive Issue: The audio ends prematurely at this point.)***
+
+####  1:18:54 end of audio
 
 ---
 
