@@ -9,7 +9,7 @@ title: "Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 2"
 
 ### Summary
 
-Katagiri Roshi explains the Five Ranks, a Zen Buddhist teaching. *(Warning: the archive audio cuts out before the explanation of the fifth rank.)*
+Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. *(Warning: the archive audio cuts out before the explanation of the fifth rank.)*
 
 ### Transcript
 
