@@ -236,7 +236,7 @@ The fourth rank: *arrival within the biased*.
 
 So from this point, “When two swords cross points, there’s no need to withdraw.” It is just like swordsmanship, facing each other with swords. There is no way to escape, no way to move forward, no way to withdraw. Because microphone is microphone; you cannot abandon this entity. You cannot abandon others’ life; you cannot abandon the life of toilet paper. You have to accept this, you have to face it directly, with your heart. So there is completely no need to withdraw, no need to move forward, no need to get the win or the loss; no conclusions, breaking the ties. You are you, I am I, table is table. Both are completely equal. 
 
-At that time, you are called *a good hand*. *Good hand* means [an expert], an adept. An adept of sport, adept of art, adept of speaking, adept of Buddha’s teaching, adept of human life – that is called a good hand. A good hand is totally [that] you are great, completely beyond human speculation. 
+At that time, you are called *a good hand*. *Good hand* means [an expert], an adept. An adept of sport, adept of art, adept of speaking, adept of Buddha’s teaching, adept of human life – that is called a good hand. A good hand is totally [that] you are great, completely beyond human speculation. *(Transcriber’s note: The pointer to this case, covered in the previous talk, refers to “the forge and bellow of an adept.”)*
 
 What do I mean? “A good hand is like a lotus in fire.” A good hand is not like a lotus blooming in the water; that lotus is very common. A good hand means like a lotus in fire. That means under all circumstances, *you are great*. 
 
