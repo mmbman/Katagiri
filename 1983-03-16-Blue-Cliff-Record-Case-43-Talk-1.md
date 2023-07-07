@@ -93,9 +93,9 @@ So within the gassho, [if] *you* do gassho, that is the small scale. But within 
 
 > If you want to understand the hammer and tongs of transcendence, you need the forge and bellows of an adept.
 
-Well, you can do it by yourself, you can live your own way; that’s alright, it’s fine. But if you live your own way, it’s very interesting, but still *your way* is limited. You know how to grow, but that growth is really limited. So if you want to grow in the universe, you have to grow by your effort, and simultaneously, you might [seek the] guidance of a leader or teacher. That is very important for us. I always tell you, if you want to be a football player, or basketball player, or whatever you want to do, you have to run on the field under the guidance of a coach. Still there is no guarantee whether you become a top player or not. It really depends on your determination. 
+Well, you can do it by yourself, you can live your own way; that’s alright, it’s fine. But if you live only your own way, it’s very interesting, but still *your way* is limited. You know how to grow, but that growth is really limited. So if you want to grow in the universe, you have to grow by your effort, and simultaneously, you might [practice] under the guidance of a leader or teacher. That is very important for us. I always tell you, if you want to be a football player, or basketball player, whatever you want to do, you have to run on the field under the guidance of a coach. Still there is no guarantee whether you become a top player or not. It really depends on your strong your determination is. 
 
-So even though you do the same practice like this, among this, someone grows pretty well, someone doesn’t grow well. Someone goes [one] way, someone goes in [a more] appropriate way. Everyone does [the same thing], but among those doing the same thing, in the long range you can see a big difference. That’s why everyday practice is really important. Just like a turtle walking step by step. This is very slow, but in the long range, you can create a big gap, a big difference among people. So that’s why we have to practice on a daily basis, just like a turtle, just like a cow. Completely putting aside your grandiose ideas or complaints, anyway, *let’s do it!* That is very important for us. 
+So even though you do the same practice like this, one person grows pretty well, another doesn’t grow well. Someone goes [one] way, someone goes in [a more] appropriate way. Everyone does [the same thing], but among those doing the same thing, in the long range you can see a big difference. That’s why everyday practice is really important. Just like a turtle walking step by step. This is very slow, but in the long range, you can create a really big gap, a big difference among people. So that’s why we have to practice on a daily basis, just like a turtle, just like a cow. Completely putting aside your grandiose ideas or complaints, anyway, *let’s do it!* That is very important for us. 
 
 #### 31:12
 
@@ -113,11 +113,11 @@ The case:
 >
 > The monk said, “What is the place where there is no cold or heat?”
 > 
-> Tung Shan said, “When it’s cold, the cold kills you; when it’s hot, the heat kills you.”
+> Tung Shan said, “When it is cold, the cold kills you; when it is hot, the heat kills you.”
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
-Look at page 309, the last paragraph:
+Look at page 309, the last paragraph. [The commentary says:]
 
 > Ts’ao Shan asked a monk, “When it’s so hot, where will you go to avoid it?” The monk said, “I’ll avoid it inside a boiling cauldron, within the coals of a furnace.” Ts’ao Shan said, “How can it be avoided in a boiling cauldron or among the coals of a furnace?” The monk said, “The multitude of sufferings cannot reach there.” See how the people of the Ts’ao Tung house naturally understood the conversation of people of their house.
 
@@ -129,17 +129,17 @@ You know a boiling cauldron is very hot. He is going there. Not *he is going*; h
 
 > Ts’ao Shan said, “How can it be avoided in a boiling cauldron or among the coals of a furnace?” The monk said, “The multitude of sufferings cannot reach there.” 
 
-I think so. Because you are already right in the middle of the heat. No space to suffer. It’s already there. Do you understand? 
+I think so. Because you are already right in the middle of the heat. [There is] no space to suffer; it’s already there. Do you understand? 
 
-For instance, burning in a big furnace. It’s not necessary to do, *[laughter,]* but let’s imagine you’re right in there. Well, if you die, then very naturally your body is carried directly to the big furnace, [...] and you’re immediately burning. A dead body doesn’t say anything, but if you’re alive, then right there, well you can’t explain, just *[fwoosh]*, that’s all. 
+For instance, [if you’re] burning in a big furnace. It’s not necessary to do, *[laughter,]* but let’s imagine you’re right in there. Well, if you die, then very naturally your body is carried directly to the big furnace, [...] and you’re immediately burning. A dead body doesn’t say anything, but if you’re alive and *right there*, well, you can’t scream, just *[fwoosh]*, that’s all. 
 
 *[Tape change.]*
 
 ... You cannot scream. So, no suffering. No space to impose the feeling of suffering. Just immediate.
 
-So that’s why here it says, “The multitude of sufferings cannot reach there.” It means, when it is hot, you should be right in the middle of the heat, but you shouldn’t be confused by the heat – because if you’re confused by the heat, you are not right in the middle of the heat, you are looking at the heat at a distance, fighting. *[He chuckles.]* That’s why it’s [hot]; so there’s lots of suffering you can get. But if you are really one with the heat right in the middle of the heat, that is the best way to avoid [suffering]. Anyway, no heat. 
+So that’s why it says here, “The multitude of sufferings cannot reach there.” It means, when it is hot, you should be right in the middle of the heat, but you shouldn’t be confused by the heat – because if you’re confused by the heat, you are not right in the middle of the heat, you are looking at the heat at a distance, *[he chuckles,]* fighting. [...] So there’s lots of suffering you can get. But if you are really one with the heat, right in the middle of the heat, that is the best way to avoid [suffering]. Anyway, no heat. 
 
-[In other words], when it is hot, usually people are very confused. But you shouldn’t be confused, because if you are confused, you are completely carried away, or you are not centered. Be centered. You must be what you are, always. Even though your mind is inside of your six consciousnesses, always burning, screaming, but anyway, even physically, be quiet, be present there. And then very naturally, your mind gradually [...] But physically, if you scream or if you dance, it’s pretty hard; simultaneously mind also follows it. So that’s why [you should] be present there but not confused. As best as you can, you should deal with what you are, right in the middle of the heat. That means you shouldn’t ignore the heat, but on the other hand, you cannot attach to the heat. 
+[In other words], when it is hot, usually people are very confused. But you shouldn’t be confused, because if you are confused, you are completely carried away, or you are not centered. Be centered. You must be what you are, always. Even though your mind is inside of your six consciousnesses, always burning, screaming – still, even [if only] physically, be quiet, be present there. And then very naturally, your mind gradually follows it. But physically, if you scream or if you dance, it’s pretty hard; simultaneously mind also follows it. So that’s why [you should] be present there but not confused. As best as you can, you should deal with what you are, right in the middle of the heat. That means you shouldn’t ignore the heat, but on the other hand, you cannot attach to the heat. 
 
 If you ignore heat, you don’t care [...] When I was at Eiheiji monastery, a friend of mine was always showing off how strong he was. Right in the middle of winter, he would wear just a thin kimono. No [undershirt] (*juban*), just underpants, and a very thin kimono. And this koromo was a summer koromo; it’s not warm. *[He laughs.]* So he was always showing off, saying to me, “Hey – how many clothes do you wear? Look at me!” *[Laughter.]*
 
