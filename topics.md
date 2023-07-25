@@ -144,6 +144,7 @@ Japanese: Kaiin-zanmai
 ### Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+- [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1  (20:34)](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
 
 --- 
 

@@ -95,7 +95,7 @@ Even though you accept totally and all sentient beings respond to your life, sti
 
 *(Archive Issue: The online audio ends here.)*
 
-#### 29:04 end of recording
+#### 29:04 end of audio
 
 ---
 
