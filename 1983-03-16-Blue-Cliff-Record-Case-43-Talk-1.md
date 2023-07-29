@@ -47,7 +47,7 @@ That *I don’t know* is not the usual meaning of “I don’t know” that you 
 
 So that is a very simple statement: “Nothing holy; just vastness.” But this is a very impressive statement. So from generation to generation, we still have to continue to think about this. It has been handed down from generation to generation because it is not merely words, it comes from Bodhidharma’s true heart. He really touches the core of existence. 
 
-The core of existence is really silent – but pretty active. It’s very vast, because it is always embracing the whole thing. But according to human speculation, we think that is kind of contradictory, because [existence is] embracing everything in peace and harmony. So that’s why it’s vast, nothing holy; no discrimination there. 
+The core of existence is really silent – but pretty active. It’s very vast, because it is always embracing the whole thing. But according to human speculation, we think that is kind of contradictory, because [existence is] embracing everything in peace and harmony. So that’s why it’s vast, nothing holy; no discrimination there. *(Transcriber’s Note: These last two sentences were difficult to understand.)*
 
 So [the pointer says], “Ten thousand ages abide by the phrase that determines heaven and earth.” What is the human world, what are human beings? What are the trees and the birds, the skies, heaven, earth? What is the beginning of the world? What is the end of the world? This simple phrase completely [extends] to heaven and earth. 
 
