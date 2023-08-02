@@ -9,7 +9,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 ### Summary
 
-Taking refuge in the Triple Treasure – Buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*.
+Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*.
 
 ### Transcript
 
@@ -154,7 +154,7 @@ And then how can you do this? That is by manifestation of your wholeheartedness.
 
 That is called *taking refuge in the Buddha, dharma, sangha*. So that’s why the Three Refuges are a very basic practice for us, in order to enter the Buddha’s world. 
 
-Next time I think I will explain in a little more detail about the Triple Treasure: Buddha, dharma, and sangha. What does it mean, a little bit intellectually? You know, you have to understand the quality or characteristics of the Triple Treasure, [and] why we have to believe this, why we have to depend on this Triple Treasure. I will explain that next time.
+Next time I think I will explain in a little more detail about the Triple Treasure: buddha, dharma, and sangha. What does it mean, a little bit intellectually? You know, you have to understand the quality or characteristics of the Triple Treasure, [and] why we have to believe this, why we have to depend on this Triple Treasure. I will explain that next time.
 
 Do you have questions? 
 

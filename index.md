@@ -7,12 +7,14 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 ## Latest Updates
 
+---
+
 *Posted June 23, 2023*
 
 ### [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
 #### March 15, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-The Triple Treasure – Buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue* or characteristics, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge. Also: how Gandhi dealt with events and circumstances.
+The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue* or characteristics, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge. Also: how Gandhi dealt with events and circumstances.
 
 ---
 
@@ -21,7 +23,7 @@ The Triple Treasure – Buddha, dharma, and sangha – is the sublime goal in li
 ### [Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
 #### March 8, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Taking refuge in the Triple Treasure – Buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*.
+Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*.
 
 ---
 
