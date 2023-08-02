@@ -64,7 +64,7 @@ So let’s see the Three Treasures in terms of the spiritual, moral, ethical, em
 
 #### 19:46
 
-(*Transcriber’s Note*: In reading the following sections, the question arises, how do *philosophical worth*, *virtue* or *characteristics*, and *functioning* map to *intellect,* *spirit*, and *emotion*? Or do they? This question is not directly addressed in the talk. My interpretation is that *philosophical worth* corresponds to *intellect*, *virtue* or *characteristics* might correspond to *spirit* or *ethics* (or both), and *function* corresponds to *emotion*. A different interpretation is offered in the book *Returning to Silence*, in the section “The Triple Treasure.”)
+(*Transcriber’s Note*: In reading the following sections, the question arises, how do *philosophical worth*, *virtue or characteristics*, and *functioning* map to *intellect,* *spirit*, and *emotion*? Or do they? This question is not directly addressed in the talk. My interpretation is that *philosophical worth* corresponds to *intellect*, *virtue or characteristics* might correspond to *spirit* or *ethics* (or both), and *function* corresponds to *emotion*. A different interpretation is offered in the book *Returning to Silence*, in the section “The Triple Treasure.”)
 
 First, let’s see the Three Treasures in terms of *philosophical worth*. 
 

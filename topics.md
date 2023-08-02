@@ -141,7 +141,7 @@ Japanese: Kaiin-zanmai
 
 - [Mindfulness – Talk 1 (part 1 32:56)](1984-03-21-Mindfulness-Talk-1#part-1-32:56)
 
-### Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
+### Hōkyō Zanmai or Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
 - [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1  (20:34)](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
