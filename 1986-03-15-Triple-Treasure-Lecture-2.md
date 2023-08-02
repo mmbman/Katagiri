@@ -44,7 +44,7 @@ And then next, individually, we have to throw ourselves into Buddha’s world, t
 
 That is the structure of lay ordination. 
 
-So today, I would like to talk a little more about the Three Treasures. I use a different term sometimes, the Triple Treasure, or the Three Refuges. Whatever term I use, they are all the same, okay? 
+Today, I would like to talk a little more about the Three Treasures. I use a different term sometimes: the Triple Treasure, or the Three Refuges. Whatever term I use, they are all the same, okay? 
 
 #### 9:10
 
