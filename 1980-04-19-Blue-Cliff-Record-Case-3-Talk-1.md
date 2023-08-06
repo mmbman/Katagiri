@@ -100,7 +100,7 @@ Regardless of whether you are conscious of the truth or not, [Buddhas](glossary#
 
 In other words, as I told you before: modern civilization is pretty good for us, and consciousness is pretty good for us, but we have to transcend the function of consciousness. 
 
-*Transcend* doesn’t mean to destroy consciousness; *transcend* is not to attach to any [expected ideas]. We cannot say “consciousness is good” or “consciousness is bad.” *Transcend* means that through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
+*Transcend* doesn’t mean to destroy consciousness; *transcend* is to not attach to any [expected ideas]. We cannot say “consciousness is good” or “consciousness is bad.” *Transcend* means that through consciousness we should live in the best way, day after day. Think carefully, through and through, and then live in the best way. But – you cannot stay with your consciousness, by which you have lived in the best way. You must transcend your understanding, your best life. In other words, you should watch carefully your life, modern civilization, which we have created. That is really development of human life. 
 
 Development of human life is, according to the [*Diamond Sutra*](glossary#diamond-sutra), no development of human life. And then, this is real development. *[He chuckles.]* Do you understand? It’s really true. 
 
