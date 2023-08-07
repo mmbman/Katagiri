@@ -315,7 +315,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 #### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body as “impure”. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: why the word “Zen” is overused.
+Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also, the meaning of “facing the wall,” and why the word *Zen* is overused.
 
 ---
 
