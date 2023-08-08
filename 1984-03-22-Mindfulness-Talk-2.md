@@ -5,7 +5,7 @@ title: "Mindfulness – Talk 2"
 
 [List](list#1984) \| 
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Next](1984-05-14-Two-Kinds-of-Nowness)
 
 ### Summary
 
@@ -311,4 +311,4 @@ So the *mountains are mountains* I am talking about is quite different from the 
 
 [List](list#1984) \| 
 [Previous](1984-03-21-Mindfulness-Talk-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Next](1984-05-14-Two-Kinds-of-Nowness)

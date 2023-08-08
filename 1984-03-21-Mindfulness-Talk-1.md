@@ -5,7 +5,7 @@ title: "Mindfulness – Talk 1"
 
 [List](list#1984) \| 
 [Previous](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Next](1984-03-22-Mindfulness-Talk-2)
 
 ### Summary 
 
@@ -386,4 +386,4 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 
 [List](list#1984) \| 
 [Previous](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Next](1984-03-22-Mindfulness-Talk-2)
