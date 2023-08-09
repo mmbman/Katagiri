@@ -9,7 +9,7 @@ title: "Mindfulness – Talk 2"
 
 ### Summary
 
-The body is total dynamic working, and total dynamic working is like a maple leaf falling, showing its front and back. And also, the maple leaf is sucked into a black hole. Failure is development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of *mind only*. 
+The body is total dynamic working, and total dynamic working is like a maple leaf falling, showing its front and back. And also, the maple leaf is sucked into a black hole. Failure is really development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of *mind only*. 
 
 ### Transcript
 
