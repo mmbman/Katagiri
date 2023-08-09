@@ -5,7 +5,7 @@ title: "Genjokoan: A, B, and C Worlds"
 
 [List](list#1987) \| 
 [Previous](1987-06-20-Manas) \| 
-[Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
+[Next](1988-10-05-Review-and-Renew)
 
 ### Transcript
 
@@ -142,4 +142,4 @@ But practically speaking, for instance, if you want to master dance or skiing or
 
 [List](list#1987) \| 
 [Previous](1987-06-20-Manas) \| 
-[Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
+[Next](1988-10-05-Review-and-Renew)
