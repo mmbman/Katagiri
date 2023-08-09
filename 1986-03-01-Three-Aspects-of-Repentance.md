@@ -80,23 +80,25 @@ The *muni* of Shakymuni is *jakumoku* in Chinese. *Jaku* means *tranquil*. *Moku
 
 So *Shakyamuni* means “the self as subjectivity must practice tranquil silence”. Zen Buddhism emphasizes constantly to practice the truth, in silence, because truth itself is really tranquil silence. When you sit down in zazen, can you explain the real self who touches the truth? The moment when you touch the truth, you don’t know how to explain the self as subjectivity who touches the truth. No, you don’t know. So very naturally, the self as subjectivity who touches the truth becomes silent. But the silence is deep, it’s really something alive with you. And also, people are really impressed by this silence that you give forth from your whole body, your whole personality. So you can help people as this. 
 
-That’s why Shakyamuni is the person who attains the self as subjectivity who practices tranquil silence, exactly. This is called Buddha. Buddha is the contents of Shakyamuni. Buddha is exactly the total manifestation of tranquil silence. So Buddha is the truth. And then if you do it, if you experience it, Buddha gives forth its own light, from your whole body. Then the people are really appreciative, people are very much moved by your experience. 
+That’s why Shakyamuni is the person who attains *the self as subjectivity who practices tranquil silence*. Exactly this is called Buddha. Buddha is the contents of Shakyamuni. Buddha is exactly the total manifestation of tranquil silence. So Buddha is the truth. And then if you do it, if you experience it, Buddha gives forth its own light, from your whole body. Then the people are really appreciative, people are very much moved by your experience. 
 
-So this the second condition.
+So that is the second condition.
 
 #### 32:02
 
-One more thing, technically: Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” 
+One more thing: technically, Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” 
 
 “Passing through a thicket of brambles” means complicated troubles in the human world. [Life is] very complicated, but you have to pass through anyway, you have to always carry on despite the troubles. I don’t think you should ignore the troubles, you have to take care of the troubles, but you cannot stay with them. So that means passing through, constantly. 
 
-And also, “cutting down a thicket of sandalwood” means [cutting down] something good, something pretty, something beautiful. Very naturally, we attach to something good, something pretty, something sweet. But we have to cut it down too; we have to always cut it down and pass through this one too. It’s not so easy. Particularly, if you do something good, we want to be proud of ourselves. We want to attach to our lives. 
+And also, “cutting down a thicket of sandalwood”: sandalwood means something good, something pretty, something beautiful. Very naturally, we attach to something good, something pretty, something sweet. But we have to always cut it down and pass through this one too. It’s not so easy. Particularly, if you do something good, we want to be proud of ourselves. We want to attach to our lives. 
 
 And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to the purity *and to impurity*, too. This is the essential nature of repentance. 
 
+#### 34:09
+
 So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert which I mentioned a couple of years ago: “How To Make A Portrait Of A Bird”. Do you remember? It’s very beautiful for children. 
 
-In the beginning, he says, 
+In the beginning, he says: 
 
 > First paint a cage with an open door.
 
