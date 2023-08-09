@@ -101,9 +101,9 @@ Do you have some questions?
 
 #### 52:12
 
-**Question**: Hojo-san? Were you making a point that 21st century human beings maybe are become more obstinate because technology promises that it can control the universe?
+**Question**: Hojo-san? Were you making a point that 21st century human beings maybe are becoming more obstinate or stubborn because technology spoils [us], because technology promises that it can control the universe?
 
-**Katagiri**: Yes, they become more stubborn, more arrogant. That’s why we have to offer certain circumstances where they can manifest, they can realize the bigger scale of the world through their own research. Because even though they become more and more stubborn by the strong belief of their accomplishments. But reality ... would rather be reverse sometimes, by stubbornness they can realize the bigger scale of the world. So as best as we can, we try to give compassion over them, and offer certain circumstances where they can feel the bigger scale of the world. That is living together in peace and harmony. 
+**Katagiri**: Yes, they may become more stubborn, more arrogant. That’s why we have to offer certain circumstances where they can manifest or they can realize the bigger scale of the world through their own research. Because even though they become more and more stubborn by the strong belief of their accomplishments, but reality [...] would rather be [the] reverse sometimes: by stubbornness they can realize the bigger scale of the world. So as best as we can, we try to give compassion to them, and offer certain circumstances where they can feel the bigger scale of the world. That is living together in peace and harmony. 
 
 #### 54:15
 
@@ -111,39 +111,37 @@ Do you have some questions?
 
 **Another person**: [Did you say] that was wisdom?
 
-**Katagiri**: Wisdom; you can see it with wisdom. I think this is the analogy: your breath. You always take breath every day, even though you sleep, even though you don’t pay attention to it, always breathing is going and your heart is working. Who takes care of this? Your effort? Yes, your effort, because you try to keep your body in good shape, excercising, et cetera, that is your effort. But on the other hand, there is something more than your effort. Your heart is moving. That is, I say, the heart is caused to be alive. Is that clear? 
+**Katagiri**: You can see it with wisdom. I think your breath is a good analogy. You always breath every day. Even though you sleep, even though you don’t pay attention to it, always breathing is going and your heart is working. Who takes care of this? Is it your effort? Well yes, your effort, because you try to keep your body in good shape, exercising, et cetera – that is your effort. But on the other hand, there is something more than your effort, [by which] your heart is moving. That is, I say, the heart is *caused to be alive*. Is that clear? 
 
-So as a whole, not only human beings, trees, birds, all sentient beings, are caused to be alive. That is called Buddha’s life.
+So as a whole, not only human beings, but trees, birds, all sentient beings, are caused to be alive. That is called Buddha’s life.
 
 **Question**: Is that understanding interdependence? 
 
-**Katagiri**: Yes, according to the teaching, yes. Dependent co-origination, yes.
-
-But that is a teaching, but practically we should do it. That is everyday life, we have to do it. That is appreciation: this table is a being as well as our life. 
+**Katagiri**: Yes, according to the teaching, dependent co-origination. But that is a teaching. Practically, we should do it. That is everyday life, we have to do it. That is appreciation: this table is a being as well as our life. 
 
 **Question**: You mean acknowledge it? 
 
-**Katagiri**: Yes, acknowledge it. So deal with this table with kindness, and being considerate, and charitable to it. That is handling this table carefully. Carefully [doesn’t] mean slowly, or what would you say, meticulously. 
+**Katagiri**: Yes, acknowledge it. So deal with this table with kindness, and being considerate and charitable to it. That is handling this table carefully. Carefully [doesn’t] mean slowly, or what would you say, meticulously. 
 
 **Question**: What *does* carefully mean? 
 
-**Katagiri**: With concentration. Careful attention means with full concentration, you try to deal with it with wholeheartedness. 
+**Katagiri**: With concentration. Careful attention means with full concentration. You try to deal with it with wholeheartedness. 
 
 **Question**: It’s seems that concentration is involved in thought process, it seems that what you’re talking about is more an awareness than ...
 
-**Katagiri**: Awareness and simultaneously it becomes practice. Of course with concentration, consciousness is involved. Because when you want to deal with this table, consciousness is already involved, because consciousness sees this table. But consciousness is very complicated, not simple work, because it’s connected with your heredity and education, and emotions, and judgement, evaluation... [connected with] many things. That’s why when you see it, immediately you judge it, and then next emotional judgement [or] feeling coming up. So finally we don’t use this table with wholeheartedness. Do you understand what I mean? So consciousness is already involved. Without consciousness, you cannot live in this world. 
+**Katagiri**: Awareness, and simultaneously it becomes practice. Of course with concentration, consciousness is involved. When you want to deal with this table, consciousness is already involved, because consciousness sees this table. But consciousness is very complicated, not simple work, because it’s connected with your heredity and education, and emotions, and judgement, evaluation... connected with many things. That’s why when you see it, immediately you judge it, and then next emotional judgement [or] feeling is coming up. So finally we don’t use this table with wholeheartedness. Do you understand what I mean? So consciousness is already involved. Without consciousness, you cannot live in this world. 
 
-**Question**: Seems like ... if you concentrate too much, if you think too much about being careful, then more judgements come up.
+**Question**: It seems to me like if you concentrate too much, if you think too much about being careful, then *more* judgements come up.
 
-**Katagiri**: That is you play with your consciousness. So you have to let it go. You have to use consciousness as simply as you can; you should do it and then let it go. That’s practice. 
+**Katagiri**: That is you playing with your consciousness. So you have to let it go. You have to use consciousness as simply as you can: you should do it and then let it go. That’s practice. 
 
-But usually we do it with wholeheartedness and then we judge the result. And then, what should we do, we should work harder, and then we do that, and then we judge it. That kind of thing happens always. So [with] that, finally we are very confused, nervous, you know? Exhausted. So all you can do is, with wholeheartedness, deal with this now, and then let it go. You should open; and then next moment, you just do. With a refreshing feeling. 
+But usually we do it with wholeheartedness and then we judge the result. And then, what should we do, we should work harder, and then we do that, and then we judge it. That kind of thing always happens. So [with] that, finally we are very confused, nervous, you know? Exhausted. So all you can do is, with wholeheartedness, deal with this *now*, and then let it go. You should open; and then next moment, you just do it, with a [new, fresh] feeling. 
 
-So always there are two practices: holding, and let it go. Holding means see this table. And then do it, and then let it go. 
+So always there are two practices: holding, and letting it go. *Holding* means see this table. And then do it. And then let it go. 
 
-**Question**: So when you talk about concentration, you’re just talking about a momentary kind of thing? 
+**Question**: So when you talk about concentration, you’re just talking about a *momentary* kind of thing? 
 
-**Katagiri**: Momentary, yes. Momentary concentration must be alive. So momentary concentration is always new.
+**Katagiri**: Momentary? Yes. Momentary concentration must be alive. So momentary concentration is always new.
 
 #### 1:00:38
 
