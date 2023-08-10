@@ -145,13 +145,13 @@ So always there are two practices: holding, and letting it go. *Holding* means s
 
 #### 1:00:38
 
-**Question**: When you’re talking about renewing ... in general, Buddhist person would you say their life is a little more involved around ceremonies, and not so much  ... *[unintelligible]*
+**Question**: When you’re talking about renewing... A general Buddhist person, would you say their life is a little more involved around ceremonies, and not so much ... *[unintelligible]*
 
-**Katagiri**: Well, that is a little bit complicated, and I cannot know exactly. But life must be simple is important. So if a human being renewed, then we can handle Buddhism as simply as we can. So I think first the important thing is that we should be renewed. Don’t you think so? 
+**Katagiri**: Well, that is a little bit complicated, and I cannot know, exactly. But it is important that life be simple. If a human being is renewed, then we can handle Buddhism as simply as we can. So I think first the important thing is that we should be renewed. Don’t you think so? 
 
-**Same person**: I’m not really criticizing Buddhist ceremony or something outside, but ...
+**Same person**: So not really criticizing Buddhist ceremony or something [...] but ...
 
-**Katagiri**: No. In Japan, funeral service and memorial services are criticized by many people, because memorial service becomes more and more *the business*. So they don’t like it. So finally, recently, they have funeral services without a priest, and not using a temple but using a hotel. More than Christian; they don’t use anything, just putting flowers around and decorating and having picture there, that’s it. That’s the kind of thing happening in Japan. But a funeral service is a funeral service. I think the point is how to use this funeral service. Because already a thousand years ago, already our ancestors started to do burial services. I don’t think it’s necessary to maintain it, but I want to maintain that spirit of being considerate of others. That is most important. That is a funeral service or memorial service, okay? Because it’s very difficult to manifest this consideration or charitable... it’s very difficult to manifest. That’s why through the service and rituals, we can manifest. 
+**Katagiri**: No. In Japan, funeral services and memorial services are criticized by many people, because the memorial service becomes more and more “the business,” so they don’t like it. So recently, they have funeral services without a priest, and using a hotel instead of a temple. More than [in Christianity]; they don’t use *anything*, just putting flowers around, decorating, and having pictures there, that’s it. That kind of thing happens in Japan. But a funeral service is a funeral service; I think the point is how to use this funeral service. Because one hundred thousand years ago, already our ancestors started to do burial services. I don’t think it’s necessary to maintain [the funeral service], but I want to maintain that spirit of being considerate of others. That is most important. Because it’s very difficult to manifest this consideration or charitable [feeling]. That’s why [we have] the service and rituals, [so through them] we can manifest [it]. 
 
 #### 1:03:50
 
@@ -163,7 +163,7 @@ So always there are two practices: holding, and letting it go. *Holding* means s
 
 **Katagiri**: Forever. That is longevity. *[He laughs.]* 
 
-That is called *jumyō* in Japanese: lifespan. You know lifespan is a little bit limited, if you use the word lifespan. But jumyō is not lifespan, [it is] endless life. *Ju* is longevity, *myō* is life. So something continuous from past to the present to the future. This is longevity; eternity. Eternal continuation. 
+That is called *jumyō* in Japanese: lifespan. If you use the word lifespan, it’s a little bit limited, but jumyō is not [really] lifespan, [it is] endless life. *Ju* is longevity, *myō* is life. So, something continuous from past to the present to the future. This is longevity; eternity. Eternal continuation. 
 
 #### 1:05:02 end of recording
 
