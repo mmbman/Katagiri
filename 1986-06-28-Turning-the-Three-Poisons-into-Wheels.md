@@ -48,9 +48,9 @@ So in order to turn the poison of greed into the wheel of greed, we should recei
 
 #### 22:57
 
-I think Dogen Zenji constantly presents this point in words; that’s why it is difficult to believe it and to accept it. Other sutras, whatever kind of sutra you read, always [express] this point, but Dogen Zenji constantly [expresses] this point regardless of whether you believe it or not, and then awakens people to this truth. If you read his works, it’s really amazing, because first of all he [blows it up], he represents something in oneness, [something] which is really alive, not an idea, immediately, right in front of you. So we are very surprised, amazed, startled. That’s why we don’t believe it. 
+I think Dogen Zenji constantly presents this point in words; that’s why it is difficult to believe it and to accept it. Other sutras, whatever kind of sutra you read, always [explain] this point, but Dogen Zenji constantly [expresses] this point regardless of whether you believe it or not, and then awakens people to this truth. If you read his works, it’s really amazing, because first of all he [blows it up]; he represents something in oneness, [something which is not an idea but] is really alive, immediately, right in front of you. So we are very surprised, amazed, startled. That’s why we don’t believe it. 
 
-Here is an example. In *Baika*, which means “Plum Blossoms”, Dogen Zenji quotes his master Tiantong’s poem. In Japan, the plum tree blooms in midwinter. It’s very beautiful, with scarlet flowers; everywhere is covered with snow, and the plum flowers bloom. It’s really beautiful. So Dogen Zenji and his teacher love the plum trees very much. The poem says: 
+Here is an example. In *Baika*, which means “Plum Blossoms,” Dogen Zenji quotes his master Tiantong’s poem. In Japan, the plum tree blooms in midwinter. It’s very beautiful, with scarlet flowers; everywhere is covered with snow, and the plum flowers bloom. It’s really beautiful. So Dogen Zenji and his teacher love the plum trees very much. The poem says: 
 
 > Tiantong’s first phrase of midwinter:  
 > The old plum tree, bent and gnarled,  
@@ -58,24 +58,15 @@ Here is an example. In *Baika*, which means “Plum Blossoms”, Dogen Zenji quo
 > one blossom, two blossoms, three, four, five blossoms,  
 > uncountable blossoms.  
 > Not proud of purity,  
-> not proud of fragrance.  
-> Blowing over grass and trees,  
+> not proud of fragrance,  
+> blowing over grass and trees,  
 > balding the head of a patchrobed monk.  
 > Falling, changing into wind,  
 > while rain falling, snow all over the earth.  
 > The old plum tree is boundless;  
 > a hard cold rubs the nostrils.  
 
-So in the beginning:
-
-> The old plum tree, bent and gnarled,  
-> all at once opens –  
-> one blossom, two blossoms, three, four, five blossoms,  
-> uncountable blossoms.  
-> Not proud of purity,  
-> not proud of fragrance.  
-
-Can you see this [scene]? In the world of complete whiteness, one blossom, two blossoms, three, four, five blossoms, all of a sudden bloom. Without showing arrogance. So he says, “Not proud of purity, not proud of fragrance”: [they] just bloom. It’s very beautiful. In this kind of expression, Dogen’s teacher  immediately, in words, brings up total oneness of plum flowers with all sentient beings. 
+Can you see this [scene]? In the world of complete whiteness, one blossom, two blossoms, three, four, five blossoms, all of a sudden bloom. Without showing arrogance; so he says, “Not proud of purity, not proud of fragrance.” [They] just bloom. It’s very beautiful. In this kind of expression, Dogen’s teacher  immediately, in words, brings up total oneness of plum flowers with all sentient beings. 
 
 Dogen’s commentary is also interesting. He says:
 
@@ -85,15 +76,15 @@ So first, “When the old plum tree suddenly opens, the world of the blossoming 
 
 So Dogen Zenji and many teachers try to present this total picture of the one working with the whole universe. So if you see the one plum flower, immediately you can see the whole world working with this one plum flower, through his words.
 
+#### 
+
 Another example is, he says about everydayness, everyday mind. Everyday mind is what? Everyday mind. We know [it] pretty well. But he says, everyday mind is quite different from your understanding. He says everyday mind is always everyday mind throughout this world and the other world. Yesterday lept from that; today comes from that place. When you go, the whole world goes. When you come, the whole earth comes. The gate of this everydayness opening and closing at the moment. The gate of myriad, myriad beings are opening and closing at the moment. 
 
 So you can’t know what it is, but if you read this in Japanese, it’s more beautiful, but when translated into English, maybe it’s not beautiful, but behind the words, my English terms, please understand what is everydayness. We don’t understand everydayness, but if you listen to this sentence in words, I think everydayness is something more than we have thought. Something exists with all sentient being simultaneously. Something like that. And then even though you don’t understand it, you are really captured by this statement. So you can memorize [it], naturally. If you read the wonderful statement written by whoever, naturally you are captured by the beautiful statement in words, even though you don’t understand it. This is important, because they always represent something as a whole, not the one particular thing. 
 
-So, that is so-called *all are Buddha*. Everydayness is not something which you have believed through your experience, through you education, et cetera. It is nothing but the total picture of the Buddhas, with the universe. So everydayness is something cosmic, all the universe. This is everydayness. So we should receive it and use it, and also try to be present there, and constantly focusing on and aiming at it, moving toward that, day by day. This is called the wheel of great greed. 
+So, that is so-called *all are Buddha*. Everydayness is not something which you have believed through your experience, through you education, et cetera. It is nothing but the total picture of the Buddhas, with the universe. So everydayness is something cosmic, all the universe. This is everydayness. So we should receive it and use it, and also try to be present there, and constantly focusing on and aiming at it, moving toward that, day by day. This is called *the wheel of great greed*. So we should totally accept this everydayness. And then naturally you remember this statement; very naturally it gives lots of instructions to you. 
 
-So totally we should accept this everydayness. Something like this. And then naturally you remember this statement; very naturally it gives lots of instructions to you. 
-
-So this is one meaning. 
+So this is one [aspect: the *wheel* of greed].
 
 #### 34:38
 
