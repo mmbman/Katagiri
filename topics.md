@@ -37,6 +37,11 @@ Sections:
 - [Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 - [Genjokoan: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
+### Baika (Plum Blossoms)
+
+- [Turning the Three Poisons into Wheels (22:57)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#2257)
+
+
 ### Bendowa
 
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
@@ -62,6 +67,9 @@ Reference:
 
 - [Dogen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
 
+### *Shinjin Gakudo* (Studying the Way with Body and Mind)
+
+- [Turning the Three Poisons into Wheels (30:31)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#3031)
 
 ### Thirty-Seven Elements of Bodhi (*Sanjūshichi-bon-bodai-bunpō*)
 
@@ -131,6 +139,7 @@ Japanese: Kaiin-zanmai
 - [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [Diamond Sutra: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
+- [Turning the Three Poisons into Wheels (12:00)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#1200)
 
 ### Vimalakirti Sutra
 
@@ -145,6 +154,7 @@ Japanese: Kaiin-zanmai
 
 - [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
 - [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1  (20:34)](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
+- [Turning the Three Poisons into Wheels (39:58)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#3958)
 
 --- 
 

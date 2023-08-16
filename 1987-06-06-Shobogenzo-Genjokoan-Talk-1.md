@@ -4,7 +4,7 @@ title: "Shobogenzo Genjokoan – Talk 1 (Egolessness)"
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1987) \| 
-[Previous](1986-03-15-Triple-Treasure-Lecture-2) \| 
+[Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 
 ### Transcript
@@ -255,5 +255,5 @@ Is that okay? Do you have any other questions? We will have [more] discussion [l
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1987) \| 
-[Previous](1986-03-15-Triple-Treasure-Lecture-2) \| 
+[Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
