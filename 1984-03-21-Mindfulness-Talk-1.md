@@ -9,7 +9,7 @@ title: "Mindfulness – Talk 1"
 
 ### Summary 
 
-Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also, the meaning of “facing the wall,” and why the word *Zen* is overused.
+Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: the meaning of “facing the wall,” and why the word *Zen* is overused.
 
 ### Transcript
 
@@ -28,11 +28,9 @@ There are four kinds of mindfulness as one of the traditional Buddhist practices
 
 These are the four stages of mindfulness, which are very general and traditional in Buddhist practice. 
 
-(Transcriber’s Note: The *four kinds of mindfulness* are often called the *Four Foundations of Mindfulness* or *Four Abodes of Mindfulness*. Another translation is *the four areas of present-moment awareness* (see Glenn Wallis, *Basic Teachings of the Buddha*).)
+(*Transcriber’s Note*: These four kinds of mindfulness are often called the *Four Foundations of Mindfulness*, or *Four Abodes of Mindfulness*, or another translation is *the four areas of present-moment awareness*. The above description of the four kinds is from the first paragraph of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Elements of Bodhi,” the fascicle of *Shobogenzo* referenced in this series of talks.)
 
-(Transcriber’s Note: The above description of the four stages is from the first paragraph of the chapter of *Shobogenzo* referenced in this series of talks.)
-
-(Transcriber’s Note: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether. He discusses this further in Talk 3.)
+(*Transcriber’s Note*: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*, or *not-pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether. He discusses this further in Talk 3.)
 
 #### Part 1 1:38
 
