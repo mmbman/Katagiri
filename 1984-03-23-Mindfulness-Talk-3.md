@@ -17,7 +17,7 @@ If you observe the body, the body observes you. There is no one-way traffic. And
 
 **This talk is split into two files in the audio archive: [Part 1](#part-1) and [Part 2](#part-2)**
 
-### Part 1
+#### Part 1
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29220017" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
 
@@ -91,22 +91,40 @@ So you can say Dainin Katagiri, and also you can say Minnesota-Zen-Meditation-Ce
 
 > The observation at the very moment is far and away the most excellent occurrence. 
 
-At this very moment, observation is very excellent. No comparison. Just total dynamic working there. But total dynamic working consists of the idea of front and back. But right in the middle of total dynamic working, you cannot pin down what is front or back, because it’s working. So it’s really something alive, that is called “far and away the most excellent occurrence.” Constantly going. 
+At this very moment, observation is very excellent. [There is] no [comparison]. Just total dynamic working there. 
 
+But total dynamic working consists of the idea of front and back. But right in the middle of total dynamic working, you cannot pin down what is front or back, because it’s working. So it’s really something alive. That is called “far and away the most excellent occurrence.” Constantly going. 
 
+> When body observing is manifested, mind observing cannot be groped and found, nor manifested. 
 
+The body is exactly one with the mind. You cannot separate mind from body, so mind and body are one. Front and back are one, working together. 
 
+> Therefore it becomes *vajra samadhi* and *śūraṃgama samadhi*; ...
 
-### Part 2
+*Vajra samadhi*, diamond samadhi, means very stable, spiritual security, assurance and relaxation of existence, exactly. That’s it. There is presence of the trees, right in the middle of winter. No one can destroy. That is *vajra samadhi*. So trees show vajra samadhi, constantly. 
+
+And *śūraṃgama samadhi*, *śūraṃgama* means everything is stable ultimately, in the underlying essence. Ultimate nature is very stable and majestic; that is called śūraṃgama. So beyond pure and impure, beyond good or bad, right or wrong. Anyway, the ultimate nature is very stable. That is called *vajra samadhi* or *śūraṃgama samadhi*.
+
+The *Diamond Sutra* it says, “Awaken the mind without abiding in anything at all.” Without abiding in anything means basically, ultimate nature is very stable, which is beyond purity and impurity, weakness or strength. So if you always judge of take care of your life without abiding [in] anyway, at that time your life becomes very weak, because there is nothing to depend on. So you don’t know. Idealistically you say the universe supports you and helps you, but practically, you’re very weak, because you are caught by the idea of the universe. The universe is something alive. The universe appears always in every aspect of human life. Gassho, sleeping, et cetera. So you have to grasp that universe, in every aspect of everyday life. So very naturally, awaken the mind in the universe. That is important, but if you depend on only the universe, your life becomes weak. On the other hand, if you are always depending on awakening the mind, it means understand, clear everything, at that time it’s very reasonable, realistic, and your life becomes strong – but very shallow. Because it’s not deep. So you have to grasp your life which is alive, constantly, beyond the idea of weakness or strength. That is *śūraṃgama samadhi*.
+
+So basically, we have to establish a deep faith that all sentient beings have the same and one nature. This is first. And also second, we have to establish a state of the mind that is like a wall, so-called emptiness. So that’s why you are always facing the wall. The wall is emptiness. 
+
+So first you have to have a very deep faith, that is all sentient beings have the same and one nature. Whatever happens, whether you like or like, beyond this, everything exists, just like that. So that is a very deep faith. Deep faith means your life must stand up straight there. 
+
+So how? That is second, you have to establish the state of your mind that is like a wall, so-called emptiness. In other words, abiding firmly in a state non-dualistic understanding. So that is the original nature of liberation – your actions.
+
+So constantly we have to do this, we have to practice this. 
+
+#### Part 2
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-21101763" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
 
+... And then you have to see the human dualistic world from that standpoint. 
 
 
 
 
-
-### End of Talk
+#### End of Talk
 
 ---
 
