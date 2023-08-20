@@ -157,8 +157,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 1. [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)
+1. [Mindfulness – Talk 3](1984-03-23-Mindfulness-Talk-3)
 
-1. Mindfulness – Talk 3
 1. Mindfulness – Talk 4
 1. Mindfulness – Talk 5
 

@@ -5,7 +5,7 @@ title: "Mindfulness – Talk 3"
 
 [List](list#1984) \| 
 [Previous](1984-03-22-Mindfulness-Talk-2) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Next](1984-05-14-Two-Kinds-of-Nowness)
 
 ### Summary
 
@@ -189,7 +189,7 @@ Do you have questions?
 
 **Question**: I wonder if it would help to understand that, when he wrote that poem, he was probably not thinking anything about purity or impurity. All he was thinking of was...
 
-**Katagiri**: Well basically, he accepts life and death. Just functioning. 
+**Katagiri**: Well, basically, he accepts life and death. Just functioning. 
 
 **Same person**: But when he wrote the poem, all he was thinking about was the leaf.
 
@@ -203,7 +203,7 @@ That occurrence of the falling comes from where? [...] the universe. Interconnec
 
 **Same person**: It just seems that if you try to analyze the poem with that, it almost becomes more confusing. 
 
-**Katagiri**: Yeah, right. *[He laughs.]* That is a poem. A poem is always explaining. But Zen doesn’t explain. Just be present.
+**Katagiri**: Yeah, right. That is a poem. *[He laughs.]* A poem is always explaining. But Zen doesn’t explain. Just be present.
 
 But we are still confused. *[He laughs.]* Zen constantly puts you in the simplicity in life, you know? If you experience the source of existence, then immediately that’s so-called enlightenment. So don’t explain enlightenment. Be there. Practice there. Get a taste of your life. Teach there; teach that. That’s all. 
 
@@ -309,4 +309,4 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 [List](list#1984) \| 
 [Previous](1984-03-22-Mindfulness-Talk-2) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+[Next](1984-05-14-Two-Kinds-of-Nowness)
