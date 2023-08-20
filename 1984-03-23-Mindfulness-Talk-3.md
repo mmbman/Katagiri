@@ -137,7 +137,7 @@ So that is called *vajra samadhi* and *śūraṃgama samadhi*.
 
 So that is the practice of mindfulness.
 
-#### 2 – 8:36
+#### 2 - 8:36
 
 > The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. 
 
@@ -151,7 +151,7 @@ And then after that, he tried to explain what the contents of his experience [wa
 
 So that’s why “the principle of Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*.” 
 
-#### 2 – 12:02
+#### 2 - 12:02
 
 > It is beyond a matter of drawing comparison between purity and impurity. 
 
@@ -171,7 +171,7 @@ And then, deal with it.
 
 Do you have questions? 
 
-#### 2 – 16:14
+#### 2 - 16:14
 
 **Question**: What was the name of the poet who wrote the poem about the maple leaf?
 
@@ -221,7 +221,7 @@ That is a poem. But Zen is always saying just “Oh!” But something more than 
 
 So, [Ryokan] also says, “My poem is not a poem, people say.” So his poem is not a poem. So that poem, his poem or Bassho’s poem are not real poems. It’s life. But if you want to compose a wonderful poem, you have to say something more. Just like Ryokan. You have to stretch one simplicity, in a beautiful sense, in an artistic sense, and then you become a great poet, you become a great artist. Bassho did sometimes, but Bassho didn’t do it in that way. Very simple expressions. That’s why it’s not art. Ryokan says his poem is not a usual poem. 
 
-#### 2 – 29:16
+#### 2 - 29:16
 
 **Question**: Roshi? When you talk about emptiness and no-emptiness, and you say that how to attain or reach emptiness, you say practice. But how do we practice with no goal, and with nothing to attain, just being empty? So no purpose, no idea. Because I know practice is not a tool, to emptiness, but how to do practice with no purpose? 
 
@@ -273,7 +273,7 @@ That is simplicity. Simplicity is a very simple, pure simplicity *[he laughs]*, 
 
 It’s very difficult to understand it, but practically, it’s very simple, that’s why you have to practice it. Still there is a universal openness to everyone, to get into that simplicity, through the practice. Even though you don’t understand the principle of that practice, still there is a chance. So let’s do it. But you cannot do it by yourself, because our action is already complicated. That’s why we need practice under the guidance [of a teacher]. Anyway, guidance. 
 
-#### 2 – 40:52
+#### 2 - 40:52
 
 **Question**: Zen practice, are you supposed to pick out a spot on the wall and stare at it, and you’re actually supposed to be looking at the wall? At one point on the wall, and maintaining [that]?
 
@@ -295,13 +295,13 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 **Katagiri**: Oh, I think so! *[He laughs.]* Idealistically. I would like to have a big zendo, but it’s impossible now, so I should practice patience. *[Laughter.]* So, facing the wall, that’s alright. But a certain area, not only one point, a certain area, a little bigger area. 
 
-#### 2 – 43:02
+#### 2 - 43:02
 
 **Question**: [...] When you said to practice Buddhism first you have to have a strong faith in the Buddha’s teaching and you have to keep listening to it, and when you’re doing those, I think it’s true in other religious groups we’re the same way, and well, to find out that you have to be careful to listen to both, but still for me we are doing something we don’t know yet. I mean, we know as a teaching, but we don’t know what kind of things we can base on to judge if we are doing the right thing or the wrong thing. What? 
 
 **Katagiri**: I’m not selling a religious faith, okay? Because Buddhist faith is already based on the deep understand of the source of existence. So from this point, whether you don’t have faith or have faith, anyway your life is already right in the middle of faith. So from this point, it’s not necessary to think I should have faith or I shouldn’t have faith. Okay? Anyway, let’s have a white canvas of your life. Faith or not faith doesn’t matter: your life is a white canvas. Temporarily, it’s called faith, because that faith is supporting your life. That white canvas is open to you and to everyone. To your future. You can draw any kind of thing ...
 
-### 2 – 45:22 end of recording
+### 2 - 45:22 end of recording
 
 ---
 
