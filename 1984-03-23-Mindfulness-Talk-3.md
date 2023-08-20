@@ -31,7 +31,7 @@ I translated [this] a different way from this [other] version (translated by Kō
 
 But that’s a very interesting thing which always happens in *Shobogenzo*. People don’t understand it, and if people don’t understand it, we try to make *Shobogenzo* read in an easy way. But if you do that, the translation becomes very shallow. Through that translation you can convey Dogen’s thought or religion in a sense, but in a shallow way. It’s pretty difficult to translate it into English – or into modern Japanese *[he laughs]*. It’s pretty hard. So that’s why we have to directly face the original text, and try to understand it. That’s pretty important. For century after century, many priests and monks have done it in that way. 
 
-#### 6:56
+#### 1 - 6:56
 
 > Observing the body is body observing, that is not the observation of other things.
 
@@ -51,7 +51,7 @@ So [it is] not the idea of mindfulness, because... Let me say that observation i
 
 Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it, [the object] being judged by your sense – see something alive between [them], how subject and object are working together. That is interpenetration, or *interdependence*, we say. 
 
-#### 17:15
+#### 1 - 17:15
 
 Yesterday I told you about the poem composed by Ryokan: 
 
@@ -65,7 +65,7 @@ So finally: I observe the tape recorder, the tape recorder observes me. *Who* ob
 
 So that is observation. Observation is completely oneness, and oneness is emptiness: nothing to pin down. That is called *the-same-and-one-nature*. So the front of the maple leaf is always functioning in the realm of the-same-and-one-nature, [the back] is always working in the realm of the-same-and-one-nature. What is this? What is the functioning, what is the total dynamic working of the maple leaf? That is called emptiness. 
 
-#### 22:42
+#### 1 - 22:42
 
 Yesterday I told you that liberation comes from action. But don’t misunderstand this *action*. That action must be based on emptiness. Don’t expect something [to be] liberated by your action, by the practice of liberation. No, because your action must be liberated. 
 
@@ -75,7 +75,7 @@ So if you say, “By my action, I want to create something liberated,” that is
 
 Action is important for us, but action shouldn’t be based on any “ism”. Your action must be pure. In order to make your action pure, your action must be based on emptiness. It is pretty difficult to do that. It’s pretty difficult to act on the basis of emptiness because if you act, very naturally act follows thinking, judging, evaluation, and next moment, [there are] affective preferences. So [it’s] very difficult; that’s why action itself must be free, liberated. [If] you want to act in order to get something by your action, your action must be liberated. How? That’s a pretty difficult practice for us! That’s why we’re always practicing like this, learning the teaching. You cannot just act as you like; no, you cannot act in that way. 
 
-#### 28:48
+#### 1 - 28:48
 
 So very naturally [Dogen Zenji says], “Observing the body is body observing.” Observing the tape recorder, *who* observes? Finally, nothing. Right in the realm of nothing... and then something appears. In the world of nothing, it’s not nothing; simultaneously [something] comes up. That is a creation. So if you see the something created, so-called *I*, and then *I* observe, only *I* appears. *I* observe *I*. That’s it! And then, all sentient beings support *me*, support my observation. 
 
@@ -93,7 +93,7 @@ At this very moment, observation is very excellent. [There is] no [comparison]. 
 
 Total dynamic working consists of the idea of front and back. But right in the middle of total dynamic working, you cannot pin down what is front or back – because it’s working. So it’s really something alive. That is called “far and away the most excellent occurrence.” Constantly going. 
 
-#### 36:20
+#### 1 - 36:20
 
 > When body observing is manifested, mind observing cannot be groped and found, nor manifested. 
 
