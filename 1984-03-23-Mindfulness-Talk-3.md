@@ -9,7 +9,7 @@ title: "Mindfulness – Talk 3"
 
 ### Summary
 
-If you observe the body, the body observes you. There is no one-way traffic. And then, all sentient beings support your observation. Liberation comes from action, but that action must come from emptiness, or liberation itself. First we have to have a very deep faith that all sentient beings have the-same-and-one-nature; and then we have to establish the state of our mind that is like a wall, which is emptiness. Also: Translating *Shobogenzo* into English is hard.
+If you observe the body, the body observes you; there is no one-way traffic. And then, all sentient beings support your observation. Liberation comes from action, but that action must come from emptiness, or liberation itself. First we have to have a very deep faith that all sentient beings have the-same-and-one-nature; and then we have to establish the state of our mind that is like a wall, which is emptiness. Also: Translating *Shobogenzo* into English is hard.
 
 ### Transcript
 
