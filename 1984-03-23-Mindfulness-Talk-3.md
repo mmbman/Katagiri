@@ -301,7 +301,7 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 **Katagiri**: I’m not selling a religious faith, okay? Because Buddhist faith is already based on the deep understand of the source of existence. So from this point, whether you don’t have faith or have faith, anyway your life is already right in the middle of faith. So from this point, it’s not necessary to think I should have faith or I shouldn’t have faith. Okay? Anyway, let’s have a white canvas of your life. Faith or not faith doesn’t matter: your life is a white canvas. Temporarily, it’s called faith, because that faith is supporting your life. That white canvas is open to you and to everyone. To your future. You can draw any kind of thing ...
 
-### 2 - 45:22 end of recording
+#### 2 - 45:22 end of recording
 
 ---
 
