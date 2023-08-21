@@ -15,7 +15,7 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-27" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
-*(Archive Issue: The beginning and ending of this talk are missing, and what exists in the audio file appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.)*
+**Archive Issue: The beginning and ending of this talk are missing, and what exists in the audio file appears to be a single tape side repeated three times. The same audio repeats at 39:00 and 1:18:31.**
 
 #### 0:00 start of recording
 
