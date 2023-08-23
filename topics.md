@@ -216,7 +216,7 @@ Japanese: Kaiin-zanmai
 <a name="BCR-43"></a>
 ### Case 43: Tung Shan’s No Cold or Heat
 
-- [Karma as Energy / Emptiness (16:20)](1980-07-11-Karma-As-Energy-Emptiness#1620)
+- [Karma: Karma as Energy/Emptiness (16:20)](1980-07-11-Karma-As-Energy-Emptiness#1620)
 
 <a name="BCR-46"></a>
 ### Case 46: Ching Ch’ing’s Sound of Raindrops

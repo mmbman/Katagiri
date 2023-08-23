@@ -1,5 +1,5 @@
 ---
-title: "Karma as Energy / Emptiness"
+title: "Karma: Karma as Energy/Emptiness"
 ---
 ## July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 

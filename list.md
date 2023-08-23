@@ -42,7 +42,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 1. [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma) 
 1. [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
-1. [Karma as Energy / Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
+1. [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 1. [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 
 1. [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
