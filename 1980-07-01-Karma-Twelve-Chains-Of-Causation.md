@@ -9,7 +9,7 @@ title: "Karma: Twelve Chains of Causation"
 
 ### Summary
 
-Katagiri Roshi completely explains the Twelve Links of Dependent Origination... probably, but the audio is lost. There is substantial coverage of the topic in the following talks in this series. Still, we would really like to retrieve this talk someday, if possible.
+Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. There is substantial review of the topic in the talks following this one.
 
 ### Transcript
 
