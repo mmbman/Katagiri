@@ -36,7 +36,7 @@ And then if you do something with the three categories of human deeds, then you 
 
 [But] also in Buddhism, there are three kinds of [karmic] retribution – because the [result] of causation is not so simple [as] “if you do something good, you will get a good result.” Even though you do something good, you don’t get a good result. Even though you work hard, you are still poor. You may work hard to make money your whole life, but still be poor. [...] But on the other hand, you cannot ignore the characteristic of causation, so-called “good cause brings good result.” So very naturally, we consider three kinds of [karmic] retribution in Buddhism. One is that if you do something good, that good cause will bring a good result in this life. The next is, maybe not in this life, but maybe next life. And then the third is, maybe *not* next life; good cause will bring good result in the life after next life. In other words, life after life. Life is constantly going; that’s why maybe the good cause will bring good result in the life after next life after next life – something like that. Very naturally Buddhism considers it in that way, because if you look at human action based on causation, it teaches us how complicated it is. It’s not so simple. Dogen Zenji also talks about these three kinds of retribution. 
 
-#### 11:50
+#### 1-11:50
 
 The question is: if you think of karma in Buddhism generally like this – where is this karma? [In] what part of your life does karma exist? 
 
@@ -56,7 +56,7 @@ After this, I think Buddhism developed [even] more, [for example with] the *Avat
 
 Anyway, karma is working the realm of interdependent co-origination. [It is a little bit like] karma is not only belonging to human life or particular beings, but it belongs to the depths of general existence, cosmic existence. So in Mahayana Buddhism, the idea of karma is accepted in broader perspective.
 
-#### 25:28
+#### 1-25:28
 
 So very naturally, I think if you study Buddhism in order to research what karma is, it’s still very vague. So I would like to say [something] paying attention to the human life which you are taking care of day to day. How do we accept karma [in day-to-day human life]? 
 
@@ -74,7 +74,7 @@ What is *whole personality*? What is it structured by? That’s why I mentioned 
 
 So from this point, I can say [something] like this: First of all, [...] you feel your life and other’s life, [and by your intellect] you judge yourself and others and the world, et cetera. But that intellectual understanding is just a speck of dust of your whole personality. It’s not perfect. But a problem is, the intellect fully believes that your understanding *is* perfect. That is a characteristic of your intellectual habits. That’s why we so much love the world which is clear and neat. We don’t want the “dark” aspect of the human world. We don’t want to have what we don’t understand. So we try to understand *everything*, [but] we always ignore the back. *The back* is [what you] don’t understand. 
 
-#### 34:13
+#### 1-34:13
 
 *Back* [is part of] *space*. What is space? 
 
@@ -94,35 +94,95 @@ But it is a fact that we have intellectual understanding. So from now on, what w
 
 So from now on, what you have to do is to practice a changing [of] the usual pattern of your intellectual system. Alright? 
 
-#### 39:03
+#### 1-39:03
 
 Another thing is, intellectual understanding always fully believes that there is nothing [after] you die. Your skin, muscle, bones and marrow are blown out, [like a candle]. Including consciousness: all gone. So intellectual understanding always fully believes that death takes away everything; there is nothing left, including the other world. But – is that true? We have to think about it. 
 
-So this is pretty good practice for us. The first thing is you should train the usual pattern of the intellectual system which you have had. Second, I think intellectual understanding always believes there is nothing left after your death – but is it true, or not? 
+So this is pretty good practice for us. The first thing is that you should train the usual pattern of the intellectual system which you have had. Second, I think intellectual understanding always believes there is nothing left after your death – but is it true, or not? 
 
-If you try to believe in that way of intellectual understanding, you aren’t satisfied. Even though intellectual understanding fully believes that there is nothing left behind your death, still you aren’t satisfied. So finally what you do is chase after your own tail, like a cat. That is the intellectual world. *[He laughs.]* Playing a game. Do you know the *see-saw*? Or playing with your own tail. That is the intellectual world. 
+If you try to believe in that way of intellectual understanding, you aren’t satisfied. Even though intellectual understanding fully believes that there is nothing left behind [after] your death, still you aren’t satisfied. So finally what you do is chase after your own tail, like a cat. That is the intellectual world. *[He laughs.]* Always playing a game... do you know the *see-saw*? Or playing with your own tail.
 
 But if you understand your whole personality, I think you should understand something more than the intellectual world – including many things, as I already said. So *how*? Let’s make your mind calm. Calm your body and mind, and then practically, touch the depth of your whole personality, something more than the intellectual world. 
 
 How do you touch something more than the intellectual world? That is the practical experience of feeling of your life, touched by deep meditation. Make your mind and body calm; and then you can go deeply into something more than the intellectual. Because you have to understand the whole personality – not only your life, but also others’ lives, and also trees, birds. 
 
-You cannot understand trees separate from the sky and seasons, so you have to understand the whole personality of the trees, birds, mountains. That’s why Dogen Zenji says that the mountain is not only the mountain: mountain should be understood as the mountains, and also Buddhas and ancestors. That means cosmic trees and birds. At that time, that understanding is touching the intellectual world and also something more than the intellectual world. But we don’t believe this. We always understand, “Oh, that is a tree, I understand it. I know that.” But we never know. 
+You cannot understand trees separate from the sky and seasons, so you have to understand the whole personality of the trees, birds, mountains. That’s why Dogen Zenji says that the mountain is not only the mountain: mountains should be understood as mountains, and also Buddhas and ancestors. That means cosmic trees and birds. At that time, that understanding is touching the intellectual world and also something more than the intellectual world. 
 
-Second is, even though you find the solution for the life and death problem, saying there is the other world, it’s not enough. It’s not a final solution, because nobody proves whether the other world exists or not. Through a book, or through philosophy, through religion, through the words of wise people, et cetera, we believe in that way, but there is no practical proof ...
+But we don’t believe this. We always understand, “Oh, that is a tree. I understand it. I know that.” But we never know. 
+
+#### 1-43:54
+
+[Next] is, even though you find a solution for the life and death problem, saying that there is another world – it’s not enough. It’s not a final solution, because nobody proves whether the other world exists or not. Through a book, or through philosophy, through religion, or through the words of wise people, et cetera, we [may] believe in that way, but there is no practical proof ...
 
 #### Part 2
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-in-buddhism-part-2" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
-... Through this practical death, what can I feel, practically? *[He laughs.]* I want to scream, practically. Because there’s nothing left. Because after death I don’t know. Even though I don’t know what death is, if I participate in death actually, I don’t know what death is. Because I am already death. Do you understand? There is no I, right in the middle of real death. So if I die, actually *nothing* left. Why we have to believe in this situation of life and death, why we have to believe in something. But what is awareness? Why is it necessary for us to be aware? If it is necessary, what do you mean by awareness? That is the question. Because even though *I* experience enlightenment, *[he laughs,]* when I die, all enlightenment I have experienced is gone. And Zen Center and people all gone from before me. Then finally I’m always thinking I want to be haunting over the Zen center. *[People laugh, and he laughs with them.]* After my death, watching over all of you, and how you fill Zen Center, how you are taking care of Zen Center, how you feel [about] Katagiri, what he has done. Do you want to criticize Katagiri, or do respect him? *[Laughter.]* If you don’t respect me, I want to haunt you! *[He laughs.]* I always feel in that way. *[He laughs some more.]* Watch out! 
+... [So] whether the other world exists or not is not our final solution for the life and death problem. But, there is a certain fear of what will happen, on the assumption that the other world *may* exist. What will happen in my life after death?
+
+So Buddhism [talks about] the ten categories of existence: Hell realm, hungry ghosts, fighting spirits... and heavenly beings, human beings, and bodhisattvas and buddhas, et cetera. Are you familiar with these? And then you have to experience these ten categories... how do you know? How do you know what kind of world you will have to experience after death? We don’t know. 
+
+Finally, I can tell you this: it cannot be helped. Well, *[he laughs]*, you should leave your own life as it really is. That’s it. Because no matter how long you research about the other world and this world and what kind of world you should depend on, we don’t know, because it’s very complicated. Buddhism talks about ten categories of the world after death, but it’s not after death – this is the present world. [It is about] how complicated your present world is. Do you understand? Right now, you are really bodhisattvas, you belong to the bodhisattva world, listening to the Buddha’s teaching and [being] very peaceful. Next moment, when you leave this zendo and got out of this house, then you fight, and cry, scream, et cetera. Immediately you fall to the hell world. What is your life? It’s very complicated. 
+
+And then the intellect still compels you to understand what this world is, what the other world is, constantly. Finally, you play with your own tails. And finally, you have to be in a mental hospital! *[Some laughter.]* That always happens in the human world. So I think there is nothing to know clearly, nothing to find the perfect solution. 
+
+So all you have to do is, you should entrust yourself to the life given to you now. That is the second point. 
+
+The first point is the intellectual sense, how narrow your intellectual world is – and then you should change a little bit, day by day, in order to understand the human world in the cosmic perspective. This is our practice. How? That is meditation. Second, [there is no way] to find a perfect solution about the life and death problem, so all you have to do is entrust yourself to the life given to you, as your life really is. 
+
+Another point is that “your life as it really is” doesn’t mean just accept. No. To accept your life by the practice of faith, deep understanding. Faith means very profound belief. Belief means profound understanding and also awareness. 
+
+In other words, *awareness* means through everyday life you have to touch something practical. Awareness is not only the intellect or your head trip. No. And faith is also not your head trip, so-called belief. What is belief? It is not a mental trick. Belief is to accept totally something greater than ...  In other words, greater than the intellectual world. Anyway, accept, and take it, and then digest it, every day. Through your everyday life, digest it. *Digest* means every day you have to take care of your everyday life with total acceptance of something greater than the intellectual world. How? In other words, that is to go deeply into the human world; that means by making your body and mind calm. That is faith, and also awareness. Faith and awareness are not an intellectual or physical trip, but feeling, touching your life very deeply, practically, profoundly. 
+
+Let’s see it like this: because you believe that there is nothing left behind after your death. This is one understanding. The other understanding is there must be something left after your death. But this is another idea. But beyond those two ideas, when you die, what can you feel practically, what can you touch? Something real, something profoundly, through your death, through your life. What is it? That’s real touching something practical and realistic, and also pretty deep, profound you can touch through the life and death problem is all gone. All gone, beyond discussion whether the other world exists or not. Anyway, when you die, all gone! Through this real touching in your everyday life and death, if you have to believe, what is belief? If you have to be aware, if you have to awaken to something, what do you mean by awakening? Constantly you have to research this. What is belief? Is belief simple – to believe in deities and something who is authentic power controlling the human world? I don’t think so. *[He laughs slightly.]* Does it exist outside or inside? I don’t know! But anyway, when you die, all gone. But this is a real practical feeling; you can touch it. I always feel this. I am talking about the Buddha’s teaching related with the past, present, and future, but when I die, my life is gone. What do you mean, Buddha’s teaching? What do you mean, awakening? What is belief? Not the kind of trying to get the idea of a happy life or unhappy life. Whatever I say, I don’t feel anything. But all I can do is, “What do you mean, Buddha’s teaching?” Which is supposed to make human life be happy. But what is the Buddha’s teaching? In terms of life and death, when you die, there is nothing left behind. And then, in this life, in this fact, this reality of nothing left behind after death, then what is belief, what is awareness?
+
+It’s a big subject for us. 
+
+Zen Buddhism really focuses on that one, okay? *[He laughs.]* The question is, how do you live, day by day. That’s it. Because no matter how long you are always thinking of life and death, it’s always you have to play with your own tail. But I don’t mean you should ignore intellectual understanding; that’s you have to take care of the intellectual world. But how? Patting the head of the intellectual world. How? Calming your body and mind, and let you go deeply into the human world, something more than the intellectual world. This is always our practice.
+
+So whatever intellectual understanding brings to you as a conclusion, I think you should open your heart enough to digest, again and again, to deepen, again and again. This is your life. Because life is really vast. So you never get a definite solution, in terms of whatever kind of *ism* of outlook on the world or human life. So Zen Buddhism really focuses on day to day life, how do *you* live. Not how do *I* understand the human world, in terms of outlook on the world or human life. How do we live? Even though you don’t understand the world or [yourself], how do you live? Day to day, taking care of not only your life, but also your life with others life. How do you live in peace? 
+
+#### 2-13:58
+
+So, on the conclusion is, on the assumption that there is something temporarily called the other world, in other words like is going from the past to the present to the future, because if you see your life, you can feel how deep your life is. You don’t understand your life only by your intellectual world. Can you feel that? This is a very realistic and practical feeling, touching your life. So life is something extending into the past, to the future. Alright? So even though we don’t give any perfect proof whether the other world exists or not, on the assumption that the other world may exist. This is a beautiful word, looking at the human world not only by intellectual understanding, but by something more than intellectual understanding. Let’s get [...] the other world. Is that clear?
+
+And then, should we always be crazy about the other world? *[He chuckles.]* Well, that is a beautiful world; that is a kind of target you can aim for. That is a destination you have to go toward. But you shouldn’t be crazy about it, because everyday life is exactly right now. That everyday life is very important, it gives you very vast data [about] what your life is, how vast your life is. So you [can’t] ignore day to day life. 
+
+So, there are two ways: destination, and also day-to-day life. So the center of your bullet should be directed toward that destination, but your bullet should be stable and calm, and taking one step [by] one step, day to day. *With* the whole circumstances which are very changeable. Is that clear? This is called what? Shikan. Zazen. Day to day life. But taking care of day to day life is not ... want to be, want to be. This term is okay? *[He laughs.]* It doesn’t mean that. Day to day life is day to day life, but day to day life directs you into the destination, through which you can see the vast expanse of human life. That is your destination. 
+
+That’s why from this way of life you can really understand why you have to have a funeral service. A person died. Already your ashes should be scattered wherever; that’s fine. But are you satisfied, or not? It’s questionable. So finally we want to do something for her or for him, after his death, beyond the idea of nothing left behind after death. It doesn’t matter. Just perform the funeral service. The content of that funeral service is a good lesson for you, who can always direct himself or herself to the beautiful destination, and taking care of day to day. That means just take care of the funeral service with whole-heartedness. At that time, the funeral service really helps everyone. And also, for you. This is the meaning of Buddhist services. 
+
+Dogen Zenji always talks about this in detail, but simply speaking, a very simple practice: sit down. So-called *shikan*, wholeheartedness. But that really gives you lots of information from this. Because without quality of this wholehearted way of life, you cannot take care of wholehearted way of everyday life. Because everyday life is very complicated. Within the complication, complicated and multitudinous aspect of everyday life, you have to manifest your whole personality, regarded as a simple entity, including your very complicated life. Heredity, karma, customs, many things. How do we know? That is a very simple personalities. That’s why we can feel this, from everyone. Even though you don’t say anything, you’re talking about your own life. 
+
+So this is our practice, and also this is our study. Day by day, we have to study. 
+
+#### 2-21:03
+
+So finally the conclusion is: karma is ... guess. We don’t know. *[He laughs.]* I can say I don’t know what karma is. But I think I can give you some hint what karma is. Okay? 
+
+Don’t accept karma as kind of pessimistic. No. It’s not good aspect of human life, but it’s not fate, or destiny, no. It’s kind of destiny or fate, but it includes dynamic energy to make your life productive. This is karma. Practically speaking I don’t know, but everyone can feel this. That’s why you can use karma, even though you don’t understand it. 
+
+Do you have some questions? 
+
+#### 2-22:15
+
+**Question**: You said two things that I wanted to hear more about. I don’t remember them exactly. One of them was something like trusting your life. And the other one, you said when we die there is nothing left, and before we die, you were saying we can touch ... if what you’re saying we can touch is nothing left, so both of those...
+
+**Katagiri**: That is not an idea, okay? It’s really something you can touch practically and deeply. 
+
+For instance, I believe strongly the other world exists. Well someone says, “I don’t believe it.” And then, let’s try to find a certain middle way. You can compromise through discussion. But it goes endlessly. Finally what I have to do is, to face the fact that I have to die. *[He laughs.]*
+
+Through this practical death, what can I feel, practically? I want to scream, practically. *[He laughs.]* Because there’s nothing left. Because after death I don’t know. Even though I don’t know what death is, if I participate in death actually, I don’t know what death is, because I am already death. Do you understand? There is no *I* right in the middle of real death. So if I die, actually *nothing* left. Why we have to believe in this situation of life and death, why we have to believe in something. 
+
+But what is awareness? Why is it necessary for us to be aware? If it is necessary, what do you mean by awareness? That is the question. Because even though *I* experience enlightenment, *[he laughs,]* when I die, all enlightenment I have experienced is gone. And Zen Center and people all gone from before me. Then finally I’m always thinking I want to be haunting over the Zen center. *[People laugh, and he laughs with them.]* After my death, watching over all of you, and how you fill Zen Center, how you are taking care of Zen Center, how you feel [about] Katagiri, what he has done. Do you want to criticize Katagiri, or do respect him? *[Laughter.]* If you don’t respect me, I want to haunt you! *[He laughs.]* I always feel in that way. *[He laughs some more.]* Watch out! 
 
 Why is it necessary to be aware? What is [awareness]? Don’t you think this is questionable? Finally, what do you have to do? Research awareness? Yes. But [in] day-to-day life, what is it? What do you have to do? Should you believe in something? Yes, but what is the most important thing you have to do? Not only that you have to do in the realm of the intellectual world, but that you have to do in the vast expanse of the world, something more than the intellectual world. 
 
 That’s what I want to say: what you have to do. 
 
-Is that okay? Do you have questions? 
+Is that okay?
 
-#### 27:14
+#### 2-27:14
 
 **Question**: Hojo-san, there are so many references in traditional practice to evil karma. And when you talk, you’re talking about something much more basic, about acts and deeds that just are, and it’s very much broader than ...  It’s there at the very end of ... the last thing you said, I thought there was something, when you came back to talk about karma, you said maybe it’s not so good, or something like that. Where is that coming right now? 
 
@@ -130,7 +190,7 @@ Is that okay? Do you have questions?
 
 I don’t know what karma is; but practically I can feel it, deeply. Something about karma extending into the past, present, future. 
 
-#### 29:23
+#### 2-29:23
 
 **Question**: I guess I don’t really understand how there can be ... I understand how there can be an individual karma and a non-individual karma, but I ... more about how non-individual karma can apply to a certain group, like a Japanese karma, or an American karma, or a Brazilian karma. I don’t understand how there can be a non-individual karma that applies to a group, rather than to all things. 
 
