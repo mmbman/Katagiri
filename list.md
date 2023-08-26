@@ -410,9 +410,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Platform Sutra – Talk 7
 
 1. Prajna Paramita and Emptiness
-1. Karma in Buddhism – Part 1
-1. Karma in Buddhism – Part 2
 
+1. [Karma in Buddhism](1987-05-23-Karma-in-Buddhism)
 1. [Shobogenzo Genjokoan – Talk 1 (Egolessness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 1. [Shobogenzo Genjokoan – Talk 2 (Consciousness)](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 1. [Shobogenzo Genjokoan – Talk 3 (Flow)](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
