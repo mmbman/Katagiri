@@ -5,7 +5,7 @@ title: "Turning the Three Poisons into Wheels"
 
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+[Next](1987-05-23-Karma-in-Buddhism)
 
 ### Transcript
 
@@ -124,4 +124,4 @@ So that is [what] “the threefold wheel is pure and clean” [means]. Naturally
 
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+[Next](1987-05-23-Karma-in-Buddhism)
