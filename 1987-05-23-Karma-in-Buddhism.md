@@ -176,7 +176,7 @@ Do you have some questions?
 
 **Katagiri**: That is not an idea, okay? It’s really something you can touch practically and deeply. 
 
-For instance, I believe strongly the other world exists. Well someone says, “I don’t believe it.” And then, let’s try to find a certain middle way. You can compromise through discussion. But it goes endlessly. Finally what I have to do is, to face the fact that I have to die. *[He laughs.]*
+For instance, I believe strongly the other world exists. Well, someone says, “I don’t believe it.” And then, let’s try to find a certain middle way; you can compromise through discussion. But it goes endlessly. Finally what I have to do is, to face the fact that I have to die. *[He laughs.]*
 
 Through this practical death, what can I feel, practically? I want to scream, practically. *[He laughs.]* Because there’s nothing left. Because after death I don’t know. Even though I don’t know what death is, if I participate in death actually, I don’t know what death is, because I am already death. Do you understand? There is no *I* right in the middle of real death. So if I die, actually *nothing* left. Why we have to believe in this situation of life and death, why we have to believe in something. 
 
