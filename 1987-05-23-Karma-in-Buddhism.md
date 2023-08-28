@@ -54,7 +54,7 @@ But this consciousness, this term [alayavijnana], teaches us there is a certain 
 
 After this, I think Buddhism developed [even] more, [for example with] the *Avatamsaka Sutra*. The *Avatamsaka Sutra* is a very clear, definite explanation of how the human world is going. It has been translated into English, so you can read it, but you won’t understand it, because this huge world is represented by many buddhas and bodhisattvas, so it’s a very complicated philosophy and psychology. But in this sutra, I think karma is accepted as not only mental or physical potential power, but it is a kind of energy in the stream of *interdependent co-origination*. Interdependent co-origination means that everything is produced by many conditioned elements. So before you think or you don’t think, there is a certain energetic stream always [being created] by conditioned elements, that is completely beyond your control. If you see very deeply [into] the structure of the human world, human life, you can see that philosophical background of human existence. That teaching is called *interdependent co-origination*. It’s very deep Buddhist philosophy. 
 
-Anyway, karma is working the realm of interdependent co-origination. [It is a little bit like] karma is not only belonging to human life or particular beings, but it belongs to the depths of general existence, cosmic existence. So in Mahayana Buddhism, the idea of karma is accepted in a broader perspective.
+Anyway, karma is working in the realm of interdependent co-origination. [It is a little bit like] karma is not only belonging to human life or particular beings, but it belongs to the depths of general existence, cosmic existence. So in Mahayana Buddhism, the idea of karma is accepted in a broader perspective.
 
 #### 1-25:28
 
@@ -68,7 +68,7 @@ Or, very *deep*, profound feeling – meaning the intellect, emotion, and voliti
 
 Or [personality also includes] custom, habit, and also individual character. Or heredity. And also memories. 
 
-What is personality? We say *personality* simply, but what is personality? [It is] working in your everyday life in a very complicated way, because it includes many things.
+We say *personality* simply, but what is personality? [It is] working in your everyday life in a very complicated way, because it includes many things.
 
 So from this point, what is your everyday life? You always understand who you are, [and] who they are – you evaluate yourself, and you are critical toward others, critical towards the present situation, by which you always create anger, hatred, fighting, and many things. What is your place in life? How do you understand it? 
 
@@ -92,7 +92,7 @@ And also, there is *space underneath*. This is everyday life: rooted in the eart
 
 And one more space is *above the head*. Above is something mysterious. But it helps us so much, when we are confused. When you are confused, you always pray. To where? You say God, but where is God? You always look up to the sky, don’t you think so? *[He chuckles.]* So *space above* is wonderful: clear, vast openness. 
 
-So even though we say *space* – what is space? Not the philosophical term, but practically, what is space? Front, back, behind, to the right, to the left, beneath, and above. Those [aspects of] space should be understood, but intellectual understanding is very narrow. A problem is that intellectual understanding fully believes that it is perfect understanding, but it is just a speck of dust. You always love the front; that’s it. You don’t reflect upon, you don’t accept with compassion, the relationship among human beings. If you ignore this, you never exist in peace and harmony. So if you want to live in peace and harmony, you have to take [in] many kinds of space: front, behind, to the right, to the left, above, beneath. 
+So even though we say *space* – what is space? Not the philosophical term, but practically, what is space? Front, back, behind, to the right, to the left, beneath, and above. Those [aspects of] space should be understood, but intellectual understanding is very narrow. A problem is that intellectual understanding fully believes that it is perfect understanding, but it is just a speck of dust. You always love the front; that’s it. You don’t reflect upon the relationship among human beings, you don’t accept the relationship among human beings with compassion. If you ignore this, you never exist in peace and harmony. So if you want to live in peace and harmony, you have to take [in] many kinds of space: front, behind, to the right, to the left, above, beneath. 
 
 But it is a fact that we have intellectual understanding. So from now on, what we have to do is to *train* our intellectual patterns. In other words, change a little bit. Change means patting our head and [saying], *[he laughs,]* “Okay, you are good – but wait a minute. I will tell you something; a little more broad aspect of human life which you don’t know. I think you shouldn’t hit [things], or throw [them] away; no, you should take care of [them].” That [is what] *change* means. 
 
