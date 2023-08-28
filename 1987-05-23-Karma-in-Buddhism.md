@@ -7,6 +7,10 @@ title: "Karma in Buddhism"
 [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
+### Summary
+
+Katagiri Roshi summarizes the origins and development of the concept of *karma* in Buddhism, and then explores its both its deeper meaning and its practical application. Karma is related to the problem of whether there is a world after death, and how we should live in the present world. In practical terms, karma is connected to *whole personality*, which is something that we can feel. This seems to be connected with the Buddhist concept of *vedanā* (*feeling*), and also a possible connection is made to Jungian psychology. After we feel our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the cosmic perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept. Karma includes dynamic energy to make our life productive. *Awareness* means that through everyday life we have to touch something practical.
+
 ### Transcript
 
 **This transcript is in rough draft stage.**
@@ -136,7 +140,7 @@ So the first point is how narrow the intellectual sense, your intellectual world
 
 #### 2-04:38
 
-Another point is that to “entrust yourself to your life as it really is” doesn’t mean to just accept. No, [it means] to accept your life by the practice of faith, deep understanding. *Faith* means very profound belief; *belief* means profound understanding *and* also awareness. *Awareness* means that through everyday life you have to touch something practical. 
+Another point is that to “entrust yourself to your life as it really is” doesn’t mean just to accept. No, [it means] to accept your life by the practice of faith, deep understanding. *Faith* means very profound belief; *belief* means profound understanding *and* also awareness. *Awareness* means that through everyday life you have to touch something practical. 
 
 Awareness is not only the intellect or your “head trip”. And faith is also not your head trip, so-called belief. Belief is not a mental trip. Belief is to accept totally something greater than as usual – in other words, greater than the intellectual world. Anyway, accept, and take it, and then digest it, every day. Through your everyday life, digest it. *Digest* means you have to take care of your everyday life with total acceptance of something greater than the intellectual world. In other words, that is to go deeply into the human world. How? By making your body and mind calm. That is faith, and also awareness. Faith and awareness are not an intellectual or physical trip, but feeling, touching your life very deeply, practically, profoundly. 
 
