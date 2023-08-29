@@ -68,9 +68,9 @@ Manas is related with the six consciousnesses. In other words, manas has the six
 
 **Katagiri**: *[He laughs.]* Yes, manas. Alayavijñāna has not only manas: manas, and six consciousnesses. And also the object of the sixth consciousness, usually called the sense of mind, [which is] all dharmas; the sense of mind has all dharmas as its own object. That’s why alayavijñāna has everything as the object, not only manas.
 
-So, manas [has] alayavijñāna as its own object. Is that clear? So, manas has two things, the six consciousnesses and alayavijñāna, as its own object. In other words, manas (he says alayavijñāna here, but probably means manas) has an object in the narrow sense, connected with the usual human life, and on the other hand, it’s connected a little bit with the unconsciousness world. 
+So, manas [has] alayavijñāna as its own object. Is that clear? So, manas has two things, the six consciousnesses and alayavijñāna, as its own object. In other words, manas (*Transcriber’s note:* he says *alayavijñāna* here, but probably means *manas*) has an object in the narrow sense, connected with the usual human life, and on the other hand, it’s connected a little bit with the unconsciousness world. 
 
-**Question**: That’s manas you’re talking about?
+**Question**: That’s *manas* you’re talking about?
 
 **Katagiri**: Manas, yes; connected. Alayavijñāna is including the past, present future; so, all things. Ālayavijñāna has everything as its object, and then manas has alayavijñāna as its object. 
 
@@ -80,7 +80,7 @@ That’s why manas is very interesting, because it is the foundation of ego, the
 
 **Question**: Epistemology?
 
-**Katagiri**: Epistemology. So, ego consciousness is a very minute vibration of consciousness, to separate, to dichotomize – simultaneously, all of a sudden. (By *simultaneously*, he may mean *instantaneously*.) Automatically, beyond your speculation. This is what is always happening. When I see this table, immediately I see this table, and then next, ego consciousness always [has] lots of energies. [It is] not only the capacity to separate everything, but also it has lots of energy to continue to contact with the object. In other words, [it is] the “stickiness” to the object.
+**Katagiri**: Epistemology. So, ego consciousness is a very minute vibration of consciousness, to separate, to dichotomize – simultaneously, all of a sudden. (*Transcriber’s note:* By *simultaneously*, he may mean *instantaneously*.) Automatically, beyond your speculation. This is what is always happening. When I see this table, immediately I see this table, and then next, ego consciousness always [has] lots of energies. [It is] not only the capacity to separate everything, but also it has lots of energy to continue to contact with the object. In other words, [it is] the “stickiness” to the object.
 
 So that is ego consciousness: separation, and also attachment there. That is very deep, very deep. 
 
@@ -154,7 +154,7 @@ Tomorrow, I want to get into the [*Genjokoan*](topics#genjokoan) a little bit, a
 
 **Question**: There is no Japanese for manas?
 
-**Katagiri**: For manas, we say manas. No.
+**Katagiri**: No. For manas, we say manas.
 
 #### 47:12
 
