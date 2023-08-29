@@ -9,13 +9,13 @@ title: "Karma in Buddhism"
 
 ### Summary
 
-Katagiri Roshi summarizes the origins and development of the concept of *karma* in Buddhism, and then explores its both its deeper meaning and its practical application. Karma is related to the problem of whether there is a world after death, and how we should live in the present world. Practically, we can *feel* karma in our lives through *whole personality*. This seems to be connected with the Buddhist concept of *vedanā* (*feeling*), and also there may be a connection with Jungian psychology. (The concept of *the shadow* is not quite named, but seems to be implied.) After we feel our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the broader perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept. Karma includes dynamic energy to make our life productive. We have to develop our individual character, and simultaneously the global character of human beings, in order to build up a peaceful world. 
+Katagiri Roshi summarizes the origins and development of the concept of *karma*, and then explores its both its deeper meaning and its practical application. Karma is related to the problem of whether there is a world after death, and how we should live in the present world. Practically, we can *feel* karma in our lives through *whole personality*. This seems to be connected with the Buddhist concept of *vedanā* (*feeling*), and also there may be a connection with Jungian psychology. (The concept of *the shadow* is not quite named, but seems to be implied.) After we *feel* our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the broader perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept. Karma includes dynamic energy to make our life productive. We have to develop our individual character, and simultaneously the global character of human beings, in order to build up a peaceful world. 
 
 ### Transcript
 
 **This transcript is in rough draft stage.**
 
-*(This talk is split into two files in the audio archive: [Part 1](#part-1) and [Part 2](#part-2)*
+*(This talk is split into two files in the audio archive: [Part 1](#part-1) and [Part 2](#part-2))*
 
 <a name="000"></a>
 #### Part 1
@@ -190,9 +190,9 @@ Through this practical death, what can I feel, practically? I want to scream. *[
 
 Why [do] we have to believe in this situation of life and death, why [do] we have to believe in something? What is awareness? Why is it necessary for us to be aware? If it is necessary, what do you mean by awareness? That is the question. 
 
-Because even though *I* experience enlightenment, *[he laughs,]* when I die, all enlightenment I have experienced is gone! And Zen Center and the people all gone from before me. And then I’m always thinking I want to be haunting over the Zen center. *[People laugh, and he laughs with them.]* After my death, watching over all of you, and how you [feel about] Zen Center, how you are taking care of Zen Center, how you feel [about] Katagiri, what he has done. Do you want to criticize Katagiri, or do you respect him? *[Laughter.]* If you don’t respect me, I want to haunt you! *[He laughs.]* I always feel in that way. Watch out! *[He laughs some more.]* 
+Because even though *I* experience enlightenment, *[he laughs,]* when I die, all enlightenment I have experienced is gone! And Zen Center and the people all gone from before me. And then I’m always thinking I want to be haunting over the Zen center. *[People laugh, and he laughs with them.]* After my death, watching over all of you, how you [feel about] Zen Center, how you are taking care of Zen Center, how you feel [about] Katagiri, what he has done. Do you want to criticize Katagiri, or do you respect him? *[Laughter.]* If you don’t respect me, I want to haunt you! *[He laughs.]* I always feel in that way. Watch out! *[He laughs some more.]* 
 
-Why is it necessary to be aware of [that]? What is that? Don’t you think this is questionable? So finally, what do you have to do? Research awareness? Yes. But [in] day-to-day life, what is it? What do you have to do? Should you believe in something? Yes, but what is the most important thing you have to do? Not only [what] you have to do in the realm of the intellectual world, but [what] you have to do in the vast expanse of the world, something more than the intellectual world. That’s what I want to say: what you have to do. 
+Why is it necessary to be aware of [that]? What is that? Don’t you think this is questionable? So finally, what do you have to do? Research awareness? Yes! But [in] day-to-day life, what is it? What do you have to do? Should you believe in something? Yes, but what is the most important thing you have to do? Not only [what] you have to do in the realm of the intellectual world, but [what] you have to do in the vast expanse of the world, something more than the intellectual world. That’s what I want to say: what you have to do. 
 
 Is that okay?
 
@@ -200,9 +200,9 @@ Is that okay?
 
 **Question**: Hojo-san, there are so many references in [traditional practice] to evil karma. And when you talk, you’re talking about something much more basic, about acts and deeds that just are, and it’s very much broader than [that]. But then at the very end of the last thing you said, I thought there was something like, when you came back to talk about karma, you said maybe it’s not so good, or something like that. What do you mean? Where is that coming right now? 
 
-**Katagiri**: Well, [it is] not something good of your life which you have understood, [that] is just the picture of your life through the intellectual world. Don’t you think so? But [it is] the overall picture of your life in the dispassionate and imperturbable perspective. What is life? Is that life is understood only by the intellectual [sense]? No; by something more than intellectual. So I think karma is not only the bad. But if you say, “I have bad karma,” that means simultaneously you have good karma too. That is the overall picture of karma you use. 
+**Katagiri**: Well, [it is] not something good [for] your life which you have understood, [that] is just the picture of your life through the intellectual world. Don’t you think so? But [it is] the overall picture of your life in the dispassionate and imperturbable perspective. What is life? Is that life is understood only by the intellectual [sense]? No, by something more than intellectual. So I think karma is not only the bad. But if you say, “I have bad karma,” that means simultaneously you have good karma too. That is the overall picture of karma you use. 
 
-So what is karma? *[He laughs.]* So finally you don’t know. Karma is bad, or karma is good? Karma is neutral? No. It’s vast. 
+So what is karma? *[He laughs.]* Finally you don’t know. Karma is bad, or karma is good? Karma is neutral? No. It’s vast. 
 
 I don’t know what karma is; but practically I can feel it, deeply. [There is] something about karma extending into the past, present, future. 
 
@@ -226,13 +226,13 @@ That’s [what I said] a couple years ago to the Zen Center in San Francisco. Th
 
 The American spirit is very, what would you say, energetic. *[He chuckles.]* Yes, I understand. But I think you should develop that energetic American spirit *humbly*, in a humble way, not an egoistical way. Do you understand what I mean? 
 
-That’s why I can live here, and also I can teach Buddha’s teaching, *beyond* races and beyond culture. I have to teach this, I have to talk about this. If I always talk about [the Japanese way], you don’t want to practice, [and then] I cannot exist here. But I am different from you. But I am exactly *I* who is different, but who is exactly penetrating in the universal understanding. Okay? Then, we can work together. 
+That’s why I can live here, and also I can teach Buddha’s teaching, *beyond* races and beyond culture. I have to teach this, I have to talk about this. If I always talk about [the Japanese way], you don’t want to practice, [and then] I cannot exist here. But I am different from you. But I am exactly *I* who is different but who is exactly penetrating in the universal understanding. Okay? Then, we can work together. 
 
 That’s why I can develop my own different personality in a humble way. It means, we have to practice humility.
 
 Well, Americans don’t like the Japanese way, or other ways, I understand this. But pat your head, anyway. *[Soft laughter.]* That is your intellectual understanding, but the world is something more than that. That’s what I always [talk about]. 
 
-For instance, if you live together with someone, for instance boyfriend or girlfriend, how do you live, how do you develop your personality? It’s no so simple. I don’t care [for] you, but I want to live with you – how do you live in peace? You have to be married, next moment you have to divorce, if you really become egoistic, you know? So we have to develop taking care of human life in a humble way. 
+For instance, if you live together with someone, for instance boyfriend or girlfriend, how do you live, how do you develop your personality? It’s no so simple. [If] I don’t care [for] you, but I want to live with you – how do you live in peace? You have to be married, next moment you have to divorce, if you really become egoistic, you know? So we have to develop taking care of human life in a humble way. 
 
 **First person**: I’m not sure my question was clear. I guess what I meant was that it seems sufficient that there should be a global karma, a cosmic karma, rather than one that adheres to certain groups. But maybe as there is a karma that applies specifically to, say, Japanese culture, or to American culture, there’s one that applies to individuals...
 
@@ -242,7 +242,7 @@ For instance, if you live together with someone, for instance boyfriend or girlf
 
 **Katagiri**: Yes, that’s right. So, it’s very complicated. All things seem [to be] interconnected, so [these are] very simple entities which you can see, practically. But the contents of the simple entity is very complicated, consisting of many situations. The cosmic state of existence is very complicated. [There is] the individual character of a nation, but also the common character of humans. Wherever you are, American, or Japanese, or European, [you] are human beings. If so, if you say *human beings*, human beings really have something stinky, and also peaceful being. So that is very common.
 
-You are American, which is different from others, but on the other hand, you are human, which is the same as I. So that’s why the total overall cosmic or global picture – whatever you say – it consists of many, many things. But practically, we have to take care of that overall picture of global existence. That’s why we have to be careful.
+You are American, which is different from others, but on the other hand, you are human, which is the same as I. So that’s why the total overall cosmic or global picture – whatever you say – consists of many, many things. But practically, we have to take care of that overall picture of global existence. That’s why we have to be careful.
 
 For instance, we are creating nuclear weapons, and all beings might be destroyed. Who creates this? Particular races? No. That is human beings. That is really the global character of human beings. But, should we ignore the individual different characters? [No.] Where should we find the different characters? We should find different individual characters in that global character which all human beings possess. What is this [global character]? There is the example of creating nuclear weapons. Should we destroy individual character? No. We have to *develop* different individual characters in that global character of human being. *How?* [It’s] difficult, but we shouldn’t ignore it. 
 
