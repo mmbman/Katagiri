@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo Genjokoan – Talk 2 (Consciousness)"
+title: "Genjokoan – Talk 2: Consciousness"
 ---
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
