@@ -9,7 +9,7 @@ title: "Karma: Two Aspects"
 
 ### Summary
 
-Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it important to study karma? Is karma only for Buddhist people? Is Buddhism itself only an aspect of Eastern culture? Can thinking about karma drive you crazy? Also: How to reconcile “aiming for the long range” with “no goal in zazen”.
+Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it important to study karma? Is karma only for Buddhist people? Is Buddhism itself only an aspect of Eastern culture? Can thinking about karma drive you crazy? Also: How to reconcile *aiming for the long range* with *no goal in zazen*.
 
 ### Transcript
 
