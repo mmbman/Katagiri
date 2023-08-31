@@ -208,7 +208,7 @@ I don’t know what karma is. But I can feel it practically, deeply. [There is] 
 
 **Katagiri**: *[Cackles.]* I don’t know.
 
-**Same person**: And why it’s us, this group here, and not somebody else? You know? 
+**Same person**: And why it’s us, this group here, and not somebody else, you know? 
 
 **Another person**: Sometimes I look around at our group and I think, there’s nobody really super-exceptional here, we’re all kind of average people, but what are we doing here? You know, with this Japanese teacher. Because I think we have a particular American karma, we have American history and world view, and yours is quite different. 
 
