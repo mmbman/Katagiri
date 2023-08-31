@@ -190,7 +190,7 @@ Why is it necessary to be aware of [that]? What is that? Don’t you think this 
 
 #### 2-27:14
 
-**Question**: Hojo-san, there are so many references in [traditional practice] to evil karma. And when you talk, you’re talking about something much more basic, about acts and deeds that just *are*, and it’s very much broader than [that]. But then at the very end, almost the last thing you said, when you came back to talk about karma, I thought you said maybe it’s not so good, or something like that. What do you mean? Where is that *[unintelligible]*? 
+**Question**: Hojo-san, there are so many references in [traditional practice] to evil karma. And when you talk, you’re talking about something much more basic, about acts and deeds that just *are*, and it’s very much broader than [that]. But then at the very end, almost the last thing you said, when you came back to talk about karma, I thought you said maybe it’s not so good, or something like that. What do you mean? [...]
 
 **Katagiri**: Well, the “not something good [for] your life” which you have understood is just the picture of your life through the intellectual world. Don’t you think so? But [in] the overall picture of your life in the dispassionate and imperturbable perspective: what is life? Is that life is understood only by the intellectual [sense]? No, by something more than intellectual. So I think karma is not only the bad. If you say, “I have bad karma,” that means simultaneously you have good karma too. That is the overall picture of karma you use. 
 
