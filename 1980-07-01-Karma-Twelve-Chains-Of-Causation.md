@@ -9,17 +9,17 @@ title: "Karma: Twelve Chains of Causation"
 
 ### Summary
 
-Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. There is substantial review of the topic in the talks following this one.
+Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. However, there is substantial review of the topic in the talks following this one.
 
 ### Transcript
 
-**(Archive Issue: The online audio of this talk is only about five minutes long: apparently the first side of the tape may have been blank, or some processing error occurred. This is unfortunate, to say the least. However, the next talk picks up after this one.)**
+**(Archive Issue: The online audio of this talk is only about five minutes long, and appears to be from the end of the talk. Apparently the first side of the tape may have been blank, or some processing error occurred.)**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
-#### start of recording
+#### start of audio
 
-… [Naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? How? Just the words. Without words, we cannot get agreement. Don’t you think so?
+… [Naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? Just [with] words. Without words, we cannot get agreement. Don’t you think so?
 
 So what is agreement? “Oh yes, it is the form of a circle” – this is nothing but the agreement consisting of the words. [Or,] “Katagiri, you’re bad boy.” “Yes.” How can you agree? This agreement is just words. 
 
@@ -37,7 +37,7 @@ What is the first beginning of the world? Who created it? That’s interesting. 
 
 So before time and space is completely no sense of [ignorance]. This is *[unintelligible]* the Buddhas. That is the truth – regardless of whether the Buddha was [creating] this world, or he describes those forms, or not. Anyway, this is before time and space arises.
 
-#### end of recording
+#### end of audio
 
 ---
 
