@@ -9,7 +9,7 @@ title: "Karma: Where Karma Originates"
 
 ### Summary
 
-Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (also called the Twelve-Linked Chain of Causation, or the Twelve Links of Dependent Origination), noting that karma is *samskara* (link two) and *bhava* (link ten), and these are produced by *avidyā* (the first link: *ignorance*). But avidyā is really *vitality*: this is how we get into the human world of the present moment. Karma cannot be understood intellectually; the way to understand karma is to return to the source, which is to do zazen. He describes four stages of zazen and five related consciousnesses. (In particular, the descriptions of *prīti* and *sukha* may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures.) In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (also called the Twelve Links of Dependent Origination), noting that karma is *samskara* (link two) and *bhava* (link ten). So karma originates from the first link: *avidyā* (*ignorance*). This means that avidyā is really *vitality* – it is how we get into the human world of the present moment. Our karma cannot be understood intellectually; the way to understand karma is to return to the source, which is to do zazen. He describes four stages of zazen and five related consciousnesses – in particular, the descriptions of *prīti* and *sukha* may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist scriptures. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
 ### Transcript
 
@@ -20,7 +20,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelv
 
 I talked in the early morning [zazen](glossary#zazen), I said, “to deport oneself in [samādhi](glossary#samadhi).” I have to correct this term: to *disport*, not deport. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
 
-Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to Twelve Chain Causation. (The Twelve-Linked Chain of Causation, also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination).) Let me [review this] again. Please remember: 
+Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to Twelve Chain Causation (also known as the Twelve Links of [Dependent Origination](glossary#dependent-origination).) Let me [review this] again. Please remember: 
 
 First is *ignorance*: [in [Sanskrit](glossary#sanskrit),] *avidyā*.
 
