@@ -96,7 +96,7 @@ And karma is *karmabandhu*: *karmabandhu* means a *friend* of action. Karma is r
  
 And also karma is *karmapratiśaraṇa*. *Karmapratiśaraṇa* means that which one’s life depends on; a place which one’s life depends on.
 
-*(Transcriber’s Note: Most of the above is mentioned in* Abhidharmasamuccaya: The Compendium of the Higher Teaching *by Asanga.)*
+(*Transcriber’s Note*: Most of the above is mentioned in *Abhidharmasamuccaya: The Compendium of the Higher Teaching* by Asanga.)
 
 #### 28:10
  
@@ -124,7 +124,7 @@ But the problem is, maybe you think it’s pretty easy to return home, but I don
 
 #### 40:50
 
-[But this means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. *(Transcriber’s Note: These are the four* dhyānas*.)*
+[But this means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (*Transcriber’s Note*: These are the four *dhyānas*.)
 
 In the first stage of Zen, all unwholesome dharma [stops]. Unwholesome dharma means unwholesome things, including physical and mental, or whatever it is. If you get into zazen meditation, in the first stage of zazen, you can experience *no unwholesome thing*, because you don’t bring it up if you sit down like this. It’s really true. Maybe you cannot do anything, because your legs are fully cross-legged, crossing each other; your hands are like this [so] you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, so you can’t see anybody, facing the wall. And also your thinking is coming and sitting in zazen. So all things come back to zazen, and there is nothing you can do.
 
@@ -148,7 +148,7 @@ Well, if you return home exactly, you can experience this, this is what Buddhist
 
 But *joyful interest* is still your six consciousness always working; that’s why you start to poke your head into it. But [that is not happiness]; next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
 
-So at the first stage you can experience five consciousnesses there. *(Transcriber’s Note: elsewhere these are described as five mental factors,* cetasika*.)* One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! And then finally ... nothing. *[He laughs.]* This is zazen. 
+So at the first stage you can experience five consciousnesses there. (*Transcriber’s Note*: elsewhere these are described as five mental factors, *cetasika*.) One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! And then finally ... nothing. *[He laughs.]* This is zazen. 
 
 At the first stage of zazen, you realize how stupid you are, because [you are] always chasing after thoughts, and because [...] you completely exhaust from chasing. If you sit a seven day *sesshin*, you really understand this. The first day, second day, you really struggle – trying to make your mind calm. The third day, fourth day, well – you start to get *tired*, really tired. The fourth, fifth day, you start to give up chasing after thoughts, because you start to realize, “How stupid I am,” because you exhaust. Finally, the sixth, seventh day, you completely give up all thoughts. That’s pretty nice. And finally, completely beyond trying or not trying, you can do zazen. Just sit down.
 
