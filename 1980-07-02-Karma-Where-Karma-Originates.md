@@ -144,9 +144,7 @@ Well, if you sit down, there is completely nothing for you to do; but [still] yo
 
 So in zazen, you’re really playing with imagination. But finally, there is nothing to do, because you realize how stupid you are. *[There is the loud sound of a plane in the background.]* If you are chasing after the plane with thoughts, imagination, [you realize] how stupid you are. Finally you think: “How stupid *zazen* is.” *[Laughter.]* It’s not the fault of *zazen*, it’s *your* fault, don’t you think so? Because *you* are chasing after thought, imagination. And then finally you criticize *zazen*: how stupid zazen is. I don’t think so; *you* are stupid. *[He laughs.]* Don’t you think so? *[Pause.]* I’m sorry for you. *[Laughter.]*
 
-Well, if you return home exactly, you can experience this, this is what Buddhist scripture says. That is the first experience, the first stage of zazen. 
-
-First believe… well, it’s not necessary to believe it. If you don’t believe it, that’s okay, …
+Well, if you return home exactly, you can experience this, because this is what Buddhist scripture says. That is the *first* experience, the first stage of zazen. First believe… well, it’s not necessary to believe it. If you don’t believe it, that’s okay, …
 
 *[Tape change.]* 
 
@@ -154,7 +152,7 @@ First believe… well, it’s not necessary to believe it. If you don’t believ
 
 So at the first stage you can experience five consciousnesses there. (*Transcriber’s Note*: elsewhere these are described as five mental factors, *cetasika*.) One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. 
 
-And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! ... And then finally ... nothing. *[He laughs.]* This is zazen. 
+And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! ... And then finally, nothing. *[He laughs.]* This is zazen. 
 
 At the first stage of zazen, you realize how stupid you are, because [you are] always chasing after thoughts, and because [...] you completely exhaust from chasing. If you sit a seven day *sesshin*, you really understand this. The first day, second day, you really struggle – trying to make your mind calm. The third day, fourth day, well – you start to get *tired*, really get tired. The fourth, fifth day, you start to give up chasing after thoughts, because you start to realize, “How stupid I am” – because you exhaust. Finally, the sixth, seventh day, you completely give up all thoughts. That’s pretty nice. And then finally, completely beyond trying or not trying, you can do zazen. Just sit down.
 
@@ -162,7 +160,7 @@ So at the first stage, you really understand how stupid you are.
 
 #### 50:09
 
-At the second stage of zazen, then *vitarka* and *vicāra* both drop off. And then you can experience *joyful interest*. Still your consciousness is working, poking your head into, “What is this *joyful interest*? What is that? Is this [enlightenment](glossary#enlightenment)? Maybe so!” *[He laughs.]* You are still asking yourself, “Is this enlightenment? Wonderful!” So, *joyful interest* is there. And also simultaneously, you don’t know what the truth is, but you touch it a little bit, that’s why you feel happy. You can experience happiness. You don’t know exactly. Even though consciously you really hate zazen, you really hate pain, et cetera, still you feel happy. 
+At the second stage of zazen, then *vitarka* and *vicāra* both drop off. And then you can experience *joyful interest*. Still your consciousness is working, poking your head into, *what is this joyful interest?* “What is that? Is this [enlightenment](glossary#enlightenment)? Maybe so!” *[He laughs.]* You are still asking yourself, “Is this enlightenment? Wonderful!” So, *joyful interest* is there. And also simultaneously, you don’t know what the truth is, but you touch it a little bit, that’s why you feel happy. You can experience happiness. You don’t know exactly. Even though consciously you really hate zazen, you really hate pain, et cetera, still you feel happy. 
 
 And then at the third stage, gradually your interest in zazen is snowballing. So you try to poke your head into *joyful interest*, what the truth is. In the realm of *joyful interest* still your consciousness works, but finally, the six consciousnesses also drop off. Very naturally, all you have to do is just sit down. And then, there is a smile, a little smile. And then you can be exactly one with zazen. So, no *joyful interest*, and then just *happiness* there. *Just happiness* means exactly *samādhi* itself. *Samādhi* is *oneness*. 
 
