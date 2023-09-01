@@ -45,7 +45,7 @@ The third meaning is *karmic retribution* of causation, cause and effect. This i
 
 Anyway, behind this body and mind there is something which makes it possible for human body and mind to exist, right now and right here. This is what is called karma. That karma has lasted through century after century, from the beginningless past. This is the karma we want to learn about at this time. 
 
-But it’s really “mysterious” stuff. Really mysterious.
+But it’s really mysterious stuff.
 
 #### 13:55
 
@@ -63,11 +63,11 @@ And also the problem is, with sports, or if you become an artist, or whatever yo
 
 And even though you do zazen perfectly, there is no applause. No one gives you applause after zazen or before zazen. And even though you yourself criticize your zazen – good or bad, right or wrong – no one [else] criticizes you, just you continue to criticize. Finally, you exhaust [yourself]. Finally you think, “This is stupid.” And if you tell the teacher that, the teacher says, “Fine, good. Why don’t you sit down?” Or even if you have a good experience: “Fine, good. Why don’t you sit down?” And if you experience something bad from zazen: “Fine, good. This is also part of your body, so please continue, sit down.” 
 
-So there is never any applause, before or after. You don’t understand this, because it’s pretty difficult to become one, which is called samadhi. Samadhi is completely beyond your speculation. You cannot poke your head into it. [...] Your whole body and mind can *be* there – just like a football player, you can be just there – but [there is] nothing to touch. 
+So there is never any applause, before or after. You don’t understand this, because it’s pretty difficult to *become one*, which is called samadhi. Samadhi is completely beyond your speculation. You cannot poke your head into it. [...] Your whole body and mind can *be* there – just like a football player, you can be just there – but [there is] nothing to touch. 
 
 So this is the state of samadhi. It’s very difficult: the moment when you touch it, it’s already not *real* samadhi. That’s why the state of samadhi is one of the mysteries, *[he chuckles,]* the mysterious things. 
 
-The third one is *the will of the world*. The will of the world means maybe the will of existence. Maybe so, according to *my* understanding. The world has a certain will; this a really strong will – which is called *impermanence*, which is called *change*, which is called *suffering*. That is the will of the world, or existence. Whatever you think, everything is changing, impermanent. That is really one of the mysterious things. It’s very difficult to understand. 
+The third one is *the will of the world*. The will of the world means maybe the will of existence. Maybe so, according to my understanding. The world has a certain will; this a really strong will – which is called *impermanence*, which is called *change*, which is called *suffering*. That is the will of the world, or existence. Whatever you think, everything is changing, impermanent. That is really one of the mysterious things. It’s very difficult to understand. 
 
 And the last one is *the state of karma-vipāka*, karmic result. That is the human body and mind. Each of us. 
 
@@ -81,7 +81,7 @@ One point is that karma, or karmic result, our human body and mind, is [somethin
 
 The second point is that karma [or] the human body is that which certain gods made. 
 
-The third is that there is no cause: no one made the karma in the past, so the human body and mind or human action just happened by chance.
+The third is that there is no cause: no one made the karma in the past, so human body and mind or human action just happened by chance.
 
 The first two are sort of fatalism, because you already made [your karma] in the past. So that karma is already a certain frame of categories, which [for example] is called Katagiri. If I say *Katagiri*, Katagiri already has a certain sense of *solid being*, which no one controls, which even *I* cannot control – that is [the meaning of] “I already made it in the past”. *In the past* doesn’t mean my childhood, it means the past before my birth. My karma is that which I already made in the past – so, I cannot do anything.
 
@@ -97,17 +97,17 @@ For instance, in [the book] *Shogun* – did you read *Shogun*? I didn’t read 
 
 That is how people usually understand karma. 
 
-If you read classic Japanese literature, you can feel a sense of pensiveness. The term *karma* is very common, very popular in Japan. It penetrates their lives. They use the term *karma* very often; even though they don’t understand what it is. But that term *karma* is not the good sense; it’s always a little bit pensive feeling there. For instance, if the more you try to develop your life, the more you realize that your situation is getting worse, going downhill – at that time people say, “That is your karma.” But it is not really karma. 
+If you read classic Japanese literature, you can feel a sense of pensiveness. The term karma is very common, very popular in Japan. It penetrates their lives. They use the term karma very often; even though they don’t understand what it is. But that term karma is not the good sense; it’s always a little bit pensive feeling there. For instance, if the more you try to develop your life, the more you realize that your situation is getting worse, going downhill, at that time people say, “That is your karma.” But it is not really karma. 
 
 #### 31:32
 
-[In my childhood,] I didn’t know exactly what karma was. But probably I told you, my mother always told me that I was reborn from my sister. Constantly she told me this. And also, I was born in this world when my mother saw the morning sunrise, so she told me, “You are the reincarnation of the sun.” *[Unintelligible.]* *[Laughter.]* 
+[In my childhood,] I didn’t know exactly what karma was. But probably I’ve told you, my mother always told me that I was reborn from my sister. Constantly she told me this. And also, I was born in this world when my mother saw the morning sunrise, so she told me, “You are the reincarnation of the sun.” *[Unintelligible.]* *[Laughter.]* 
 
 For my mother, the sun and the moon were not different [in content from] the Buddha. My mother and my father always expressed appreciation to the Buddha and ancestors, and the sun, the moon, all things. Every day – morning, before going to bed – they appreciated [all things]. The sun and the moon were exactly the same for them. Buddha is exactly the sun, Buddha is exactly the moon. So they really accepted the existence of the sun and the moon very smoothly, straightforwardly. That’s why she could say, “You are the incarnation of the sun.” But I didn’t understand. 
 
 Even though I didn’t understand, if somebody is constantly telling [you] that way, finally you believe it, don’t you think? *[He laughs.]* [Like if] everybody says you should believe in God constantly, finally you believe. And also Dogen Zenji says, the Korean people first pretend to cry when they attend funeral service. Even though you don’t feel sad, anyway pretend to cry, and finally you can cry exactly. *[He laughs.]* Yes.
 
-So, my mother constantly told me I was the rebirth of my sister, and the incarnation of the sun. But this is a pretty good sense of what is called karma, [although] I didn’t know the term karma at that time. On the other hand, in Japanese life, generally speaking, karma was not used in a good sense, but always in a bad sense. That’s why I was pretty confused: this other karma is pretty good, but [usually] karma is not good. Do you understand? Because if I say, “that is my karma,” at that time people don’t accept karma in [the] good sense. It’s sort of that my life is already set up; I cannot change, I cannot develop, if I understand karma in that way. But I don’t think that is my karma. 
+So, my mother constantly told me I was the rebirth of my sister, and the incarnation of the sun. But this is a pretty good sense of what is called karma, [although] I didn’t know the term karma at that time. On the other hand, in Japanese life, generally speaking, karma was not used in a good sense, but always in a bad sense. That’s why I was pretty confused: this other karma is pretty good, but [usually] karma is not good. Do you understand? Because if I say, “that is my karma,” at that time people don’t accept karma in [the] good sense. It’s sort of that my life is already set up. I cannot change, I cannot develop, if I understand karma in that way. But I don’t think that is my karma. 
 
 #### 35:25
 
@@ -135,7 +135,7 @@ That is [what I will have to explain] with my best effort. Do you have some ques
 
 #### 46:31
 
-**Question**: Roshi, it seems that when people use the word *karma* in popular talk, they mean either the collection of your good and bad deeds, which will give you a higher or lower life next time, or else they mean your past deeds that ordain what happens now. Is that your understanding?
+**Question**: Roshi, it seems that when people use the word karma in popular talk, they mean either the collection of your good and bad deeds, which will give you a higher or lower life next time, or else they mean your past deeds that ordain what happens now. Is that your understanding?
 
 **Katagiri**: That is one aspect of karma. I’m suggesting that is a misunderstanding. Well, it’s not exactly a misunderstanding; that is one aspect of karma. Karma continues from the past, through the present, to the future; this is karma.
 
@@ -167,7 +167,7 @@ Broadly speaking, the purpose of Buddhist practice is that we should accumulate 
 
 So if you say *karma*, broadly speaking karma is understood as *action*. Physical and mental action; psychological action too. So if you act, there is action which appears on the surface. In other words there is one aspect of action which manifests itself. The other aspect is action which does not manifest. That is accumulated. That is, if you do something, you can leave a certain impression after your doings. This is the Buddhist theory, anyway. If you do act, if you do something mentally or psychologically or physically, always something is left as an impression in the human mind, the human body. That is what is called [*kunju*], that means a sort of perfume. 
 
-And then, practicing zazen, if you accumulate the power of custom which is called [concentrating on] your breath. Even though [you breathe] automatically, if you can [count the breath], this is a very good custom, don’t you think so? But if your mind pokes into it, you say that it is machine-like, so you hate it. But through the machine your consciousness really works pretty well. If you contemplate it, [...] that is great power of custom. So even with such a thing, we try to accumulate that power of habit, and then [this is] stored in your mind, behind your action. And then those things will shoot up – either while you are alive now, or during your next life, or in the life after next. We don’t know. But we have to see [that there is] not only this life, but past life, present life, and future life; the life after next. We have to think [about that]. That is the purpose of Buddhist practice: aiming at the long range. So just accumulate that practice, and plant good roots. 
+[For example], practicing zazen, if you accumulate the power of custom which is called [concentrating on] your breath. Even though [you breathe] automatically, if you can [count the breath], this is a very good custom, don’t you think so? But if your mind pokes into it, you say that it is machine-like, so you hate it. But through the machine your consciousness really works pretty well. If you contemplate it, [...] that is great power of custom. So even with such a thing, we try to accumulate that power of habit, and then [this is] stored in your mind, behind your action. And then those things will shoot up – either while you are alive now, or during your next life, or in the life after next. We don’t know. But we have to see [that there is] not only this life, but past life, present life, and future life; the life after next. We have to think [about that]. That is the purpose of Buddhist practice: aiming at the long range. So just accumulate that practice, and plant good roots. 
 
 #### 56:50
 
@@ -179,7 +179,7 @@ So *no goal* doesn’t mean to ignore the purpose of human action. Human action 
 
 #### 59:00
 
-I cannot talk about karma according to Buddhist philosophy at this time, because it’s a huge system. For instance, you have to study karma according to primitive Buddhism, the *agamas*. Next, we have to study *Abhidharmakosha*; that is the oldest Buddhist psychology. That is complicated. But anyway, it explains what karma is... and it’s huge. It gives you a headache. *[People chuckle.]* And next, you have to study *Madhyamaka*; it is explaining emptiness, so Nagarjuna explains karma in this *Madhyamaka*. And also next, you have to study the Buddhist psychology which developed after the *Madhyamakas*; this is also explaining karma. And also *[he laughs,]* another one is the *Avatamsaka Sutra*. This is a beautiful sutra explaining the interconnection of all sentient beings; it explains this state of perfect dynamic working. That’s a beautiful sutra. This sutra also explains karma, but it doesn’t have a particular section on karma, so you have to study the whole sutra and then pick up the points about karma. And also, maybe the *Lotus Sutra*. And also, karma according to Chinese Zen, and Japanese Zen, *[he laughs,]* and also the Pure Land school, and the Tendai school... Anyway, it’s a huge [system].
+I cannot talk about karma according to Buddhist philosophy at this time, because it’s a huge system. For instance, you have to study karma according to primitive Buddhism, the *agamas*. Next, we have to study *Abhidharmakosha*; that is the oldest Buddhist psychology. That is complicated. But anyway, it explains what karma is... It’s huge. It gives you a headache. *[People chuckle.]* And next, you have to study *Madhyamaka*; it is explaining emptiness, so Nagarjuna explains karma in this *Madhyamaka*. And also next, you have to study the Buddhist psychology which developed after that *Madhyamaka*; this is also explaining karma. And also *[he laughs,]* another one is the *Avatamsaka Sutra*. This is a beautiful sutra explaining the interconnection of all sentient beings; it explains this state of perfect dynamic working. That’s a beautiful sutra. This sutra also explains karma, but it doesn’t have a particular section on karma, so you have to study the whole sutra and then pick up the points about karma. And also, maybe the *Lotus Sutra*. And also, karma according to Chinese Zen, and Japanese Zen, *[he laughs,]* and also the Pure Land school, and the Tendai school... Anyway, [Buddhism is] huge.
 
 I cannot talk about all [of those] things. So as much as possible, I would like to explain karma through my experience. And also I want you get a taste of what karma is, even a little bit. Okay? That’s what I want to do at this time. But my seminar is just an introduction to karma. If you are interested in karma, you have to study [those things I mentioned], one by one. 
 
