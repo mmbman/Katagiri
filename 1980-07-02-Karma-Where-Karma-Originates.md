@@ -52,7 +52,7 @@ The first one, *ignorance* – *mumyo* in Japanese – and also *craving* and *
 
 And *avidyā*, ignorance, and *craving* and *grasping*, this is what is called *klesha*, delusion. And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*, and also *reception*, *birth*, *old age and death*: those are called *suffering*. 
 
-*Karmic result* – *karma-vipāka* – means the body and mind you have now. For instance, *name and form* is your body. Body and mind, six consciousnesses, six objects, whatever you say – anyway, *name and form*, this is our body. And also *six consciousnesses*. And also if you have *six consciousnesses*, if you have the six organs, immediately you have to face six objects. Always six organs face six objects. This is *tangibility*, *contact*. Without contact [we cannot accept.] [This is the present life.]
+*Karmic result* – *karma-vipāka* – means the body and mind you have now. For instance, *name and form* is your body. [...] And also *six consciousnesses*. And also if you have *six consciousnesses*, if you have the six organs, immediately you have to face six objects. Always six organs face six objects. This is *tangibility*, *contact*. Without contact [we cannot accept.] \[This is the present life.]
 
 *(Transcriber’s Note: There is a lot of noise from an airplane, making this section difficult to hear.)*
 
