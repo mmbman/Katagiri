@@ -19,7 +19,7 @@ Katagiri Roshi completely explains the Twelve Links of Dependent Origination... 
 
 #### start of recording
 
-… [Naturally] the words come up. And then, now can people look at this form of circle? How do they agree with this existence of a form of circle coming from a movement? How? Just the words. Without words, we cannot get agreement. Don’t you think so?
+… [Naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? How? Just the words. Without words, we cannot get agreement. Don’t you think so?
 
 So what is agreement? “Oh yes, it is the form of a circle” – this is nothing but the agreement consisting of the words. [Or,] “Katagiri, you’re bad boy.” “Yes.” How can you agree? This agreement is just words. 
 
