@@ -9,7 +9,7 @@ title: "Karma: Taking Care of Karma"
 
 ### Summary
 
-Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He further describes some key concepts in Buddhist psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because body and mind still exist. This is why Zen Master Dogen says, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma: we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is used as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
+Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He further describes some key concepts in Buddhist psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because body and mind still exist. This is why Zen Master Dogen says, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ### Transcript
 
