@@ -9,7 +9,7 @@ title: "Karma: Unmanifested Karma"
 
 ### Summary
 
-Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is sort of an impression remaining behind our actions – as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. (It is also related to *alayavijnana*: storehouse consciousness.) Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma beyond the intellectual, you can turn over a new leaf, because karma is nothing but energy: it is the mainspring of [creative] vitality.
+Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
 
 ### Transcript
 
@@ -18,13 +18,13 @@ Katagiri Roshi explains the difference between *manifested* and *unmanifested* k
 <a name="000"></a>
 #### 0:00 start of recording
 
-This morning I would like to talk about the [karma](glossary#karma) which is one’s individual karma, and simultaneously is not individual, is completely beyond our individual control. This [aspect] is also karma. 
+This morning I would like to talk about the [karma](glossary#karma) which is one’s individual karma and simultaneously is not individual, is completely beyond our individual control. This is also [an aspect of] karma. 
 
 Within karma we can realize a very contradictory situation. Karma is always within individual life: there is no other way that we [can] take responsibility for our actions or our individual life. On the other hand, karma is completely beyond individual control. Regardless of whether you like or dislike it, regardless of whether you control it or not, regardless of whether it is something created by somebody else, or whatever it is, anyway, it is completely beyond your control. But as long as it is within you, it is something we have to take responsibility for. So that is very contradictory! 
 
 That is also a very important point: we have to understand karma, and how we should be free from karma. It takes time. It really takes time. But if you study [Buddhism](glossary#buddhism), you’ll understand [this] very well. 
 
-[Because] in Buddhism we have a certain stages of Zen *dhyāna*, meditation. Yesterday I told you four stages of meditation. This is really Zen meditation, which everyone can experience in the realm of form, the world. There are... well, I don't know how to explain this. *[He laughs]*. I'll go a different way. *[Laughter.]*
+In Zen Buddhism we have a certain stages of *dhyāna*, meditation. Yesterday I told you four stages of meditation. This is really Zen meditation, which everyone can experience in the realm of *form*, the world. There are... well, I don't know how to explain this. *[He laughs]*. I'll go a different way. *[Laughter.]*
 
 #### 3:12
 
