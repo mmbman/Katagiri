@@ -140,7 +140,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
-Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
+Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
 
 ---
 
