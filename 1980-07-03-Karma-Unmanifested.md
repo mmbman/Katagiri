@@ -9,7 +9,7 @@ title: "Karma: Unmanifested Karma"
 
 ### Summary
 
-Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is sort of an impression remaining behind our actions – as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. (It is also related to *alayavijnana*: storehouse consciousness.) Despite its role in morality, unmanifested karma itself completely neutral in nature. If you get a taste of this karma beyond the intellectual, you can turn over a new leaf, because karma is nothing but energy: it is the mainspring of [creative] vitality.
+Katagiri Roshi explains the difference between *manifested* and *unmanifested* karma, and why we need to understand both. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is sort of an impression remaining behind our actions – as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. (It is also related to *alayavijnana*: storehouse consciousness.) Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma beyond the intellectual, you can turn over a new leaf, because karma is nothing but energy: it is the mainspring of [creative] vitality.
 
 ### Transcript
 
