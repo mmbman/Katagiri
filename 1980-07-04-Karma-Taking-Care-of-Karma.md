@@ -9,7 +9,7 @@ title: "Karma: Taking Care of Karma"
 
 ### Summary
 
-Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He further describes some key concepts in Buddhist psychology, particularly in a section on five aspects of consciousness. Even after reaching the final goal of religion, these five aspects of consciousness remain, because body and mind still exist. This is why Zen Master Dogen says, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
+Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, *perception* remains, because body and mind still exist. This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ### Transcript
 
@@ -18,7 +18,7 @@ Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma
 <a name="000"></a>
 #### 0:00 start of recording
 
-This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly [karma] according to Dogen, the founder of Soto Zen, because he wrote a [fascicle] in *Shōbōgenzō* on karma. So next week I would like to talk about karma according to Dogen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
+This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dogen, the founder of Soto Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dogen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
 
 In Buddhism, meditation is called *dhyāna*. If you really start to study Buddhism, dhyāna or meditation is not a simple practice, it’s pretty deep. Most people handle meditation as a means to make your life strong, et cetera, but this is really just a little bit of understanding of meditation in Buddhism. The more you practice meditation, you really realize how deep meditation is. In your whole life you should understand what meditation is, and through meditation you should understand [your life]. To understand meditation is exactly the same as understanding your life. Exactly the same. So that’s why I told you in this seminar that in order to understand karma there is no other way but just to do zazen. That is the best way.
 
@@ -30,7 +30,7 @@ For instance, [in Buddhism,] the world is divided into three categories. The fir
 
 So briefly speaking, we understand the world as the triple world. The first world is *the world of desire*. This is really the common human world, filled with human desire: good or bad, right and wrong, confusion, suffering, and many things. 
 
-The second world is *the world of form*. In other words, this world has no sense of desire, but the material entities remain, the material world remains. *Material world* means not only material things, but even the spiritual things become material, if you attach to them. Do you understand this? You may know Trungpa’s book, *Spiritual Materialism*. If you really attach to the spiritual world, if you really handle the spiritual world according to individual preconceptions or prejudice, the spiritual world turns into the material world. In other words, you don’t understand the spiritual world exactly as it is. The spiritual world is understood in a very narrow way; at that time it becomes the material world. [At that time] it doesn’t make sense; it doesn’t work in the human world. Even though you have a spiritual experience, if it doesn’t work in your life; it’s still a material thing, a material entity. That is the world of form. 
+The second world is *the world of form*. In other words, this world has no sense of desire, but the material entities remain, the material world remains. *Material world* means not only material things, but even the spiritual things become material, if you attach to them. Do you understand this? You may know Trungpa’s book, *Cutting Through Spiritual Materialism*. If you really attach to the spiritual world, if you really handle the spiritual world according to individual preconceptions or prejudice, the spiritual world turns into the material world. In other words, you don’t understand the spiritual world exactly as it is. The spiritual world is understood in a very narrow way; at that time it becomes the material world. [At that time] it doesn’t make sense; it doesn’t work in the human world. Even though you have a spiritual experience, if it doesn’t work in your life; it’s still a material thing, a material entity. That is the world of form. 
 
 And third is *the world of formlessness*. This is *just* the spiritual world. [In Japanese] we call this *mushiki-kai*. *Mu* is *non*. *Shiki* is *rupa* in Sanskrit. Usually *rupa* is translated as *form*, but *rupa* in Sanskrit means to get something in a dualistic way. In other words, always separating: seeing something, hearing something separately, between subject and object. That is what is called *rupa*: form, the material world, the dualistic world. So *mushiki* means non-*rupa*, non-form, so *formlessness*. 
 
@@ -38,7 +38,7 @@ So dhyāna, zazen, does not take place in the world of desire. The practice of d
 
 #### 09:45
 
-Dhyāna takes place in the world of form, and I told you before that at that time we have a system of dhyāna which is called the four stages. Do you remember?
+Dhyāna takes place in the world of form, and I told you before, that at that time we have a system of dhyāna which is called the four stages. Do you remember?
 
 In the first stage of dhyāna, all unwholesome human behaviors *drop off*, exactly. You don’t believe this, but this is really true! In other words, the world of desires drops off. For instance, if you sit down like this, even though you get angry, you cannot express anger, or you cannot hit somebody. Anyway when you sit down, [you just] *sit down*, that’s all. Even though someone comes and gets angry and tries to hit you, it’s pretty hard to hit the person who is sitting quietly. Well, maybe somebody [is] there *[he laughs]*, but don’t worry. 
 
@@ -62,7 +62,7 @@ The [word] happiness you usually use is a little different. [That] happiness is 
 
 So at the first stage, you can experience *samadhi* and *sukha* and *prīti*, and also *vitarka* and *vicāra*. *Vitarka* means *thought*, and *vicāra* is *discursive thinking*. 
 
-In the second stage of dhyāna, particularly *vitarka* and *vicāra*, thought and discursive thinking, drop off. And then you can experience strongly the *prīti* and *sukha*. And also at that time that is called *mindfulness*, because you can be *mindful*: “What is the truth?” That truth is a dim image of the truth, but you can be mindful of the image of the truth, because still there is prīti, joyful interest, which [is] your six consciousnesses poking their head into it. So the six consciousnesses poke their head into the truth, so that is the image of the truth.
+In the second stage of dhyāna, particularly *vitarka* and *vicāra*, thought and discursive thinking, drop off. And then you can experience strongly the *prīti* and *sukha*. And also at that time that is called *mindfulness*, because you can be *mindful*: “What is the truth?” That truth is a dim image of the truth, but you can be mindful of the image of the truth, because still there is prīti, joyful interest, which [is] your six consciousnesses poking their head into it. The six consciousnesses poke their head into the truth, so that is the image of the truth.
 
 In the third stage, prīti drops off, and just happiness and *samadhi* and also mindfulness are there. You can be mindful [of] samadhi and the truth. In other words, [there is] oneness between zazen and you, and then that is really mindful. *Mindfulness* means *not to forget*: not to forget the state of the being who is right in the middle of the truth. This is mindfulness. Mindfulness is very *practical* belief. [This] belief is not something you can think in your mind, but mindfulness is really practical belief. You can be mindful of a state of you who is present constantly in the truth. So mindfulness means not to forget the truth – or, you can be present there. You can be mindful of your life, which is present constantly in the truth. At the third stage of zazen, you can experience this.
 
@@ -136,9 +136,9 @@ So that’s why they always concentrate on educating young people like this. We 
 
 Next is *saṃjñā*: that is *perception*. This is a very interesting thing. Perception is just like a carpenter who recognizes what kind of wood they have to use. And also, next, the carpenter [puts a mark there]. [...] This is the quality of perception: if you put the mark, that putting the mark reminds you what kind of wood you should use. That means *re*-recognition. So first [there is] *recognition*, and second, the quality of perception is *re*-recognition. If you recognize something, you put a mark on your object, [so that you can immediately re-recognize it, so] you can know later what kind of wood you should use. 
 
-The function of perception is to attach individual understanding. Because the carpenter understands what kind of wood he needs, but that is the individual carpenter’s understanding. That’s why he puts the mark on the wood.
+The function of perception is to attach individual understanding. Because the carpenter understands what kind of wood he needs, but that is the individual carpenter’s understanding of wood. That’s why he puts the mark on the wood.
 
-For instance, if you understand Zen, or Christianity, whatever, you have [an] experience of Christianity or Zen you understand. That is recognition. And then you put a mark on Christianity [or Zen]. That is your individual understanding. And then [the function of] this individual understanding is really [to re-recognize]. You [re-recognize] what kind of wood you need. Finally you say, “That is Christianity.” So you really attach to individual understanding. That is the function of perception. 
+For instance, if you understand Zen, or Christianity, whatever, you have [an] experience of Christianity or Zen you understand. That is recognition. And then you put a mark on Christianity [or Zen]. That is your individual understanding. And then [the function of] this individual understanding is really to recognize; you recognize what kind of wood you need. Finally you say, “That is Christianity.” So you really attach to individual understanding. That is the function of perception. 
 
 That is just like the blind men touching the elephant. That is an interesting story in the Buddhist scriptures: the king brings an elephant, and asks the blind men what it is. One blind man touches the ears of the elephant, and he says, “The elephant is just like a big fan.” Another is touching a leg, and says, “Oh, the elephant is just like a pillar!” *[He chuckles.]* That is really the function of perception. 
 
@@ -164,7 +164,7 @@ That’s why cetanā is individual experience, individual [things]. Cetanā is b
 
 #### 59:26
 
-And *citta* is *mind*; mind is to know and to understand, and also to *communicate* with [the] object. Creating communications between subject and object by understanding and knowing something; analyzing, synthesizing. This is the mind, which is called *citta*. 
+And *citta* is *mind*; mind is to know and to understand, and also to *communicate* with [the] object. Creating communications between subject and object by understanding and knowing something; analyzing, synthesizing – this is the mind, which is called *citta*. 
 
 #### 1:00:05
 
