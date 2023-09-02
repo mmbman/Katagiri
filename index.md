@@ -9,7 +9,7 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 ---
 
-### Class: Taking Care of Karma
+## [Class: Taking Care of Karma](https://www.oceanzen.org/buddhist-studies)
 
 On eight Wednesday evenings from September 20 - November 8, 2023, I will be leading a class called “Taking Care of Karma” at Compassionate Ocean Zen Center, where we will be studying Katagiri Roshi’s talks on karma, as transcribed by yours truly on this site. Compassionate Ocean is a Zen Center in Minneapolis, Minnesota in Katagiri Roshi’s lineage (it is actually named after him). There is an option for participating via Zoom. 
 
