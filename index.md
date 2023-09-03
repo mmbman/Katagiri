@@ -13,9 +13,10 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 On eight Wednesday evenings from September 20 - November 8, 2023, I will be leading a class called “Taking Care of Karma,” where we will be studying Katagiri Roshi’s talks on karma, as transcribed by yours truly on this site. The class will take place at Compassionate Ocean Zen Center, which is located in Minneapolis, Minnesota. There is an option for participating via Zoom. Compassionate Ocean is in Katagiri Roshi’s lineage (it is actually named after him). 
 
-The talks we will be discussing (which I am currently busy re-editing) are:
+The talks we will be discussing are:
 
 - [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
+- [Karma in Buddhism](1987-05-23-Karma-in-Buddhism) (1987)
 - [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 - [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 - [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
@@ -23,7 +24,6 @@ The talks we will be discussing (which I am currently busy re-editing) are:
 - [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 - [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 - [Karma: Conclusion](1980-07-12-Karma-Conclusion)
-- [Karma in Buddhism](1987-05-23-Karma-in-Buddhism) (1987)
 
 We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. For details, please [see the class webpage](https://www.oceanzen.org/buddhist-studies).
 
