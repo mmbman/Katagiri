@@ -20,7 +20,7 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 
 Probably you may notice that there are many English terms in Buddhism using “all,” or “all sentient beings,” or “all [dharmas](glossary#dharma).” In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms including “all dharmas,” “all sentient beings.” That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “All is impermanent.” What is *all*? This morning I would like to learn these terms with you. 
 
-In [Buddha](glossary#Buddha)’s time, Buddha always analyzed the human world and human beings as five [*skandhas*](glossary#skandha): form, feeling, perceptions, impulses, and consciousness. And also, sometimes, when the five *skandhas* are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects, and six consciousnesses. Six sense organs, six objects, and six consciousness are the world we are involved in. So from this point, the five *skandhas* are exactly the implication of the term *all*, or *all sentient beings*, or *all dharmas*.
+In [Buddha](glossary#Buddha)’s time, Buddha always analyzed the human world and human beings as five [*skandhas*](glossary#skandha): form, feeling, perceptions, impulses, and consciousness. And also, sometimes, when the five *skandhas* are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects, and six consciousnesses. Six sense organs, six objects, and six consciousnesses are the world we are involved in. So from this point, the five *skandhas* are exactly the implication of the term *all*, or *all sentient beings*, or *all dharmas*.
 
 [Professor Abe](glossary#masao-abe) translated it sometimes as “everything without exception.” At any rate, if we translate it, we say “all”. But this *all*, according to Buddha’s teaching, is described as five *skandhas*, or six sense organs and six objects. 
 
@@ -188,7 +188,7 @@ Does that answer your question?
 
 **Same person**: Do you mean that depending on the depth of your understanding, your feeling of the ‘I’ is more or less there?
 
-**Katagiri**: Something more than that, yes. More than six consciousness, eyes, ears, nose, et cetera. But without the six consciousness, you cannot experience, you cannot understand the original nature of existence. That’s why we have to experience individually. But it is not good enough; still we have to understand the basic nature of individual experience, what is individual experience.
+**Katagiri**: Something more than that, yes. More than six consciousnesses, eyes, ears, nose, et cetera. But without the six consciousnesses, you cannot experience, you cannot understand the original nature of existence. That’s why we have to experience individually. But it is not good enough; still we have to understand the basic nature of individual experience, what is individual experience.
 
 **Same person**: That’s not what I mean. I mean, what does the feeling of ‘I’ come from? It doesn’t come from the six consciousnesses.
 

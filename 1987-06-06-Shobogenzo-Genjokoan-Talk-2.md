@@ -258,7 +258,7 @@ Those three: verification, satori, awareness, are connected, working together.
 
 **Question**: Hojo-san? Can some of the first consciousnesses you talked about, like the ears, also be connected to the very deep level of the stream of consciousness?
 
-**Katagiri**: Yes. Yes. That’s why six consciousnesses [are] connected with manas, and also the six consciousness is controlled by alayavijñāna. So alayavijñāna is kind of a general in the army. *[He chuckles.]* Manas is the sergeant. Always giving orders: “you should do it.” And the six consciousnesses are the soldiers. *[Laughter.]* Okay? Kind of like that. So always the sergeant should get the information from the general, and then order the six consciousness, the soldiers: “You should do this, you should do that, such and such,” you know? And then finally, the soldiers realize where the general is. And then, you have to go back to the general and [say], “I’m finished, my duty is over." Like that. 
+**Katagiri**: Yes. Yes. That’s why six consciousnesses [are] connected with manas, and also the six consciousnesses are controlled by alayavijñāna. So alayavijñāna is kind of a general in the army. *[He chuckles.]* Manas is the sergeant. Always giving orders: “you should do it.” And the six consciousnesses are the soldiers. *[Laughter.]* Okay? Kind of like that. So always the sergeant should get the information from the general, and then order the six consciousnesses, the soldiers: “You should do this, you should do that, such and such,” you know? And then finally, the soldiers realize where the general is. And then, you have to go back to the general and [say], “I’m finished, my duty is over." Like that. 
 
 So, [they are] always connected, something like that.
 

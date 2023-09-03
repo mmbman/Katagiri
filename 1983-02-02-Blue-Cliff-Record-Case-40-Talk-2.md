@@ -80,7 +80,7 @@ The note says,
 
 From this point, winter is exactly winter.
 
-“Where I am” means we always justify ourselves, understanding ourself, understanding our object, on the basis of intellectual thought, systematized thought; and then at that time we can see a certain scenery, “where I am.” “Yes, I am in the middle of the Buddha’s world.” But this is nothing but the systemized teaching. This is nothing but something you can see through the six consciousness, six objects. So in the real truth there is no such scenery here where I am. If you get into [it] deeper and deeper, at that time you don’t know, you don’t get anything you can depend on: where you are, what you are. You don’t know exactly. 
+“Where I am” means we always justify ourselves, understanding ourself, understanding our object, on the basis of intellectual thought, systematized thought; and then at that time we can see a certain scenery, “where I am.” “Yes, I am in the middle of the Buddha’s world.” But this is nothing but the systemized teaching. This is nothing but something you can see through the six consciousnesses, six objects. So in the real truth there is no such scenery here where I am. If you get into [it] deeper and deeper, at that time you don’t know, you don’t get anything you can depend on: where you are, what you are. You don’t know exactly. 
 
 From this point all you have to do is, even though you don’t know where you are exactly, you have to stand up, becoming you which you are, from moment to moment. That is *you are you*. *You are long* is of yourself long. *You are short* is of yourself short. That’s enough. Yellow is yellow. Red is red. When you really stand up in that way, you are you, winter is winter. 
 
