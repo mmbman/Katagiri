@@ -161,7 +161,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 ### [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 #### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. There is substantial review of the topic in the talks following this one.
+Katagiri Roshi completely explains the Twelve Links of Dependent Origination... presumably, but the audio is lost. However, there is substantial review of the topic in the talks following this one.
 
 ---
 
