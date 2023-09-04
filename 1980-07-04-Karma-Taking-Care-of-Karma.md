@@ -88,7 +88,7 @@ Third: *nothingness to resort to*.
 
 The fourth: *a state of concentration which goes beyond the matter of whether nothingness is allowed or not*. 
 
-(Transcriber’s note: These correspond to the *samapattis* (“attainments”).)
+(*Transcriber’s note*: These correspond to the *samapattis* (“attainments”).)
 
 [In the fourth stage,] completely you can’t say anything at all. Nothing. So all you have to do is just be present. *Just* be present. This is the final goal, anyway. *[He chuckles.]* This is just like a fish swimming in the water. The fish doesn’t ignore the function of consciousness, because he has consciousness, but it doesn’t bother his activity. The fish just swims in the water, dynamically, always. That is really the last stage of zazen in the world of formlessness. 
 
