@@ -182,7 +182,7 @@ Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *
 ### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
 #### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, *perception* remains, because body and mind still exist. This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
+Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ---
 
