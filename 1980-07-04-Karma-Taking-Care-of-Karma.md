@@ -154,7 +154,7 @@ That is [also] a perception. You really get such an experience through perceptio
 
 #### 54:21
 
-And next is *cetanā*. Cetanā is *thought*, and also volition or will. Cetanā is very important because it is the basis of karma. Whatever kinds of behavior you do, good, bad, or neutral, cetanā is working there. 
+And next is *cetanā*. Cetanā is *thought*, and also *volition* or *will*. Cetanā is very important because it is the basis of karma. Whatever kinds of behavior you do, good, bad, or neutral, cetanā is working there. 
 
 Cetanā is to think, contemplate, [or] volition, will. At that time cetanā makes very wonderful effort, twice as much as the other consciousnesses. Cetanā is really using its energies to succeed, whether in good behavior or evil behavior or neutral behavior, whatever it is. Cetanā is just like the boss of a company. If you have the position of supervisor or boss of a company, you really use great effort, twice as much as the employees. For instance, in modern civilization, particularly in Japan, the Japanese really *[unintelligible]*. So the boss of the company really makes every possible effort, day after day, twice as much as done by some other people, to create whatever kind of new product they should do. That’s really hard work. And also cetanā supervises the employees with his sort of order. So cetanā is orderly: cetanā has the power to order somebody and organize, and let employees work in the best way. At that time, cetanā uses great effort, twice as much as other people. 
 
