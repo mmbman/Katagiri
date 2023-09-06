@@ -1,5 +1,5 @@
 ---
-title: "Karma: The Twelve-Linked Chain of Causation"
+title: "Karma: Twelvefold Causation"
 ---
 ## July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
