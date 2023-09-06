@@ -9,7 +9,7 @@ title: "Karma: Unmanifested Karma"
 
 ### Summary
 
-Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
+Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve-Linked Chain of Causation, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
 
 ### Transcript
 
@@ -28,7 +28,7 @@ In Zen Buddhism we have a certain stages of *dhyāna*, meditation. Yesterday I t
 
 #### 3:12
 
-Yesterday I told you, according to Twelve Chain Causation, karma is *samskara* and also *bhava*. *Samskara* is the first stage of human movement. And the other one is *bhava*: *existence*. *Existence* is the present situation: what you are, or what the table is, what consciousness is. Whatever it is, that is *existence*. Something *existent* is alive in the [dualistic](glossary#dualistic) world. That *is* what is called *existence*, *being*. 
+Yesterday I told you, according to the Twelvefold Chain of Causation, karma is *samskara* and also *bhava*. *Samskara* is the first stage of human movement. And the other one is *bhava*: *existence*. *Existence* is the present situation: what you are, or what the table is, what consciousness is. Whatever it is, that is *existence*. Something *existent* is alive in the [dualistic](glossary#dualistic) world. That *is* what is called *existence*, *being*. 
 
 I told you yesterday, the quality of karma as *samskara* is *avidyā*: ignorance. *Ignorance* is a state that one is doomed not to know the truth as it exactly is, although one is always present in it. We are constantly present in the truth, but we are doomed not to know it exactly. This is what is called *avidyā*: affliction, pain. It’s really pain, don't you think so? You are doing [zazen](glossary#zazen), but you *don't know* what zazen is. If you cannot pin down what zazen is, it's pretty painful, isn't it? 
 

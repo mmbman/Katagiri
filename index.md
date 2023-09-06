@@ -16,7 +16,7 @@ On eight Wednesday evenings from September 20 - November 8, 2023, I will be lead
 The talks we will be discussing are:
 
 - [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
-- [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+- [Karma: Twelvefold Chain of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 - [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 - [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 - [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma) 
@@ -97,7 +97,7 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 ### [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 #### July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Karma is not a psychological entity: karma is consciousness, but also karma is really the human body, closely related. So if we want to know karma, we have to know the human body; and if we want to know the human body, we have to know consciousness. According to the Twelve Causations, the base of our existence as karma is ignorance; but this ignorance is really vitality, allowing us to enter the gate of the human world. We should appreciate this. But we can’t just appreciate it without making any effort, because we carry many kinds of karma, stored at the bottom of human body and mind. This karma comes up only when time is right and conditions are arranged, so it is important that we arrange good conditions. We can do so because karma is a great source of energy, which we call *emptiness*. That means we can think in terms of possibility, and “dream the impossible dream” of helping all beings. Also: how to work with emotions in zazen.
+Karma is not a psychological entity: karma is consciousness, but also karma is really the human body, closely related. So if we want to know karma, we have to know the human body; and if we want to know the human body, we have to know consciousness. According to Twelvefold Causation, the base of our existence as karma is ignorance; but this ignorance is really vitality, allowing us to enter the gate of the human world. We should appreciate this. But we can’t just appreciate it without making any effort, because we carry many kinds of karma, stored at the bottom of human body and mind. This karma comes up only when time is right and conditions are arranged, so it is important that we arrange good conditions. We can do so because karma is a great source of energy, which we call *emptiness*. That means we can think in terms of possibility, and “dream the impossible dream” of helping all beings. Also: how to work with emotions in zazen.
 
 ---
 
@@ -160,7 +160,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 ### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
-Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve Links of Dependent Origination, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
+Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve-Linked Chain of Causation, unmanifested karma is *samskara*. It is also related to *alayavijnana* (storehouse consciousness). Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
 
 ---
 
@@ -169,7 +169,7 @@ Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *
 ### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 #### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi. 
 
-Katagiri Roshi explains how *karma* is the source of our lives. He reviews Twelve Chain Causation (also called the Twelve Links of Dependent Origination), noting that karma is *samskara* (link two) and *bhava* (link ten). So karma originates from the first link: *avidyā* (*ignorance*). This means that avidyā is really *vitality* – it is how we get into the human world of the present moment. Our karma cannot be understood intellectually; the way to understand karma is to return to the source, which is to do *zazen* (sitting meditation). That is how we can look at who we are and where we are, and experience real joy. Katagiri Roshi describes four stages of zazen and five related consciousnesses; in particular, the descriptions of *prīti* and *sukha* may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist texts. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
+Katagiri Roshi explains how *karma* is the source of our lives. He reviews the Twelve-Linked Chain of Causation, noting that karma is *samskara* (link two) and *bhava* (link ten). So karma originates from the first link: *avidyā* (*ignorance*). This means that avidyā is really *vitality* – it is how we get into the human world of the present moment. Our karma cannot be understood intellectually; the way to understand karma is to return to the source, which is to do *zazen* (sitting meditation). That is how we can look at who we are and where we are, and experience real joy. Katagiri Roshi describes four stages of zazen and five related consciousnesses; in particular, the descriptions of *prīti* and *sukha* may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist texts. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
 ---
 

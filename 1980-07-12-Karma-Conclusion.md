@@ -42,7 +42,7 @@ This unmanifested karma is continuing forever. It appears as retribution in this
 
 #### 15:45
 
-Don’t misunderstand. If you understand human life according to karma which never disappears, at that time people fall into pessimism or fatalism. But I don’t think so. That’s why yesterday I said that karma is sort of just energy. Because without karma, you cannot get into human life. Karma is *samskaras* according to twelvefold causation: this is the very basic human movement which leads you to get into the gate of the human world. So that is just like *vitality* in life. You don’t know what [it is], but already you are there, you are in the human world.
+Don’t misunderstand. If you understand human life according to karma which never disappears, at that time people fall into pessimism or fatalism. But I don’t think so. That’s why yesterday I said that karma is sort of just energy. Because without karma, you cannot get into human life. Karma is *samskaras* according to Twelvefold Causation: this is the very basic human movement which leads you to get into the gate of the human world. So that is just like *vitality* in life. You don’t know what [it is], but already you are there, you are in the human world.
 
 Why are you born as an American? Why was I born as a Japanese person? I don’t know. Why is my mouth just like this? *[Laughter.]* I don’t know. Someone asked me why my mouth is like this. I don’t know. *[He laughs.]* Why are you born in the world as an American? Same question. But already you are here; already there is your presence. So why? It’s very common: [it is the] vitality of life. That vitality of life is just energy. 
 

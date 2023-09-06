@@ -192,7 +192,7 @@ Does that answer your question?
 
 **Same person**: That’s not what I mean. I mean, what does the feeling of ‘I’ come from? It doesn’t come from the six consciousnesses.
 
-**Katagiri**: Well, of course, six consciousnesses, and also it comes from ignorance according to the twelvefold chain of causation. Plainly speaking, it comes from the function of consciousness. Consciousness immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
+**Katagiri**: Well, of course, six consciousnesses, and also it comes from ignorance according to the Twelvefold Chain of Causation. Plainly speaking, it comes from the function of consciousness. Consciousness immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
 
 So that’s why everything becomes observed and called in question, whatever it is. Science fiction is being, *all dharmas*, even though you don’t believe it, because you can think it, you can observe it. That’s why many years ago, someone wrote science fiction, and maybe recently, one by one, it comes to be true. You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it’s possible.
 
