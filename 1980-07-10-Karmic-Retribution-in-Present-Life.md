@@ -88,7 +88,7 @@ Buddha’s karma is not something particular; Buddha’s karma is karma which is
 
 The first one, *continuation of karma*, is that each of us individually inherits [karma] since the beginningless past. 
 
-I told you, according to the Twelve-linked Chain of Causation, karma is *samskara* and *bhava*. Bhava is existence; samskara is ... it is very difficult to translate, but this is the first stage of human movement. But this first stage of human movement is really connected with *avidyā*, ignorance. I told you already, *ignorance* is a state of being in which one tries to understand what the truth is, but cannot understand it, [while] nevertheless one is constantly present in the truth. Can you see what this means? 
+I told you, according to the Twelve-Linked Chain of Causation, karma is *samskara* and *bhava*. Bhava is existence; samskara is ... it is very difficult to translate, but this is the first stage of human movement. But this first stage of human movement is really connected with *avidyā*, ignorance. I told you already, *ignorance* is a state of being in which one tries to understand what the truth is, but cannot understand it, [while] nevertheless one is constantly present in the truth. Can you see what this means? 
 
 Ignorance is not *bad*, okay? But it’s not *good*. And it’s not *neutral*. *[He laughs.]* It’s something that is already there. You don’t know why. But anyway, if you see something right now right here, through our wisdom, temporarily we say ignorance. But ignorance is really the state of being in which one simply cannot pin down what the truth is, although one is constantly present in the truth. 
 
