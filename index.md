@@ -16,7 +16,7 @@ On eight Wednesday evenings from September 20 - November 8, 2023, I will be lead
 The talks we will be discussing are:
 
 - [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
-- [Karma: Twelvefold Chain of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+- [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 - [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 - [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 - [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma) 
