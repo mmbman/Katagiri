@@ -164,7 +164,7 @@ That means constantly take care of the unmanifested karma you have done. Because
 
 So very naturally, you can see your life not only in terms of manifested karma, but also unmanifested karma which manifested karma is backed by. So very naturally you can see your life extending to the beginningless past and endless future. This is called *eko*, or *virtuous quality*, or “learn that one withdraws one step and turns the light inward on oneself.” Very naturally that means that you can learn humility, and modesty, compassion, toward oneself and another. 
 
-> (*Transcriber’s Note*: From the [Terebess Glossary of Zen Terms](https://terebess.hu/zen/szoto/szotar/szotar.html):
+> (*Transcriber’s Note:* From the [Terebess Glossary of Zen Terms](https://terebess.hu/zen/szoto/szotar/szotar.html):
 > 
 > Ekō　回向 The dedication read after recitation of a sutra, to direct the merit gained from the recitation to a certain person or group.
 > 

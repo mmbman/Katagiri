@@ -21,7 +21,7 @@ title: "Mindfulness – Talk 4"
 
 > Studying in such a manner, in the time of demons-becoming-buddhas we subdue demons and make buddha with demons. In the time of buddhas-becoming-buddhas we are mindful of buddhas and make buddhas with buddhas. In the time of people-becoming-buddhas, we bring harmony to people and make buddhas with people. We should study the truth that there is the approach to buddhas where we are taking advantage of.
 
-(*Transcriber’s Note*: Katagiri Roshi emphasizes above that *demons-becoming-buddha* is one word, as is *buddhas-becoming-buddhas*, and presumably also *people-becoming-buddhas*.)
+(*Transcriber’s Note:* Katagiri Roshi emphasizes above that *demons-becoming-buddha* is one word, as is *buddhas-becoming-buddhas*, and presumably also *people-becoming-buddhas*.)
 
 #### 2:16
  

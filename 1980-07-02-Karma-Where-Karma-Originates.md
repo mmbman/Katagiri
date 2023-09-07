@@ -100,7 +100,7 @@ And karma is *karmabandhu*. *Karmabandhu* means a *friend of action*. Karma is r
  
 And also karma is *karmapratiśaraṇa*. *Karmapratiśaraṇa* means that which one’s life depends on; a place which one’s life depends on.
 
-(*Transcriber’s Note*: Most of the above is mentioned in *Abhidharmasamuccaya: The Compendium of the Higher Teaching* by Asanga.)
+(*Transcriber’s Note:* Most of the above is mentioned in *Abhidharmasamuccaya: The Compendium of the Higher Teaching* by Asanga.)
 
 #### 28:10
  
@@ -130,7 +130,7 @@ In daily life, consciously we don’t have enough space to look at our selves an
 
 But the problem is – maybe you think it’s pretty easy to return home, but I don’t think it’s pretty easy. *[He laughs.]* If you return home, maybe you will complain for months! Because if you return home – [there is] completely nothing. That’s why you complain or grumble at such a situation. And then finally, what are you doing when you come back home? You are always thinking. You are chasing after thoughts, and you are roaming around. *[He laughs.]*
 
-[That means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (*Transcriber’s Note*: These correspond to the four *dhyānas*.)
+[That means,] according to [Buddhism](glossary#buddhism), there are four stages of Zen. (*Transcriber’s Note:* These correspond to the four *dhyānas*.)
 
 In the first stage of Zen, all unwholesome dharma [stops]. Unwholesome dharma means unwholesome things, including physical and mental, or whatever it is. If you get into zazen meditation, in the first stage of zazen, you can experience no unwholesome thing, because you don’t bring it up if you sit down like this. It’s really true. Maybe you cannot do anything, because your legs are fully cross-legged, crossing each other; your hands are like this [so] you cannot hit somebody; and also your mouth is closed, you cannot talk; and your eyes are cast on the floor, so you can’t see anybody, facing the wall. And also your thinking is coming and sitting in zazen. So all things come back to zazen, and there is nothing you can do.
 
@@ -150,7 +150,7 @@ Well, if you return home exactly, you can experience this, because this is what 
 
 ... but you start to poke your head into that joy. Because you don’t know, but you feel something. So you start to poke your head into *joy*. That is *prīti* in Sanskrit: *joyful interest*. But *joyful interest* is still your six consciousnesses always working; that’s why you start to poke your head into it. But [that is not happiness]; next, still you can experience *happiness*. Happiness means *samādhi*, being one with zazen. That is what is called *happiness* in Buddhism. 
 
-So at the first stage you can experience five consciousnesses there. (*Transcriber’s Note*: elsewhere these are described as five mental factors, *cetasika*.) One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. 
+So at the first stage you can experience five consciousnesses there. (*Transcriber’s Note:* elsewhere these are described as five mental factors, *cetasika*.) One is *vitarka*, and *vicāra*. And also *prīti*; *prīti* means *joyful interest*. And *happiness* (*sukha*), and also *samādhi*. [Those are the] five consciousnesses; in other words, you can experience [those] five things psychologically. 
 
 And also, basically, at the first stage of zazen, all unwholesome things drop off. That’s great! ... And then finally, nothing. *[He laughs.]* This is zazen. 
 

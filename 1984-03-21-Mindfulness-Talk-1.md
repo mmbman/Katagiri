@@ -28,9 +28,9 @@ There are four kinds of mindfulness as one of the traditional Buddhist practices
 
 These are the four stages of mindfulness, which are very general and traditional in Buddhist practice. 
 
-(*Transcriber’s Note*: These four kinds of mindfulness are often called the *Four Foundations of Mindfulness*, or *Four Abodes of Mindfulness*, or another translation is *the four areas of present-moment awareness*. The above description of the four kinds is from the first paragraph of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Elements of Bodhi,” the fascicle of *Shobogenzo* referenced in this series of talks.)
+(*Transcriber’s Note:* These four kinds of mindfulness are often called the *Four Foundations of Mindfulness*, or *Four Abodes of Mindfulness*, or another translation is *the four areas of present-moment awareness*. The above description of the four kinds is from the first paragraph of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Elements of Bodhi,” the fascicle of *Shobogenzo* referenced in this series of talks.)
 
-(*Transcriber’s Note*: Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*, or *not-pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether. He discusses this further in Talk 3.)
+(*Transcriber’s Note:* Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*, or *not-pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether. He discusses this further in Talk 3.)
 
 #### 1 - 1:38
 
@@ -88,7 +88,7 @@ According to the Six Pāramitās, which is also one of the traditional Buddhist 
 
 *Insight* or *discernment* is to see a distant object clearly. The “distant object” is the source of existence. *Existence* means the phenomenal world: human life, the human world. [Seeing that] is insight. How can you have this practice of insight? That is tranquility. How can you experience tranquility? That is zazen. If you are very tranquil or still, quiescent, then simultaneously you can observe or contemplate the source of the phenomenal world. That is called *vipassana*. 
 
-The source of existence, the source of the phenomenal world, [doesn’t have a] sense of comparison. *Pramā* in Sanskit means comparison or resemblance. (*Transcriber’s Note*: It’s not clear whether *pramā* is the right word here. Possibly *pramāṇa*?) So [the source of existence is] exactly pure, nothing. If you are tranquil in zazen, simultaneously this is nothing but the experience of touching the source of the phenomenal world, without any sense of comparison, before you are conscious of your own experience. 
+The source of existence, the source of the phenomenal world, [doesn’t have a] sense of comparison. *Pramā* in Sanskit means comparison or resemblance. (*Transcriber’s Note:* It’s not clear whether *pramā* is the right word here. Possibly *pramāṇa*?) So [the source of existence is] exactly pure, nothing. If you are tranquil in zazen, simultaneously this is nothing but the experience of touching the source of the phenomenal world, without any sense of comparison, before you are conscious of your own experience. 
 
 Tranquility means *samadhi*, we say, or one-pointedness. In other words, tranquility or quiescence means to abide *firmly* in zazen, in one-pointedness, in *right-now-right-here*. That is *samatha*. Simultaneously this is nothing but the experience or clear observation of what the source of the human phenomenal world is, exactly. That’s why *vipassana* is clear observation of the source of the phenomenal world, but *samatha* guides you or takes you to truth itself, simultaneously. Our consciousness cannot reach it; that’s why we don’t know, that’s why we are struggling. Our mind is *very* busy, so we cannot reach it. But all we have to do is just to keep going, just like this, nothing else. But we don’t know that. 
 

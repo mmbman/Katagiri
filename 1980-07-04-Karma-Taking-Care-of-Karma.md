@@ -20,7 +20,7 @@ Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma
 
 This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dogen, the founder of Soto Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dogen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
 
-In Buddhism, meditation is called *dhyāna*. If you really start to study Buddhism, dhyāna or meditation is not a simple practice, it’s pretty deep. Most people handle meditation as a means to make your life strong, et cetera, but this is really just a little bit of understanding of meditation in Buddhism. The more you practice meditation, you really realize how deep meditation is. In your whole life you should understand what meditation is, and through meditation you should understand [your life]. To understand meditation is exactly the same as understanding your life. Exactly the same. So that’s why I told you in this seminar that in order to understand karma there is no other way but just to do zazen. That is the best way. (*Transcriber’s Note*: *Zazen* means seated meditation, literally *seated zen*. The Japanese word *zen* actually comes from the Sanskrit word *dhyāna*.)
+In Buddhism, meditation is called *dhyāna*. If you really start to study Buddhism, dhyāna or meditation is not a simple practice, it’s pretty deep. Most people handle meditation as a means to make your life strong, et cetera, but this is really just a little bit of understanding of meditation in Buddhism. The more you practice meditation, you really realize how deep meditation is. In your whole life you should understand what meditation is, and through meditation you should understand [your life]. To understand meditation is exactly the same as understanding your life. Exactly the same. So that’s why I told you in this seminar that in order to understand karma there is no other way but just to do zazen. That is the best way. (*Transcriber’s Note:* *Zazen* means seated meditation, literally *seated zen*. The Japanese word *zen* actually comes from the Sanskrit word *dhyāna*.)
 
 So to understand meditation, dhyāna, is exactly to understand *you*, human life, and also karma. I don’t want to poke my head into the complicated explanation of dhyāna according to tradition, but just outline it.
 
@@ -88,7 +88,7 @@ Third: *nothingness to resort to*.
 
 The fourth: *a state of concentration which goes beyond the matter of whether nothingness is allowed or not*. 
 
-(*Transcriber’s note*: These correspond to the *samapattis* (“attainments”).)
+(*Transcriber’s Note:* These correspond to the *samapattis* (“attainments”).)
 
 [In the fourth stage,] completely you can’t say anything at all. Nothing. So all you have to do is just be present. *Just* be present. This is the final goal, anyway. *[He chuckles.]* This is just like a fish swimming in the water. The fish doesn’t ignore the function of consciousness, because he has consciousness, but it doesn’t bother his activity. The fish just swims in the water, dynamically, always. That is really the last stage of zazen in the world of formlessness. 
 
@@ -110,7 +110,7 @@ The first one is *contact*; in Sanskrit we say *sparśa*. And second is *feeling
 
 #### 36:37
 
-*Contact*, *sparśa*: this is not the contact which you have usually thought. (*Transcriber’s Note*: *contact* means contact of the six sense organs with six sense objects, plus six sense consciousnesses.) I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
+*Contact*, *sparśa*: this is not the contact which you have usually thought. (*Transcriber’s Note:* *contact* means contact of the six sense organs with six sense objects, plus six sense consciousnesses.) I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
 
 So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their horns. *[He laughs.]* They’re really bumping into each other; this is *contact*. 
 
@@ -120,9 +120,9 @@ So [contact] is really creating a certain function. When it works, like they’r
 
 Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like the] two goats bumping into each other – and if you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
 
-And also when you receive something, there is the function which is called *grasping*: attaching to something. This is a quality of vedanā, feeling. (*Transcriber’s Note*: *upādāna* or grasping is the ninth link in Twelvefold Causation. It follows *taṇhā* or craving, which follows vedanā.)
+And also when you receive something, there is the function which is called *grasping*: attaching to something. This is a quality of vedanā, feeling. (*Transcriber’s Note:* *upādāna* or grasping is the ninth link in Twelvefold Causation. It follows *taṇhā* or craving, which follows vedanā.)
 
-And also, where the *vedanā* is located, that’s interesting. (*Transcriber’s Note*: It is not completely clear what “where the vedanā is located” means.) Essentially, feeling is very quiet, tranquil. You don’t know that, but the original nature of *vedanā* is very tranquil. And also, the original nature of *vedanā* creates wholesome behavior in the human mind. This is the original nature of human feeling. That’s why through feeling you can create the religious sense, and the musical or artistic sense. 
+And also, where the *vedanā* is located, that’s interesting. (*Transcriber’s Note:* It is not completely clear what “where the vedanā is located” means.) Essentially, feeling is very quiet, tranquil. You don’t know that, but the original nature of *vedanā* is very tranquil. And also, the original nature of *vedanā* creates wholesome behavior in the human mind. This is the original nature of human feeling. That’s why through feeling you can create the religious sense, and the musical or artistic sense. 
 
 That’s why we educate little children. You know the Japanese teacher of [violin] music, Mr. Suzuki? Suzuki’s Method. He teaches music to the little children. They don’t understand music, originally. But originally human beings have feeling. That feeling is really accepting everything. By bumping into each other, getting a big shock – that is *contact* – very naturally you can educate that feeling. Particularly in small children, it’s pretty easy to grow, to educate, such a quiet, tranquil feeling. That’s why Mr. Suzuki always teaches us in that way. 
 
