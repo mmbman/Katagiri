@@ -9,7 +9,7 @@ title: "Karma: Unmanifested Karma"
 
 ### Summary
 
-Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve-Linked Chain of Causation, unmanifested karma is *samskara*. (It is also related to *alayavijnana*, storehouse consciousness.) Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
+Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve-Linked Chain of Causation, unmanifested karma is *samskaras*. (It is also related to *alayavijnana*, storehouse consciousness.) Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
 
 ### Transcript
 
