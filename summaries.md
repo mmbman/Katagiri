@@ -210,7 +210,7 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 ### [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 #### July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Summary not yet available.
+*Summary not yet available.*
 
 ---
 
