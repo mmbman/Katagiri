@@ -207,6 +207,27 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 
 ---
 
+### [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
+#### July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+Summary not yet available.
+
+---
+
+### [Diamond Sutra: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
+#### July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
+#### July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 ### [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 #### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
@@ -312,10 +333,45 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 ---
 
+### [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
+#### March 16, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+#### April 6, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. *(Warning: the archive audio cuts out before the explanation of the fifth rank.)*
+
+---
+
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 #### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also, the meaning of “facing the wall,” and why the word *Zen* is overused.
+
+---
+
+### [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)
+#### March 22, 1984 Dharma Talk by Dainin Katagiri Roshi
+
+The body is total dynamic working, and total dynamic working is like a maple leaf falling, showing its front and back. And also, the maple leaf is sucked into a black hole. Failure is really development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of *mind only*. 
+
+--- 
+
+### [Mindfulness – Talk 3](1984-03-23-Mindfulness-Talk-3)
+#### March 23, 1984 Dharma Talk by Dainin Katagiri Roshi
+
+If you observe the body, the body observes you; there is no one-way traffic. And then, all sentient beings support your observation. Liberation comes from action, but that action must come from emptiness, or liberation itself. First we have to have a very deep faith that all sentient beings have the-same-and-one-nature; and then we have to establish the state of our mind that is like a wall, which is emptiness. Also: Translating *Shobogenzo* into English is hard.
+
+---
+
+### [The Awakening of Faith: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness)
+#### May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
 
 ---
 
@@ -354,10 +410,59 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
+### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+#### June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 ### [Karma in Buddhism](1987-05-23-Karma-in-Buddhism)
 #### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi summarizes the origins and development of the concept of *karma*, and then explores both its deeper meaning and its practical application. Karma is related both to the problem of whether there is a world after death, and how we should live in the present world. Practically, we can *feel* karma in our lives through *whole personality*. This is connected with the Buddhist concept of *vedanā* (*feeling*). (There may also be a connection with Jungian psychology: the concept of *the shadow* is not quite named, but seems to be implied.) After we *feel* our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the broader perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept. Karma includes dynamic energy to make our life productive. We have to develop our individual character, and simultaneously the global character of human beings, in order to build up a peaceful world. 
+
+---
+
+### [Genjokoan – Talk 1: Egolessness](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+#### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Genjokoan – Talk 2: Consciousness](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
+#### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Genjokoan – Talk 3: Flow](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
+#### June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Genjokoan – Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
+#### June 20, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Genjokoan – A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+#### June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
+#### October 5, 1988 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
 
 ---
 
