@@ -347,6 +347,20 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 ---
 
+### [Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
+#### April 20, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+### [Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
+#### April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 ### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 #### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 

@@ -124,9 +124,9 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
 1. [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
 1. [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+1. [Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
+1. [Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
 
-1. Blue Cliff Record, Case 44 – Talk 1
-1. Blue Cliff Record, Case 44 – Talk 2
 1. Blue Cliff Record, Case 45 – Talk 1
 1. Blue Cliff Record, Case 45 – Talk 2
 1. Blue Cliff Record, Case 46 – Talk 1
