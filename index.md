@@ -27,6 +27,8 @@ The talks we will be discussing are:
 
 We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. For details, please [see the class webpage](https://www.oceanzen.org/buddhist-studies).
 
+- [Class Supplement](ClassSupplement.pdf)
+
 ---
 
 *Posted August 31, 2023*
