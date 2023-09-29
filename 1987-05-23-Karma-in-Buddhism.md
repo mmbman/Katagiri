@@ -1,7 +1,7 @@
 ---
 title: "Karma in Buddhism"
 ---
-## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+## May 23, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1987) \| 
 [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
