@@ -168,7 +168,7 @@ Dogen Zenji always talks about this in detail, but simply speaking, [it is] a ve
 
 So this is our practice, and also this is our study. Day by day, we have to study. 
 
-So finally the conclusion is: karma is ... *guess*. We don’t know. *[He laughs.]* I can say I don’t know what karma is. But I think I can give you some hint what karma is. Okay? 
+So finally the conclusion is: karma is *guess*; we don’t know. *[He laughs.]* I can say I don’t know what karma is. But I think I can give you some hint what karma is. Okay? 
 
 So don’t accept karma as kind of pessimistic. No. It’s not [just a] good aspect of human life, but it’s not fate or destiny, no. It’s *kind of* destiny or fate, but it includes dynamic energy to make your life productive. This is karma. Practically speaking, I don’t know [what it is], but everyone can feel it. That’s why you can use karma, even though you don’t understand it. *[He chuckles.]*
 

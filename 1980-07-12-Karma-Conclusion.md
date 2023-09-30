@@ -58,7 +58,7 @@ So that is what is called *emptiness*, if you use the technical term. Or you can
 
 #### 22:57
 
-According to my talk, the first characteristic of karma is [that it is split into] manifested karma and unmanifested karma, [and unmanifested karma] never disappears, and also it is yours, as property, as inheritance. You can never get away from it. I’m sorry for you, anyway. This individual life. If you try [to get away from it], you cannot. This is one point. And the second point is that karma is emptiness: karma is nothing but energy, or occasion and condition. That’s all; nothing but that.
+According to my talk, the first characteristic of karma is [that it is split into] manifested karma and unmanifested karma, [and unmanifested karma] never disappears, and also it is yours, as property, as inheritance. You can never get away from it. I’m sorry for you, anyway; this is individual life. If you try [to get away from it], you cannot. This is one point. And the second point is that karma is emptiness: karma is nothing but energy, or occasion and condition. That’s all; nothing but that.
 
 So from these points you can say karma is your inheritance or your own property, but on the other hand karma is empty. So it’s really contradictory. 
 
