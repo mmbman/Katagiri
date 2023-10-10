@@ -63,7 +63,7 @@ The conclusion to the series of talks on *Fukanzazengi* takes place during a dra
 ### [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 #### July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of *provisional being*, and also *empathy*, which is universal consciousness. This is how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if you are the Buddha in a past life and some king insists on chopping you to bits.
+Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is no perception of self and no perception of object. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of *provisional being*, and also *empathy*, which is universal consciousness. This is how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if some king insists on chopping you to bits.
 
 ---
 
