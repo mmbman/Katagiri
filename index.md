@@ -25,6 +25,7 @@ The talks we will be discussing are:
 - [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 - [Karma in Buddhism](1987-05-23-Karma-in-Buddhism) (1987)
 - [Class 2 Supplement](Class2Supplement.pdf)
+- [Class 4 Supplement](Class4Supplement.pdf)
 
 We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. For details, please [see the class webpage](https://www.oceanzen.org/buddhist-studies).
 
