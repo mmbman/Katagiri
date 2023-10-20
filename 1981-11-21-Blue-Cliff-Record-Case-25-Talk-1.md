@@ -176,7 +176,7 @@ That’s why zazen is not a means. Zazen is returning home, and sitting in peace
 
 *[He chuckles.]* I’m sorry for you. But this is the real picture. There is nothing to depend on. Well, there is one thing you can depend on: so-called nothing to depend on. *[Laughter.]* Who is thinking this? This guy? This guy is thinking it. So I say, “Don’t think.” You say, “I don’t think.” But who’s thinking that one? *[Laughter.]* 
 
-So finally, there is reality, principal, so-called *self*. Maybe I can say something about *self* tomorrow, but anyway, *self* is not the egoistic self. See the self as real reality, completely beyond “I should think self” or “I shouldn’t think self,” or “I should think not-thinking” or “I should think of thinking,” or “I shouldn’t think of between.” But how can I say so? Whatever you think, there is real reality, so-called *self*.
+So finally, there is reality, principle, so-called *self*. Maybe I can say something about *self* tomorrow, but anyway, *self* is not the egoistic self. See the self as real reality, completely beyond “I should think self” or “I shouldn’t think self,” or “I should think not-thinking” or “I should think of thinking,” or “I shouldn’t think of between.” But how can I say so? Whatever you think, there is real reality, so-called *self*.
 
 That’s why Descartes says, “I am thinking, therefore I exist.” *[He chuckles.]* But this is... well, that’s up to you. How much do you understand this one? Of course it’s a wonderful teaching, but be careful, okay? Thinking this, “I am thinking therefore I exist” – Buddhism doesn’t throw it away, [only] halfway. Particularly Zen Buddhism takes care of this through and through, with sharp insight, with a bright glance. 
 
