@@ -28,7 +28,7 @@ The talks we will be discussing are:
 - [Class 4 Supplement](Class4Supplement.pdf)
 - [Class 5 Supplement](Class5Supplement.pdf)
 
-We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. For details, please [see the class webpage](https://www.oceanzen.org/buddhist-studies).
+We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. (Class registration is now closed.)
 
 ---
 
