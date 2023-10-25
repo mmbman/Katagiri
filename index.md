@@ -27,6 +27,7 @@ The talks we will be discussing are:
 - [Class 2 Supplement](Class2Supplement.pdf)
 - [Class 4 Supplement](Class4Supplement.pdf)
 - [Class 5 Supplement](Class5Supplement.pdf)
+- [Class 6 Supplement](Class6Supplement.pdf)
 
 We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. (Class registration is now closed.)
 
