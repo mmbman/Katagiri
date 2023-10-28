@@ -36,7 +36,7 @@ In not only Zen Buddhism but in general Buddhism, the most important point is no
 
 Because, there is always a language by which a world is established and understood. Without words, without language, there is no world you can understand. Only through language we can establish a [style] of human life, we can establish the human world, we can communicate with each other. Without words or language, there is no way to communicate. 
 
-From this point, what is your understanding? What is your experience? The individual experience, individual understanding, individual outlook on the human world, human life, is based on language, words. But the meaning that the language maintains is nothing but temporal promises and conventional prepossessions and images. That’s all. That is language. *(Transcriber’s Note:* Prepossession *means “a preconceived opinion, a prejudice.”)*
+From this point, what is your understanding? What is your experience? The individual experience, individual understanding, individual outlook on the human world, human life, is based on language, words. But the meaning that the language maintains is nothing but temporal promises and conventional prepossessions and images. That’s all. That is language. (*Transcriber’s Note:* *Prepossession* means “a preconceived opinion, a prejudice.”)
 
 I told you before that our individual experience is going through maybe two or three stages. First, we can experience something through intuition. And then next, judgement and imagination, and we can form the human world, human life. Then finally, we can create words, language; and by the words we understand something. 
 
@@ -102,7 +102,7 @@ This is my translation; do you understand this?
 
 *[Someone says “no.” Laughter.]*
 
-*(Transcriber’s Note: It took many listenings to get the words above, and it still might not be 100% right. A typical translation online reads, “Rose, oh pure contradiction, joy of being no one's sleep under so many lids.”)*
+(*Transcriber’s Note:* It took many listenings to get the words above, and it still might not be 100% right. A typical translation online reads, “Rose, oh pure contradiction, joy of being no one's sleep under so many lids.”)
 
 *[There is some discussion about the words.]*
 
@@ -142,7 +142,7 @@ But Emperor Wu didn’t understand, that’s why Engo Zen Master says,
 
  *[Laughter.]* 
 
-That note by Engo Zen Master is really picking on him, not the usual note in the Western style. *(Transcriber’s Note: Katagiri says “picking him out”.)* Sometimes he praises somebody very well, but he praises them in many ways, not always directly; sometimes [it’s] by looking down [on] somebody and [praising]. That’s why the notes in [*Blue Cliff Record*](glossary#blue-cliff-record) are *very* interesting, really picking on people, piercing the human heart directly. 
+That note by Engo Zen Master is really picking on him, not the usual note in the Western style. (*Transcriber’s Note:* Katagiri says “picking him out”.) Sometimes he praises somebody very well, but he praises them in many ways, not always directly; sometimes [it’s] by looking down [on] somebody and [praising]. That’s why the notes in [*Blue Cliff Record*](glossary#blue-cliff-record) are *very* interesting, really picking on people, piercing the human heart directly. 
 
 So when “Emperor Wu of Liang asked the great master Bodhidharma,” the commenter says, “This dull fellow speaks up.”
 

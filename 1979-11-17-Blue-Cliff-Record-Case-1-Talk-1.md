@@ -100,7 +100,7 @@ How can you cut off the myriad streams? Well, just that you have to tune into th
 
 “Getting to where he cuts off the myriad streams, he is free to rise in the east and sink in the west.” Any time, anywhere, you can go to the east, you can go to the west. That means, pick up the towel and clean the spill, because it is emergent. So anytime, anywhere, you can go west, you can go east. But according to common sense, when you go to the west, “that’s wrong,” he says. If you pick up the towel, it’s “wrong”. At that time it’s very difficult; you cannot take care of the emergent occurrences. So, you have to do something when emergent things happen. Within the emergent occurrences, we have to do something. 
 
-(Transcriber’s Note: It is possible that Katagiri Roshi means *emergency* instead of *emergent* above, or vice versa. [*Emergent* means “emerging”](https://amastyleinsider.com/2013/01/23/emergency-emergent-urgent/): “in the process of coming into being or becoming prominent.” It is not exactly the adjectival form of *emergency*. But *emergent* might actually work better in this context.)
+(*Transcriber’s Note:* It is possible that Katagiri Roshi means *emergency* instead of *emergent* above, or vice versa. [*Emergent* means “emerging”](https://amastyleinsider.com/2013/01/23/emergency-emergent-urgent/): “in the process of coming into being or becoming prominent.” It is not exactly the adjectival form of *emergency*. But *emergent* might actually work better in this context.)
 
 #### 39:08
 
