@@ -108,17 +108,17 @@ So, two types of provisional being. Why do we believe that a thing seems to be a
 
 You know the idea of empathy, according to psychology? You are projecting yourself into the tree; at that time, the tree becomes you. So if you want to talk with the tree, you have to project yourself into the tree. At that time, the tree speaks to you. This is very natural. 
 
-For instance, if you feel melancholy, pensive, at that time the surrounding environment becomes completely melancholy. Whatever I tell you, you don’t accept, you don’t understand. If you feel sad, everything becomes sad. When it rains, the whole world becomes melancholy. Go up above the clouds with an airplane, and it’s shiny. But rain – it’s rain. You don’t feel good, because we believe the whole world seems to be melancholy. This means we can move initiatively to the object, creating our world. In other words, the world doesn’t exist alone. The world always exists connected with the subject, in many ways. 
+For instance, if you feel melancholy, pensive, at that time the surrounding environment becomes completely melancholy. Whatever I tell you, you don’t accept, you don’t understand. If you feel sad, everything becomes sad. When it rains, the whole world becomes melancholy. Go up above the clouds with an airplane, and it’s shiny, but rain – it’s rain. You don’t feel good, because we believe the whole world seems to be melancholy. This means we can move initiatively to the object, creating our world. In other words, the world doesn’t exist alone; the world always exists connected with subject, in many ways. 
 
 But we cannot always believe in that way. For instance, even though you feel melancholy, if you see the beautiful morning sun rising – you feel good! Don’t you think so? Wonderful. So we do not always create our environment by our feelings; sometimes, the object creates you. Even though you feel sad, if you see the morning sun rising, you feel great! You feel how beautiful it is. 
 
-According to [the psychological concept of] empathy, that understanding is a mistake, a misunderstanding, because if morning sunlight makes you happy, at that time you believe the morning sun rising has a mind, as well as your mind. According to empathy in psychology, this is a misunderstanding, this is a delusion, because you project yourself into the morning sun and then you believe that it seems to have a mind, but actually it is the morning sun, apart from you. That is the psychological understanding, but that is a misunderstanding broadly speaking, because we are distinguishing between subject and object. If you always see or accept subject and object separately, there is not a warm feeling of the world, there is not a feeling of warmth communicating between the subject and object. 
+According to [the psychological concept of] empathy, that understanding is a mistake, a misunderstanding, because if the morning sun rising makes you happy, at that time you believe the morning sun rising has a mind, as well as your mind. According to empathy in psychology, this is a misunderstanding, this is a delusion, because you project yourself into the morning sun and then you believe that it seems to have a mind, but actually it is the morning sun, apart from you. That is the psychological understanding, but that is a misunderstanding broadly speaking, because we are distinguishing between subject and object. If you always see or accept subject and object separately, there is not a warm feeling of the world, there is not a feeling of warmth communicating between the subject and object. 
 
-So an important point is, if you see the morning sun and the morning sun makes you happy, at that time – whatever you think intellectually – morning sun has mind, has a feeling. That feeling is completely universal. That feeling is something through which we can have mutual rapport between the morning sun and you. Psychologically, this is *universal consciousness*, or according to Buddhism, that is [Buddha Nature](glossary#buddha-nature). So, the morning sun, the subject, trees, all sentient beings, have feeling, universal feeling, as well as we have. That’s why we can communicate with each other. 
+So an important point is, if you see the morning sun and the morning sun makes you happy, at that time – whatever you think intellectually – morning sun has mind, has a feeling. That feeling is completely universal. That feeling is something through which we can have spiritual rapport between the morning sun and you. Psychologically, this is *universal consciousness*, or according to Buddhism, that is [Buddha Nature](glossary#buddha-nature). So, the morning sun, the subject, trees, all sentient beings, have feeling, universal feeling, as well as we have. That’s why we can communicate with each other. 
 
-So, the object is not always something giving a sense of resistance or antagonism. The object is wonderful; the object is a being which exists in a huge universal [vision]. 
+So, the object is not always something giving a sense of resistance or antagonism. The object is wonderful; the object is a being which exists in a huge universal vision. 
 
-For instance, we exist in that way because when you were born, your mother took care of you. The mother is your object. If you believe the mother is your object, at that time, that object is consciously or unconsciously giving a certain sense of resistance. “Oh, my mother is [so bossy]. I don’t like it.” But baby? He doesn’t care. For baby, the mother is *huge*; a big tree, by which he is supported in a broad sense. 
+For instance, you exist in that way because when you were born, your mother took care of you. The mother is your object. If you believe the mother is your object, at that time that object is consciously or unconsciously giving a certain sense of resistance. “Oh, my mother is [so bossy]. I don’t like it.” But baby? He doesn’t care. For baby, the mother is *huge*: a big tree, by which he is supported in a broad sense. 
 
 So you should accept your object, by which you are supported constantly, not giving a sense of resistance, or a sort of antagonism. That’s why object and subject are always communicating, interconnected.
 
@@ -128,9 +128,9 @@ I think you understand why we believe things to be actual beings, not provisiona
 
 This sense of actuality comes from very common human activity. But if you take away this sense of actuality, there are two kinds of thinking. One is recognition, the function of cognition. The other is [aesthetic contemplation](glossary#aesthetic-contemplation). 
 
-[With] the function of recognition or cognition, you don’t [engage with the] object, you completely keep away from it. You see the object objectively. So, there is no feeling of warmness. Completely you see the object, and then try to understand *[unintelligible]* of your object. This is [science].
+[With] the function of recognition or cognition, you don’t [engage with the] object, you completely keep away from it. You see the object objectively. So, there is no feeling of warmness. Completely you see the object and then try to understand *[unintelligible]* of your object. This is [science].
 
-On the other hand, the function of aesthetic contemplation is through your consciousness. You don’t participate in the object, but through the consciousness, through the aesthetic contemplation, you can merge yourself into the object, exactly. Aesthetic contemplation means, in other words, intuition. Or, a particular term is wisdom. You don’t participate in your object, but, through wisdom, you can merge yourself into your object pretty deeply. This is the function of aesthetic contemplation.
+On the other hand, the function of aesthetic contemplation is through your consciousness. You don’t participate in the object, but through consciousness, through the aesthetic contemplation, you can merge yourself into the object, exactly. Aesthetic contemplation means, in other words, intuition. Or, a particular term is *wisdom*. You don’t participate in your object, but, through wisdom, you can merge yourself into your object pretty deeply. This is the function of aesthetic contemplation.
 
 *[Tape change.]*
 
@@ -142,19 +142,19 @@ That’s why, according to Buddhism, the subject is no perception of subject, an
 
 But provisional being is not to defile the object, not to ignore the existence of your object. You should take care of your object. *How*? This is the practice: how. 
 
-So, in the common sense, we are always participating. At that time, provisional being turns into actual being. So there is no gap. But, without deep understanding, without wisdom, you can participate in it and also, finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom, so there is some control or adjustment for your emotional expression, or a conscious pattern. There is a pattern of body and mind situation. 
+So, in the common sense, we are always participating. At that time, provisional being turns into actual being. So there is no gap. But, without deep understanding, without wisdom, you can participate in it and also, finally, you will be confused pretty easily. Expressing an emotional feeling: crying, screaming – very naturally. Expressing anger, et cetera. But religiously, you have to participate in your object with wisdom, so there is some control or adjustment for your emotional expression, or a conscious pattern [...] of body and mind situation. 
 
-That’s why Buddha always says everything is emptiness. That means [impermanence](glossary#impermanence). Impermanence is, everything is changing. That means, everything is provisional being. Everything exists temporarily. But that doesn’t mean through that you should fall into pessimism. No, that is pointing out how to participate in provisional being, how to take care of it.
+That’s why Buddha always says everything is emptiness. That means [impermanence](glossary#impermanence). Impermanence is [that] everything is changing. That means, everything is provisional being. Everything exists temporarily. But that doesn’t mean through that you should fall into pessimism. No, that is pointing out how to participate in provisional being, how to take care of it.
 
-So it really depends on your attitude, how to participate in your activity. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes a cause of neutral, nothing to say. 
+It really depends on your attitude, how to participate in your object. Sometimes it becomes a cause of pessimism, sometimes a cause of confusion, sometimes a cause of happiness, sometimes a cause of unhappiness. Sometimes a cause of neutral, nothing to say. 
 
 #### 52:40
 
 That’s why it says, “If, Subhuti, these Bodhisattvas should have perception of either a dharma, or a no-dharma, they would thereby seize on the self, on the being, on the soul, on the person. And why? Because a bodhisattva shouldn’t seize on either a dharma or a no-dharma. Therefore this saying has been taught by the Tathāgata with the hidden meaning: ‘By those who know the discourse on dharma as like unto a raft, dharmas should be forsaken, still more so no-dharmas.’”
 
-The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it with your back. If you reach the other shore, you should leave it there. That means, no perception of the subject, no perception of the object. 
+The simile of the raft occurs in Buddhist scriptures. If you have crossed the river with your raft, you cannot carry it on your back. If you reach the other shore, you should leave it there. That means, no perception of the subject, no perception of the object. 
 
-That means, if you study at school in order to get a master’s degree or Ph.D. – get the degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. Then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid. That’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people, because you are always proud of yourself too much. “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, bow. Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
+That means, if you study at school in order to get a master’s degree or Ph.D. – get the degree! Study hard, get a degree. But it is not a final stage you have to stay with. You have to leave the Ph.D. at the other shore. And then, without anything, you should share your life with all sentient beings. If you stay with the Ph.D. – well, you cannot be stupid. That’s not sharing your life with the poor people, with the [suffering](glossary#suffering) people, because you are always proud of yourself too much. “I am a doctor.” You are not a doctor. “Student, I am a teacher. First, bow. Then, what do you want? I want to teach you. Give me money.” *[He laughs.]*
 
 That makes it pretty hard to communicate with each other. So – forget it. If you get the Ph.D., it doesn’t escape from you, it’s always with you. So, forget it. All you have to do is forget it, and share your life with all sentient beings.
 
@@ -166,7 +166,7 @@ Do you understand provisional being?
 
 #### 56:18
 
-**Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the Buddha, in one of his lifetimes he was practicing meditation in a garden, and this king came up to him and remembered him, and got extremely angry, and butchered him, chopped him down into pieces. And the Buddha just calmly watched him ... Is that king, in the Buddha’s perception, a provisional being?
+**Question**: *(Transcriber’s Note: This is partly unintelligible.)* Somewhere in a story about the Buddha, in one of his lifetimes he was practicing meditation in a garden, and this king came up to him and remembered him, and got extremely angry, and butchered him, chopped him down into pieces. And the Buddha just calmly watched him. When the Buddha was watching him, is that king, in the Buddha’s perception, a provisional being?
 
 **Katagiri**: Compassion? Yes, that is the motivation of his becoming a monk, leaving the castle. He saw something ... farmers. Is that what you mean? Cultivating?
 
@@ -174,7 +174,7 @@ Do you understand provisional being?
 
 *[There is some back and forth, trying to figure out what the story is.]*
 
-**Same person**: Buddha was sitting in a grove, meditating, this is in one of his past lives ... he was sitting in the grove, and this king came along into the grove and saw the Buddha there, and he remembered something that he thought the Buddha had done to him in a past life, and he got extremely angry, took out his sword. And the Buddha put out his hand, telling him to stop, and first he chopped off his hand, and then he just started chopping the Buddha to pieces, and the Buddha didn’t say a word and watched. Was the Buddha looking at that man ... as a provisional being?
+**Same person**: Buddha was sitting in a grove, meditating, this is in one of his past lives ... he was sitting in the grove, and this king came along into the grove and saw the Buddha there, and he remembered something that he thought the Buddha had done to him in a past life, and he got extremely angry, took out his sword. And the Buddha put out his hand, telling him to stop, and first he chopped off his hand, and then he just started chopping the Buddha to pieces, and the Buddha didn’t say a word and watched. Was the Buddha looking at that man as a provisional being?
 
 **Katagiri**: Oh. 
 
@@ -196,23 +196,23 @@ Don’t you think so?
 
 **Person**: Oh yes! *[Laughter.]*
 
-**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to Buddha’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. You don’t know; that means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
+**Katagiri**: So, provisional being, in a different term, that means eternal possibility. Provisional being means we don’t know tomorrow, even a few minutes from now. We don’t know our life after going out of this [zendo](glossary#zendo), because we are provisional beings. When you are sitting here listening to Buddha’s teaching, this is just a provisional being. And then when you go out, this is also provisional being. [...] That means, possibilities. Wonderful possibilities, in which you can animate you, or you can kill you. Do you understand? Provisional being is not a teaching which creates pessimism. 
 
 **Person**: That’s like taking each moment as it comes [...]?
 
-**Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad... it’s not okay, it’s not easy, but there is another possibility in the moment. In the moment, possibility, [*unintelligible*]. 
+**Katagiri**: Always practice [in the present]. Wonderful. Beautiful. If you feel sad, okay... it’s not okay, it’s not easy, but there is another possibility there in the moment. In the moment, possibility. [*Unintelligible*]. 
 
 #### 1:01:36
 
 **Question**: [Roshi](glossary#roshi)? You speak of the concept of [no-self](glossary#no-self), and at the same time, constantly refer to the idea of past lives. And somehow I have difficulty reconciling them. 
 
-**Katagiri**: No self doesn’t mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self, through the present life you can realize how sublime it is, how unfathomable your self is; [you understand that] you cannot understand yourself according to present time, because your life is pretty broad. Sometimes you don’t understand [yourself]. Sometimes you understand who you are, but strictly speaking you *don’t* understand who you are, because your life has been connected with past life. 
+**Katagiri**: No-self doesn’t mean to ignore the existence of self, ignore the existence of subject. There is still perception of understanding of the self, understanding of the subject. And if you understand the self through the present life, you can realize how sublime it is, how unfathomable your self is; [you understand that] you cannot understand yourself according to present time, because your life is pretty broad. Sometimes you don’t understand [yourself]. Sometimes you understand who you are, but strictly speaking you *don’t* understand who you are, because your life has been connected with past life. 
 
-But if we say it like this, immediately we say there is something which exists for long, from the past, through the present, to the future. That is perception of a soul, okay? So, I don’t think so. But even though *no soul* – still, there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say so.
+But if we say it like this, immediately we think there is something which exists for long, from the past, through the present, to the future. That is *perception of a soul*, okay? So, I don’t think so. But even though *no soul* – still, there is. You cannot attach to the soul, but you cannot attach to no-soul. Do you understand? You cannot have perception of the object or non-object. You cannot have perception of thinking or non-thinking. You cannot say so.
 
-Finally, the self is broad, but what is that? I cannot explain. But, it’s there. It’s there, but it is not something which exists eternally, because you cannot pin down what it is. 
+The self is broad, but what is that? I cannot explain. But, it’s there. It’s there, but it is not something which exists eternally, because you cannot pin down what it is. 
 
-Buddhism is always not to touch the extreme ideas, perception of soul or perception of not-soul, because everything is working dynamically, constantly. Understanding that everything is working dynamically leads you to touch the core of real life, which is fully alive.
+Buddhism is always not to touch the extreme ideas, *perception of soul* or *perception of not-soul*, because everything is working dynamically, constantly. Understanding that everything is working dynamically leads you to touch the core of real life, which is fully alive.
 
 #### 1:05:11 end of recording
 
