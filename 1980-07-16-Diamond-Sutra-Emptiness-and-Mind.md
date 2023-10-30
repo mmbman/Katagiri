@@ -70,7 +70,7 @@ In this chapter, it says it in a different way:
 
 “Not to reveal” is that just verbal explanation – of your life, of human beings, of the human world, or computers, or whatever it is – is not good enough! Because verbal explanation cannot reveal the truth; it’s just verbal explanation. Verbal explanation is just a finger pointing out the real moon. But on the other hand, verbal explanation is very important, because we can know where the real moon is. 
 
-That’s why “not to reveal”. That means [totally] emptiness ... *[inaudible]* ... Mind, word, or even Buddha’s teachings, all are empty, nothing but emptiness. Even the teaching is just a finger pointing to the moon. Because teaching comes from life itself. Systematize the reality in life which is fully alive, and then it is called the teaching. So the teaching is already something systematized, conceptualized. But we believe [the teaching] – that’s wonderful, but it is not the human life. The teaching should penetrate, become one with your life. We should digest the Buddha’s teaching completely, through and through, and then at that time very naturally it comes out in [words]. 
+That’s why “not to reveal”. That means [totally] emptiness ... *[inaudible]* ... Mind, word, or even Buddha’s teachings, all are empty, nothing but emptiness. Even the teaching is just a finger pointing to the moon. Because teaching comes from life itself. Systematize the reality in life which is fully alive, and then it is called *teaching*. So teaching is already something systematized, conceptualized. But we always believe [the teaching] – that’s wonderful, but it is not the human life. That teaching should penetrate, become one with your life. And we should digest the Buddha’s teaching completely, through and through, and then at that time very naturally it comes out in the world.
 
 That is “not to reveal.” And then finally:
 
@@ -78,17 +78,15 @@ That is “not to reveal.” And then finally:
 
 That explanation is really wonderful. [When] your words are digested through and through in your life, and then the Buddha’s teaching comes from your life, at that time, that is really illumination of the Buddha’s teaching. 
 
-But the real truth of the Buddha’s teaching doesn’t exist in the verbal explanation, because it isn’t revealed on the surface of the water. It’s hidden, but [it’s] with the verbal explanation already. It doesn’t appear on the surface, but it’s always with it, just like a piece of paper. So if you explain Buddha’s teaching with words, behind the verbal explanation you can feel something, it can touch your heart through the words, the explanations. At that time, that is real illumination of Buddha’s teaching. 
+But the real truth of the Buddha’s teaching doesn’t exist in the verbal explanation, because it isn’t revealed on the surface of the water, but it’s hidden, with the verbal explanation [covering it]. It doesn’t appear on the surface, but it’s always with it, just like a piece of paper. So if you explain Buddha’s teaching with words, behind the verbal explanation you can feel something, it can touch your heart through the words, the explanations. At that time, that is real illumination of Buddha’s teaching. But if you use just the words and explain philosophically, psychologically, it doesn’t hit the mark. You can teach, you can talk – but it’s just not [interesting]. 
 
-But if you use just the words and explain philosophically, psychologically, it doesn’t hit the mark. You can teach, you can talk – but it’s just not [interesting]. 
+For this [real illumination], I don’t know how many times you have to stumble in human life. But that’s okay. Stumble over emptiness. Talk about Buddha’s teaching; after that, you stumble, and feel pensive [...] And next you talk again, and stumble, and next time spring back again, and talk, and fall down... I don’t know how often you should do this. It’s not necessary to stumble very often, but don’t worry about how often you stumble. It’s okay. When you have to stumble, just stumble, and spring back as soon as possible. That’s better. If you spring back, your explanation penetrates your life, your explanation comes from your life. That’s pretty good. 
 
-I don’t know how many times you have to stumble in human life [from this], but that’s okay. Stumble on emptiness. Talk about Buddha’s teaching; after that, you stumble, and feel pensive. And next you talk again, and stumble, and next time spring back again, and talk, and fall down... I don’t know how often you should do this. It’s not necessary to stumble [constantly], but don’t worry about how often you stumble. It’s okay. When you have to stumble, just stumble. And spring back, as soon as possible. That’s better. If you spring back, your explanation penetrates your life, your explanation comes from your life. That’s pretty good. 
+The other day one of the students asked me, “What is the *method* of zazen?” I don’t know what it is. *[He laughs.]* Is it material, or is it spiritual? And he asked, “Should I teach how to sit zazen even though I don’t know how to sit?” *[He laughs.]* If you don’t know, keep your mouth shut, don’t teach. Even though you know a little bit, don’t rush into teaching. But anyway, you should digest. Sometimes you should wait. The practice of [waiting] is pretty good for you. 
 
-The other day one of the students asked me, “What is the method of zazen?” I don’t know what it is. *[He laughs.]* Is it material, or is it spiritual? And he asked, “Should I teach how to sit zazen, even though I don’t know how to sit?” *[He laughs.]* If you don’t know, keep your mouth shut; don’t teach. Even though you know a little bit, don’t rush into teaching. Anyway, you should digest. Sometimes you should wait. The practice of waiting is pretty good for you. 
+Look at all the people always rushing to the destination. If you want to be a carpenter, you get a plane, and saw, and wood, and immediately build a house. But you cannot be a good carpenter if you do that. Waiting is important. How can you wait? Just [practice] how to use a plane, how to sharpen the plane, all day – for two years. That’s pretty good. That is the practice of waiting. Taking care of your daily life, and just watching the master’s way of building a house. That’s pretty good. But [recently] people are really rushing into the destination: “Let’s go, let’s go. Hurry up! Go this way, go that way.” Be rich, and be wonderful [boys]. It seems to be fun, but at that time you really create irritation and distress, conflict, because your mind is always going out, thinking objectively, according to cause and effect: “If I do this, I will be successful.” I don’t think so. *[He laughs.]* Even though you make your best effort, there is no guarantee whether you will be successful in your business! Because this is the reality of life. So under such unstable conditions, all you have to do is do your best. That’s all. Always mind is going out and thinking, “If I do this, then I can get this.” That is very common. But happiness and peace cannot be [found] there. 
 
-Look at all the people always rushing to the destination. If you want to be a carpenter, you get a plane, and saw, and wood, and immediately build a house. But you cannot be a good carpenter if you do that. Waiting is important. How can you wait? Just [practice] how to use a plane, how to sharpen the plane, all day – for two years. That’s pretty good. That is the practice of waiting. Taking care of your daily life, and just watching the master’s way of building a house. That’s pretty good. But [recently] people are really rushing into the destination: “Let’s go, let’s go. Hurry up! Go this way, go that way.” Be rich, and be wonderful [boys]. It seems to be fun, but at that time you really create irritation and distress, conflict, because your mind is always going out, thinking objectively, according to cause and effect: “If I do this, I will be successful.” I don’t think so. *[He laughs.]* Even though you make your best effort, there is no guarantee whether you will be successful in your business! Because this is the reality of life. So under such unstable conditions, all you have to do is do your best. That’s all. Always mind is going out and thinking, “If I do this, then I can get this.” That is very common. But happiness and peace cannot be there. 
-
-So that’s why, even though you know [something], sometimes wait, until the teachings are penetrating skin, muscle and bone, and understanding is completely [present] in your life. [Then], the time will come very naturally when you should talk, when you should share. The time comes very naturally. 
+So that’s why, even though you know [something], sometimes wait. Until the teachings are penetrating skin, muscle and bone, and your understanding is completely digested in your life. [Then], the time will come very naturally when you should talk, when you should share. The time comes very naturally. 
 
 Do you have questions?
 
@@ -98,13 +96,13 @@ Do you have questions?
 
 **Katagiri**: Yes, mind is consciousness. 
 
-**Same person**: Okay, well, some of the people that I work with, when they get old, maybe they have a stroke. And it affects the left side or the right side their brain, and it changes their consciousness. For some people, you can’t connect with them at all.
+**Same person**: Okay, well, some of the people that I work with, when they get old, maybe they have a stroke, and it affects the left side or the right side their brain, and it changes their consciousness. For some people, you can’t connect with them at all.
 
-**Katagiri**: [Maybe so.]
+**Katagiri**: [I think so.]
 
 **Same person**: What happens to their mind? 
 
-**Katagiri**: If you have something wrong with the brain, biologically, physiologically – that is the sense organs. The sense organs meet the sense objects, but already the sense organ [has] something wrong. At that time, it’s very difficult to [face] in the proper way. 
+**Katagiri**: If you have something wrong with the brain, biologically, physiologically – that is the sense organs. The sense organs meet its object, but already the sense organ [has] something wrong. At that time, it’s very difficult to [face] in the proper way. 
 
 **Same person**: But Buddha Nature still exists.
 
@@ -114,7 +112,7 @@ What is your question?
 
 **Same person**: Well, I have difficulty sometimes relating to some of those people; understanding where their consciousness exists, or if they have any. 
 
-**Katagiri**: I don’t know where. Consciousness is not *[unintelligible]*. 
+**Katagiri**: I don’t know where. I always tell [you], consciousness is not a solid being. 
 
 **Same person**: I don’t mean where in the body, but I mean where to [touch] it, [myself].
 
@@ -122,9 +120,7 @@ What is your question?
 
 So we don’t know where consciousness is. Is consciousness a part of the sense organ? Or is consciousness [the] object? Or is consciousness completely separate from the object or sense organs? We cannot say. Because in Buddhism consciousness is nothing but *action*. The three of those connected with each other, that is called mind. 
 
-And then in the moment, something happens. *Something happens* means psychological action, which is called *to know something* – that is the mind. But this mind has a certain *attitude* in a moment, in order to express what the mind is, what consciousness is. That is what is called *mind occurs in four stages*, or the mind attitude is taken. That is *contact*, *feeling*, *perception*, and *citta* means *volition* or *will*.
-
-*(Transcriber’s Note: Perhaps Katagiri Roshi means* attitude *in the sense of* position *or* posture*?)*
+And then, in the moment, something happens. *Something happens* means psychological action, which is called *to know something*. That is the mind. But this mind has a certain *attitude* in a moment, in order to express what the mind is, what consciousness is. That is what is called *mind occurs in four stages*, or the mind attitude is taken. That is *contact*, *feeling*, *perception*, and *citta* means *volition* or *will*.
 
 **Same person**: ... the attitude of the mind? 
 
@@ -132,9 +128,7 @@ And then in the moment, something happens. *Something happens* means psychologic
 
 **Same person**: [Is it] individual? 
 
-**Katagiri**: Yes, individual, everyone. So then whatever you do, always mind exists. At that time, there is the organ, and subject and object, and the mind appears. When the mind appears, how can you *know* mind? That is attitude. Through the attitude, you can know mind. That is contact, and feeling, perception, and volition, [et cetera]. This is the attitude of the mind. 
-
-So those four are exactly the same as the mind. But as a whole, we call it mind. 
+**Katagiri**: Yes, individual, everyone. So then always, whatever you do, mind exists. At that time, there is the organ, and the subject and object, and the mind appears. When the mind appears, how can you *know* mind? That is attitude. Through the attitude, you can know mind. That is contact, and feeling, perception, and volition, [et cetera]. This is the attitude of the mind. So those four are exactly the same as the mind. But as a whole, we call it mind. 
 
 **Same person**: So if a person loses his will, or *[unintelligible]*, part of that would be that they lose consciousness?
 
