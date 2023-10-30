@@ -130,31 +130,31 @@ And then, in the moment, something happens. *Something happens* means psychologi
 
 **Katagiri**: Yes, individual, everyone. So then always, whatever you do, mind exists. At that time, there is the organ, and the subject and object, and the mind appears. When the mind appears, how can you *know* mind? That is attitude. Through the attitude, you can know mind. That is contact, and feeling, perception, and volition, [et cetera]. This is the attitude of the mind. So those four are exactly the same as the mind. But as a whole, we call it mind. 
 
-**Same person**: So if a person loses his will, or *[unintelligible]*, part of that would be that they lose consciousness?
+**Same person**: So if a person loses his will or loses [his mind], part of that would be that they lose consciousness?
 
 **Katagiri**: If think so. If you have something wrong with your brain, maybe *[unintelligible]*, your brain doesn’t work. 
 
-**Same person**: I still don’t understand. These people, some of them have a consciousness of *something*. I mean they’re maybe willing to hold a conversation, [but] no sentence is connected with the next one, they’re all disconnected. But it seems like to her [it makes sense], but to me [it doesn’t]. Does that make sense?
+**Same person**: I still don’t understand. These people, some of them have a consciousness of *something*. I mean they’re maybe willing to hold a conversation, [but] no sentence is connected with the next one, they’re all disconnected. But it seems like to her [it connects with something], but to me [it doesn’t]. Does that make sense?
 
-**Katagiri**: *[Unintelligible.]*
+**Katagiri**: [Does the person have a mental disorder?]
 
-**Same person**: A lot of these people are very old, and I don’t know what particularly happens to them – [where the body is, where the mind is.]
+**Same person**: A lot of these people are very old, and I don’t know what particularly happened to them – [where the body is, where the mind is.]
 
-**Katagiri**: Well that is very natural as you get old. Your brain is getting old, and your nervous system is getting old, it doesn’t work well. At that time, even though you can see the mind, the mind doesn’t work perfectly. In addition to this, everyone has individual stubbornness, okay? Prepossessions. That’s why mind doesn’t work well. *[Unintelligible.]*
+**Katagiri**: Well, that is very natural as you get old. Your brain is getting old, and your nervous system is getting old, it doesn’t work well. At that time, even though you can see the mind, the mind doesn’t work perfectly. In addition to this, everyone has individual stubbornness, okay? [Preconceptions.] That’s why the mind doesn’t work as well as you think.
 
 That’s why we need the practice of training your mind. Thinking is very important for us, okay? 
 
-Thinking is not always thinking using your frontal lobe. Thinking is using your whole body, [central nervous system] too. Just sitting and concentrating on breathing, this is basic thinking in Buddhism. In Buddhism, thinking is not to think something with your frontal lobe; thinking means just sit, concentrate, becoming one with zazen. This is basic thinking. So very naturally your frontal lobe, central nervous system, organs, [function] pretty well. That kind of practice is important. And also, using the frontal lobe, thinking something philosophical, psychological, this is also pretty important. If you don’t use it, your brain becomes soft; it doesn’t work when you get old. 
+Thinking is not always thinking using your frontal lobe. Thinking is using your whole body, [central nervous system] too. Just sitting and concentrating on breathing, this is basic thinking in Buddhism. In Buddhism, thinking is not to think something with your frontal lobe; thinking means just sit, concentrate, becoming one with zazen. This is basic thinking. So very naturally your brain, frontal lobe, central nervous system, [all work] pretty well. That [kind of] practice is important. And also, using the frontal lobe, thinking something philosophical, psychological, this is also pretty important. If you don’t use it, your brain becomes soft; it doesn’t work when you get old. 
 
 **Another person**: Roshi, are you saying that if you practice, your brain will work well when you get old? 
 
-**Katagiri**: Well, no, I don’t mean that. *[Laughter.]* There is no guarantee. But broadly speaking, that is very important for us. Because we have to use our physical bodies, not only the brain. Even though you become old, you have to use the physical body as much as possible. If you’re always lying in bed when you become old, you really get trouble. That means for you whole life, as much as possible, it is necessary to use the physical body, and the mind too. Train your brains. Even though you do it like this, there is no definite guarantee, but we cannot always live without using our body and mind. As best as we can, we should use them.
+**Katagiri**: Well, no, I don’t mean that. *[Laughter.]* There is no guarantee. But broadly speaking, that is very important for us. Because we have to use our physical bodies, not only the brain. Even though you become old, you have to use the physical body as much as possible. If you’re always lying in bed when you become old, you really get trouble. That means for you whole life, as much as possible, it is necessary to use the physical body, and the mind too. Train your brains. Even though you do it like this, there is no definite guarantee, but we cannot always live without using our body and mind. In our whole life, as best as we can, we should use them.
 
 #### 42:20
 
 **Question**: Hojo-san? When is one plus one zero?
 
-**Katagiri**: That is causation. When you believe the system of causation, that is really why one plus one equals two, two plus two equals four. But sometimes you [can’t] understand human life according to causation, because even though you practice zazen for two years, there is no guarantee that you can get a good result. Or after practicing for three years, et cetera. So sometimes nothing. So two plus two [sometimes equals zero].
+**Katagiri**: That is causation. When you believe the system of causation, that is really why one plus one equals two, two plus two equals four. But sometimes you [can’t] understand human life according to causation. Because even though you practice zazen for two years, there is no guarantee that you can get a good result. Or after practicing for three years, et cetera. So sometimes nothing. So two plus two [sometimes equals zero].
 
 In the koan I told you about: not ignoring causation, cause and effect, and not falling into causation. We need both. We shouldn’t ignore one plus one equals two. Of course, one plus one equals two; this is a definite answer. But you cannot depend on this constantly. Deepen your understanding. You should believe some other aspect: one plus one equals two, or sometimes ten.
   
