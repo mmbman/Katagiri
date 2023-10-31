@@ -316,7 +316,7 @@ It’s dramatic, but it’s really human life, spiritual life. We are always mak
 
 #### 1:12:07
 
-**Question**: I’d like to know [why the] the monk turned into a fox... *[Unintelligible.]*
+**Question**: I’d like to know [why the] the monk turned into a fox... [...]
 
 **Katagiri**: Well, it doesn’t matter whether it is a fox, or a rabbit, or tree. I think in China and Japan the fox was believed to be a sort of magical animal, with the power to change its figure into a beautiful woman or boy to cheat human beings. That is a fox, the Japanese people or the Chinese believed. 
 
