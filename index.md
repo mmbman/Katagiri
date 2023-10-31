@@ -24,7 +24,7 @@ The talks we will be discussing are:
 - [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 - [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 - [Karma in Buddhism](1987-05-23-Karma-in-Buddhism) (1987)
-- Supplemental: [Class 2](Class2Supplement.pdf) [Class 4](Class4Supplement.pdf) [Class 5](Class5Supplement.pdf) [Class 6](Class6Supplement.pdf)
+- Supplemental: [Class 2](Class2Supplement.pdf), [Class 4](Class4Supplement.pdf), [Class 5](Class5Supplement.pdf), [Class 6](Class6Supplement.pdf)
 
 We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. (Class registration is now closed.)
 
