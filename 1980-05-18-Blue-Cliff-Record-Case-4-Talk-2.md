@@ -310,40 +310,37 @@ Our consciousness is always complicated: always looking at something and discuss
 
 **Katagiri**: Yeah, dramatic. The Chinese people are like very [dramatic]. *[Loud laughter.]* If you read the koans there is lots of drama. For example Nansen making a fire ... He closes the doors, and makes smoke on purpose inside of the building, and then he screams, “Fire! Fire! Fire!” Really dramatic. *[He laughs.]* “Help! Help!” He did it on purpose. And then, many monks came together and tried to help him, and he said from inside, “If you say one word by which my mind attains enlightenment, I will open the door!” It’s really dramatic, don’t you think so? *[Laughter.]* Right before the fire, you know, “Say one word!” *[He laughs.]* [...] Joshu Zen Master at that same time ... tried to help, but Joshu Zen Master is really quiet, and Nansen is always screaming, “Help, help!” And then all the monks didn’t know what to do. So Joshu Zen Master threw the key through the window, and then Nansen opened the door with the key. That’s the whole story. 
 
-It’s dramatic, but it’s really human life, spiritual life. We are always making smoke inside ourselves: “Help, help.” And then we always want something to open the door. That is the key through the window. So we always do it dramatically. *[Unintelligible]* knows pretty well how dramatic human life is. 
+It’s dramatic, but it’s really human life, spiritual life. We are always making smoke inside: “Help, help.” And then we always want something to open the door. That is the key through the window. So we always do it dramatically. *[Unintelligible]* knows pretty well how dramatic our human life is. [Always] pain.
 
-*(Transcriber’s Note: According to* Radical Zen: The Sayings of Jōshū, *Jōshū set the fire and Nansen threw the key through the window.)*
+(*Transcriber’s Note:* According to *Radical Zen: The Sayings of Jōshū*, Jōshū set the fire and Nansen threw the key through the window.)
 
 #### 1:12:07
 
-**Question**: [Why do they say the monk turned into a fox?] *[Unintelligible.]*
+**Question**: I’d like to know [why the] the monk turned into a fox... *[Unintelligible.]*
 
-**Katagiri**: Well, fox is okay, rabbit, or tree, it doesn’t matter what it is. I think in China and Japan the fox was believed to be a sort of magical animal, with the power to change its figure into a beautiful woman or boy to teach human beings. That is a fox, the Japanese people or the Chinese believed. 
+**Katagiri**: Well, it doesn’t matter whether it is a fox, or a rabbit, or tree. I think in China and Japan the fox was believed to be a sort of magical animal, with the power to change its figure into a beautiful woman or boy to cheat human beings. That is a fox, the Japanese people or the Chinese believed. 
 
-**Different person**: Was that a punishment or ...
+**Different person**: But was it a punishment or [...]
 
-**Katagiri**: It’s not punishment. It appears to be punishment, but that’s not a deep understanding. *Wild fox* means you have to return to the human world, the dualistic world. Day by day, when spring comes you have to be in spring, when winter comes you have to be you in winter. That means that you have to change, constantly. But this change is not change, [it is] fitting into reality, instead of staying at the high level of spirituality, where there is no dualistic world. If we stay there, always we create some problems. But when [summer] comes, you cannot wear winter clothes, you take off the winter clothes in the summer. So we have to accommodate yourself to the moment, moment by moment, but with open [eyes]. That is the fox.
+**Katagiri**: It’s not punishment. Apparently it seems to be punishment, but that’s not a deep understanding. *Wild fox* means you have to return to the human world, the dualistic world. Day by day, when spring comes you have to be in spring, when winter comes you have to be you in winter. That means that you have to change, constantly. But this change is not change, [it is] fitting into reality, instead of staying at the high level of spirituality, where there is no dualistic world. If we [stay] there, we always create some problems. But when [summer] comes, you take off the winter clothes, you cannot wear winter clothes in the summer. So you have to accommodate yourself to the [each] moment, but with open [eyes]. That is the fox.
 
-**Different person**: But he was asked a question, and then he gave an answer he was turned into [a fox]. 
+**Different person**: But he was asked a question, and then he gave an answer and he was turned into [a fox]. 
 
 **Katagiri**: Right. “Not fall into causation”; that was the answer at that time. 
 
-**Same person**: *[Unintelligible.]*
+**Same person**: [So] he gave the wrong answer. 
 
-**Katagiri**: Well it’s not the right answer, but on the other hand, “not fall into causation” is also right, in a sense, because you cannot always take care of [life] just according to the law of causation. If you take care of your life just according to causation, you cannot move an inch in the realm of causation, you cannot find freedom there. So in order to be free, you have to be free from causation, sooner or later. So “not fall into causation” is freedom from causation. But what is freedom from causation? It doesn’t mean to ignore [causation]. So intellectually, it’s [a suggestion], but basically you have to be right in the middle of the bullseye of life, constant change – what is the real meaning of death, what is the real process of life or death. You have to be there. And then look at the human world, flashing lights, white flashing light or red flashing light; that is causation, or freedom of causation, or not freedom of causation, always there. And then this old monk picked one; that’s why on the other hand he forgot this. It’s not punishment, but in the story he didn’t say the other aspect, so that’s why he became a “wild fox” – that means even though he forgot and he picked up one, well his life is what? His life has to go back to the dualistic world. When the spring comes, he has to be. When the winter comes, he has to be. So that is *wild fox*. And “for 500 years” means century after century, all humans beings do this in that way. 
+**Katagiri**: Well, it’s not the right answer, but on the other hand, “not fall into causation” is also right, in a sense, because you cannot always take care of [life] just according to the law of causation. If you take care of your life just according to causation, you cannot move an inch in the realm of causation, you cannot find freedom there. So in order to be free, you have to be free from causation, sooner or later. So “not fall into causation” is freedom from causation. But what is freedom from causation? It doesn’t mean to ignore [causation]. So intellectually, it’s [suggesting that] basically you have to be right in the middle of the bullseye of life, constant change – what is the real meaning of death, what is the real process of life or death. You have to be there. And *then* look at the human world, flashing lights – white flashing light or red flashing light – that is causation, or freedom [from] causation, or not freedom [from] causation, always there – [ideas]. And then this old monk picked up one; that’s why on the other hand he forgot this. It’s not punishment, but in the story he didn’t say the other aspect, so that’s why he became a “wild fox” – that means even though he forgot and he picked up one, well his life is what? His life has to go back to the dualistic world. When the spring comes, he has to be. When the winter comes, he has to be. So that is *wild fox*. And “for 500 years” means century after century, all humans beings do this in that way. 
 
-And then, after that, the wild fox asks [Baizhang], “Please give me some pithy remark, in order to free me from being a fox.” And so he says, “Not ignoring causation.” And then, he [was released.] So that is a flashing light. And then he can accept both flashing lights. That means he completely awakens where he is, right in the middle of samsara. If he picks up one, he cannot stay right in the middle of samsara; he attaches to something. 
+And then, after that, the wild fox asks [Baizhang], “Please give me a suggestion, a pithy remark, in order to free me from being a fox.” And so [Baizhang] says, “Not ignoring causation.” And then, he [was released.] So that is a flashing light. And then he can accept both flashing lights. That means he completely awakens where he is, right in the middle of samsara. But if he picks up one, he cannot stay right in the middle of samsara; he attaches to something. 
 
-So we have to see flashing lights. But where you are is right in the middle of life and death; this is the basic nature of human being. Even though you don’t know, that is the place where you are. So that’s why Engo shows the other side. 
+So we have to see [the] flashing lights. But where you are is right in the middle of life and death; this is the basic nature of human being. Even though you don’t know, that is the place where you are. So that’s why Engo shows the other side. 
 
 And then [the wild fox] realizes, “Oh, yes.” That means he awakened to where he is. And then he says, “Please perform a funeral service for me.” That means freedom. 
 
-This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for many monks to try to understand, [through] the practice again and again. But if you understand the basic teaching, the way of understanding Buddhism, it’s not difficult. 
-
-[...]
+This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for many monks to try to understand, [through] the practice again and again. But if you understand the basic teaching, the way of understanding Buddhism, it’s not difficult. [...]
 
 #### 1:19:11 end of recording
-
 
 ---
 
