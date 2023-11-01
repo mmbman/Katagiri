@@ -106,7 +106,7 @@ What is “good”? What is a good time and occasion, and what is a good conditi
 
 We call this [*fukutoku*](glossary#fukutoku) [*suru*]. *Fukutoku* means merit and virtue. [*Suru* (累積?)] means to accumulate. So, to accumulate merit and virtue: that means, to sow a good seed. Completely that good seed originates from the intrinsic value of very pure human activities. That is *fukutoku*: merit and virtue. *Fukutoku* [*suru*], we say. 
 
-Let me say about this, still we don’t understand it, because why it is that dullness and distraction drop off from the first if you accumulate merit and virtue?
+Let me say about this, still we don’t understand it. Because why is it that dullness and distraction drop off from the first if you accumulate merit and virtue?
 
 In order to understand this point, first of all we have to see practice for the long range, life after life. Not only seeing your life in this life, in this world; you have to see your whole life, life after life; maybe the next life, or the life after next life. Anyway, life is continually going on, because we created karma in the past, and also we are creating new karma now. And then, as long as we are creating new karma from moment to moment, it means a future will exist, so you can get a chance to be born in the next life. That is the meaning or sense of the theory of karma. As long as we have karma in the past and we are creating karma in this life, we have to have a future. Life is going on, constantly.
 
