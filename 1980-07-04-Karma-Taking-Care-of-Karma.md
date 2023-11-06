@@ -134,7 +134,7 @@ So that’s why they always concentrate on educating young people like this. We 
 
 #### 45:24
 
-Next is *saṃjñā*: that is *perception*. This is a very interesting thing. Perception is just like a carpenter who recognizes what kind of wood they have to use. And also, next, the carpenter [puts a mark there]. [...] This is the quality of perception: if you put the mark, that putting the mark reminds you what kind of wood you should use. That means *re*-recognition. So first [there is] *recognition*, and second, the quality of perception is *re*-recognition. If you recognize something, you put a mark on your object, [so that you can immediately re-recognize it, so] you can know later what kind of wood you should use. 
+Next is *saṃjñā*: that is *perception*. This is a very interesting thing. Perception is just like a carpenter who recognizes what kind of wood they have to use, and also, next, the carpenter [puts a mark there]. [...] This is the quality of perception: if you put the mark, that putting the mark reminds you what kind of wood you should use. That means *re*-recognition. So first [there is] *recognition*, and second, the quality of perception is *re*-recognition. If you recognize something, you put a mark on your object, [so that you can immediately re-recognize it, so] you can know later what kind of wood you should use. 
 
 The function of perception is to attach individual understanding. Because the carpenter understands what kind of wood he needs, but that is the individual carpenter’s understanding of wood. That’s why he puts the mark on the wood.
 
