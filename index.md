@@ -5,7 +5,7 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as an aid to Buddhist study. [About This Site](about)
 
-## Latest Updates
+# Latest Updates
 
 ---
 
@@ -17,6 +17,8 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajnaparamita Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
 
 ---
+
+*Posted September 1, 2023*
 
 ### [Class: Taking Care of Karma](https://www.oceanzen.org/buddhist-studies)
 
