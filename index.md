@@ -11,14 +11,14 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 *Posted November 7, 2023*
 
-### [Karma in Buddhism](1987-05-23-Karma-in-Buddhism)
-#### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+### [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
+#### July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajnaparamita Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
 
 ---
 
-## [Class: Taking Care of Karma](https://www.oceanzen.org/buddhist-studies)
+### [Class: Taking Care of Karma](https://www.oceanzen.org/buddhist-studies)
 
 On eight Wednesday evenings from September 20 - November 8, 2023, I will be leading a class called “Taking Care of Karma,” where we will be studying Katagiri Roshi’s talks on karma, as transcribed by yours truly on this site. The class will take place at Compassionate Ocean Zen Center, which is located in Minneapolis, Minnesota. There is an option for participating via Zoom. Compassionate Ocean is in Katagiri Roshi’s lineage (it is actually named after him). 
 
