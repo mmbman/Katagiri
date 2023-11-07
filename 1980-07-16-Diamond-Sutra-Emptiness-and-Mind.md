@@ -7,9 +7,11 @@ title: "Diamond Sutra: Emptiness and Mind"
 [Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1980-07-23-Diamond-Sutra-Final-Lecture)
 
-### Transcript
+### Summary
 
-**This transcript is in rough draft stage.**
+How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. An understanding of the world based on causation is empty, but the world itself is there. This is why the *Prajnaparamita Sutra* says *emptiness is form*. We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
+
+### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-chapter-32-emptyness-and-mind" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
@@ -64,7 +66,7 @@ That’s why Nagarjuna says that such an understanding of the world is empty. Bu
 
 So first, if you want to use a word, and if you want to explain or illuminate some aspect of Buddha’s teaching by the word – that’s fine. But that is not good enough! So you should [deny], until the teaching, your word, penetrates your skin, muscle, and bone, and then words come up from your life. At that time, the explanation of Buddhist teaching is really alive, hitting peoples’ hearts.
 
-If you use words to explain the Buddha’s teaching it’s not good enough – that is *form is emptiness*. But if you understand the words are not good enough, at that time you really try to destroy the words – or you don’t want to explain anything, just keep your mouth shut. But you cannot always keep your mouth shut. I always tell you, “If you want to do zazen, keep your mouth shut, just do it,” but it doesn’t mean you should keep your mouth shut *always*. You have to talk. So you should talk, when it is necessary. Because words exist, Buddha’s teaching exists, all sentient beings who suffer from their lives exist, and also there are lots of beings who we should help. How can we deal with this? Should we always keep silent? [No.] We have to talk. So, that is *emptiness is form*. 
+“If you use words to explain the Buddha’s teaching it’s not good enough” – that is *form is emptiness*. But if you understand the words are not good enough, at that time you really try to destroy the words – or you don’t want to explain anything, just keep your mouth shut. But you cannot always keep your mouth shut. I always tell you, “If you want to do zazen, keep your mouth shut, just do it,” but it doesn’t mean you should keep your mouth shut *always*. You have to talk. So you should talk, when it is necessary. Because words exist, Buddha’s teaching exists, all sentient beings who suffer from their lives exist, and also there are lots of beings who we should help. How can we deal with this? Should we always keep silent? [No.] We have to talk. So, that is *emptiness is form*. 
 
 #### 21:25
 
