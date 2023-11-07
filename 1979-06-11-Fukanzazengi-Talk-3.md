@@ -64,7 +64,7 @@ Well, I don’t mean it is good or bad, right or wrong. We should know that such
 
 And the second type of zazen is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the [samsaric](glossary#samsara) world in the [Six Realms of Existence](glossary#six-realms-of-existence): hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly only on the ground of *our own property*, and we cherish a feeling of having reached the final goal. In other words, by way of having done our final goal, we spent our whole life without considering others’ life.
 
-By the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some [Buddhism](glossary#buddhism) says that means that if you attain [enlightenment](glossary#enlightenment), which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world. You can stay constantly in heaven. [Arhats](glossary#arhat) and many saints in the history of Buddhism showed us this, they experienced it. That’s why one of the four results of Buddhist practice, what the arhat does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the samsaric world. This is arhat practice. 
+By the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some [Buddhism](glossary#buddhism) says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world. You can stay constantly in heaven. [*Arhats*](glossary#arhat) and many saints in the history of Buddhism showed us this, they experienced it. That’s why one of the four results of Buddhist practice, what the arhat does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the samsaric world. This is arhat practice. 
 
 This is also zazen. You can do this. But that is just weeding out on their own territory; that’s all. And then, when they completely weed out on their territory, they don’t know what to do. So there is only death to wait for; that’s all. All they have to do is just to wait for their death. Can you imagine this? If the people don’t offer them food, they can survive, because they can stop their breath for many hours. Yes, they can do that. Still there is a possibility to survive; so, it’s not necessary to struggle for their life, just be there. No more weeds come up. Very clean. But they don’t know what to do. Just wait for their death; that’s all. 
 
@@ -156,7 +156,7 @@ He said, “No.”
 
 He said, “He’s still suffering.” 
 
-I think so; he’s very sharp. Because Kannon Bodhisattva, [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha’s compassion. That is completely pure, what is called Buddha Nature, but we cannot touch it directly. That’s why [we ask] how can we touch that Buddha’s compassion or Buddha Nature? Let’s touch that Buddha’s compassion through a human shape: that is a [Bodhisattva](glossary#bodhisattva). That’s why Avalokiteshvara has a double face: a human body, and also on the other hand, compassion. That’s why he sees [suffering](glossary#suffering). We see suffering in Avalokiteshvara – of course, that is human. Without a human body, a human shape, we cannot find any way to touch the Buddha’s compassion. That is the art of the Buddhist statue. We have to see the double face. 
+I think so; he’s very sharp. Because Kannon Bodhisattva, [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha’s compassion. That is completely pure, what is called Buddha Nature, but we cannot touch it directly. That’s why [we ask] how can we touch that Buddha’s compassion or Buddha Nature? Let’s touch that Buddha’s compassion through a human shape: that is a bodhisattva. That’s why Avalokiteshvara has a double face: a human body, and also on the other hand, compassion. That’s why he sees [suffering](glossary#suffering). We see suffering in Avalokiteshvara – of course, that is human. Without a human body, a human shape, we cannot find any way to touch the Buddha’s compassion. That is the art of the Buddhist statue. We have to see the double face. 
 
 So, we find nothing he likes here. I point out, “How about this?” or “How about that?” He doesn’t like anything. So finally, right before he left, he stands up here, and he says: “Only this place is very calm. No one sitting here, no one there; only I am here.” He said to me, “Only this place makes me calm, return to human.” Can you imagine?
 
@@ -172,7 +172,7 @@ And then, during the meal, the [Ino](glossary#ino) hit the one clapper – *[cla
 
 Anyway, we don’t know how much delusions drop off. We don’t realize, we don’t perceive how much they drop away, because the dropping off is possible only when you feel calm right now, right here. At that time, no delusions come up – so, immediately you are right in the middle of total personality. You can manifest yourself just like a waterspout, blooming – but you don’t perceive it. And also, we don’t know how much, we don’t realize what it is, because it’s too quick – simultaneous. That is to sow a good seed. Good time and occasion, and good conditions – we can create them, right now, right here.
 
-That’s why shikantaza is not a means to an end – leaving here to reach the other shore, struggling for getting [enlightenment](glossary#enlightenment), et cetera. This is fine; well this is very nice, this is a *kind* of zazen. So, you can do this – but, what you are struggling for is nothing but a distraction. This is really true. Distraction is one of the delusions; so this is still a delusion.
+That’s why shikantaza is not a means to an end – leaving here to reach the other shore, struggling for getting enlightenment, et cetera. This is fine; well this is very nice, this is a *kind* of zazen. So, you can do this – but, what you are struggling for is nothing but a distraction. This is really true. Distraction is one of the delusions; so this is still a delusion.
 
 #### 1:02:50
 
@@ -184,7 +184,7 @@ Distraction and dullness is that life moves reactively, just like a pendulum: go
 
 That is freedom. Anyone can do it. Even though you are not Buddhist, or even though you cannot come [to the Zen Center], you can sit down, arrange your room, and arrange circumstances, environment, and your sensory world, breathing, and internal organs, and you can sit down. Don’t you think so? This is shikantaza. Just arrange your environment, everything; that’s all we have to do. This is *freedom* – open to *everybody*! No exceptions. 
 
-That’s why [Dogen Zenji](glossary#dogen) says, “Universal Recommendation for Zazen” – *Universal* Recommendation. It’s really *universal* – not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
+That’s why Dogen Zenji says, “Universal Recommendation for Zazen” – *Universal* Recommendation. It’s really *universal* – not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
 But, [if you do it] by yourself, it’s pretty hard, because making arrangement is done by your [own] sense, that’s all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means the sensory world, movement system, internal organs, and also the brain and nervous system. We have to arrange them according to a certain way. 
 
@@ -200,7 +200,7 @@ You cannot ignore all circumstances, environment, outwardly, inwardly – so all
 
 So, shikantaza is arrangement of all things, and then sit down. That’s all. 
 
-This is really [Bodhisattva](glossary#bodhisattva) practice, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don’t say anything, somebody realizes. You have something to tell him, or her. 
+This is really bodhisattva practice, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don’t say anything, somebody realizes. You have something to tell him, or her. 
 
 So that is shikantaza – the zazen you do, mentioned by Buddha. It’s pretty difficult for us to understand intellectually, because we [get use out of] always analyzing and synthesizing everything in the dualistic world; it’s very difficult to *stop immediately*. That’s why even though you stop for a while, you don’t appreciate that practice. But this practice is the only best way. 
 
@@ -208,7 +208,7 @@ We can explain how important this kind of Buddhist practice is philosophically, 
 
 For instance, if you are in an office – well still you can do it. If there is no one there, you can sit down in a chair and calm yourself. If you are talking with somebody, you can realize a certain pause, where no words come up. For that time, you can return to yourself, and breathe. 
 
-You can do it, okay? Wherever you may go; it’s really universal. It’s very simple. It’s *too* simple to realize. But, this is the best way. Not only for your life in this world, but in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sow the seeds. Arrange circumstances, environment – inwardly, outwardly – and just stand up there. That’s all you have to do. That is to sow good seeds. Good time and occasion and good conditions must be arranged, and then stand up there. That’s all we have to do. And then at that time, [Dogen Zenji](glossary#dogen) says, right dharma is manifesting itself, and from the first, dullness and distraction are struck aside. Very naturally, they drop off.
+You can do it, okay? Wherever you may go; it’s really universal. It’s very simple. It’s *too* simple to realize. But, this is the best way. Not only for your life in this world, but in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sow the seeds. Arrange circumstances, environment – inwardly, outwardly – and just stand up there. That’s all you have to do. That is to sow good seeds. Good time and occasion and good conditions must be arranged, and then stand up there. That’s all we have to do. And then at that time, Dogen Zenji says, right dharma is manifesting itself, and from the first, dullness and distraction are struck aside. Very naturally, they drop off.
 
 So that’s why when I was at Eiheiji monastery, Hashimoto Roshi said, “If you sit down even for a moment, you become Buddha.” Yes, you become Buddha. If you can accept this, you are a really lucky person.
 
@@ -248,15 +248,15 @@ Okay ... Shall I discuss now, or tomorrow? Tomorrow, of course, I want to have a
 
 #### 1:18:00
 
-**Question**: Roshi, were you making a distinction between the [enlightenment](glossary#enlightenment) of the arhat versus the enlightenment of the [Bodhisattva](glossary#bodhisattva)? Doesn’t the arhat attain enlightenment and can then enter [nirvana](glossary#nirvana), but does it for himself or herself, whereas the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it? Is there a distinction there? Sometimes in literature, you see a distinction, [with] the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+**Question**: Roshi, were you making a distinction between the enlightenment of the arhat versus the enlightenment of the bodhisattva? Doesn’t the arhat attain enlightenment and can then enter [nirvana](glossary#nirvana), but does it for himself or herself, whereas the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it? Is there a distinction there? Sometimes in literature, you see a distinction, [with] the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
-**Katagiri**: Uh, [Bodhisattva](glossary#bodhisattva) practice, yes... Because a bodhisattva says, without re-entering nirvana, they really want to save us, the people, to enter nirvana. That means his practice is really open not only to him, but also to all sentient beings, and also time – not only his present time, but also his past life and his future life, and also his life after next, and after next.
+**Katagiri**: Uh, bodhisattva practice, yes... Because a bodhisattva says, without re-entering nirvana, they really want to save us, the people, to enter nirvana. That means his practice is really open not only to him, but also to all sentient beings, and also time – not only his present time, but also his past life and his future life, and also his life after next, and after next.
 
-Then what he has to do is, he practices. Continually, he practices. But he aims just to sow good time and occasion, and good conditions, [making] arrangement. That means, without entering nirvana, the Bodhisattva just sows, arranging environment, and then just stands up there, that’s all. But it is immediately the blooming of his Buddha Nature. That is [Tathāgata](glossary#tathāgata). The bodhisattva has a double face: Bodhisattva and Buddha.
+Then what he has to do is, he practices. Continually, he practices. But he aims just to sow good time and occasion, and good conditions, [making] arrangement. That means, without entering nirvana, the Bodhisattva just sows, arranging environment, and then just stands up there, that’s all. But it is immediately the blooming of his Buddha Nature. That is [*tathāgata*](glossary#tathāgata). The bodhisattva has a double face: Bodhisattva and Buddha.
 
 When the Buddha appears, it’s quiet. Nothing – you cannot see it. But a Buddha is hidden behind the bodhisattva. The bodhisattva walks as a human being. The bodhisattva disappears, and Buddha appears. And then that Buddha is just like a blooming lotus flower in the mud water. 
 
-**Same person**: But is the [Bodhisattva](glossary#bodhisattva) practice of the third kind? 
+**Same person**: But is the bodhisattva practice of the third kind? 
 
 **Katagiri**: Mmm hmm. Sure. Yes it is.
 
@@ -282,13 +282,13 @@ So finally, we can say the third type of zazen doesn’t have a goal, but it doe
 
 **Katagiri**: Not automatic, sometimes. *[He chuckles.]* Not automatic. No.
 
-[The arhat’s practice is] not open to everybody. Only the person selected among the human beings can do this. Automatically, you can get into the third type of zazen practice; that is, you can do it. But not everybody, because everybody has different karmas. But it is not the object of our criticism, because if I look [at the arhat’s] life in this world, his life is happy, because he entered [nirvana](glossary#nirvana): wonderful. So, better than nothing. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And when you can wait for death, peacefully: wonderful. It’s very wonderful. 
+[The arhat’s practice is] not open to everybody. Only the person selected among the human beings can do this. Automatically, you can get into the third type of zazen practice; that is, you can do it. But not everybody, because everybody has different karmas. But it is not the object of our criticism, because if I look [at the arhat’s] life in this world, his life is happy, because he entered nirvana: wonderful. So, better than nothing. If you can enter nirvana, drinking just one cup of juice every day: wonderful. And when you can wait for death, peacefully: wonderful. It’s very wonderful. 
 
-So [not only] there is no chance to come back to the [samsaric](glossary#samsara) world. 
+So [not only] there is no chance to come back to the samsaric world. 
 
 **Same person**: They don’t?
 
-**Katagiri**: No. They’re just a river: practicing, waiting for death. But a [bodhisattva](glossary#bodhisattva) and [tathāgata](glossary#tathāgata) are a little different.
+**Katagiri**: No. They’re just a river: practicing, waiting for death. But a bodhisattva and tathāgata are a little different.
 
 #### 1:27:13
 
@@ -346,7 +346,7 @@ So, take one step. If you take one step, one step ... it’s many steps, immedia
 
 **Question**: Can you say what an arhat is?
 
-**Katagiri**: Well, arhats, [bodhisattvas](glossary#bodhisattva), and [tathāgatas](glossary#tathāgata) are all categories of Buddhist capabilities. So temporarily, we categorize the [buddhas](glossary#buddha)’ capability, the quality of buddha is categorized. *[Unintelligible]* ... there is arhat, and bodhisattva, and well-gone, et cetera. Arhat means a person who deserves to have respect from others. To deserve respect, to command respect from others, that is arhat, because he becomes arhat by reaching the final goal, entering [nirvana](glossary#nirvana). So everyone respects that; perfect.
+**Katagiri**: Well, arhats, bodhisattvas, and tathāgatas are all categories of Buddhist capabilities. So temporarily, we categorize the buddhas’ capability, the quality of buddha is categorized. *[Unintelligible]* ... there is arhat, and bodhisattva, and well-gone, et cetera. Arhat means a person who deserves to have respect from others. To deserve respect, to command respect from others, that is arhat, because he becomes arhat by reaching the final goal, entering nirvana. So everyone respects that; perfect.
 
 #### 1:37:39
 
