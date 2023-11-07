@@ -98,3 +98,37 @@ hr {
         font-size:20px
     }
 }
+
+// duplicates for page-content; this is a kludge.
+
+.page-content h2 {
+    font-size:30px;
+    letter-spacing: -1px
+}
+
+@media screen and (max-width: 800px) {
+    .page-content h2 {
+        font-size:26px;
+	    letter-spacing: -1px
+    }
+}
+
+.page-content h3 {
+    font-size:26px
+}
+
+@media screen and (max-width: 800px) {
+    .page-content h3 {
+        font-size:24px
+    }
+}
+
+.page-content h4 {
+    font-size:20px
+}
+
+@media screen and (max-width: 800px) {
+    .page-content h4 {
+        font-size:20px
+    }
+}
