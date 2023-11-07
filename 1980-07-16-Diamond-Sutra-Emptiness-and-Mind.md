@@ -9,7 +9,7 @@ title: "Diamond Sutra: Emptiness and Mind"
 
 ### Summary
 
-How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. An understanding of the world based on causation is empty, but the world itself is there. This is why the *Prajnaparamita Sutra* says *emptiness is form*. We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
+How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. An understanding of the world based on causation is empty, but the world itself is there; that is why the *Prajnaparamita Sutra* says *emptiness is form*. We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
 
 ### Transcript
 
