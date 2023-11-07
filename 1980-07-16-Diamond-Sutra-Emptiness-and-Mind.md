@@ -148,7 +148,7 @@ Thinking is not always thinking using your frontal lobe. Thinking is using your 
 
 **Another person**: Roshi, are you saying that if you practice, your brain will work well when you get old? 
 
-**Katagiri**: Well, no, I don’t mean that. *[Laughter.]* There is no guarantee. But broadly speaking, that is very important for us. Because we have to use our physical bodies, not only the brain. Even though you become old, you have to use the physical body as much as possible. If you’re always lying in bed when you become old, you really get trouble. That means for you whole life, as much as possible, it is necessary to use the physical body, and the mind too. Train your brains. Even though you do it like this, there is no definite guarantee, but we cannot always live without using our body and mind. In our whole life, as best as we can, we should use them.
+**Katagiri**: Well, no, I don’t mean that. *[Laughter.]* There is no guarantee. But broadly speaking, that is very important for us. Because we have to use our physical bodies, not only the brain. Even though you become old, you have to use the physical body as much as possible. If you’re always lying in bed when you become old, you really get trouble. That means for you whole life, as much as possible, it is necessary to use the physical body, and the mind too. Train your brains. Even if you do it like this, there is no definite guarantee, but we cannot always live without using our body and mind. In our whole life, as best as we can, we should use them.
 
 #### 42:20
 
