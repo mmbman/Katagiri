@@ -54,13 +54,11 @@ Sometimes we say, “The world is emptiness.” *Emptiness* is a noun there. If 
 
 For instance, recently someone who is really trained in using computers [said something]. Many people are really attached to computers – because the computer is wonderful, you know. You can get an answer immediately. So human beings really respect computers, and the computer is the one great thing human beings really depend on. You can know everything; just push a button, immediately you get an answer. But yesterday this person said – I don’t know if this is a true story or not – “World War Three almost began because a computer made a mistake.” So push a button, and the bomb already started to launch. Three minutes before launch, they realized the computer’s mistake, and immediately they tried to get it back. There were two mistakes in a week like this. Can you believe it? 
 
-So from now on, human beings [don’t] create war, the computer makes war. Yes, it is [very true]. I don’t know if this is a true story or not, but it’s *possible* to do that. Such a world is really empty. That is really empty, because you cannot depend on such an understanding of the world, always. 
+So from now on, human beings cannot create war, the computer makes war. [...] I don’t know if this is a true story or not, but it’s *possible* to do that. [...] That is really empty, because you cannot always depend on such an understanding of the world. 
 
-That’s why Nagarjuna says that such an understanding of the world is empty. 
+#### 16:58
 
-#### 17:09
-
-But if you think “the world is empty,” [then] whatever I explain according to Nagarjuna, still you feel pensive and pessimistic because the world is empty. So very naturally you feel hopeless in human life. That’s why in the *Prajnaparamita Sutra*, next [it says], “Emptiness is form.” 
+That’s why Nagarjuna says that such an understanding of the world is empty. But if you think “the world is empty,” [then] whatever I explain according to Nagarjuna, still you feel pensive and pessimistic, because the world is empty. So very naturally you feel hopeless in human life. That’s why in the *Prajnaparamita Sutra*, next [it says], “Emptiness is form.” 
 
 *Emptiness is form* means [it’s not a cause for] pensiveness. Even though I say the table and Katagiri is really empty, or mind is really evasive, or vague, or vast, whatever I say – should I always stay in a feeling of pensiveness because of such an understanding? No way. Because still the table is here, my mind is here, Katagiri is here. The world is here. War is here. Computer is here. So you cannot always stay in a certain feeling of pensiveness or nihilism or pessimism or whatever it is. If you feel pensive or nihilistic, *next* we have to break this [wall]. That is what is called *emptiness is form*. 
 
