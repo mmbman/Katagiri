@@ -320,15 +320,15 @@ It’s dramatic, but it’s really human life, spiritual life. We are always mak
 
 **Katagiri**: Well, it doesn’t matter whether it is a fox, or a rabbit, or tree. I think in China and Japan the fox was believed to be a sort of magical animal, with the power to change its figure into a beautiful woman or boy to cheat human beings. That is a fox, the Japanese people or the Chinese believed. 
 
-**Different person**: But was it a punishment or [...]
+**Question**: But was it a punishment or [...]
 
 **Katagiri**: It’s not punishment. Apparently it seems to be punishment, but that’s not a deep understanding. *Wild fox* means you have to return to the human world, the dualistic world. Day by day, when spring comes you have to be in spring, when winter comes you have to be you in winter. That means that you have to change, constantly. But this change is not change, [it is] fitting into reality, instead of staying at the high level of spirituality, where there is no dualistic world. If we [stay] there, we always create some problems. But when [summer] comes, you take off the winter clothes, you cannot wear winter clothes in the summer. So you have to accommodate yourself to the [each] moment, but with open [eyes]. That is the fox.
 
-**Different person**: But he was asked a question, and then he gave an answer and he was turned into [a fox]. 
+**Question**: But he was asked a question, and then he gave an answer and he was turned into [a fox]. 
 
 **Katagiri**: Right. “Not fall into causation”; that was the answer at that time. 
 
-**Same person**: [So] he gave the wrong answer. 
+**Question**: [So] he gave the wrong answer. 
 
 **Katagiri**: Well, it’s not the right answer, but on the other hand, “not fall into causation” is also right, in a sense, because you cannot always take care of [life] just according to the law of causation. If you take care of your life just according to causation, you cannot move an inch in the realm of causation, you cannot find freedom there. So in order to be free, you have to be free from causation, sooner or later. So “not fall into causation” is freedom from causation. But what is freedom from causation? It doesn’t mean to *ignore* [causation]. So intellectually, it’s [suggesting that] basically you have to be right in the middle of the bullseye of life, constant change – what is the real meaning of death, what is the real process of life or death. You have to be there. And *then* look at the human world, flashing lights – white flashing light or red flashing light – that is causation, or freedom [from] causation, or not freedom [from] causation, always there – [ideas]. And then this old monk picked up one; that’s why on the other hand he forgot this. It’s not punishment, but in the story he didn’t say the *other* aspect, so that’s why he became a “wild fox” – that means even though he forgot and he picked up one, well his life is what? His life has to go back to the dualistic world. When the spring comes, he has to be. When the winter comes, he has to be. So that is *wild fox*. And “for 500 years” means century after century all humans beings do this in that way. 
 
