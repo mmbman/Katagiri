@@ -7,6 +7,10 @@ title: "Diamond Sutra: Final Lecture"
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
 
+### Summary
+
+Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous poem at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the poem reveal different aspects of our experience. Overall, we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
+
 ### Transcript
 
 **This transcript is in rough draft stage.**
@@ -79,11 +83,11 @@ Remember this point, otherwise you [will] misunderstand this verse.
 
 > Thereby Buddhas always exist in the conditioned world which changes in causation, but they gain the power of liberation without being defiled by the world.
 
-So they are living there, but they are not defiled or contaminated by the dualistic world, and then they get the power of liberation, freedom. 
+So they are living there, but they are not defiled or contaminated by the dualistic world, and then they get the power of liberation, freedom. This is very important for us. 
 
-This is very important for us. I told you before, all of us exist, all of us must live, according to the law of causation. If we do something, whatever happens, we have to take responsibility. [If] our motivation is good but result is not good, this is life, according to causation. “We have to be free from causation” doesn’t mean we should ignore our doings; we have to take responsibility for our doings forever. That is a really a good attitude toward the law of causation. Because we live in it, we should respect the law of causation. For this, for the long range or for a short period of time, we should take responsibility for our doings. At that time, it is really the meaning of accepting the law of causation. 
+I told you before, all of us exist, all of us must live according to the law of causation. If we do something, whatever happens, we have to take responsibility. [If] our motivation is good but the result is not good, [this is life], according to causation. “We have to be free from causation” doesn’t mean we should ignore our doings; we have to take responsibility for our doings, whatever [they are]. That is a really a good attitude toward the law of causation. Because we live in it, we should respect the law of causation. For this, [whether] for the long range or for a short period of time, we should take responsibility for our doings. At that time, it is really the meaning of accepting the law of causation. 
 
-And then next, each of us individually must be Buddha. That means that Buddha gains the power of liberation without being contaminated by the law of causation. So still, from moment to moment you must be completely free, in order to create future life, from day to day. Even though you understand your life according to your past life. Such-and-such happened: this is something you have to reflect upon, and take responsibility for your life, what you have done. But for the future, still there is freedom. You can create new life toward the future, without being *bogged down* with this life which you have done. 
+And then next, each of us individually must be Buddha. That means that [you gain] the power of liberation without being contaminated by the law of causation. So still, from moment to moment you must be completely free, in order to create future life from day to day. Even though you understand your life according to your past life: such-and-such happened. This is something you have to reflect upon, and take responsibility for your life, what you have done. But for the future, still there is freedom. You can create new life toward the future, without being *bogged down* with this life which you have done. 
 
 So there are two contradictory aspects. You should be straightforward toward your life which you have done. At that time, you can really respect your past life, and you can really respect the law of causation. On the other hand, you must be brave toward the future, without being stuck there. 
 
@@ -93,7 +97,7 @@ That is Asanga’s comment: “The Buddha gains the power of liberation without 
 
 #### 24:00
 
-There are commentaries to the nine points of view by Doctor Conze in this book ([“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom), pp. 69-73). His commentaries are very good, so I would like to read them one by one, and think about these nine points of view.
+There are commentaries to the nine points of view by Doctor Conze in this book ([“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom), pp. 69-73). These commentaries are very good, so I would like to read them one by one, and think about these nine points of view.
 
 The first one, 
 
@@ -107,9 +111,9 @@ Stars are very distant and unreachable – this is very understandable. “One 
 
 > (b) They are small in size, insignificant, when seen on the background of the vast vacuity of space. 
 
-I think so. Stars are just tiny entities in size. In comparison with the vast vacuity of space, a star is very small in size, small in significance, just like if you compare a poppy seed to the Himalayan mountains.
+I think so. Stars are just tiny entities. In comparison with the vast vacuity of space, anyway, a star is very small in size, small in significance, just like if you compare a poppy seed to the Himalayan mountains.
 
-So the conditioned world is constantly changing and moving, we cannot grasp it in our hand. We cannot understand exactly what it is, because it is changing constantly. No matter how long you live in this world, you cannot pin down what is life, what is the human world. But we have to understand. Actually, your whole life, you  have to learn what life is, what the human world is, constantly, because the world is really unattainable, huge. 
+So the conditioned world is constantly changing and moving; we cannot grasp it in our hand. We cannot understand *exactly* what it is, because it is always changing. No matter how long you live in this world, you cannot pin down what is life, what is the human world. But we have to understand. Actually, your whole life, you have to learn what life is, what the human world is, constantly, because the world is really unattainable, huge. 
 
 > (c) They can be seen only when there is no sun. As the stars are no longer visible when the sun comes to shine, so also the things of the world are seen only in the darkness of ignorance, and are no longer noticed when the normal mental reactions to them come to a stop, after the true non-dual cognition of the Absolute has taken place. All mental elements, as Vasubandhu says, disappear when right cognition is realized, just as the stars disappear when the sun shines. They become invisible, and all views cease.
 
@@ -117,7 +121,7 @@ The third point is that the human world is just like stars because stars can be 
 
 > Ignorance means that (a) intellectually, one sees nothing, for ignorance is a condition unfavorable to knowledge ...
 
-So intellectually one can see nothing. That means, I told you during the seminar, everyone exists right in the middle of the truth, and we want to know, but we cannot know. So intellectually we really want to know what the truth is, what is the place we live in, what is [this] life which we have to take care of. We want to know intellectually – but we don’t know. 
+So intellectually one [can] see nothing. That means, I told you during the seminar, everyone exists right in the middle of the truth, and we want to know, but we cannot know. Intellectually we really want to know what the truth is, what is the place we live in, what is [this] life which we have to take care of. We want to know intellectually – but we don’t know. 
 
 So ignorance is always a condition unfavorable to knowledge. So intellectually always there is something unstable. You cannot pin down what it is. This is the human world. 
 
@@ -131,7 +135,7 @@ Thirdly:
 
 > ... (c) volitionally, one knocks against things...
 
-One knocks against things very naturally. [...] Some resistance is coming up very strongly from the will of volition. Intellectually you cannot pin down what [anything] is, that’s why even though you decide something, you aren’t satisfied. That’s why volitionally, consciously or unconsciously you resist against the determination you have made, and then you move to another determination. [Even if] you like the determination, the decision of something, what you have done is really being against [something], consciously or unconsciously. This is ignorance.
+[...] Very naturally, some resistance is coming up very strongly from the will or volition. Emotionally or intellectually you cannot pin down what [anything] is, that’s why even though you decide something, you aren’t satisfied. That’s why volitionally, consciously or unconsciously you resist against the determination you have made. And then you move to another determination. [Even if] you like the determination or decision of something, what you have done is really being against [something], consciously or unconsciously. This is ignorance.
 
 > ... stumbles about...
 
@@ -147,9 +151,9 @@ Even though you cannot know, no matter how long you stumble about and are irrita
 
 So this is really ignorance, okay? *[He chuckles.]* That’s why ignorance is really darkness of existence, which makes your life blind. But on the other hand, this is really vitality of human life, by which you can get into human existence. You can live next life; you can live tomorrow. It’s really vitality. 
 
-So ignorance has two aspects. Ignorance is not the good sense, but on the other hand, it’s the very good sense, because it’s really creating vitality of human life. Don’t you think so? We have lots of ignorance, [...] and lots of stinky characteristics. But don’t judge them as evil, unwholesome entities. Of course you should reflect upon your stinky characteristics, but on the other hand, you should appreciate them, because the more you have strong, stinky characteristics, the more you have a greater chance to attain enlightenment. Yes it is [true]. It is sure. So don’t judge your life seeing just one aspect of your personality, because this is basic human nature, which is called ignorance. 
+So ignorance has two aspects. It is not [a] good sense, but on the other hand, it’s [a] very good sense, because it’s really [the creative] vitality of human life. Don’t you think so? We have lots of ignorance, lots of delusions, and lots of stinky characteristics. But don’t judge them as evil, unwholesome entities. Of course you should reflect upon your stinky characteristics, but on the other hand, you should appreciate them, because the more you have strong, stinky characteristics, the more you have a greater chance to attain enlightenment. Yes it is [true]. It is sure. So don’t judge your life seeing just one aspect of your personality, because this is [the] basic human nature, which is called ignorance. 
 
-If your life is just like a star, which is shining only in the darkness, that is the human world. Whatever you see – the human world, people, trees – this is something you can see [in] the darkness of ignorance. Do you understand this? That’s why the world is always perverted by human knowledge. You cannot see the true aspect of the human world as it is, because this is ignorance. But ignorance is not exactly what you would call sin, or guilt, et cetera, because I told you before, it has two aspects. 
+[So] your life is just like a star, which is shining only in the darkness – that is the human world. Whatever you see – the human world, people, trees – this is something you can see [in] the darkness of ignorance. Do you understand this? That’s why the world is always perverted by human knowledge. You cannot see the true aspect of the human world as it is, because this is ignorance. But ignorance is not exactly what you would call sin, or guilt, et cetera, because I told you before, it has two aspects. 
 
 And fourthly: 
 
@@ -161,13 +165,13 @@ So human life [or] the human world [being] just like a star means a very short l
 
 > 2\. The second item, **a fault of vision**, *timira*, may mean “darkness, blindness, a cataract.” 
 
-Do you know cataract? Eye disease.
+Do you know the *cataract*? Eye disease.
 
 > The ignorant are often compared to people blinded by darkness (see chapter 14g). “Ignorance overpowers beings through lack of vision, or through false vision, just as a cataract overpowers the eyes” (VM 583). 
 
 So we are already sickness.
 
-The other someone called me by telephone. He really got angry with me, and with the Zen center, with the Zen students, saying, “You don’t know what kind of people you have! The people you have in the Zen community are all sick!” I really wanted to tell him, “More or less, everybody is sick.” *[Laughter.]* “... including you!” 
+The other day, someone called me by telephone. He really got angry with me, and with the Zen Center, with Zen Center students, saying, “You don’t know what kind of people you have! The people you have in the Zen community are all sick!” I really wanted to tell him, “More or less, everybody is sick.” *[Laughter.]* “... including you!” 
 
 He got really angry with me emotionally, that’s why I didn’t say anything. Whatever I would say, he couldn’t accept. He didn’t understand, so... 
 
@@ -175,7 +179,7 @@ Anyway, everyone is sick, very sick. Just as a cataract overpowers [the eyes]. B
 
 And finally the man said, “If one of your students does something as a sick person, I will sue you, I will bring you to court.” *[Laughter.]* He really got angry.
 
-This is “a fault of vision.” That’s why we have to be careful to understand ourselves and others. And also, whatever kind of views we have, or whatever kind of ideas we have, are nothing but perverted already. It doesn’t mean they’re wrong, [but] we understand just the surface, just a part of human life, not the total picture. That is your understanding, your ideas. Whatever you say – nihilism, or communism, or democracy – that is just part of understanding. We attach to it, so that is *perverted*. So we should keep it warm in individual life, and polish it until it becomes universal. That is very important for us. For this, we must handle life with humility toward our ideas, our understanding, or for other’s understanding, other’s lifestyle, et cetera. And polish it. For this, you must be patient sometimes. You must be brave. You must be silent sometimes. You must continue to practice silently, et cetera. Those practices are very important. 
+This is “a fault of vision.” That’s why we have to be careful to understand ourselves and others. And also, whatever kind of views we have, or whatever kind of ideas we have, are nothing but perverted already. It doesn’t mean they’re wrong. [But] we understand only the surface, just a part of human life, not the total picture. That is your understanding, your ideas. Whatever you say – nihilism, or communism, or democracy – that is just part of understanding. We attach to it, so that is *perverted*. So we should keep it warm in individual life, and polish it until it becomes universal. That is very important for us. For this, we must handle daily life with humility toward our ideas, our understanding, or others’ understanding, others’ lifestyle, et cetera – and polish it. For this, you must be patient sometimes. You must be brave. You must be silent sometimes. You must continue to practice silently, et cetera. Those practices are very important. 
 
 #### 45:03
 
@@ -183,25 +187,25 @@ And third, **a lamp**.
 
 > 3\. The simile of the lamp illustrates two aspects of this world of ours: (a) A lamp goes on burning only as long as fuel is fed into it. So also this world continues only while we have cravings. 
 
-Craving is [part of] ignorance, because ignorance is intellectually you cannot pin down, emotionally you feel lost or terrified, volitionally you are always against [something]. That’s why craving very naturally comes up, because you cannot pin down ...
+Craving is [part of] ignorance. Because ignorance is [that] intellectually you cannot pin down [anything], emotionally you feel lost or terrified, volitionally you are always against [something]; that’s why craving very naturally comes up. Because you cannot pin down ...
 
 *[Tape change.]*
 
-... [uneasy] the more you try to hang on. This is craving. Very naturally craving comes up. 
+... [you are more uneasy] the more you try to hang on. This is craving; very naturally craving comes up. 
 
-“[...] So also this world continues only while we have cravings.” That’s why in a sense we have to use craving in the big scale. I don’t know *how* to use it in the big scale. The big scale is using craving for saving all sentient beings. 
+“[...] A lamp goes on burning only as long as fuel is fed into it. So also this world continues only while we have cravings.” That’s why in a sense we have to use craving in the big scale. I don’t know how to use it in the big scale. The big scale is to use craving for saving all sentient beings. 
 
-And also craving is very dangerous because you create the cause of human troubles. You can’t live in peace and harmony. But on the other hand, cravings are very strong energies by which you can lead to the human world, you can take care of human life. For instance, you can seek for the truth constantly, whatever happens; this is really human craving. So craving also has two aspects of meaning. 
+And also craving is very dangerous because you create the cause of human troubles. You cannot live in peace and harmony. But on the other hand, cravings are very strong energies by which you can lead to the human world, you can take care of human life. For instance, you can seek for the truth constantly, whatever happens; this is really human craving. So craving also has two aspects of meaning. 
 
 > When craving ceases to supply the drive, the world will come to an end. 
 
-That doesn’t mean the complete destruction of the world. “When craving ceases to supply the drive, the world will come to an end” means you have to understand where craving comes from – in other words, what is original nature, what is human nature. If you really understand craving, you can handle the craving in a better way. But practically, we don’t have a particular pattern: you cannot say we should handle craving in this way, or in that way, because daily life is changing constantly. That’s why I told you before, broadly speaking, we constantly have to be humble and modest in our daily living. And on the other hand, we have to be brave toward future life. At that time you can really use craving in the big scale, for seeking for the truth. 
+That doesn’t mean the complete destruction of the world. “When craving ceases to supply the drive, the world will come to an end” means you have to understand where craving comes from – in other words, what is [original] human nature. If you really understand craving, you can handle the craving in a better way. But practically, we don’t have a particular pattern: you cannot say we should handle craving in this way, or in that way, because daily life is changing constantly. That’s why I told you before, broadly speaking, we constantly have to be humble and modest in our daily living. And on the other hand, we have to be brave toward future life. At that time you can really use craving in the big scale, for seeking for the truth. 
 
 And the second point:
 
 > (b) In their Indian form, before glass chimneys came to be used, lamps were liable to be blown out by the wind. Likewise one conditioned thing is very easily disturbed by others, and the continued existence of conditioned dharmas is all the time distinctly precarious.
 
-In other words, the human world is very weak, in a sense, because it is liable to be destroyed by others very easily. In a sense human beings are weak, but as long as you have craving, you believe “I am strong.” On the other hand, cravings are very breakable, very weak, just like a lamp. 
+In other words, the human world is very weak, because it is liable to be destroyed by others very easily. Human beings are very weak, in a sense. But as long as you have craving, you believe “I am strong.” On the other hand, cravings are very breakable, very weak, just like a lamp. 
 
 So very naturally, “continued existence of conditioned dharmas is all the time distinctly precarious.” [It is] always unstable, uneasy. You don’t know what it is. So finally, day after day, from moment to moment, all you have to do is to make every possible effort to learn what life is. That’s all you have to do. Because intellectually, no matter how long you try to pin down what life is, you don’t know. So this is a final practice we have to do. 
 
