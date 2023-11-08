@@ -9,7 +9,7 @@ title: "Diamond Sutra: Final Lecture"
 
 ### Summary
 
-Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
+Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck there. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
 
 ### Transcript
 
@@ -43,7 +43,7 @@ And also, if you trust in [yourself] or if you trust in others, there are always
 
 So strictly speaking, we live in the realm of the law of causation. This is the dualistic world; this is the human world we live in. That’s why [it says] “the Tatagatha’s nirvana is neither the same as the conditioned world in causation”; this [dualistic world] is called *the conditioned world in causation*. 
 
-But “the Tatagatha’s nirvana”: *nirvana* means freedom, liberation; perfect liberation from human suffering. “The Tatagatha’s nirvana is neither the same as the conditioned world in causation”... in other words, a perfect peaceful life is liberated from the law of causation. We live in the law of causation; that’s why we cannot ignore the law of causation. But there is no reason why we have to be completely tied up with the law of causation. We have to be *free from* the law of causation. 
+But “the Tatagatha’s nirvana” – *nirvana* means freedom, liberation; perfect liberation from human suffering. “The Tatagatha’s nirvana is neither the same as the conditioned world in causation”... in other words, a perfect peaceful life is liberated from the law of causation. We live in the law of causation; that’s why we cannot ignore the law of causation. But there is no reason why we have to be completely tied up with the law of causation. We have to be *free from* the law of causation. 
 
 In other words, if you do something wrong, the result is wrong – this is the law of causation. But actually, even though you do something good, sometimes you don’t see the good result. And also, sometimes even though you do something good, the result is not good. So, we always have two aspects. Your life is backed by the law of causation; you cannot ignore it. Whatever you do, whatever you [may be], there is always causation. But on the other hand, you cannot understand human life exactly just according to the law of causation, because cause and effect are sometimes not exactly fitting, not exactly the same. 
 
