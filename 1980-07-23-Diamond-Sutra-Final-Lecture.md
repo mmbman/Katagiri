@@ -239,7 +239,7 @@ I told you before, I was very impressed by some aspect of Buddhist teaching thro
 
 [Like] a dewdrop.
 
-### 1:01:39
+#### 1:01:39
 
 > 6\. Like a **bubble** each experience bursts soon, and it can be enjoyed only for a moment. In Buddhist tradition, the bubble, a particularly unsubstantial entity, is usually related to the skandha of feeling. Dependent on three factors – enjoyer, enjoyable thing, and enjoyment – all joys quickly burst apart. And the same holds good of painful feelings also. 
 
