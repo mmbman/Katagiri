@@ -9,11 +9,9 @@ title: "Diamond Sutra: Final Lecture"
 
 ### Summary
 
-Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous poem at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the poem reveal different aspects of our experience. Overall, we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
+Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
 
 ### Transcript
-
-**This transcript is in rough draft stage.**
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-final-lecture" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
@@ -217,13 +215,15 @@ Fourth: **a mock show**. A mock show, dew drops, a bubble – those three are hu
 
 > 4\. Furthermore, the appearance of this world is like a **mock show**, a magical illusion. Like a magical show it deceives, deludes, and defrauds us, is false when compared with ultimate reality. 
 
-Because by ignorance we can see the world, but the world is already something different from the real picture of the world, because it is something appearing on the surface. I told you before, the basic nature of existence is nothing but dynamic action. [It is] just like [rapidly spinning a string with a coin tied to the end]. The motion always leaves its own form, the circle formed by the coin. Do you understand? So you can see the form of the circle, but this is nothing but form, provisional being. When the movement stops, it disappears. This is the world we understand. That’s why when you decide something, the next moment you aren’t satisfied – because it is nothing but the form of a circle created by the coin. This form is not different from the movement itself; that’s why all we have to do is to understand the movement itself, *through* this form. 
+Because by ignorance we can see the world, but the world is already something different from the real picture of the world, because it is something appearing on the surface. I told you before, the basic nature of existence is nothing but dynamic action. [It is] just like [rapidly spinning a string with a coin tied to the end]. The motion always leaves its own form, the circle formed by the coin. Do you understand? So you can see the form of the circle, but this is nothing but form, provisional being. When the movement stops, it disappears. This is the world we understand. That’s why when you decide something, the next moment you aren’t satisfied – because it is nothing but the form of a circle created by the coin. This form is not different from the movement itself; that’s why all we have to do is to understand the movement itself, *through* this form. *Form* is the human world. 
 
-*Form* is the human world. That’s why the human world is just like a mock show, a magic show: because are completely deceived by this form. We take the picture of the form with the “camera” of our six consciousnesses,  and then we believe this is the world that we have to depend on. But next moment, it disappears. 
+That’s why the human world is just like a mock show, a magic show: because we are completely deceived by this form. We take the picture of the form with the “camera” of our six consciousnesses, and then we believe this is the world that we have to depend on. But next moment, it disappears. 
 
-> Things, as Vasubandhu says, are not a trustworthy support. It is assumed that the world of conditioned things is manufactured by ignorance, and Nagarjuna, in his great commentary, shows that ignorance and the products of the magician’s art have the following attributes in common: They are neither inside a person, not outside, nor both inside or outside; ...
+> Things, as Vasubandhu says, are not a trustworthy support. It is assumed that the world of conditioned things is manufactured by ignorance, and Nagarjuna, in his great commentary, shows that ignorance and the products of the magician’s art have the following attributes in common: They are neither inside a person, nor outside, nor both inside or outside; ...
 
-Do you know magicians? *[He chuckles.]* The magician always has a certain trick. But that trick is just a trick. The trick doesn’t matter; a trick is a trick. You believe the magician’s magic is inside of the ping pong ball, [like in] kids’ magic shows. [...] So you show this [...] and one by one you can create another ping pong ball here, again and again, [...] It’s a trick. *[Laughter.]* But the magic art is not in the ping pong ball, okay? You believe the magic art is inside the ping pong ball; I don’t think so, that is just a trick. The real magic art is not inside of the ping pong ball, nor outside, [neither] you or the magician. In communication, already here it comes up – and then you believe. So that’s why Nagarjuna says, “[neither] inside or outside.”
+Do you know magicians? *[He chuckles.]* The magician always has a certain trick. But that trick is just a trick. The trick doesn’t matter; a trick is a trick. You believe the magician’s magic is inside of the ping pong ball, [like in] kids’ magic shows. The ball is cut in half. So you show this [...] and one by one you can create another ping pong ball here, again and again, like this. [...] It’s a trick. *[Laughter.]* But the magic art is not in the ping pong ball, okay? You believe the magic art is inside the ping pong ball; I don’t think so, that is just a trick. The real magic art is not inside of the ping pong ball, nor outside. [That means] you or the magician in communication, already here it comes up – and then you believe. Do you understand? 
+
+So that’s why Nagarjuna says, “[neither] inside or outside.”
 
 > ... they can therefor not be localized with reference to persons; there is nothing real that has been either produced or destroyed; no real event, with an essence of its own, has taken place. And yet, although ignorance is not real, it is the conditions for all kinds of activity. Similarly, the musical instruments conjured up by magic are empty, deceptive, without reality, without objective basis, and yet one can hear their music and can see them. 
 
@@ -233,9 +233,9 @@ Number five:
 
 > 5\. The **dewdrops** may also be “hoar-frost.” That depends on the climate. Each thing is as evanescent as the dewdrops which soon evaporate under the sun’s rays. 
 
-This is really true, you can experience it in your life. 
+This is very true, you can really experience it in your life. 
 
-I told you before, I was very impressed by some aspect of Buddhist teaching through the study of Buddhism. At that time my feeling was sort of enlightenment; I really enjoyed it and I was very happy, because I could see the light in the human world, in the future, in my life, et cetera. I was really happy, so [...] I told a friend. Immediately he said, “How stupid you are.” *[Laughter.]* 
+I told you before, [once] I was very impressed by some aspect of Buddhist teaching through the study of Buddhism. At that time my feeling was sort of enlightenment; I really enjoyed it and I was very happy, because I could see the light in the human world, in the future, in my life, et cetera. I was really happy, so sooner or later I would like to tell somebody. So I told a friend. Immediately he said, “How stupid you are.” *[Laughter.]* 
 
 [Like] a dewdrop.
 
@@ -243,7 +243,9 @@ I told you before, I was very impressed by some aspect of Buddhist teaching thro
 
 > 6\. Like a **bubble** each experience bursts soon, and it can be enjoyed only for a moment. In Buddhist tradition, the bubble, a particularly unsubstantial entity, is usually related to the skandha of feeling. Dependent on three factors – enjoyer, enjoyable thing, and enjoyment – all joys quickly burst apart. And the same holds good of painful feelings also. 
 
-So “like a bubble each experience bursts soon, and can be enjoyed only for a moment,” because human experience immediately bursts apart. Subject and object [from] something else immediately burst apart. For a moment you can feel good, but next moment, it disappears. You can really see your ideas and your thoughts [burst apart] in zazen; it’s really so, just like bubbles constantly coming up. You chase after one thought in zazen, you can chase after them constantly, because other bubbles comes up, so you are interested in another bubble. Constantly it disappears. If you seek for it, if you catch that one bubble, immediately the bubble bursts apart. Subject and object [are also] bubbles. [...] Your life bursts apart in pieces, and they all disappear. Just like a waterfall: the water comes down from the top; it splashes into pieces [at the bottom]. The more something bursts apart in pieces, the more it pretty easily disappears quickly. 
+So “like a bubble each experience bursts soon, and can be enjoyed only for a moment,” because human experience immediately bursts apart. Subject and object [from] something else, immediately burst apart. And for a moment you can feel good, but next moment, it disappears. 
+
+You can really see your ideas and your thoughts [burst apart] in zazen; it’s really so, just like bubbles constantly coming up. You chase after one thought in zazen, [but] you cannot chase after it constantly, because another bubble comes up, so you are interested in another bubble. Constantly it disappears. If you seek for it, if you catch that one bubble, immediately the bubble bursts apart. Subject and object [are also] bubbles. [...] Your life bursts apart in pieces, and they all disappear. Just like a waterfall: the water comes down from the top; it splashes into pieces [at the bottom]. The more something bursts apart in pieces, the more it pretty easily disappears quickly. 
 
 That is also very characteristic of human intellect, the dualistic world.
 
@@ -259,17 +261,17 @@ The last three – a dream, a lightning flash, and clouds – are explaining the
 
 > 9\. Finally, we should look upon things in the spirit in which we watch the **clouds** on a hot summer day. They change their shape all the time, but as far as our welfare is concerned, one shape is as good as another. So do the transformations of the earthly scene not at all concern our true welfare. 
 
-Everything is changing constantly, everything is short-lived. That means there is nothing to hold on [to]. Constantly we must be [like] white paper. Day by day, we must be white papers, accepting the past life. And then, we can change, just like a cloud. [We do] not change personality, but we change conditions, and we can create opportunities. If you change your attitude toward your behaviors, very naturally you can create a better world. Just like a cloud: a cloud is always changing, the shape of the cloud is constantly changing. That is just like welfare for human beings, understanding the human world. 
+Everything is changing constantly, everything is short-lived. That means there is nothing to hold on [to]. Constantly we must be [like] white paper. Day by day, we must be white papers, accepting the past life. And then, we can change, just like a cloud. [We do] not change personality, but we change conditions, and we can create opportunities. If you change your attitude toward your behaviors, very naturally you can create a better world. Just like a cloud: a cloud is always changing. The shape of the cloud is constantly changing. That is just like welfare for human beings, understanding the human world. 
 
-So that’s why finally he says, “the transformations of the earthly scene not at all concern our true welfare.” We cannot destroy the human world, and we cannot destroy human consciousness. But what we can do is, we should be careful to take care of the shape of human life, the shape of human behavior – in other words, what kind of attitude we should take from moment to moment. Under all circumstances, we should do it. At that time, we can create a good world. 
+So that’s why finally he says, “So do the transformations of the earthly scene not at all concern our true welfare.” We cannot destroy the human world, and we cannot destroy human consciousness. But what we can do is, we should be careful to take care of the shape of human life, the shape of human behavior – in other words, what kind of attitude we should take from moment to moment. Under all circumstances, we should do it. At that time, we can create a good world. 
 
 Do you have some questions? I’m sorry, [I am losing] my voice.
 
 #### 1:11:37
 
-The nine points of view are not a matter of discussion; whether you understand them or not, these nine points of view must penetrate your skin, muscle, bone, and marrow. How? You have to experience [them], and also you should [express them in your] life, taking care of human life with your best [effort]. Taking care of human life as a Buddha, instead of taking care of human life with your emotions, your affective preferences, et cetera. Anyway, completely beyond good or bad, right and wrong, we should take best care of human life. At that time very naturally you can experience the human world just like stars, dewdrops, bubbles, et cetera. And also zazen is more basic human experience. It is very true; if you do zazen, very naturally that human world penetrates your skin and muscle and bone. 
+The nine points of view are not a matter of discussion; whether you understand them or not, these nine points of view must penetrate your skin, muscle, bone, and marrow. How? You have to experience [them], and also you should [express them in your] life, taking care of human life with your best [effort]. Taking care of human life as a Buddha, instead of taking care of human life with your emotions, your affective preferences, et cetera. Anyway, completely beyond good or bad, right and wrong, we should take best care of human life. At that time very naturally you can experience the human world just like stars, dewdrops, bubbles, et cetera. And also zazen is more basic human experience. It is very true: if you do zazen, very naturally that human world penetrates your skin and muscle and bone. 
 
-Unfortunately I have to go to Omaha this weekend, I cannot be the *[unintelligible]*. But we have lots of things to do from now on, so we need lots of help. *[Unintelligible]* will organize that one. Please help, even thirty minutes or ten minutes.
+Unfortunately I have to go to Omaha this weekend, I cannot be [at the rummage sale]. But we have lots of things to do from now on, so we need lots of help. [Name] will organize that one. Please help, even thirty minutes or ten minutes.
 
 #### 1:13:50 end of recording
 

@@ -217,7 +217,7 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 ### [Diamond Sutra: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
 #### July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous poem at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the poem reveal different aspects of our experience. Overall, we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
+Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
 
 ---
 
