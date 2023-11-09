@@ -29,9 +29,9 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 
 *Posted September 1, 2023*
 
-### [Class: Taking Care of Karma](https://www.oceanzen.org/buddhist-studies)
+### Class: Taking Care of Karma
 
-On eight Wednesday evenings from September 20 - November 8, 2023, I will be leading a class called “Taking Care of Karma,” where we will be studying Katagiri Roshi’s talks on karma, as transcribed by yours truly on this site. The class will take place at Compassionate Ocean Zen Center, which is located in Minneapolis, Minnesota. There is an option for participating via Zoom. Compassionate Ocean is in Katagiri Roshi’s lineage (it is actually named after him). 
+On eight Wednesday evenings from September 20 - November 8, 2023, I will be leading a class called “Taking Care of Karma,” where we will be studying Katagiri Roshi’s talks on karma, as transcribed by yours truly on this site. The class will take place at Compassionate Ocean Zen Center, which is located in Minneapolis, Minnesota. There is an option for participating via Zoom. 
 
 The talks we will be discussing are:
 
@@ -44,9 +44,8 @@ The talks we will be discussing are:
 - [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 - [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 - [Karma in Buddhism](1987-05-23-Karma-in-Buddhism) (1987)
-- Supplemental material: [Class 2](Class2Supplement.pdf), [Class 4](Class4Supplement.pdf), [Class 5](Class5Supplement.pdf), [Class 6](Class6Supplement.pdf), [Class 7](Class7Supplement.pdf)
 
-We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. (Class registration is now closed.)
+We almost certainly won’t have time to get through all of those – there is so much material. But this should be a great opportunity to study Katagiri Roshi’s teaching together. (The class is now concluded.)
 
 ---
 
