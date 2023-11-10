@@ -11,12 +11,12 @@ title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
 
-*(Archive Issue: This entire talk is very nearly inaudible.)*
-
 <a name="000"></a>
 #### 0:00 start of recording
 
-Case 18 of Blue Cliff Record:
+(*Transcriber’s Note*: The entire recording of this talk is nearly inaudible. Transcription errors are likely.)
+
+Case 18 of *Blue Cliff Record*:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 > 
@@ -57,71 +57,57 @@ Case 18 of Blue Cliff Record:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by Chinese emperors in the different ages, his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So the Emperor wanted to have something; that's why he asked, “What do you need after your death?”
-
-#### 5:00
+This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chinese] emperors in the different [ages], his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A ‘seamless monument’ is a very common term in Buddhism. If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by the small pond, where people let go of fish and turtles, whatever. So that is freedom, for that time and place – for the fish and turtles to be free from the dangerous situation. 
+A *seamless monument* is a very common term in Buddhism. 
 
-So by this pond you have a big lantern. You know the lanterns in the temple? Not like this ... you can see them in pictures. ([Tōrō](glossary#tōrō)?) And then these lanterns are called seamless lanterns. That pond is called [hoshō], that means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught. Just let go of it. 
+If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by a small pond, where people let go of fish and turtles, whatever. That is freedom for that [time and place], for the fish and turtles to be free from their dangerous situation. So by this pond you have a big lantern. You know the lanterns in temples? Not like this [here]... you can see pictures of them. (Transcriber’s Note:  possibly see [*tōrō*, stone lantern](glossary#tōrō).) And then these are called seamless lanterns. The pond is called [*hoshō*], which means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught; just let go of it. So [it is] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we say formless: no eyes, no ears, [et cetera]. A seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. 
 
-So, seamless means formless. In [Prajnaparamita](glossary#Prajnaparamita), we say formless: no form, no eyes, no ears. So, seamless lantern.
-
-Seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. When your picture of life is just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
+[When your] picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
 #### 8:25
 
-In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and the suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
+In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
-But this is [taking up] those names. You call it life and death. Take out those clouds completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them out. What’s left? 
+But this is [taking up] those names. You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them out. What’s left? 
 
 What’s left is really important, because this is the quality of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a name of death which you put on it; you have to know the real quality of death. What is the quality of death?
 
-In zazen ... sitting right now, right here means you cannot bring any name, any concept into what to do – so-called ‘zazen’, or ‘breath’, or ‘concentration’. Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take out all things, what’s left?
+[In] zazen [...] sitting right now, right here means you cannot bring any name, any concept into what you do: so-called “zazen,” or “breath,” or “concentration.” Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take off all things, what’s left?
 
-That is, Buddhism always says, [emptiness](glossary#emptiness). 
+That is, Buddhism always says, [*emptiness*](glossary#emptiness). 
 
-Emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really dynamic working. But no one can touch it, because it’s really *dynamic*.
+Emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really *dynamic working*. But no one can touch it, because it’s really *dynamic*.
 
 #### 12:19
 
-From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain vision, constantly you have to take care of it.
+From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
 
-So strictly speaking, why don’t you take off the clouds of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean that. 
+So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean that. 
 
-Nothing, [emptiness](glossary#śūnyatā), dynamic working, means full aliveness of your life, so you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is a seamless life. Seamless life, seamless death. And then at that time, we can really [weave] so-called human culture.
+Nothing, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [...] *seamless* life. Seamless life, seamless death. And then at that time, we can really [weave] so-called human culture.
 
-I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to light the candle of so-called culture. 
+I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to “light the candle” of culture. 
 
-How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let] people ... understand, or see? 
+How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let] people ... understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
-Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
+That’s why I told you before, the quality of [your] life must be taught by your back. *Back* means not back opposed to front. Do you remember? My teacher said a Zen teacher teaches Buddhist teachings with his back. *Back* means seamless, formless teaching, constantly.
 
-#### 15:45
+So whoever you are, if you really live your life just like this, people can accept something about how important human life is from you. Not from the right side, left side, or back side, but from the seamless form of your existence, which you have taken care of.
 
-That’s why I told you before, the quality of your life must be taught by your back. 
+#### 17:17
 
-‘Back’ means not back opposed to front – do you remember? My teacher says the Zen teacher teaches Buddhist teachings with his back. ‘Back’ means seamless, formless teaching, constantly.
+For instance, when my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because of human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
 
-So whoever you are, if you really live a life just like this, people can accept something about how important human life is from you. Not from the right side, left side, back side, but from the seamless form of your existence, which you have taken care of.
+If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. Very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. So then finally you have self-doubt. Self-doubt means [you think], “[What am I?] I am stupid.” You’re not stupid, but finally big doubt comes up. 
 
-For instance, when my teacher was alive, I really didn’t understand his way and his life, Zen Buddhism, et cetera. Even though he kept silent, or even though he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got the big experience, but still I didn’t appreciate this. [This is] because of human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
+Now I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important part of human life is completely beyond this. From his life as a whole, you can really get something. 
 
-If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolating from people. Then the people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings.
+That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically. That is a very common human style. 
 
-So then finally you have self-doubt. Self-doubt means [you think], “I am stupid.” You’re not stupid, but a certain big doubt comes up. 
-
-#### 19:22
-
-Now I can really treasure the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. 
-
-So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. Something which he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important part of human life is completely beyond there. From his life as a whole, you can really get something. 
-
-That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically.
-
-That is a very common human style. So that’s why the National Teacher said, “Build a seamless monument for me.”
+So that’s why the National Teacher said, “Build a seamless monument for me.”
 
 #### 22:08
 
@@ -131,92 +117,59 @@ And then,
 
 This is a very nice person. Because the National Teacher wants to build a seamless monument, the Emperor asks, “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
 
-#### 22:43
-
-> The National Teacher was silent for a long time; then he asked, “Do you understand?”  
+> The National Teacher was silent for a long time; then he asked, “Do you understand?”
+> 
 > The Emperor said, “I don’t understand.”
 
 This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) said this also, when he was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
 
-This is also “I don’t know.” But Bodhidharma knows pretty well; he knows very clearly who he is: becoming one. At that time there is nothing to dichotomize, or contaminate. 
+This is also “I don’t know.” But he knows pretty well; he knows very clearly who he is. Becoming one: at that time there is nothing to dichotomize, or contaminate. For instance, when you really do something with wholeheartedness – cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
 
-#### 23:55
+Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t know what time it is, you don’t want anything except to play Go. So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. 
 
-For instance, when you really do something with your wholeheartedness, cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time people ask you, “What time is it?” You say, “I don’t know.” But it’s really late, you know?
+When you’re riding an airplane, when you become one with the speed of the plane, you don’t know how fast the airplane goes; all you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
 
-Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t feel what time it is, you don’t want anything except to play Go.
+So this is all one meaning [of “I don’t know”]. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say, “I am an enlightened person,” still you create lots of space between you and [enlightenment](glossary#enlightenment). If you’re a really great enlightened person, then there’s only one, there is no space to look at it objectively. So you don’t know. 
 
-So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well; but when you become really one with time, you don’t know time. Do you understand? 
-
-When you’re riding an airplane, when you become one with the speed of the plane, you don’t know how fast the airplane goes. All you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. 
-
-This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
-
-#### 26:32 
-
-So this is all one meaning. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say “I am an enlightened person,” still you create lots of space between you and [enlightenment](glossary#enlightenment). If you’re a really great enlightened person, then there’s only one, there is no space to look at it objectively. So you don’t know. 
-
-It’s just like shaking a bottle filled with water. It’s completely one; at that time, you cannot make noise. But if you take a bottle with a little water and shake it, you know you really make noise. That is like, “You know pretty well how great I am.” But if you shake the bottle completely filled with water, you don’t know how much there is. 
-
-So, no sound; that is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of *[unintelligible]* or majesty, and [improbability]. Just this. But, nothing to say. 
+It’s just like shaking a bottle filled with water. [If] it’s completely one, at that time, you cannot make noise. But if you take a bottle with [just] a little water and shake it, you know, you really make noise. That is [like] you know pretty well how great [you are]. But if you shake the bottle completely filled with water, you don’t know how much it is. No sound: that is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of dignity or majesty, and imperturbability; just this. But, nothing to say. 
 
 So that is the “I don’t know” that Bodhidharma said.
 
-#### 28:34
+Or, the other “I don’t know” means *completely* “I don’t know,” because you have *no* idea. People ask you what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
 
-Or, the other “I don’t know” means completely “I don’t know,” because I have no idea. People ask me what Buddhism is, what [zazen](glossary#zazen) is, and I say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
+If you say “I don’t know,” you cannot get any spirit to tell you or to teach, don’t you think so? But if you really know what zazen is, even though you can’t say – even though you say “I don’t know,” *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
 
-If you say “I don’t know,” you cannot have any spirit to teach or to tell you, don’t you think so? But if you really know what zazen is, even though you say “I don’t know,” *that* “I don’t know” has a really great spirit to teach somebody. So, still people feel that point. 
-
-The “I don’t know” of Emperor Wu – I don’t know which of the two it was. *[He laughs.]* Whether he really didn’t know, or he knows pretty well and is free from he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[Some laughter.]* But anyway, from this story, Emperor Wu was not the common people, he was a “Great Zen Buddhist”.
+The “I don’t know” of Emperor Wu – I don’t know which of the two it was. *[He laughs.]* Whether he really didn’t know, or whether he knows pretty well and is *free from* he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[Some laughter.]* That’s up to you. But anyway, from this story, Emperor Wu was not the common people, he was a great Zen Buddhist.
 
 #### 30:32
 
 Finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
-In [Shobogenzo “Four Horses” (Japanese: Shime)](topics#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra, 
+In [Shobogenzo “Four Horses” (Japanese: Shime)](topics#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
 
-> The [Buddha](glossary#buddha) said to the assembled monks: 
->
-> There are four kinds of horses. 
+> The Buddha said to the assembled monks, “There are four kinds of horses. The first kind immediately follows its rider's will when, in surprise and fear, it sees the shadow of a whip. The second does likewise when the whip strikes its hair. The third, however, does not obey its master until after the whip has struck its flesh. The fourth, finally, does not do so until the whip has reached its very bones.”
 > 
-> The first kind immediately follows the rider’s will, when in surprise and fear, it sees the shadow of the whip. 
-> 
-> The second does likewise when the whip flies in the air. 
-> 
-> The third, however, doesn’t obey his master until after the whip has struck his flesh.
-> 
-> The fourth, finally, doesn’t do so until the whip has reached his very bones. 
-> 
-> (Source unknown)
+> (From *Zen Master Dogen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria)
 
 Four kinds of horses. *[He chuckles.]* I don’t know which of the horses *you* belong to, but anyway, most people are just like this.
 
-#### 33:05
-
 From this, maybe you understand that the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
 
-In Buddhism, if the whip touches a hair, strictly speaking you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without touching the bones, without the muscles and skin, how can you know the whip touches the hair?
+In Buddhism, if the whip touches the hair, strictly speaking you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without the bones, without the muscles and skin, how can you know the whip touches the hair? So to touch the hair means completely to touch the whole body. 
 
-So to touch a hair means completely to touch the whole body. In other words, broadly speaking, in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly the truth; but you don’t know, you don’t believe this. 
+In other words, broadly speaking: in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly the truth; but you don’t know, you don’t believe this. That’s why Buddha and Dogen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. The four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
 
-That’s why [Buddha](glossary#buddha) and Dogen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. 
+For instance, playing piano. I always tell you, you cannot play the piano with just two hands: you have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; [all the organs], heart, and feelings. And then you can really play. 
 
-So, the four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
+So what do you mean, touch the piano? Touching the piano is not touching the keys [...] To touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the [five skandhas]. So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
 
-#### 36:08
-
-For instance, playing piano, I tell you always, you cannot play the piano with just two hands. You have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; all the organs, heart and feelings. And then you can really play. 
-
-So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the [tuner]. To touch the piano is to touch all sentient beings! And then at that time, this is called to touch the keys. That is the [five skandhas]. So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
-
-So, when you do [zazen](glossary#zazen), that’s why zazen is [not just] for deepening your own life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
+So, when you do zazen, that’s why zazen is [not just] for deepening your own life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
 
 #### 38:10
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. 
 
-Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because [Buddha](glossary#buddha) says, even a cat and dog are Buddha. If dogs and cats are Buddha, the cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic] consciousness, but whatever you say, it doesn’t hit the mark. *(Transcriber’s Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means.)*
+Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, the cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic] consciousness, but whatever you say, it doesn’t hit the mark. *(Transcriber’s Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means.)*
 
 Anyway, you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. 
 
@@ -230,19 +183,19 @@ So you have to really understand human life for long range. At that time whateve
 
 From this point, *[unintelligible]* the whip. You need a whip. Shall I touch just a hair? Shall I touch the skin, shall I touch the bone and the muscles? That’s alright; this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
 
-If you really understand this karmic life, karmic life turns into [Buddha's](glossary#buddha) life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. 
+If you really understand this karmic life, karmic life turns into Buddha's life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. 
 
 That is the meaning of a whip. Or of practice, [constant] effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
 #### 43:30
 
-There is a story (in [“Four Horses”](topics#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the [Buddha](glossary#buddha), ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
+There is a story (in [“Four Horses”](topics#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
 The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
 
 *[Tape change.]*
 
-... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really a seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, but as a whole. And if you do continue to take care of your life just like [zazen](glossary#zazen), you really teach to somebody, even though you don’t say anything. 
+... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really a seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, but as a whole. And if you do continue to take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
 
 So, this Brahman really wanted to know what life’s seamless monument is. 
 
@@ -262,15 +215,15 @@ Because silence *is* human life, the truth of human life: if you believe in that
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
-If I sit down and really do [zazen](glossary#zazen), then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing anything? No, it doesn’t mean that. Because we have already [time and place], so-called karmic “monkey mind”. So you have to take care of accepting this, and then *positively* we have to take care of it. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is the big world absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
+If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing anything? No, it doesn’t mean that. Because we have already [time and place], so-called karmic “monkey mind”. So you have to take care of accepting this, and then *positively* we have to take care of it. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is the big world absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
 
 That is, Dogen Zenji says, the total manifestation of the whole world. Huge.
 
 #### 50:31
 
-That is teaching coming from your back. This is teaching coming from a powerless power, that you can get from your practice. Behind the effort, there is great power. Effort is not something you can create; there is power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond the name of concentration, name of practicer, name of [emptiness](glossary#śūnyatā) – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
+That is teaching coming from your back. This is teaching coming from a powerless power, that you can get from your practice. Behind the effort, there is great power. Effort is not something you can create; there is power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond the name of concentration, name of practicer, name of emptiness – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
 
-So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called [zazen](glossary#zazen). You have to really work. 
+So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called zazen. You have to really work. 
 
 #### 51:55
 
@@ -282,7 +235,7 @@ That’s why it is important to see the hair; it’s very important. The human h
 
 But right in the middle of silence you have to say something, because this is a human life. 
 
-For instance, right in the middle of suffering or pain in [zazen](glossary#zazen) – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means that you have to die with the pain? No; you have to be alive! 
+For instance, right in the middle of suffering or pain in zazen – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means that you have to die with the pain? No; you have to be alive! 
 
 So silence in pain is really aliveness, dynamically, in pain.
 
@@ -336,7 +289,7 @@ That gold is not something a person refined; it is just like a rough-hewn staff,
 
 This is the meaning of eternal time.
 
-When you do [zazen](glossary#zazen), there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
+When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
 
 According to the time process, we don’t understand [it that way]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life – because that moment is really the wonderful community ferryboat, a great gift. You don’t believe in that way, but it is the most important attitude we should take forward.
 
