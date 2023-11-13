@@ -73,7 +73,7 @@ In your life, what we can perceive is filled with pros and cons, successes and f
 
 But this is [taking up] those names. You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them out. What’s left? 
 
-What’s left is really important, because this is the quality of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a name of death which you put on it; you have to know the real quality of death. What is the quality of death?
+What’s left is really important, because this is the *quality* of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a name of death which you put on it; you have to know the real quality of death. What is the quality of death?
 
 [In] zazen [...] sitting right now, right here means you cannot bring any name, any concept into what you do: so-called “zazen,” or “breath,” or “concentration.” Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take off all things, what’s left?
 
@@ -89,11 +89,11 @@ So strictly speaking, why don’t you take off the clothes of success and failur
 
 Nothing, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [...] *seamless* life. Seamless life, seamless death. And then at that time, we can really [weave] so-called human culture.
 
-I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to “light the candle” of culture. 
+I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to *light the candle* of culture. 
 
 How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let] people ... understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
-That’s why I told you before, the quality of [your] life must be taught by your back. *Back* means not back opposed to front. Do you remember? My teacher said a Zen teacher teaches Buddhist teachings with his back. *Back* means seamless, formless teaching, constantly.
+That’s why I told you before, the quality of [your] life must be taught by your back. *Back* means not back opposed to front. My teacher said a Zen teacher teaches Buddhist teachings with his back. *Back* means seamless, formless teaching, constantly.
 
 So whoever you are, if you really live your life just like this, people can accept something about how important human life is from you. Not from the right side, left side, or back side, but from the seamless form of your existence, which you have taken care of.
 
@@ -121,9 +121,9 @@ This is a very nice person. Because the National Teacher wants to build a seamle
 > 
 > The Emperor said, “I don’t understand.”
 
-This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) said this also, when he was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.”
+This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) said this also, when he was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one: at that time there is nothing to dichotomize, or contaminate. 
 
-This is also “I don’t know.” But he knows pretty well; he knows very clearly who he is. Becoming one: at that time there is nothing to dichotomize, or contaminate. For instance, when you really do something with wholeheartedness – cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
+For instance, when you really do something with wholeheartedness – cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
 
 Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t know what time it is, you don’t want anything except to play Go. So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. 
 
