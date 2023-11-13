@@ -279,7 +279,7 @@ If you believe the seamless monument of human life and death, and human culture,
 
 That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it: there is no one who knows. *There is no one who knows* means spiritual security which lets go of *you* yourself as freedom. 
 
-If you have *somebody* who knows, you are stuck in this guy or [his name]. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
+If you have *somebody* who knows, you are stuck in this guy or [this name]. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
 
 So if you know, you have to be free from the person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is *[unintelligible]*.
 
@@ -287,7 +287,7 @@ That’s why Hsueh Tou says, “Within the crystal palace, there is no one who k
 
 #### 1:07:33
 
-In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
+In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
 The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad, because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
 
