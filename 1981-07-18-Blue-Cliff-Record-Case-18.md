@@ -14,7 +14,7 @@ title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
 <a name="000"></a>
 #### 0:00 start of recording
 
-(*Transcriber’s Note*: The entire recording of this talk is nearly inaudible. Transcription errors are likely.)
+(*Transcriber’s Note*: The recording of this talk is nearly inaudible. Transcription errors are likely.)
 
 Case 18 of *Blue Cliff Record*:
 
@@ -161,33 +161,27 @@ In other words, broadly speaking: in Buddhism, when you do gassho, this gassho t
 
 For instance, playing piano. I always tell you, you cannot play the piano with just two hands: you have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; [all the organs], heart, and feelings. And then you can really play. 
 
-So what do you mean, touch the piano? Touching the piano is not touching the keys [...] To touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the [five skandhas]. So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for you life, with gratitude. That is great. 
+So what do you mean, touch the piano? Touching the piano is not touching the keys [...] To touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the Buddhistic understanding. So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really entirely take responsibility for you life, with gratitude. That is *great*. 
 
-So, when you do zazen, that’s why zazen is [not just] for deepening your own life. That’s why Dogen says to do zazen for all sentient beings. That is great compassion; because to touch you is to touch all sentient beings.
+So [...] that’s why zazen is [not just] for deepening your [own] life, that’s why Dogen’s faith is to do zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings.
 
 #### 38:10
 
-If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. 
+If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. [...] 
 
-Of course, you need a whip. Remember this. We need a whip because, when the [cat](glossary#cat) was born, still as a cat... Because Buddha says, even a cat and dog are Buddha. If dogs and cats are Buddha, the cat was one with his skin, his muscles, and other cats. The Zen master says that is [karmic] consciousness, but whatever you say, it doesn’t hit the mark. *(Transcriber’s Note: This paragraph is particularly hard to make out. At the moment, I don’t know what it means.)*
+Of course, you need a whip. Remember this. We need a whip because [...] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is [karmic] consciousness. But whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stinkiness, *[he laughs,]* how stinky you are.  Because this is karmic life.
 
-Anyway, you have to understand [yourself] as a human being  – but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. 
+Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese because of my parents and my grandparents; but I don’t know *why* I am Japanese. Why were you born as American? You don’t know either. You can explain that you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t know, exactly.
 
-If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stupidness, *[He laughs.]* how stupid you are.  Because this is karmic life.
+So you have to really understand human life for the long range. At that time, whatever makes you how stinky you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take good care of that aspect of human life. 
 
-#### 40:20
+From this point, you need a whip. You need a whip. Shall I touch just a hair? Shall I touch the skin? Shall I touch the bone and the muscles? That’s alright; this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
 
-Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese, because I know my parents and my grandparents; but I don’t know why I am Japanese. Why were you born as American? You don’t know either. You can explain that you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t know, exactly.
-
-So you have to really understand human life for long range. At that time whatever makes you think how [stinky] you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take care of that aspect of human life. 
-
-From this point, *[unintelligible]* the whip. You need a whip. Shall I touch just a hair? Shall I touch the skin, shall I touch the bone and the muscles? That’s alright; this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
-
-If you really understand this karmic life, karmic life turns into Buddha's life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. 
-
-That is the meaning of a whip. Or of practice, [constant] effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
+If you really understand this karmic life, karmic life turns into Buddha's life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip; or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
 #### 43:30
+
+That is really silence. 
 
 There is a story (in [“Four Horses”](topics#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
@@ -195,13 +189,13 @@ The outsider – in other words, this means a Brahman – asked the Buddha, “I
 
 *[Tape change.]*
 
-... seamless monument, if you don’t really attach, if you don’t really dichotomize, that is really a seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, but as a whole. And if you do continue to take care of your life just like zazen, you really teach to somebody, even though you don’t say anything. 
+... If you don’t really attach, if you don’t really dichotomize, that is really a seamless monument for you, right now. That is really teaching from your back. That is teaching coming from life as a whole – not front, not back, not life or death, but as a whole. And if you do continue to take care of your life just like this, just like zazen, you really teach to somebody, even though you don’t say anything. 
 
 So, this Brahman really wanted to know what life’s seamless monument is. 
 
 The World-honored One remained silent. Just, sit down.
 
-The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, “just sit down”; he really attained something, he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry.” 
+The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, just sit down; he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry.” 
 
 So after the outsider had left, Ānanda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
 
@@ -209,79 +203,55 @@ The World-honored One said, “In worldly terms, he’s like a good horse. He go
 
 #### 47:05
 
-People often go to the silence for their understanding. What is there to grasp? In Buddhism, silence is important – but silence itself is not important, to keep silent. If I write the words: “Teaching comes from silence” – many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence. And then we believe that silence is really the truth of human existence. But I don’t think so. 
-
-Because silence *is* human life, the truth of human life: if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence constantly. 
+People often go to the silence for their understanding. What is there to grasp? In Buddhism, silence is important – but silence itself is not important, to keep silent. If I [write] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence. And then we believe that silence is really the truth of human existence. But I don’t think so. Because, “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
-If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to face something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so, is zazen just to sit down without doing anything? No, it doesn’t mean that. Because we have already [time and place], so-called karmic “monkey mind”. So you have to take care of accepting this, and then *positively* we have to take care of it. That’s why we say ... take care of your breath. And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is the big world absolutely unfolded – beyond the name of concentration, name of zazen, name of practicer. 
+If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to think something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. If so – is zazen just to sit down without doing anything? No, it doesn’t mean that. Because we already have karmic life, so-called karmic “monkey mind.” So you have to accept this, and then *positively* we have to take care of it. That’s why we say, “Why don’t you take care of your breath.” And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is the *big world* absolutely unfolded – beyond the name of concentration, the name of zazen, the name of practicer. That is, Dogen Zenji says, the total manifestation of the whole world. Huge.
 
-That is, Dogen Zenji says, the total manifestation of the whole world. Huge.
+That is teaching coming from your back. This is teaching coming from a *powerless power* [that] you can get from your practice. Behind the effort, there is great power. Effort is not something [where] you can create power to teach or to understand behind this effort. *Behind the effort* means the world unfolded totally, beyond the name of concentration, the name of practicer, the name of stinkiness – whatever you say, it doesn’t hit the mark. Anyway, take off any clothes. And then what’s left? Nothing to say. 
 
-#### 50:31
+So keep silent. *Keep silent* is what? *Keep silent* is not *[unintelligible]*, it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. 
 
-That is teaching coming from your back. This is teaching coming from a powerless power, that you can get from your practice. Behind the effort, there is great power. Effort is not something you can create; there is power to teach or to understand behind this effort. Behind the effort means the world unfolded totally, beyond the name of concentration, name of practicer, name of emptiness – whatever you say, it doesn’t hit the mark. Anyway, take off any clouds. And then what’s left? Nothing to say. 
+Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the organs [and] function of your body? Of course; but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
 
-So keep silent. Keep silent is what? Keep silent is not stumbling toward, it’s really working, which is called zazen. You have to really work. 
+*[Unintelligible]* is maybe sort of a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
 
-#### 51:55
-
-So that is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is totally accepting your life, including the whole world. Just like touching a hair; if you touch a hair, that means touching the whole world. 
-
-It is really true, because from where does your hair come? Does your hair come from you? Or from the function of your body? Of course; but that’s still an answer, an explanation. But broadly speaking, your hair comes from where? *[unintelligible]* That’s great.
-
-That’s why it is important to see the hair; it’s very important. The human hair is maybe sort of like a person who gets a Ph.D. Is he great if you compare him with a first grade child? No, he is the same. Well, [it seems] maybe we have to give a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. 
-
-But right in the middle of silence you have to say something, because this is a human life. 
-
-For instance, right in the middle of suffering or pain in zazen – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, that means that you have to die with the pain? No; you have to be alive! 
-
-So silence in pain is really aliveness, dynamically, in pain.
+For instance, right in the middle of suffering or pain in zazen – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that means that you have to die with the pain? No; you have to be alive! So silence in pain is really aliveness, dynamically, in pain.
 
 #### 54:47
 
-The National Teacher kept silence and sat down for a while and said, “Do you understand?” The emperor said, “I don’t understand.” And then the National Teacher said, “I have a disciple to whom I have transmitted the Teaching.” 
-
-So finally the emperor said, “I don’t know.” But whatever kind of meaning of his answer, it doesn’t matter, because there is no way to approach to him. So he said, well, I have a disciple. So after my death, please ask my disciple what it means.
-
-#### 55:46
+The National Teacher kept silence and sat down for a while and said, “Do you understand?” The emperor said, “I don’t understand.” And then,
 
 > The National Teacher said, “I have a disciple to whom I have transmitted the Teaching, Tan Yuan, who is well versed in this matter. Please summon him and ask him about it.”
-> 
+
+So finally the emperor said, “I don’t know.” Whatever kind of meaning of his answer, it doesn’t matter, because there is no way to approach to him. So [the National Teacher] said, well, I have a disciple. So after my death, please ask my disciple what it means.
+ 
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 >
 > South of Hsiang, north of T’an;
 
-That means: wherever. 
-
-Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
+That means: wherever. Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
 
 So, Tan Yuan said, “South of Hsiang, north of T’an”, and:
 
 > – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
-Well, eternal life, eternal space and time is what? Can you make a sound? No. 
+Well, eternal life, eternal space and time, is what? Can you make a sound? No. No matter how long you shake a bottle completely filled with water, you cannot make a sound. Because there are not two; it’s completely one bottle, not a bottle and water. That is “[a single] hand.” One hand cannot make a sound at random. 
 
-No matter how long you shake a bottle filled completely with water, you cannot make a sound, because there are not two. It’s completely one bottle; not a bottle and water. That is one hand. One hand cannot make a sound at random. 
+So that is really [the] total picture of life and death which is called a seamless monument, [which] he really wanted to build up. To build up a seamless monument means not for him, [not] for all sentient beings, for the disciples who are still alive from now on to the future. *You* have to build a seamless monument – not for me, for *you*! 
 
-So that is really a total picture of life and death, which is called a seamless monument. Which he really wanted to build up.
-
-To build up a seamless monument means not for him, but for all sentient beings – for the disciples who are still alive, from now on, to the future. *You* have to build a seamless monument – not for me, for *you*! 
-
-That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment on.
+That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment [on].
 
 #### 58:54
 
 > In between there is gold sufficient to a nation.
 
-Does “silent, nothing to say” mean it is something in vain? No, it’s just like gold – completely filling the whole world. That is the quality, that is the material of the seamless monument. You have to build up a seamless monument with this gold, the quality of life. But we believe the *name* of life; that is not the quality of life. The quality of life is completely gold, filling the whole world.
-
-#### 1:00:02
+Does “silent, nothing to say” mean [it is] something in vain? No, it’s just like gold – completely filling the whole world. That is the material of the seamless monument, [the quality of the seamless monument]. You have to build up a seamless monument with this gold, [this] quality, life. But we believe the *name* of life; that is not the *quality* of life. The quality of life is completely gold, filling the whole world.
 
 > – Hsueh Tou added the comment, “A rough-hewn staff.”
 
-That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness, which no one [can touch]. Completely pure and clean; nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
+That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness. Which no one [can touch]; completely pure and clean, nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
 #### 1:01:10
 
@@ -289,19 +259,15 @@ That gold is not something a person refined; it is just like a rough-hewn staff,
 
 This is the meaning of eternal time.
 
-When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle; audience, composer, and past, present, future – this is touching the key of the piano. 
+When you do zazen, there is eternal space, which is called all sentient beings. Simultaneously you can touch your skin, muscle. The audience, composer, and past, present, future – this is touching the keys of the piano. 
 
-According to the time process, we don’t understand [it that way]. But even according to the time process, for instance ... according to dance, human life is analyzed exactly ... moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life – because that moment is really the wonderful community ferryboat, a great gift. You don’t believe in that way, but it is the most important attitude we should take forward.
+According to the time process, we don’t understand [it that way]. But even according to the time process, for instance [...] according to dance, human life is analyzed exactly [...] moment by moment. So in one moment, countless beings exist. That is the most important attitude we should take toward human life – because that moment is really the wonderful community ferryboat, a great [gift]. You don’t believe in that way, but it is the most important attitude we should take for [ourselves].
 
-That’s why, day by day, in the practice, the gassho, and doing zazen, the chanting, these things are very important. The gassho and zazen and chanting are all seamless monuments, they must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. 
-
-But don’t misunderstand. The religious culture of zazen is not only to sit zazen, but you have to light the candle of zazen. Do you understand “to light”? Light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
-
-#### 1:04:14
+That’s why, day by day in the practice, the gassho, and doing zazen, the chanting, these things are very important. The gassho and zazen and chanting are all seamless monuments, they must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. But don’t [misunderstand]. Religious culture [as] zazen is not only to accept zazen, but you have to *light the candle* of zazen. Do you understand *to light*? To light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
 
 > – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
 
-That is really spiritual security, so-called spiritual security. If you do this – anyway, on the basis of human existence there is always spiritual security, which is going on constantly, carried on and on, consciously or unconsciously. 
+That is so-called spiritual security. If you do this – anyway, on the basis of human existence there is always spiritual security, which is going on constantly, carried on and on, consciously or unconsciously. 
 
 But that is not always calm. It’s really alive. 
 
@@ -309,44 +275,33 @@ But that is not always calm. It’s really alive.
 
 > Within the crystal palace, there is no one who knows.
 
-If you believe the seamless monument of human life and death, and human culture, whatever you say – we believe that is something great, wonderful, which has lots of halos, light coming from your bodies and coming from your whole spirit. 
+If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that [it] is something great, wonderful, which has lots of halos, light coming from your body and from your whole spirit. I don’t think so. 
 
-I don’t think so. 
+That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it: there is no one who knows. *There is no one who knows* means spiritual security which lets go of *you* yourself as freedom. 
 
-That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security – we always expect that, in many ways. But if you really get into it: there is no one who knows. “There is no one who knows” means spiritual security which lets go of *you* yourself, as freedom. 
+If you have *somebody* who knows, you are stuck in this guy or [his name]. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
 
-If you have somebody who knows, you are stuck in this guy or his name. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows.
-
-“Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
-
-So if you know, you have to be free from the person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is really *[unintelligible]*.
+So if you know, you have to be free from the person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is *[unintelligible]*.
 
 That’s why Hsueh Tou says, “Within the crystal palace, there is no one who knows.”
 
 #### 1:07:33
 
-In Christian religion, always there is something we know. Wonderful spirit, halos, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; *[unintelligible]* That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
+In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*, *[unintelligible]*. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
-The other day someone came to see me and told me about her life, because she was predicted by one of the great Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe, because his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. 
+The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad, because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
 
-Those predictions she believed must be something unwholesome, bad, because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in fearful conditions, you really pay attention to it. Then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction. 
+Prediction is fine, because in a sense it is true, teaching you who you are. In astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe it. You should believe this, but you shouldn't be stuck in there. You should be free from the [...] prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically everyone is free. There is nothing to limit your life, nothing to bound your life, tied up with a certain idea. 
 
-Prediction is fine, because in a sense it is true, teaching you who you are. In astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe it. You should believe this, but, you shouldn't be stuck in there. You should be free from the prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically everyone is free. There is nothing to limit, nothing to bound your life, tied up with a certain idea. 
-
-So even though a prediction can teach you, tell you the truth of your life toward the future – fine. The truth is still the *name* of the truth. You have to know *behind* the truth. 
-
-Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take out the name of truth of your life, in the future, in the past – that’s fine. But you have to know the real quality. For this, you have to take off the clouds of naming truth. That is really our problem.
+So even though a prediction tells you the truth of your life toward the future – fine. The truth is still the *name* of the truth. You have to know *behind* the truth. Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take out the name of truth of your life, in the future, in the past – that’s fine. But you have to know the real quality. For this, you have to take off the clothes of the name of the truth. That is really our [practice].
 
 That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
-
-#### 1:12:02
 
 > – Hsueh Tou added the comment, “He has raised it up.”
 
 *Exactly*. Exactly, that is holding, understanding life. 
 
 #### 1:12:32 end of recording
-
 
 ---
 
