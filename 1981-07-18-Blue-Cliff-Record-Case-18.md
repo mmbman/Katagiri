@@ -34,24 +34,24 @@ Case 18 of *Blue Cliff Record*:
 
 (First, here is the poem without Hsueh Tou’s comments.)
 
-> South of Hsiang, north of T’an;  
-> In between there is gold sufficient to a nation.  
-> Beneath the shadowless tree, the community ferryboat;  
-> Within the crystal palace, there is no one who knows.  
+>> South of Hsiang, north of T’an;  
+>> In between there is gold sufficient to a nation.  
+>> Beneath the shadowless tree, the community ferryboat;  
+>> Within the crystal palace, there is no one who knows.  
 
 (Here is the poem with Hseuh Tou’s comments included, as Katagiri Roshi read it.)
 
-> South of Hsiang, north of T’an;  
->> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
->
-> In between there is gold sufficient to a nation.  
->> Hsueh Tou added the comment, “A rough-hewn staff.”  
->
-> Beneath the shadowless tree, the community ferryboat;  
->> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
->
-> Within the crystal palace, there is no one who knows.  
->> Hsueh Tou added the comment, “He has raised it up.”  
+>> South of Hsiang, north of T’an;  
+>> - [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
+>> 
+>> In between there is gold sufficient to a nation.  
+>> - Hsueh Tou added the comment, “A rough-hewn staff.”  
+>>
+>> Beneath the shadowless tree, the community ferryboat;  
+>> - Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+>>
+>> Within the crystal palace, there is no one who knows.  
+>> - Hsueh Tou added the comment, “He has raised it up.”  
 
 #### 3:05
 
@@ -75,9 +75,7 @@ But this is [taking up] those names. You call it life and death. Take off those 
 
 What’s left is really important, because this is the *quality* of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a name of death which you put on it; you have to know the real quality of death. What is the quality of death?
 
-[In] zazen [...] sitting right now, right here means you cannot bring any name, any concept into what you do: so-called “zazen,” or “breath,” or “concentration.” Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take off all things, what’s left?
-
-That is, Buddhism always says, [*emptiness*](glossary#emptiness). 
+[In] zazen, [...] sitting right now, right here means you cannot bring any name, any concept into what you do: so-called “zazen,” or “breath,” or “concentration.” Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take off all things, what’s left? That is, Buddhism always says, [*emptiness*](glossary#emptiness). 
 
 Emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really *dynamic working*. But no one can touch it, because it’s really *dynamic*.
 
@@ -93,7 +91,7 @@ I told you before, culture is not just received from somebody else. “Oh, this 
 
 How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let] people ... understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
-That’s why I told you before, the quality of [your] life must be taught by your back. *Back* means not back opposed to front. My teacher said a Zen teacher teaches Buddhist teachings with his back. *Back* means seamless, formless teaching, constantly.
+That’s why I told you before, the quality of [your] life must be taught by your back. *Back* [does not mean] back opposed to front. My teacher said a Zen teacher teaches Buddhist teachings with his back. *Back* means seamless, formless teaching, constantly.
 
 So whoever you are, if you really live your life just like this, people can accept something about how important human life is from you. Not from the right side, left side, or back side, but from the seamless form of your existence, which you have taken care of.
 
@@ -101,9 +99,9 @@ So whoever you are, if you really live your life just like this, people can acce
 
 For instance, when my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because of human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
 
-If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. Very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. So then finally you have self-doubt. Self-doubt means [you think], “[What am I?] I am stupid.” You’re not stupid, but finally big doubt comes up. 
+If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. Very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. So then finally you have self-doubt. Self-doubt means [you think], “[...] I am stupid.” You’re not stupid, but finally big doubt comes up. 
 
-Now I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life. Whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important part of human life is completely beyond this. From his life as a whole, you can really get something. 
+Now I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life; whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important part of human life is completely beyond this. From his life as a whole, you can really get something. 
 
 That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically. That is a very common human style. 
 
@@ -137,9 +135,9 @@ So that is the “I don’t know” that Bodhidharma said.
 
 Or, the other “I don’t know” means *completely* “I don’t know,” because you have *no* idea. People ask you what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
 
-If you say “I don’t know,” you cannot get any spirit to tell you or to teach, don’t you think so? But if you really know what zazen is, even though you can’t say – even though you say “I don’t know,” *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
+If you say “I don’t know,” you cannot get any spirit to tell [people] or to teach, don’t you think so? But if you really know what zazen is, even though you can’t say – even though you say “I don’t know” – *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
 
-The “I don’t know” of Emperor Wu – I don’t know which of the two it was. *[He laughs.]* Whether he really didn’t know, or whether he knows pretty well and is *free from* he knows, and then he says he doesn’t know – I don’t know. No one knows. Okay? *[Some laughter.]* That’s up to you. But anyway, from this story, Emperor Wu was not the common people, he was a great Zen Buddhist.
+The “I don’t know” of Emperor Wu – I don’t know which of the two it was. *[He laughs.]* Whether he really didn’t know, or whether he knows pretty well and is *free from* he knows, and then he says he doesn’t know... I don’t know. No one knows, okay? *[Some laughter.]* That’s up to you. But anyway, from this story, Emperor Wu was not [a] common [person], he was a great Zen Buddhist.
 
 #### 30:32
 
