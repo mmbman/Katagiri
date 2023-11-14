@@ -63,7 +63,7 @@ This is a common question to a person who is about to die: “What do you want a
 
 A *seamless monument* is a very common term in Buddhism. 
 
-If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by a small pond, where people let go of fish and turtles, whatever. That is freedom for that [time and place], for the fish and turtles to be free from their dangerous situation. So by this pond you have a big lantern. You know the lanterns in temples? Not like this [here]... you can see pictures of them. (Transcriber’s Note:  possibly see [*tōrō*, stone lantern](glossary#tōrō).) And then these are called seamless lanterns. The pond is called [*hoshō*], which means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught; just let go of it. So [it is] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we say formless: no eyes, no ears, [et cetera]. A seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. 
+If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by a small pond, where people let go of fish and turtles, whatever. That is freedom for that [time and place], for the fish and turtles to be free from their dangerous situation. So by this pond you have a big lantern. You know the lanterns in temples? Not like this [here]. You can see pictures of them. (*Transcriber’s Note*:  probably [*tōrō*: stone lanterns](glossary#tōrō).) And then these are called seamless lanterns. The pond is called [*hoshō*], which means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught; just let go of it. So [it is] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we say formless: no eyes, no ears, [et cetera]. A seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. 
 
 [When your] picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
@@ -81,13 +81,13 @@ Emptiness is not a nihilistic quality of existence. The quality of existence, so
 
 #### 12:19
 
-From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
+From this point, when you experience success, you feel good – but you cannot [stay in] success for long, because you cannot succeed in anything without human effort. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
 
 So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean that. 
 
-Nothing, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [...] *seamless* life. Seamless life, seamless death. And then at that time, we can really [weave] so-called human culture.
+*Nothing*, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [...] *seamless* life. Seamless life, seamless death. And then at that time, we can really [weave] so-called human culture.
 
-I told you before, culture is not just received from somebody else. “Oh, this is a beautiful culture”; I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to *light the candle* of culture. 
+I told you before, culture is not just received from somebody else: “Oh, this is a beautiful culture.” I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to *light the candle* of culture. 
 
 How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let] people ... understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
@@ -97,7 +97,7 @@ So whoever you are, if you really live your life just like this, people can acce
 
 #### 17:17
 
-For instance, when my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up”: “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because of human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
+For instance, when my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because of human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
 
 If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. Very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. So then finally you have self-doubt. Self-doubt means [you think], “[...] I am stupid.” You’re not stupid, but finally big doubt comes up. 
 
@@ -119,17 +119,17 @@ This is a very nice person. Because the National Teacher wants to build a seamle
 > 
 > The Emperor said, “I don’t understand.”
 
-This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) said this also, when he was asked by Emperor Wu, “Who are you, in front of me?” He said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one: at that time there is nothing to dichotomize, or contaminate. 
+This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) also said this: when he was asked by Emperor Wu, “Who are you, in front of me,” he said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one, at that time there is nothing to dichotomize, or contaminate. 
 
 For instance, when you really do something with wholeheartedness – cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
 
-Japanese people like very much playing Go. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t know what time it is, you don’t want anything except to play Go. So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. 
+Japanese people like very much playing *Go*. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t know what time it is, you don’t want anything except to play Go. So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. 
 
 When you’re riding an airplane, when you become one with the speed of the plane, you don’t know how fast the airplane goes; all you have to do is just be there. And then if you are asked by people how fast the plane is going, you don’t know. But it’s really fast. This is also one meaning of “I don’t know.” You know pretty well, but if you are free from “you know,” you don’t know.
 
-So this is all one meaning [of “I don’t know”]. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say, “I am an enlightened person,” still you create lots of space between you and [enlightenment](glossary#enlightenment). If you’re a really great enlightened person, then there’s only one, there is no space to look at it objectively. So you don’t know. 
+So this is all one meaning [of “I don’t know”]. If you know pretty well who you are, you cannot say anything, don’t you think so? While you say, “I am an enlightened person,” still you create lots of space between you and enlightenment. If you’re a really great enlightened person, then there’s only one; there is no space to look at it objectively. So you don’t know. 
 
-It’s just like shaking a bottle filled with water. [If] it’s completely one, at that time, you cannot make noise. But if you take a bottle with [just] a little water and shake it, you know, you really make noise. That is [like] you know pretty well how great [you are]. But if you shake the bottle completely filled with water, you don’t know how much it is. No sound: that is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of dignity or majesty, and imperturbability; just this. But, nothing to say. 
+It’s just like shaking a bottle filled with water. [If] it’s completely one, at that time, you cannot make noise. But if you take a bottle with [just] a little water and shake it, you know, you really make noise. That is [like] you know pretty well how great [you are]. But if you shake the bottle completely filled with water, you don’t know how much it is. No sound: that is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of dignity or majesty, and imperturbability: just this. But, nothing to say. 
 
 So that is the “I don’t know” that Bodhidharma said.
 
@@ -159,17 +159,17 @@ In other words, broadly speaking: in Buddhism, when you do gassho, this gassho t
 
 For instance, playing piano. I always tell you, you cannot play the piano with just two hands: you have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; [all the organs], heart, and feelings. And then you can really play. 
 
-So what do you mean, touch the piano? Touching the piano is not touching the keys [...] To touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the Buddhistic understanding. So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really entirely take responsibility for you life, with gratitude. That is *great*. 
+So what do you mean, touch the piano? Touching the piano is not touching the keys [...] To touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the Buddhistic understanding. 
 
-So [...] that’s why zazen is [not just] for deepening your [own] life, that’s why Dogen’s faith is to do zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings.
+So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really entirely take responsibility for you life, with gratitude. That is *great*. So [...] that’s why zazen is [not just] for deepening your [own] life, that’s why Dogen’s faith is to do zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings.
 
 #### 38:10
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. [...] 
 
-Of course, you need a whip. Remember this. We need a whip because [...] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is [karmic] consciousness. But whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stinkiness, *[he laughs,]* how stinky you are.  Because this is karmic life.
+Of course, you need a whip. Remember this. We need a whip because [...] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is [karmic] consciousness. But whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. 
 
-Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese because of my parents and my grandparents; but I don’t know *why* I am Japanese. Why were you born as American? You don’t know either. You can explain that you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t know, exactly.
+If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stinkiness, *[he laughs,]* how stinky you are.  Because this is karmic life. Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese because of my parents and my grandparents; but I don’t know *why* I am Japanese. Why were you born as American? You don’t know either. You can explain that you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t know, exactly.
 
 So you have to really understand human life for the long range. At that time, whatever makes you how stinky you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take good care of that aspect of human life. 
 
@@ -191,9 +191,9 @@ The outsider – in other words, this means a Brahman – asked the Buddha, “I
 
 So, this Brahman really wanted to know what life’s seamless monument is. 
 
-The World-honored One remained silent. Just, sit down.
+The World-honored One remained silent. Just, *sit down*.
 
-The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, just sit down; he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry.” 
+The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, just sit down; he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
 
 So after the outsider had left, Ānanda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
 
@@ -215,7 +215,7 @@ Just like touching a hair: if you touch your hair, that means touching the whole
 
 *[Unintelligible]* is maybe sort of a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
 
-For instance, right in the middle of suffering or pain in zazen – can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that means that you have to die with the pain? No; you have to be alive! So silence in pain is really aliveness, dynamically, in pain.
+For instance, right in the middle of suffering or pain in zazen, can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that mean that you have to die with the pain? No; you have to be alive! So silence in pain is really aliveness, dynamically, in pain.
 
 #### 54:47
 
@@ -227,33 +227,33 @@ So finally the emperor said, “I don’t know.” Whatever kind of meaning of h
  
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 >
-> South of Hsiang, north of T’an;
+>> South of Hsiang, north of T’an;
 
 That means: wherever. Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
 
-So, Tan Yuan said, “South of Hsiang, north of T’an”, and:
+So, Tan Yuan said, “South of Hsiang, north of T’an”, and,
 
-> – [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
+>> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
 Well, eternal life, eternal space and time, is what? Can you make a sound? No. No matter how long you shake a bottle completely filled with water, you cannot make a sound. Because there are not two; it’s completely one bottle, not a bottle and water. That is “[a single] hand.” One hand cannot make a sound at random. 
 
-So that is really [the] total picture of life and death which is called a seamless monument, [which] he really wanted to build up. To build up a seamless monument means not for him, [not] for all sentient beings, for the disciples who are still alive from now on to the future. *You* have to build a seamless monument – not for me, for *you*! 
+So that is really [the] total picture of life and death which is called a seamless monument, [which] he really wanted to build up. To build up a seamless monument means not for him, [not] for all sentient beings, [not] for the disciples who are still alive from now on to the future. *You* have to build a seamless monument – not for me, for *you*! 
 
 That’s why Hsueh Tou added the comment, “A single hand does not make random sound.” It’s very simple and clear, and nothing to comment [on].
 
 #### 58:54
 
-> In between there is gold sufficient to a nation.
+>> In between there is gold sufficient to a nation.
 
 Does “silent, nothing to say” mean [it is] something in vain? No, it’s just like gold – completely filling the whole world. That is the material of the seamless monument, [the quality of the seamless monument]. You have to build up a seamless monument with this gold, [this] quality, life. But we believe the *name* of life; that is not the *quality* of life. The quality of life is completely gold, filling the whole world.
 
-> – Hsueh Tou added the comment, “A rough-hewn staff.”
+>> Hsueh Tou added the comment, “A rough-hewn staff.”
 
 That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness. Which no one [can touch]; completely pure and clean, nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
 #### 1:01:10
 
-> Beneath the shadowless tree, the community ferryboat;
+>> Beneath the shadowless tree, the community ferryboat;
 
 This is the meaning of eternal time.
 
@@ -263,7 +263,7 @@ According to the time process, we don’t understand [it that way]. But even acc
 
 That’s why, day by day in the practice, the gassho, and doing zazen, the chanting, these things are very important. The gassho and zazen and chanting are all seamless monuments, they must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. But don’t [misunderstand]. Religious culture [as] zazen is not only to accept zazen, but you have to *light the candle* of zazen. Do you understand *to light*? To light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
 
-> – Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
+>> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
 
 That is so-called spiritual security. If you do this – anyway, on the basis of human existence there is always spiritual security, which is going on constantly, carried on and on, consciously or unconsciously. 
 
@@ -271,13 +271,13 @@ But that is not always calm. It’s really alive.
 
 #### 1:04:58
 
-> Within the crystal palace, there is no one who knows.
+>> Within the crystal palace, there is no one who knows.
 
 If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that [it] is something great, wonderful, which has lots of halos, light coming from your body and from your whole spirit. I don’t think so. 
 
-That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it: there is no one who knows. *There is no one who knows* means spiritual security which lets go of *you* yourself as freedom. 
+That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security – we always expect [that], in many ways. But if you really get into it: there is no one who knows. *There is no one who knows* means spiritual security which lets go of *you* yourself, as freedom. 
 
-If you have *somebody* who knows, you are stuck in this guy or [this name]. “I know Katagiri” – at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
+If you have *somebody* who knows, you are stuck in this guy or [this name]. “I know Katagiri”: at that time, I’m really stuck in this guy. So who knows? No one knows. “Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace – which I am, which you are. That is everybody. 
 
 So if you know, you have to be free from the person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is *[unintelligible]*.
 
@@ -287,15 +287,15 @@ That’s why Hsueh Tou says, “Within the crystal palace, there is no one who k
 
 In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
-The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad, because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy. We are really infatuated with happiness; that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
+The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad. Because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy; we are really infatuated with happiness, that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
 
-Prediction is fine, because in a sense it is true, teaching you who you are. In astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe it. You should believe this, but you shouldn't be stuck in there. You should be free from the [...] prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future anyway, because basically everyone is free. There is nothing to limit your life, nothing to bound your life, tied up with a certain idea. 
+Prediction is fine, because in a sense it is true, teaching you who you are. In astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe it. You should believe this, but you shouldn't be stuck in there. You should be free from the [...] prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future, because basically everyone is free. There is nothing to limit your life, nothing to bound your life, tied up with a certain idea. 
 
 So even though a prediction tells you the truth of your life toward the future – fine. The truth is still the *name* of the truth. You have to know *behind* the truth. Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take out the name of truth of your life, in the future, in the past – that’s fine. But you have to know the real quality. For this, you have to take off the clothes of the name of the truth. That is really our [practice].
 
 That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
 
-> – Hsueh Tou added the comment, “He has raised it up.”
+>> Hsueh Tou added the comment, “He has raised it up.”
 
 *Exactly*. Exactly, that is holding, understanding life. 
 
