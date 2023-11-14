@@ -42,36 +42,34 @@ Case 18 of *Blue Cliff Record*:
 (Here is the poem with Hseuh Tou’s comments included, as Katagiri Roshi read it.)
 
 >> South of Hsiang, north of T’an;  
->> - [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
+>> [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”  
 >> 
 >> In between there is gold sufficient to a nation.  
->> - Hsueh Tou added the comment, “A rough-hewn staff.”  
+>> Hsueh Tou added the comment, “A rough-hewn staff.”  
 >>
 >> Beneath the shadowless tree, the community ferryboat;  
->> - Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+>> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
 >>
 >> Within the crystal palace, there is no one who knows.  
->> - Hsueh Tou added the comment, “He has raised it up.”  
+>> Hsueh Tou added the comment, “He has raised it up.”  
 
 #### 3:05
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by [Chinese] emperors in the different [ages], his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in different [ages], his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
 
 > The National Teacher said, “Build a seamless monument for me.”
 
 A *seamless monument* is a very common term in Buddhism. 
 
-If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by a small pond, where people let go of fish and turtles, whatever. That is freedom for that [time and place], for the fish and turtles to be free from their dangerous situation. So by this pond you have a big lantern. You know the lanterns in temples? Not like this [here]. You can see pictures of them. (*Transcriber’s Note*:  probably [*tōrō*: stone lanterns](glossary#tōrō).) And then these are called seamless lanterns. The pond is called [*hoshō*], which means “let the beings be alive” – just let go of these beings. So for this, you cannot have any exception for the fish and turtles you have caught; just let go of it. So [it is] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we say formless: no eyes, no ears, [et cetera]. A seamless lantern or seamless monument is not a particular monument or lantern, but this is exactly a picture of life and death. 
+If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates, there is a huge lantern by a small pond, where people let go of fish and turtles, whatever. So that is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. So by this pond you have a big lantern. You know the lanterns in the temple? Not like this [metal] type of lantern; you can see them in pictures. (*Transcriber’s Note*: Probably a stone lantern, [*tōrō*](glossary#tōrō).) [In Zen], these lanterns are called *seamless lanterns*. The pond is called [*hoshō*], which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of it. [...] In [*Prajnaparamita*](glossary#Prajnaparamita), we say *formless*: no eyes, no ears, [et cetera]. 
 
-[When your] picture of life [is] just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
+So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. [When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
 #### 8:25
 
-In your life, what we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
-
-But this is [taking up] those names. You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them out. What’s left? 
+Because life which we can perceive is filled with pros and cons, successes and failures, praise and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. But this is [taking up] those names. You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them out. What’s left? 
 
 What’s left is really important, because this is the *quality* of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a name of death which you put on it; you have to know the real quality of death. What is the quality of death?
 
