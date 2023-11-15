@@ -52,6 +52,8 @@ Case 18 of *Blue Cliff Record*:
 >>
 >> Within the crystal palace, there is no one who knows.  
 >> Hsueh Tou added the comment, “He has raised it up.”  
+>
+> ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
 #### 3:05
 
@@ -75,25 +77,25 @@ But this is [taking out] those names. Life and death; you call it life and death
 
 That is, Buddhism always says, [*emptiness*](glossary#emptiness). But emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really *dynamic working*. [But] no one can touch it, because it’s really *dynamic*.
 
-From this point, when you experience success, you feel good – but you cannot [stay in] success for long. Because you cannot succeed in anything without human effort. So regardless of whether you succeed or not, failure or success, you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
+From this point, when you experience success, you feel good – but you cannot [see] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not – failure or success – you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
 
-So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean that. *Nothing*, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [...] *seamless* life. Seamless life, seamless death. And then at that time, we can really [receive] so-called human culture.
+So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean that. *Nothing*, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [the secret of] *seamless* life. Seamless life, seamless death. And then at that time, we can really [leave] so-called human culture.
 
-I told you before, culture is not just received from somebody else: “Oh, this is a beautiful culture.” I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive. You have to *light the candle* of culture. 
+I told you before, culture is not something received from somebody else: “Oh, this is a beautiful culture.” I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive: you have to *light the candle* [of] so-called culture. 
 
-How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life – is what? Something that you have to [let] people ... understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
+How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life is – what? Something that you have to [let] people understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
-That’s why I told you before, the quality of [your] life must be taught by your back. *Back* [does not mean] back opposed to front. My teacher said a Zen teacher teaches Buddhist teachings with his back. *Back* means seamless, formless teaching, constantly.
+That’s why I told you before, the quality of [your] life must be taught by your back. *Back* [does not mean] back opposed to front. My teacher said a Zen teacher teaches Buddha’s teachings with his back. *Back* means seamless, formless teaching, constantly.
 
 So whoever you are, if you really live your life just like this, people can accept something about how important human life is from you. Not from the right side, left side, or back side, but from the seamless form of your existence, which you have taken care of.
 
 #### 17:17
 
-For instance, when my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because of human speculation: always looking at the front, trying to understand logically and theoretically. If you don’t understand [something logically], it’s very hard for us to accept.
+For instance, while my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because human speculation [is] always looking at the front, trying to understand logically and theoretically, you know? If you don’t understand [something logically], it’s very hard for us to accept.
 
 If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. Very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. So then finally you have self-doubt. Self-doubt means [you think], “[...] I am stupid.” You’re not stupid, but finally big doubt comes up. 
 
-Now I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life in failure or his life in success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life; whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important part of human life is completely beyond this. From his life as a whole, you can really get something. 
+Now I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life is failure or his life is success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life; whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important [part] of human life is completely beyond this. From his life as a whole, you can really get something. 
 
 That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically. That is a very common human style. 
 
@@ -105,7 +107,7 @@ And then,
 
 > The Emperor said, “Please tell me, Master, what the monument would look like.”
 
-This is a very nice person. Because the National Teacher wants to build a seamless monument, the Emperor asks, “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
+This is a very nice person. Because the National Teacher wants to build a seamless monument, [the Emperor asks,] “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
 
 > The National Teacher was silent for a long time; then he asked, “Do you understand?”
 > 
@@ -127,15 +129,15 @@ So that is the “I don’t know” that Bodhidharma said.
 
 Or, the other “I don’t know” means *completely* “I don’t know,” because you have *no* idea. People ask you what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
 
-If you say “I don’t know,” you cannot get any spirit to tell [people] or to teach, don’t you think so? But if you really know what zazen is, even though you can’t say – even though you say “I don’t know” – *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
+If you say “I don’t know,” you cannot get any spirit to teach [people] or to tell [them], don’t you think so? But if you really know what zazen is, even though you can’t say – even though you say “I don’t know” – *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
 
-The “I don’t know” of Emperor Wu – I don’t know which of the two it was. *[He laughs.]* Whether he really didn’t know, or whether he knows pretty well and is *free from* he knows, and then he says he doesn’t know... I don’t know. No one knows, okay? *[Some laughter.]* That’s up to you. But anyway, from this story, Emperor Wu was not [a] common [person], he was a great Zen Buddhist.
+The “I don’t know” of Emperor Wu – I don’t know which of the two it was. The Emperor said “I don’t know” [or] “I don’t know” – I don’t know which. *[He laughs.]* [Whether] he really didn’t know, or he knows pretty well and is *free from* he knows, and *then* he says he doesn’t know... I don’t know. No one knows, okay? *[Some laughter.]* That’s up to you. But anyway, from this story, Emperor Wu was not [a] common [person], he was a great Zen Buddhist.
 
 #### 30:32
 
-Finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
+So finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
-In [Shobogenzo “Four Horses” (Japanese: Shime)](topics#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
+In [Shobogenzo “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
 
 > The Buddha said to the assembled monks, “There are four kinds of horses. The first kind immediately follows its rider's will when, in surprise and fear, it sees the shadow of a whip. The second does likewise when the whip strikes its hair. The third, however, does not obey its master until after the whip has struck its flesh. The fourth, finally, does not do so until the whip has reached its very bones.”
 > 
