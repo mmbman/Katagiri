@@ -9,7 +9,7 @@ title: "Diamond Sutra: Final Lecture"
 
 ### Summary
 
-Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck there. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
+Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
 
 ### Transcript
 
