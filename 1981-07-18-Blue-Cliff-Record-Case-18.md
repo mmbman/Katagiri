@@ -59,21 +59,23 @@ Case 18 of *Blue Cliff Record*:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in [two] different [ages], his disciples and many people expected something specific [for him], regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in [two] different [ages], his disciples and many people expected something specific [for him] (or possibly from him), regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A *seamless monument* is a very common term in Buddhism. If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there is a [seamless] lantern by a small pond, where people let go of fish and turtles, whatever. So that is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. So by this pond you have a big lantern. You know the lanterns in the temple? Not like this [little] type of lantern; you can see them in pictures. (*Transcriber’s Note*: Probably a stone lantern, [*tōrō*](glossary#tōrō).) [In Zen], these lanterns are called *seamless lanterns*. The pond is called [*hōshō*], which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of it. So [this means] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we say *formless*: no eyes, no ears, [et cetera]. 
+A *seamless monument* is a very common term in Buddhism. If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there is a [seamless] lantern by a small pond, where people let go of fish and turtles, whatever. So that is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. So by this pond you have a big lantern. You know the lanterns in the temple? Not like this [little] type of lantern; you can see them in pictures. (*Transcriber’s Note*: probably a stone lantern, [*tōrō*](glossary#tōrō).) [In Zen], these lanterns are called *seamless lanterns*. The pond is called [*hōshō (unintelligible)*], which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of it. 
 
-So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. [When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
+So [this means] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we say *formless*: no eyes, no ears, [et cetera]. So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. 
+
+[When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
 #### 8:25
 
 Because in our life, what we can perceive is filled with pros and cons, successes and failures, pleasure and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
-But this is [taking out] those names. Life and death; you call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them [out]. What’s left? That *what’s left* is really important, because this is the *quality* of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a *name* of death which you put on it; you have to know the real quality of death, what is the quality of death.
+But this is [taking up] those names. [Take up] life and death; you call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them [out]. What’s left? That *what’s left* is really important, because this is the *quality* of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a *name* of death which you put on it; you have to know the real quality of death, what is the quality of death.
 
-[In] zazen, [...] sitting right now, right here means you cannot bring any name, any concept into what you do: so-called “zazen,” or “breath,” or “concentration.” Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take out all things, what’s left? 
+[In] zazen, [...] sitting right now, right here, means you cannot bring any name, any concept into what to do: so-called “zazen,” or “breath,” or “concentration.” Nothing. While we have even slightly *something* in zazen, it’s not real zazen. Zazen is exactly touching the real core, the quality of life and death. If you take out all things, what’s left? 
 
 That is, Buddhism always says, [*emptiness*](glossary#emptiness). But emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really *dynamic working*. [But] no one can touch it, because it’s really *dynamic*.
 
@@ -137,7 +139,7 @@ The “I don’t know” of Emperor Wu – I don’t know which of the two it wa
 
 So finally, the National Teacher was silent for a long time, then he said, “Do you understand?” 
 
-In [Shobogenzo “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Dogen Zenji](glossary#dogen) says ... from a [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
+In [Shobogenzo “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Dogen Zenji](glossary#dogen) says, \[from a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
 
 > The Buddha said to the assembled monks, “There are four kinds of horses. The first kind immediately follows its rider's will when, in surprise and fear, it sees the shadow of a whip. The second does likewise when the whip strikes its hair. The third, however, does not obey its master until after the whip has struck its flesh. The fourth, finally, does not do so until the whip has reached its very bones.”
 > 
@@ -145,7 +147,7 @@ In [Shobogenzo “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Doge
 
 Four kinds of horses. *[He chuckles.]* I don’t know which of the horses *you* belong to, but anyway, most people are just like this.
 
-From this, maybe you understand that the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in the human life. 
+From this, maybe you understand that the horse which really runs the moment when he sees the shadow of the whip, that is the best horse, in comparison with another horse who doesn’t run until the whip reaches the bone. That is a very common understanding. But that is [a] discrimination. If you understand human life just in common sense like this, you never understand how to live in peace and harmony in  this human life. 
 
 In Buddhism, if the whip touches the hair, strictly speaking you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without the bones, without the muscles and skin, how can you know the whip touches the hair? So to touch the hair means completely to touch the whole body. 
 
