@@ -59,7 +59,7 @@ Case 18 of *Blue Cliff Record*:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in [two] different [ages], his disciples and many people expected something specific [for him] (or possibly from him), regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
+This is a common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in [two] different [ages], his disciples and many people expected something specific [for him] (or possibly *from him*), regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
 
 > The National Teacher said, “Build a seamless monument for me.”
 
@@ -69,8 +69,6 @@ So [this means] *formless*. In [*Prajnaparamita*](glossary#Prajnaparamita), we s
 
 [When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
-#### 8:25
-
 Because in our life, what we can perceive is filled with pros and cons, successes and failures, pleasure and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#Katagiri), and the trees, and suffering; life and death, old age and sickness, et cetera. Lots of stuff in human life. 
 
 But this is [taking up] those names. [Take up] life and death; you call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them [out]. What’s left? That *what’s left* is really important, because this is the *quality* of life. Life is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a *name* of death which you put on it; you have to know the real quality of death, what is the quality of death.
@@ -79,27 +77,23 @@ But this is [taking up] those names. [Take up] life and death; you call it life 
 
 That is, Buddhism always says, [*emptiness*](glossary#emptiness). But emptiness is not a nihilistic quality of existence. The quality of existence, so-called emptiness, is really *dynamic working*. [But] no one can touch it, because it’s really *dynamic*.
 
-From this point, when you experience success, you feel good – but you cannot [see] success for long, because without human effort you cannot succeed in anything. So regardless of whether you succeed or not – failure or success – you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
+From this point, when you experience success, you feel good – but you cannot [feel] success for long, because without human effort you cannot succeed doing anything. So regardless of whether you succeed or not – failure or success – you have to continue to make every possible effort to live. If you have a certain business, constantly you have to take care of it.
 
 So strictly speaking, why don’t you take off the clothes of success and failure, pros and cons – and then what’s left? Nothing to get in your hand. But is it just silence? Is it just nothing to do? No, I don’t mean that. *Nothing*, emptiness, dynamic working, means full aliveness of your life. So you have to do something from day to day, beyond success and failure. You have to really devote yourself to taking care of life. This is [the secret of] *seamless* life. Seamless life, seamless death. And then at that time, we can really [leave] so-called human culture.
 
-I told you before, culture is not something received from somebody else: “Oh, this is a beautiful culture.” I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive: you have to *light the candle* [of] so-called culture. 
+I told you before, culture is not just to receive [something] from somebody else: “Oh, this is a beautiful culture.” I don’t think this is something you have to do. You should receive the culture from somebody, but culture is not just to receive: you have to *light the candle* [which is] called culture. 
 
-How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life is – what? Something that you have to [let] people understand, or see? [...] Beyond whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
+How do you light the candle of human culture? Your individual daily life is also human culture, beautiful culture. That beautiful culture of your life is – what? Something that you have to [let] people understand or see? [Regardless of] whether people can see it or not, real human culture is constantly there. That is *seamless* human culture. 
 
-That’s why I told you before, the quality of [your] life must be taught by your back. *Back* [does not mean] back opposed to front. My teacher said a Zen teacher teaches Buddha’s teachings with his back. *Back* means seamless, formless teaching, constantly.
+That’s why I told you before, the real quality of [your] life must be taught by your back. *Back* [does not mean] back opposite to front. Do you remember? My teacher said, a Zen teacher teaches Buddha’s teachings with his back. *Back* means seamless, formless teaching, constantly.
 
 So whoever you are, if you really live your life just like this, people can accept something about how important human life is from you. Not from the right side, left side, or back side, but from the seamless form of your existence, which you have taken care of.
 
-#### 17:17
+For instance, while my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because human speculation [is] always looking at the front *[he chuckles]*, trying to understand logically and theoretically, you know? If you don’t understand [something logically], it’s very hard for us to accept. If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. So very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. Then finally, you have self-doubt. Self-doubt means [you think], “[...] I am stupid.” You’re not stupid, but finally big doubt comes up. 
 
-For instance, while my teacher was alive, I really didn’t understand his way and his life, and Zen Buddhism, et cetera. Whether he kept silent, or whether he said something – one word, saying, “get up” – “When the people get up, why don’t you get up?” – at that time I got a big experience, but still I didn’t appreciate this. [This is] because human speculation [is] always looking at the front, trying to understand logically and theoretically, you know? If you don’t understand [something logically], it’s very hard for us to accept.
+But *now* I really understand... not *understand*; I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life is failure or his life is success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life; whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons. Of course you can see those, but the more important [part] of human life is completely beyond this. From his life as a whole, you can really get something. 
 
-If you don’t want to accept, that’s okay – it depends on you, that’s up to you. But you cannot always do it in that way. If you take care of your life just like that, you become a very small scale of human being, isolated from people. Then people don’t understand you, people don’t respect you. Very naturally you are isolated from people, because you cannot live in peace and harmony with all sentient beings. So then finally you have self-doubt. Self-doubt means [you think], “[...] I am stupid.” You’re not stupid, but finally big doubt comes up. 
-
-Now I can really touch the core of human existence which my teacher had demonstrated while he was alive. That means not the logical aspect, not the matter of his life is failure or his life is success; completely beyond this. As a total picture, you can really feel something. So now I really appreciate his life; whatever he did, whatever he said to me, I really appreciate. [What] he always taught me is not some teaching in the possession of a form, so-called success or failure, or pros and cons; it’s completely beyond that. Of course you can see those, but the more important [part] of human life is completely beyond this. From his life as a whole, you can really get something. 
-
-That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while they are alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically. That is a very common human style. 
+That is very common for human beings. When your parents die, when your brothers die, when your sisters die – anyway *after* people’s death, you really feel something. Don’t you think? This is very true. But while [they] are alive, you’re really ignorant – because we are always looking at the front, trying to understand logically, theoretically. That is a very common human style. 
 
 So that’s why the National Teacher said, “Build a seamless monument for me.”
 
@@ -109,7 +103,7 @@ And then,
 
 > The Emperor said, “Please tell me, Master, what the monument would look like.”
 
-This is a very nice person. Because the National Teacher wants to build a seamless monument, [the Emperor asks,] “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
+[The Emperor] is a very nice person: the National Teacher wants to build a seamless monument, [so he asks,] “What is a seamless monument? Would you tell me what kind of seamless monument you would want to have?”
 
 > The National Teacher was silent for a long time; then he asked, “Do you understand?”
 > 
@@ -117,7 +111,7 @@ This is a very nice person. Because the National Teacher wants to build a seamle
 
 This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) also said this: when he was asked by Emperor Wu, “Who are you, in front of me,” he said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one, at that time there is nothing to dichotomize, or contaminate. 
 
-For instance, when you really do something with wholeheartedness – cleaning the room, and *[unintelligible]* – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
+For instance, when you really do something with wholeheartedness – cleaning the room, and putting the *[unintelligible]* in the [washing] machine – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
 
 Japanese people like very much playing *Go*. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t know what time it is, you don’t want anything except to play Go. So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. 
 
@@ -161,23 +155,23 @@ So your presence is not only your presence but simultaneously the presence of th
 
 #### 38:10
 
-If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip. [...] 
+If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip... [at] first, not yet. 
 
-Of course, you need a whip. Remember this. We need a whip because [...] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is [karmic] consciousness. But whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being is really stretched into the past, into the future. You have to understand human life for the long, long range. 
+Of course, you need a whip. Remember this. [Why do we need a whip?] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is [karmic] consciousness – but whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being really stretches into the past, into the future. You have to understand human life for the long, long range. 
 
-If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stinkiness, *[he laughs,]* how stinky you are.  Because this is karmic life. Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese because of my parents and my grandparents; but I don’t know *why* I am Japanese. Why were you born as American? You don’t know either. You can explain that you know why, but that explanation is really just a speck of dust, don’t you think so? Because you don’t know, exactly.
+If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stinkiness, *[he laughs,]* how stinky you are.  Because this is karmic life. Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese because I know my parents and my grandparents; but I don’t know *why* I *am* Japanese. Why were you born as American? You don’t know either. You know why, you can explain, but that explanation or reason is really just a speck of dust, don’t you think so? You don’t know, exactly.
 
 So you have to really understand human life for the long range. At that time, whatever makes you how stinky you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take good care of that aspect of human life. 
 
-From this point, you need a whip. You need a whip. Shall I touch just a hair? Shall I touch the skin? Shall I touch the bone and the muscles? That’s alright; this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
+From this point, you need a whip. You need a whip. Shall I touch just a hair? Shall I touch the skin? Shall I touch the bone and the muscles? That’s alright. But this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
 
-If you really understand this karmic life, karmic life turns into Buddha's life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip; or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
+If you really understand this karmic life, karmic life turns into Buddha's life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip – or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
 #### 43:30
 
 That is really silence. 
 
-There is a story (in [“Four Horses”](topics#four-horses)) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
+There is a story (in “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
 
 The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
 
@@ -189,15 +183,13 @@ So, this Brahman really wanted to know what life’s seamless monument is.
 
 The World-honored One remained silent. Just, *sit down*.
 
-The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, *just sit down*; he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
+The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, *just sit down*; he really attained, he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
 
 So after the outsider had left, Ānanda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
 
 The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
-#### 47:05
-
-People often go to the silence for their understanding. What is there to grasp? In Buddhism, silence is important – but silence itself is not important, to keep silent. If I [write] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence. And then we believe that silence is really the truth of human existence. But I don’t think so. Because, [to say] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
+People often go to the silence for their understanding [of] “What is there to grasp?” In Buddhism, silence is important – but silence itself is not important, to keep silent. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence, and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
