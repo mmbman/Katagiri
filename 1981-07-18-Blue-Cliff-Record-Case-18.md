@@ -117,7 +117,7 @@ So that is the “I don’t know” that Bodhidharma said.
 
 Or, the other “I don’t know” means *completely* “I don’t know,” because you have *no* idea. People ask you what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
 
-If you say “I don’t know,” you cannot get any spirit to teach [people] or to tell [them], don’t you think so? But if you really know what zazen is, even though you can’t say – even though you say “I don’t know” – *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
+If you say “I don’t know,” you cannot get any spirit to teach [people] or to tell [them], don’t you think? But if you really know what zazen is, even though you can’t say, [or] even though you say “I don’t know” – *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
 
 The “I don’t know” of Emperor Wu – I don’t know which of the two it was. The Emperor said “I don’t know” [or] “I don’t know” – I don’t know which. *[He laughs.]* [Whether] he really didn’t know, or he knows pretty well and is *free from* he knows, and *then* he says he doesn’t know... I don’t know. No one knows, okay? *[Some laughter.]* That’s up to you. But anyway, from this story, Emperor Wu was not [a] common [person], he was a great Zen Buddhist.
 
