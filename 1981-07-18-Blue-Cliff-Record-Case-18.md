@@ -34,7 +34,7 @@ Case 18 of *Blue Cliff Record*:
 
 (First, here is the poem without [Hsueh Tou](glossary#setchō-jūken)’s comments.)
 
-> \t South of Hsiang, north of T’an;  
+> &nbsp;&nbsp;&nbsp; South of Hsiang, north of T’an;  
 > &nbsp;&nbsp;&nbsp; In between there is gold sufficient to a nation.  
 > &nbsp;&nbsp;&nbsp; Beneath the shadowless tree, the community ferryboat;  
 > &nbsp;&nbsp;&nbsp; Within the crystal palace, there is no one who knows.  
@@ -211,7 +211,7 @@ That means: wherever. Life and death is not something limited by name, or concep
 
 So, Tan Yuan said, “South of Hsiang, north of T’an”, and,
 
-> &nbsp;&nbsp;&nbsp; [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
+> &nbsp;&nbsp;&nbsp; Hsueh Tou added the comment, “A single hand does not make random sound.”
 
 Well, eternal life, eternal space and time, is what? Can you make a sound? No. No matter how long you shake a bottle completely filled with water, you cannot make a sound. Because there are not two; it’s completely one bottle, not a bottle and water. That is “[a single] hand.” One hand cannot make a sound at random. 
 
