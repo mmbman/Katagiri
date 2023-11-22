@@ -147,7 +147,7 @@ So your presence is not only your presence but simultaneously the presence of th
 
 #### 38:10
 
-If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip... [at] first, not yet. 
+If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip... [at least at] first, not yet.
 
 Of course, you need a whip. Remember this. [Why do we need a whip?] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is [karmic] consciousness – but whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being really stretches into the past, into the future. You have to understand human life for the long, long range. 
 
