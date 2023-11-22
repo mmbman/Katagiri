@@ -151,9 +151,9 @@ If you understand your life for the long range, through the past, to the future,
 
 So you have to really understand human life for the long range. At that time, whatever makes you how stinky you are, how great you are, that is completely beyond criticism or evaluation, judgement. All you have to do is, just to totally accept and take good care of that aspect of human life. 
 
-From this point, you need a whip. You need a whip. Shall I touch just a hair? Shall I touch the skin? Shall I touch the bone and the muscles? That’s alright. But this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
+From this point, you need a whip. You need a whip. Shall I touch just a hair? Shall I touch the skin? Shall I touch the bone and the muscles? That’s alright, but this is not discrimination, because your life as karmic life is something you have to accept totally, beyond criticism and evaluation – because your life is really long. 
 
-If you really understand this karmic life, karmic life turns into Buddha's life. You can really accept it. To accept is not just to accept it at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip – or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
+So if you really understand this karmic life, karmic life turns into Buddha's life. You can really accept. To accept is not just to accept at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip – or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
 #### 43:30
 
@@ -177,7 +177,7 @@ So after the outsider had left, Ānanda asked the Buddha, “What did the outsid
 
 The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
-People often go to the silence for their understanding [of] “What is there to grasp?” In Buddhism, silence is important – but silence itself is not important, to keep silent. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence, and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
+People often go to the silence for their understanding [of] “What is there to grasp?” In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence, and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
@@ -187,7 +187,7 @@ That is teaching coming from your back. This is teaching coming from a *powerles
 
 So keep silent. *Keep silent* is what? *Keep silent* is not *[unintelligible]*, it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the function of the organs [in] your body? Of course, but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
 
-[A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
+[A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. Is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
 
 For instance, right in the middle of suffering or pain in zazen, can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that mean that you have to die with the pain? No; you have to be alive! So silence in pain is really aliveness, dynamically, in pain.
 
