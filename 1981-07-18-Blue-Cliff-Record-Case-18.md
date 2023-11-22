@@ -261,9 +261,7 @@ If you have *somebody* who knows, you are stuck in this guy or [this name]. “I
 
 So if you know, you have to be free from the person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is *[unintelligible]*.
 
-That’s why Hsueh Tou says, “Within the crystal palace, there is no one who knows.”
-
-#### 1:07:33
+[...]
 
 In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
@@ -273,7 +271,7 @@ Prediction is fine, because in a sense it is true, teaching you who you are. In 
 
 So even though a prediction tells you the truth of your life toward the future – fine. The truth is still the *name* of the truth. You have to know *behind* the truth. Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take out the name of truth of your life, in the future, in the past – that’s fine. But you have to know the real quality. For this, you have to take off the clothes of the name of the truth. That is really our [practice].
 
-That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
+That’s why [Tan Yuan] said, “Within the crystal palace, there is no one who knows.”
 
 >   Hsueh Tou added the comment, “He has raised it up.”
 
