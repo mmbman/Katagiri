@@ -103,7 +103,7 @@ And then,
 
 This “I don’t understand” has two meanings. [Bodhidharma](glossary#bodhidharma) also said this: when he was asked by Emperor Wu, “Who are you, in front of me,” he said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one, at that time there is nothing to dichotomize, or contaminate. 
 
-For instance, when you really do something with wholeheartedness – cleaning the room, and putting the *[unintelligible]* in the [washing] machine – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
+For instance, when you really do something with wholeheartedness – cleaning the room, [or] putting the [coins] in the [slot] machine – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
 
 Japanese people like very much playing *Go*. Go is very wonderful to play, but if you start to do this, you completely forget time and space, you’re really devoted to it. So even at midnight, you can stay late, just playing Go all night. You don’t feel tired, you don’t know what time it is, you don’t want anything except to play Go. So even though someone asks you what time it is, you don’t know. Time is already with you, so you know the time pretty well, but when you become really one with time, you don’t know time. 
 
@@ -189,11 +189,9 @@ If I sit down and really do zazen, then you believe concentration is the purpose
 
 That is teaching coming from your back. This is teaching coming from a *powerless power* [that] you can get from your practice. Behind the effort, there is great power. Effort is not something [where] you can create power to teach or to understand behind this effort. *Behind the effort* means the world unfolded totally, beyond the name of concentration, the name of practicer, the name of stinkiness – whatever you say, it doesn’t hit the mark. Anyway, take off any clothes. And then what’s left? Nothing to say. 
 
-So keep silent. *Keep silent* is what? *Keep silent* is not *[unintelligible]*, it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. 
+So keep silent. *Keep silent* is what? *Keep silent* is not *[unintelligible]*, it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the function of the organs [in] your body? Of course, but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
 
-Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the organs [and] function of your body? Of course; but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
-
-*[Unintelligible]* is maybe sort of a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
+[A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
 
 For instance, right in the middle of suffering or pain in zazen, can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that mean that you have to die with the pain? No; you have to be alive! So silence in pain is really aliveness, dynamically, in pain.
 
@@ -263,7 +261,7 @@ So if you know, you have to be free from the person who knows. That is original 
 
 [...]
 
-In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
+In [Christian] religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*, magic. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
 The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad. Because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy; we are really infatuated with happiness, that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
 
@@ -275,7 +273,7 @@ That’s why [Tan Yuan] said, “Within the crystal palace, there is no one who 
 
 >   Hsueh Tou added the comment, “He has raised it up.”
 
-*Exactly*. Exactly, that is holding, understanding life. 
+*Exactly*. Exactly, that is holding, understanding life.  
 
 #### 1:12:32 end of recording
 
