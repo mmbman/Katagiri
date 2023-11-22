@@ -34,24 +34,24 @@ Case 18 of *Blue Cliff Record*:
 
 (First, here is the poem without [Hsueh Tou](glossary#setchō-jūken)’s comments.)
 
-> &nbsp;&nbsp; South of Hsiang, north of T’an;  
-> &nbsp;&nbsp; In between there is gold sufficient to a nation.  
-> &nbsp;&nbsp; Beneath the shadowless tree, the community ferryboat;  
-> &nbsp;&nbsp; Within the crystal palace, there is no one who knows.  
+> &#9; South of Hsiang, north of T’an;  
+> &nbsp;&nbsp;&nbsp; In between there is gold sufficient to a nation.  
+> &nbsp;&nbsp;&nbsp; Beneath the shadowless tree, the community ferryboat;  
+> &nbsp;&nbsp;&nbsp; Within the crystal palace, there is no one who knows.  
 
 (Here is the poem with Hseuh Tou’s comments included, as Katagiri Roshi read it.)
 
-> &nbsp;&nbsp; South of Hsiang, north of T’an;  
-> &nbsp;&nbsp; \- Hsueh Tou added the comment, “A single hand does not make random sound.”  
+> &nbsp;&nbsp;&nbsp; South of Hsiang, north of T’an;  
+> &nbsp;&nbsp;&nbsp; \- Hsueh Tou added the comment, “A single hand does not make random sound.”  
 > 
-> &nbsp;&nbsp; In between there is gold sufficient to a nation.  
-> &nbsp;&nbsp; \- Hsueh Tou added the comment, “A rough-hewn staff.”  
+> &nbsp;&nbsp;&nbsp; In between there is gold sufficient to a nation.  
+> &nbsp;&nbsp;&nbsp; \- Hsueh Tou added the comment, “A rough-hewn staff.”  
 >  
-> &nbsp;&nbsp; Beneath the shadowless tree, the community ferryboat;  
-> &nbsp;&nbsp; \- Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+> &nbsp;&nbsp;&nbsp; Beneath the shadowless tree, the community ferryboat;  
+> &nbsp;&nbsp;&nbsp; \- Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
 >  
-> &nbsp;&nbsp; Within the crystal palace, there is no one who knows.  
-> &nbsp;&nbsp; \- Hsueh Tou added the comment, “He has raised it up.”  
+> &nbsp;&nbsp;&nbsp; Within the crystal palace, there is no one who knows.  
+> &nbsp;&nbsp;&nbsp; \- Hsueh Tou added the comment, “He has raised it up.”  
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
