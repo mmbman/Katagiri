@@ -113,9 +113,7 @@ So this is all one meaning [of “I don’t know”]. If you know pretty well wh
 
 It’s just like shaking a bottle filled with water. [If] it’s completely one, at that time, you cannot make noise. But if you take a bottle with [just] a little water and shake it, you know, you really make noise. That is [like] you know pretty well how great [you are]. But if you shake the bottle completely filled with water, you don’t know how much it is. No sound: that is really oneness. That is very quiet. But it is really dynamic, and also total manifestation of dignity or majesty, and imperturbability: just this. But, nothing to say. 
 
-So that is the “I don’t know” that Bodhidharma said.
-
-Or, the other “I don’t know” means *completely* “I don’t know,” because you have *no* idea. People ask you what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
+So that is the “I don’t know” that Bodhidharma said. Or, the other “I don’t know” means *completely* “I don’t know,” because you have *no* idea. People ask you what Buddhism is, what zazen is, and you say, “I don’t know.” That is really “I don’t know,” don’t you think so? *[He laughs.]*
 
 If you say “I don’t know,” you cannot get any spirit to teach [people] or to tell [them], don’t you think? But if you really know what zazen is, even though you can’t say, [or] even though you say “I don’t know” – *that* “I don’t know” has a really great spirit to teach somebody. So still people feel that point. 
 
@@ -144,8 +142,6 @@ For instance, playing piano. I always tell you, you cannot play the piano with j
 So what do you mean, touch the piano? Touching the piano is not touching the keys [...] To touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the Buddhistic understanding. 
 
 So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really entirely take responsibility for you life, with gratitude. That is *great*. So [...] that’s why zazen is [not just] for deepening your [own] life, that’s why Dogen’s faith is to do zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings.
-
-#### 38:10
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip... [at least at] first, not yet.
 
