@@ -159,9 +159,7 @@ So if you really understand this karmic life, karmic life turns into Buddha's li
 
 That is really silence. 
 
-There is a story (in “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life?
-
-The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
+There is a story (in “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
 
 *[Tape change.]*
 
@@ -177,7 +175,7 @@ So after the outsider had left, Ānanda asked the Buddha, “What did the outsid
 
 The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
-People often go to the silence for their understanding [of] “What is there to grasp?” In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence, and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
+People often go to the silence for their understanding [of] “What is there to grasp?” In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence – and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
@@ -187,7 +185,7 @@ That is teaching coming from your back. This is teaching coming from a *powerles
 
 So keep silent. *Keep silent* is what? *Keep silent* is not *[unintelligible]*, it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the function of the organs [in] your body? Of course, but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
 
-[A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. Is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
+[A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. Is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we have to give these children a whip until the whip touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect him – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
 
 For instance, right in the middle of suffering or pain in zazen, can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that mean that you have to die with the pain? No; you have to be alive! So silence in pain is really aliveness, dynamically, in pain.
 
