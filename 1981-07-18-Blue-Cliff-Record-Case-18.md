@@ -34,24 +34,24 @@ Case 18 of *Blue Cliff Record*:
 
 (First, here is the poem without [Hsueh Tou](glossary#setchō-jūken)’s comments.)
 
->   South of Hsiang, north of T’an;  
->   In between there is gold sufficient to a nation.  
->   Beneath the shadowless tree, the community ferryboat;  
->   Within the crystal palace, there is no one who knows.  
+>    South of Hsiang, north of T’an;  
+>    In between there is gold sufficient to a nation.  
+>    Beneath the shadowless tree, the community ferryboat;  
+>    Within the crystal palace, there is no one who knows.  
 
 (Here is the poem with Hseuh Tou’s comments included, as Katagiri Roshi read it.)
 
->   South of Hsiang, north of T’an;  
->   \- Hsueh Tou added the comment, “A single hand does not make random sound.”  
+>    South of Hsiang, north of T’an;  
+>    \- Hsueh Tou added the comment, “A single hand does not make random sound.”  
 >   
->   In between there is gold sufficient to a nation.  
->   \- Hsueh Tou added the comment, “A rough-hewn staff.”  
+>    In between there is gold sufficient to a nation.  
+>    \- Hsueh Tou added the comment, “A rough-hewn staff.”  
 >  
->   Beneath the shadowless tree, the community ferryboat;  
->   \- Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+>    Beneath the shadowless tree, the community ferryboat;  
+>    \- Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
 >  
->   Within the crystal palace, there is no one who knows.  
->   \- Hsueh Tou added the comment, “He has raised it up.”  
+>    Within the crystal palace, there is no one who knows.  
+>    \- Hsueh Tou added the comment, “He has raised it up.”  
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
@@ -205,13 +205,13 @@ So finally the emperor said, “I don’t know.” Whatever kind of meaning of h
  
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 >
->   South of Hsiang, north of T’an;
+>    South of Hsiang, north of T’an;
 
 That means: wherever. Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
 
 So, Tan Yuan said, “South of Hsiang, north of T’an”, and,
 
->   [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
+>    [Hsueh Tou](glossary#setchō-jūken) added the comment, “A single hand does not make random sound.”
 
 Well, eternal life, eternal space and time, is what? Can you make a sound? No. No matter how long you shake a bottle completely filled with water, you cannot make a sound. Because there are not two; it’s completely one bottle, not a bottle and water. That is “[a single] hand.” One hand cannot make a sound at random. 
 
@@ -221,17 +221,17 @@ That’s why Hsueh Tou added the comment, “A single hand does not make random 
 
 #### 58:54
 
->   In between there is gold sufficient to a nation.
+>    In between there is gold sufficient to a nation.
 
 Does “silent, nothing to say” mean [it is] something in vain? No, it’s just like gold – completely filling the whole world. That is the material of the seamless monument, [the quality of the seamless monument]. You have to build up a seamless monument with this gold, [this] quality, life. But we believe the *name* of life; that is not the *quality* of life. The quality of life is completely gold, filling the whole world.
 
->   Hsueh Tou added the comment, “A rough-hewn staff.”
+>    Hsueh Tou added the comment, “A rough-hewn staff.”
 
 That gold is not something a person refined; it is just like a rough-hewn staff, directly from the wilderness. Which no one [can touch]; completely pure and clean, nothing to contaminate. So that’s why Hsueh Tou added the comment, “A rough-hewn staff.”
 
 #### 1:01:10
 
->   Beneath the shadowless tree, the community ferryboat;
+>    Beneath the shadowless tree, the community ferryboat;
 
 This is the meaning of eternal time.
 
@@ -241,7 +241,7 @@ According to the time process, we don’t understand [it that way]. But even acc
 
 That’s why, day by day in the practice, the gassho, and doing zazen, the chanting, these things are very important. The gassho and zazen and chanting are all seamless monuments, they must be seamless monuments. At that time zazen is handed down from generation to generation as religious culture. But don’t [misunderstand]. Religious culture [as] zazen is not only to accept zazen, but you have to *light the candle* of zazen. Do you understand *to light*? To light means you have to be *alive*, you have to *make* it alive. You have to *animate* zazen in your life. That is a culture, human culture.
 
->   Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
+>    Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”
 
 That is so-called spiritual security. If you do this – anyway, on the basis of human existence there is always spiritual security, which is going on constantly, carried on and on, consciously or unconsciously. 
 
@@ -249,7 +249,7 @@ But that is not always calm. It’s really alive.
 
 #### 1:04:58
 
->   Within the crystal palace, there is no one who knows.
+>    Within the crystal palace, there is no one who knows.
 
 If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that [it] is something great, wonderful, which has lots of halos, light coming from your body and from your whole spirit. I don’t think so. 
 
@@ -261,17 +261,17 @@ So if you know, you have to be free from the person who knows. That is original 
 
 [...]
 
-In [Christian] religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*, magic. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
+In Christian religion, always there is something we know. Wonderful divinity, holy spirit, inspiration, catechism, *[unintelligible]*, magic. Spiritual greed; lots of stuff there. That’s fine, if that makes you have fun – but is that really the spiritual security you are looking for? No. Because finally, you are really stuck in there.
 
-The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At that time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad. Because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy; we are really infatuated with happiness, that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
+The other day someone came to see me and told me about her life, because she was predicted by one of the [great] Indian religious persons. At the time she was not ready to accept that prediction. But recently she started to believe [...] his predictions came to be true! *[He laughs.]* But, not all the predictions he gave; only some. [Those predictions she believed] were mostly something unwholesome, bad. Because people pay really careful attention to something unwholesome or bad. If we are happy, we don’t pay attention, because we are happy; we are really infatuated with happiness, that’s why we don’t pay attention. But if you are in unstable conditions, you really pay attention to [the prediction], and then, you create nervousness, paying more careful attention, again and again. Finally, you cannot move an inch, right in the middle of prediction.
 
 Prediction is fine, because in a sense it is true, teaching you who you are. In astrology you can get them to tell you what is your future. Yes, it is – but, don’t believe it. You should believe this, but you shouldn't be stuck in there. You should be free from the [...] prediction, because this is the real process of human life. In other words, still there is a chance you can create your life toward the future, because basically everyone is free. There is nothing to limit your life, nothing to bound your life, tied up with a certain idea. 
 
 So even though a prediction tells you the truth of your life toward the future – fine. The truth is still the *name* of the truth. You have to know *behind* the truth. Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take out the name of truth of your life, in the future, in the past – that’s fine. But you have to know the real quality. For this, you have to take off the clothes of the name of the truth. That is really our [practice].
 
-That’s why [Tan Yuan] said, “Within the crystal palace, there is no one who knows.”
+That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
 
->   Hsueh Tou added the comment, “He has raised it up.”
+>    Hsueh Tou added the comment, “He has raised it up.”
 
 *Exactly*. Exactly, that is holding, understanding life.  
 
