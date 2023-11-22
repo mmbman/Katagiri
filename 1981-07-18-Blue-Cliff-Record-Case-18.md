@@ -34,7 +34,7 @@ Case 18 of *Blue Cliff Record*:
 
 (First, here is the poem without [Hsueh Tou](glossary#setchō-jūken)’s comments.)
 
->	South of Hsiang, north of T’an;  
+>	&nbsp;&nbsp; South of Hsiang, north of T’an;  
 >	In between there is gold sufficient to a nation.  
 >	Beneath the shadowless tree, the community ferryboat;  
 >	Within the crystal palace, there is no one who knows.  
