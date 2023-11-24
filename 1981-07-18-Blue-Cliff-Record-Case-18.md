@@ -9,7 +9,7 @@ title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
 
 ### Summary
 
-What will we need after we die? What is the meaning of keeping silent? Keeping silent means to take off the “clothes” of our concepts, such as success and failure, pleasure and suffering, life and death. But you cannot stay with the silence; you have to know the somebody completely unfolded behind the silence. This is how to “light the candle” of human culture. Also: There is no discrimination between the four kinds of horses, which represent *us*. Still, at some point, you need a whip. And then, you can run.
+What will we need after we die? What is the meaning of keeping silent? Keeping silent means to take off the “clothes” of our concepts, such as success and failure, pleasure and suffering, life and death. But you cannot stay with the silence; you have to know the somebody completely unfolded behind the silence. This is how to “light the candle” of human culture. Also: There is no discrimination between the four kinds of horses, which means us. Still, at some point, you need a whip. And then, you can run.
 
 ### Transcript
 
