@@ -201,7 +201,9 @@ The National Teacher kept silence and sat down for a while and said, “Do you u
 So finally the emperor said, “I don’t know.” Whatever kind of meaning of his answer, it doesn’t matter, because there is no way to approach to him. So [the National Teacher] said, well, I have a disciple. So after my death, please ask my disciple what it means.
  
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
->
+
+#### 56:21
+
 >> South of Hsiang, north of T’an;
 
 That means: wherever. Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists, wherever. Eternal space, eternal time. This is life. 
