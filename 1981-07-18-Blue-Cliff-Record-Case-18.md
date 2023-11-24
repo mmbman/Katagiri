@@ -7,6 +7,10 @@ title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument
 [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| 
 [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
+### Summary
+
+What will we need after we die? What is the meaning of keeping silent? Keeping silent means taking off the “clothes” of our concepts, such as success and failure, pleasure and suffering, life and death. But you cannot stay with the silence; you have to know the somebody completely unfolded behind the silence. This is how to “light the candle” of human culture. Also: There is no discrimination between the four kinds of horses, which represent *us*. Still, at some point, you need a whip. And then, you can run.
+
 ### Transcript
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
