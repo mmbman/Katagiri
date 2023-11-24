@@ -156,8 +156,6 @@ From this point, you need a whip. You need a whip. Shall I touch just a hair? Sh
 
 So if you really understand this karmic life, karmic life turns into Buddha's life. You can really accept. To accept is not just to accept at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip – or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
-#### 43:30
-
 That is really silence. 
 
 There is a story (in “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken ...”
@@ -176,7 +174,7 @@ So after the outsider had left, Ānanda asked the Buddha, “What did the outsid
 
 The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
-People often go to the silence for their understanding [of] “What is there to grasp?” In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence – and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
+People often go to the silence for their understanding. “What is there to grasp?” In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [like] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence – and then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* human life, the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
