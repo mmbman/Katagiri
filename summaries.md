@@ -77,7 +77,7 @@ What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes th
 ### [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 #### August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Why is the perfection of generosity the most important quality in Mahayana Buddhism? What is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the *Duino Elegies* by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to “get” something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face”, he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
+Why is the perfection of generosity the most important quality in Mahayana Buddhism? What is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the *Duino Elegies* by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to “get” something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face,” he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
 
 ---
 
