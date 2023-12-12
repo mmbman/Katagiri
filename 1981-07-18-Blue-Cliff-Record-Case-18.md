@@ -46,16 +46,16 @@ Case 18 of *Blue Cliff Record*:
 
 (Here is Tan Yuan’s verse with Hseuh Tou’s comments, as Katagiri Roshi read it:)
 
-> &nbsp;&nbsp;&nbsp;&nbsp;South of Hsiang, north of T’an;  
+> South of Hsiang, north of T’an;  
 >> Hsueh Tou added the comment, “A single hand does not make random sound.”  
 >
-> &nbsp;&nbsp;&nbsp;&nbsp;In between there is gold sufficient to a nation.  
+> In between there is gold sufficient to a nation.  
 >> Hsueh Tou added the comment, “A rough-hewn staff.”  
 >
-> &nbsp;&nbsp;&nbsp;&nbsp;Beneath the shadowless tree, the community ferryboat;  
+> Beneath the shadowless tree, the community ferryboat;  
 >> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
 >
-> &nbsp;&nbsp;&nbsp;&nbsp;Within the crystal palace, there is no one who knows.  
+> Within the crystal palace, there is no one who knows.  
 >> Hsueh Tou added the comment, “He has raised it up.”  
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
@@ -202,7 +202,7 @@ So finally the emperor said, “I don’t know.” Whatever kind of meaning of h
 
 #### 56:21
 
->> South of Hsiang, north of T’an;
+> South of Hsiang, north of T’an;
 
 That means: wherever. Life and death is not something limited by name, or concept, or philosophy, or psychology. Life is something which exists wherever. Eternal space, eternal time: this is life. 
 
@@ -218,7 +218,7 @@ That’s why Hsueh Tou added the comment, “A single hand does not make random 
 
 #### 58:54
 
->> In between there is gold sufficient to a nation.
+> In between there is gold sufficient to a nation.
 
 Does “silent, nothing to say” mean [it is] something in vain? No, it’s just like gold – completely filling the whole world. That is the material of the seamless monument, [the quality of the seamless monument]. You have to build up a seamless monument with this gold, [this] quality, life. But we believe the *name* of life; that is not the *quality* of life. The quality of life is completely gold, filling the whole world.
 
@@ -228,7 +228,7 @@ That gold is not something a person refined; it is just like a rough-hewn staff,
 
 #### 1:01:10
 
->> Beneath the shadowless tree, the community ferryboat;
+> Beneath the shadowless tree, the community ferryboat;
 
 This is the meaning of eternal time.
 
@@ -244,7 +244,7 @@ But that is not always calm. It’s really alive.
 
 #### 1:04:58
 
->> Within the crystal palace, there is no one who knows.
+> Within the crystal palace, there is no one who knows.
 
 If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that [it] is something great, wonderful, which has lots of halos, light coming from your body and from your whole spirit. I don’t think so. That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security, [so] we always expect [something], in many ways. But if you really get into it: there is no one who knows. *There is no one who knows* means spiritual security which lets go of *you* yourself, as freedom. 
 
