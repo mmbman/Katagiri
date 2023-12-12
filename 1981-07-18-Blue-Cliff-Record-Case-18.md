@@ -57,8 +57,8 @@ Case 18 of *Blue Cliff Record*:
 >
 > Within the crystal palace, there is no one who knows.  
 >> Hsueh Tou added the comment, “He has raised it up.”  
->
-> ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
+
+( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
 #### 3:05
 
