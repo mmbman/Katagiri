@@ -39,24 +39,21 @@ Case 18 of *Blue Cliff Record*:
 
 (Here is Tan Yuan’s verse without [Hsueh Tou](glossary#setchō-jūken)’s comments:)
 
->> South of Hsiang, north of T’an;  
->> In between there is gold sufficient to a nation.  
->> Beneath the shadowless tree, the community ferryboat;  
->> Within the crystal palace, there is no one who knows.  
+> South of Hsiang, north of T’an;  
+> In between there is gold sufficient to a nation.  
+> Beneath the shadowless tree, the community ferryboat;  
+> Within the crystal palace, there is no one who knows.  
 
 (Here is Tan Yuan’s verse with Hseuh Tou’s comments, as Katagiri Roshi read it:)
 
->> South of Hsiang, north of T’an;  
->> \- Hsueh Tou added the comment, “A single hand does not make random sound.”  
->>  
->> In between there is gold sufficient to a nation.  
->> \- Hsueh Tou added the comment, “A rough-hewn staff.”  
->>  
->> Beneath the shadowless tree, the community ferryboat;  
->> \- Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
->>  
->> Within the crystal palace, there is no one who knows.  
->> \- Hsueh Tou added the comment, “He has raised it up.”  
+> South of Hsiang, north of T’an;  
+>> Hsueh Tou added the comment, “A single hand does not make random sound.”  
+> In between there is gold sufficient to a nation.  
+>> Hsueh Tou added the comment, “A rough-hewn staff.”  
+> Beneath the shadowless tree, the community ferryboat;  
+>> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+> Within the crystal palace, there is no one who knows.  
+>> Hsueh Tou added the comment, “He has raised it up.”  
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
