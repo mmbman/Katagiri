@@ -46,17 +46,17 @@ Case 18 of *Blue Cliff Record*:
 
 (Here is Tan Yuan’s verse with Hseuh Tou’s comments, as Katagiri Roshi read it:)
 
-> South of Hsiang, north of T’an;  
->> Hsueh Tou added the comment, “A single hand does not make random sound.”  
+> &nbsp;&nbsp;&nbsp;&nbsp;South of Hsiang, north of T’an;  
+>> &nbsp;&nbsp;&nbsp;&nbsp;Hsueh Tou added the comment, “A single hand does not make random sound.”  
 >
-> In between there is gold sufficient to a nation.  
->> Hsueh Tou added the comment, “A rough-hewn staff.”  
+> &nbsp;&nbsp;&nbsp;&nbsp;In between there is gold sufficient to a nation.  
+>> &nbsp;&nbsp;&nbsp;&nbsp;Hsueh Tou added the comment, “A rough-hewn staff.”  
 >
-> Beneath the shadowless tree, the community ferryboat;  
->> Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
+> &nbsp;&nbsp;&nbsp;&nbsp;Beneath the shadowless tree, the community ferryboat;  
+>> &nbsp;&nbsp;&nbsp;&nbsp;Hsueh Tou added the comment, “The sea is calm, the rivers are clear.”  
 >
-> Within the crystal palace, there is no one who knows.  
->> Hsueh Tou added the comment, “He has raised it up.”  
+> &nbsp;&nbsp;&nbsp;&nbsp;Within the crystal palace, there is no one who knows.  
+>> &nbsp;&nbsp;&nbsp;&nbsp;Hsueh Tou added the comment, “He has raised it up.”  
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
