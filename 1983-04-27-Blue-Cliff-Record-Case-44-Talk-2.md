@@ -187,9 +187,7 @@ Before doing that, even though you know the way, that way is idealistical. Nothi
 
 What is love? Love is not discussion. Anyway you should learn what real love is, through the process of living, through your life, helping each other. Not always showing your desires first. Anyway, you should learn real love in the process of living with people, thinking of others, helping others. And then you can learn real love. But that real love is pretty hard to explain. But it makes you life stable. Wherever you may go, you can love somebody, always. 
 
-#### 1:00:50
-
-“Alas, you’ve been traversing the roads so long.” We have been already right in the middle of the way of the roads so long, from the past. Anyway, we are already there; that is [the] real reality you are present [in]. Whether you realize it or you don’t realize it, you are there. So no excuse; you have to just live there.
+“Alas, you’ve been traversing the roads so long”: We have been already right in the middle of the way of the roads so long, from the past. Anyway, we are already there; that is [the] real reality you are present [in]. Whether you realize it or you don’t realize it, you are there. So no excuse; you have to just live there.
 
 It’s *so* clear. It’s very clear; it’s too clear to know, anyway. *[He laughs.]* Because if you become one exactly, it’s very clear. For instance, if I, Katagiri, become one as Katagiri, it’s very clear: this is Katagiri. It’s pretty hard to say, [but] it’s pretty clear to know. Do you understand? This nose is *my* nose. So my nose is very clear [to] me. But how do I know? My nose is right in the middle of my face. And then I say, “touch it” – “oh yes, this is my nose.” It’s already [that] *I* know the nose in the dualistic world – so I create a gap. So [when] *my nose* is exactly one with Katagiri, at that time it’s very clear, absolutely clear. But it’s pretty hard to know. 
 
