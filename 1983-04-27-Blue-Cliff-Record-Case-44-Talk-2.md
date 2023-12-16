@@ -62,7 +62,7 @@ Let’s look at the commentary. This is a pretty good commentary.
 
 In Japanese we say *Ino* for where it says *Duty Distributor* here.
 
-This is a little bit questionable; I am not clear [about] “hauls rock”. In English it says “hauls rock”; I don’t know, do you understand how to haul rock? And then do you understand, “Tsung said, ‘For now I’ll let you haul rock, but don’t move the tree in the middle’”? Do you understand the tree in the middle? What does it mean? How do you haul the rock? 
+This is a little bit questionable; I am not clear [about] “hauls rock”. In English it says “hauls rock”; I don’t know, do you understand how to haul rock? And then do you understand “Tsung said, ‘For now I’ll let you haul rock, but don’t move the tree in the middle’”? Do you understand the tree in the middle? What does it mean? How do you haul rock? 
 
 **Student**: Well, haul rock means to move from one place to another.
 
