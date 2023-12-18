@@ -126,19 +126,53 @@ Oh excuse me, let me say – “the greatly compassionate one, the savior of the
 
 Let me say, Buddha – excuse me, I said a little bit something wrong. I didn’t notice “the most excellent deeds in all the ten directions.” Buddha’s activity is always excellent or supreme. “In all the ten directions” means the implication of space. But not only space, but also the time process. Including time and space, Buddha is always doing something good, for all sentient beings. So in all ten directions means, for all sentient beings who exist in space and time. That is called in the ten directions. So Buddha has most excellent deeds for all sentient beings. 
 
-And next, 
+And next, what is most excellent deeds for all sentient beings? That is great compassionate one, he is great compassionate one. That’s why his deeds are very excellent. One by one, it says “the great compassionate one, Buddha,” his deeds are very compassionate, and also he is helping all sentient beings, the human world, that’s why “savior of the world.” That is his deeds.
 
+And also “omnipotent, omnipresent.” Omnipotent means Buddha’s body is always functioning freely, helping. According to the characteristic of the person, according to the circumstances, Buddha helps. So that is “omnipotent.” Buddha’s body is working freely, functioning freely. That is “omnipotent, omnipresent.”
 
+And also it says, “omniscient.” “Omnipotent, omnipresent, omniscient” means the implication of how Buddha’s body is functioning, completely freely. 
 
+And also, that is Buddha, so that’s why we have we take refuge in the Buddha. We are Buddha, already. That’s why we try to do as a Buddha, we try to behave as a Buddha. We are already Buddha, that’s why we have to show it, we have to act as a Buddha. If you are not Buddha, it’s not necessary to practice, you know? We are Buddha, that’s why we have to act as a Buddha. If you are not Buddha, you cannot act as a Buddha. 
 
+And the next, “we take refuge in the dharma.” Dharma is the manifestation of its essence. The essence of being, that is Buddhist dharma. And the reality, the essence of beings is in a sense called the reality. Real reality, we can say so. So the reality you live in is really essence of being. So you don’t know, you cannot touch it, you cannot pin down what reality is, what is reality, what is the place you live in. It’s vast. The more you research, the more you don’t know. It’s very big, vast. That is reality. 
 
+So manifestion of dharma is manifestation of his essence, essence of beings, or sometimes it is called reality. What is this? This is kind of a sea of suchness. Suchness is truth, or vastness of existence. So reality or essence of beings is really vast as the sea. And also the boundless storehouse of excellence, wonderful things in it. That’s why we have to practice patience. Under all circumstances, unfavorable or favorable conditions, anyway we have to practice patience, and we have to make effort, we have to take care of with discipline, and we have to practice meditation and wisdom. Meditation means tranquility [...], and wisdom is clear observation. We say sometimes vipassana. Meditation is called shamata, shamata is one-pointedness. Very naturally your mind, your body becomes tranquil. So meditation is the implication of the practice of tranquilization, and wisdom is clear observation, by which you can see the essence of human life, which is going up and down, up and down. So core of existence, core of the human world, samsaric world, we can see it, by wisdom. That’s why clear observation, we say vipassana. 
 
+So very naturally we have the boundless storehouse of excellency. That is dharma. That’s why, whatever happens, let’s learn the dharma, believe in the dharma, and devote yourself to the dharma, constantly. This is great encouragement.
 
+Next, “in the sangha, whos members truly devote themselves to the practice.” Even though there are Buddha and dharma, we need the sangha who’s members are interested in practicing buddha and dharma. We need the human beings who live now, today. Otherwise, we cannot transmit, we cannot convey buddha and dharma to the next generation. 
 
+So that is sangha. Truly devote themselves to the practice. So sangha members of the buddhism is person who devotes himself to the practice, on the basis of Buddhist teaching. 
 
+So there are three, always the author has a great vow, why he has to write this book. So he has very profoundly vow of devoting himself to buddha, dharma, sangha. This is very important for this author. So he devotes himself with his life, to write this book. To write this book means to help all sentient beings. Not help only the human intellect, but helping human intellect and human emotion and also human will. Intellect, emotion, and will. And then, the final goal is to be free from human intellection, human emotion, human will. That is the vow, to take refuge in the triple treasure. 
 
+So Buddhist belief is to believe dharma. What do you mean, to believe in dharma? To believe in dharma is to take refuge in the triple treasure, buddha, dharma, sangha. What is the buddha? Buddha is a person who constantly has something good, helping. Even just his presence is very helpful. So that is buddha. And historically, Buddha is Gotama Siddhartha, Shakyamuni Buddha. Who existed in human history, that’s why believe, we trust this person. And that this person tells us, all sentient beings, all of you, are buddha, exactly the same as Buddha Shakyamuni. He proved this, twenty-five hundred years ago. So we trust, we believe in this historical person Shakyamuni Buddha, and simultaneously, next we believe in his teaching, so-called “we are buddha.” So if you believe in the dharma, very naturally there is a practice that is we take refuge in the buddha, and we exist in this human world as a human being but simultaneously more than a human being, that is holiness, something like this. But it’s not good enough, because we have to believe in his teaching, the teaching of his life. That is the teaching, dharma. 
 
+And next, we have to devote ourselves to the sangha, people who are always practicing the teaching and believing in the buddha. This is the sangha. Sangha is we take refuge in the people who exist and practice buddha and buddha’s teaching. So that is the contents, quality of believing in dharma. So that’s why triple treasure is very important. So Buddhist faith is not to believe in something divine, or holiness. You have to be in holiness, and also to his teaching, and also the people who practice buddha and holiness and also his teaching. So very vast. Buddhist faith is very vast. And buddhist faith is very grounded in human life, because you have to believe human beings who practice buddha’s way, Buddha’s teaching. So that is the sangha. That’s why sangha is important. 
 
+“May all sentient beings be made to discard their doubts, to cast aside their evil attachments, and to give rise to the correct faith in the Mahayana, that the lineage of the Buddhas may not be broken off.” 
+
+“May all sentient beings be made to discard their doubts”. One point is he takes a vow to take refuge in the Triple Treasure, that is the reason why he wants to let all sentient to be made to discard their doubts. Human beings have lots of doubts. Toward the essence of existence, and also the teaching about the essence of the beings. So lots of doubts, so he removes their doubts. 
+
+“To cast aside their evil attachments” – the human beings possess very strong evil attachments, to the self, and to its object, based on attachment, consciously or unconsciously. The more you practice and you study Buddhism, the more you realize how strongly your attachment is functioning. 
+
+And “to give rise to correct faith in the Mahayana.” So very naturally to give rise to correct faith in the Mahayana. And that means to maintain the seeds of the Buddha, which all sentient beings possess. “Seeds of the Buddha” means seeds of universal life. “may not be broken off.” 
+
+Okay, do you have questions? 
+
+#### 1:11:00
+
+**Question**: Hojo-san? You said “we’re already Buddha, so we need to act like Buddha.” We’re already Buddha, and everything we do is the action of Buddha. Is that right? If we’re already Buddha, then everything we do is already the action of Buddha. 
+
+**Katagiri**: Mmm-hmm. 
+
+**Question**: So what do we need to try to do?
+
+**Katagiri**: Well that’s why we have to do it. But human beings don’t do it. Don’t you think so? Tree, birds, and sky, winter, work pretty well as buddha. But human beings don’t work in that way. Do you understand? 
+
+For instance, when you do zazen, that is simple zazen. Buddha means, if you are buddha, and then you should act as a buddha in zazen means ... what do you mean by this? Zazen and you are not separated, zazen and you are interconnected, interpenetrated, having great, wonderful created world, created life there, between zazen and you. Very nice creation there, created life. But we don’t do it. But look at the trees and winter. Wonderful creation there. But we don’t do it. We always doing zazen, we’re always complaining, and daydreaming, always thinking, chasing after thoughts. Don’t you think so? We are always creating a gap between zazen and you, always. So it’s very difficult to create universal life, created life. I say group creation, okay? *[He laughs.]* By the sangha you have to have group creation, wonderful creation in life. That means each person must communicate very closely; don’t create a gap. But that is very difficult. If you live like this, very naturally you are fighting, you know? In many ways. Competing, always. But look at the trees and birds, and winter. Very naturally, there is wonderful creation there. That’s why we are really caught by the beauty of nature. Completely beyond human speculation: why do you like nature? You like it. Because we can see it. That’s a beautiful scene. We have [it] already, that’s why we can see that something beautiful which nature has. But actually we don’t do it, that’s why we are really caught by nature and dream that nature. At that time, we forget completely how to practice this. So always dreaming, and exciting the beauty of nature. That’s why people want to go to nature, et cetera. Well we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha.”
+
+That is, from day to day you have to practice, anyway. There is no end. Day to day, you have to do it. 
 
 #### end of recording
 
