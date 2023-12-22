@@ -7,18 +7,18 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 The [**Talk Summaries**](summaries) page lists the talks that have been transcribed on this site, along with brief summaries written by Kikan.
 
-The [**List of Talks**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links to the talks that have been transcribed. There are many Katagiri Roshi talks that are not on this list because they are not yet in the online audio archive.
+The [**List of Talks**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links to the talks that have been transcribed. There are many talks that are not on this list because they are not yet in the online audio archive.
 
 ## Series of Talks
 
-Katagiri Roshi gave many series of talks on specific topics in Zen Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are listed below. Readers should be aware that Katagiri Roshi’s discussion of these topics is not limited to these series of talks; because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
+Katagiri Roshi gave many series of talks on topics in Zen Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are listed below. Readers should be aware that Katagiri Roshi’s discussion of these topics is not limited to these talk series; because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
 
 - [**Diamond Sutra**](diamond-sutra) (1979-1980)
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [**Blue Cliff Record (*Hekiganroku*)**](blue-cliff-record) (1979-1989)
 - [**Karma**](karma) (1980, 1987)
 
-These lists will be updated as more talks are transcribed.
+These lists will be updated as talks are transcribed.
 
 ## Latest Updates
 
