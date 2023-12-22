@@ -13,8 +13,8 @@ The [**List of Talks**](list) lists the talks that are present in the [online au
 
 Katagiri Roshi gave many series of talks on specific topics in Zen Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are listed below. Readers should be aware that Katagiri Roshi’s discussion of these topics is not limited to these series of talks; because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
 
-- [**Diamond Sutra**](diamond-sutra) (1979-1980)
-- [**Fukanzazengi: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
+- [***Diamond Sutra***](diamond-sutra) (1979-1980)
+- [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [**Blue Cliff Record (*Hekiganroku*)**](blue-cliff-record) (1979-1989)
 - [**Karma**](karma) (1980, 1987)
 
