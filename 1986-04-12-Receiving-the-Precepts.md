@@ -13,6 +13,8 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/receiving-the-precepts" target="_blank">*Listen to this talk on mnzencenter.org*</a>
 
+***This transcript is in rough draft stage.***
+
 <a name="000"></a>
 #### 0:00 start of recording
 
