@@ -9,12 +9,12 @@ The [Talk Summaries](summaries) page lists just the talks that have been transcr
 
 The [List of Talks](list) list the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links to the talks that have been transcribed. There are many Katagiri Roshi talks that are not reflected on this list, because they are not yet in the online audio archive.
 
-## Series of Talks
+## Talk Series
 
-Katagiri Roshi gave many series of talks on topics in Zen Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some ongoing for years. This list will be added to as more talks are transcribed. 
+Katagiri Roshi gave many series of talks on topics in Zen Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some ongoing for years. These lists will be updated as more talks are transcribed. (Readers should be advised that Katagiri Roshi’s discussion of various topics is by no means limited to these talk series. Because all Buddhist teaching is interrelated, topics can and do come up anywhere in Katagiri Roshi’s talks.)
 
 - [*Diamond Sutra*](diamond-sutra) (1979-1980)
-
+- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen](fukanzazengi) (1979)
 
 ## Latest Updates
 
