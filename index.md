@@ -16,6 +16,7 @@ Katagiri Roshi gave many series of talks on specific topics in Zen Buddhism – 
 - [Diamond Sutra](diamond-sutra) (1979-1980)
 - [Fukanzazengi: Dogen's Universal Recommendation for Zazen](fukanzazengi) (1979)
 - [Blue Cliff Record (*Hekiganroku*)](blue-cliff-record) (1979-1989)
+- [Karma](karma) (1980, 1987)
 
 ## Latest Updates
 
