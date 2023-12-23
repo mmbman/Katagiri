@@ -2,7 +2,7 @@
 title: "Lay Ordination Lectures"
 ---
 
-Katagiri Roshi gave more than one series of lectures on lay ordination; this series is from 1986. It is followed by one or more talks where he was still discussing the Buddhist Precepts.
+Katagiri Roshi gave more than one series of lectures on lay ordination; this series is from 1986. The main series is followed by one or more talks where he continued discussing the Buddhist Precepts.
 
 --- 
 
