@@ -25,7 +25,7 @@ In particular, Katagiri Roshi gave many series of talks on the works of Zen Mast
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [***Genjōkōan***](genjokoan) (1987)
 
-Readers should be aware that much discussion of these topics is also found outside of these series of talks. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere in Katagiri Roshi’s talks.
+Readers should understand that because all Buddhist teaching is interrelated, these topics can and do come up anywhere in Katagiri Roshi’s talks, not just within these series of talks.
 
 These lists will be updated as talks are transcribed.
 
