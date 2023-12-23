@@ -1,5 +1,5 @@
 ---
-title: "List of Talks"
+title: "Talk List"
 ---
 
 This list reflects talks that are in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html). There are many more Katagiri Roshi talks that are not yet in the online archive. 

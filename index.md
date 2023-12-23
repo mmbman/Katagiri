@@ -7,7 +7,7 @@ Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddh
 
 The [**Talk Summaries**](summaries) page lists the talks that have been transcribed on this site, along with brief summaries written by Kikan.
 
-The [**List of Talks**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links to the talks that have been transcribed. There are many talks that are not on this list because they are not yet in the online audio archive.
+The [**Talk List**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links to the talks that have been transcribed. There are many talks that are not on this list because they are not yet in the online audio archive.
 
 ## Series of Talks
 
