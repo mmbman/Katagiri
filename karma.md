@@ -4,7 +4,7 @@ title: "Karma"
 
 Katagiri Roshi gave this two-week “seminar” on *karma* in the summer of 1980. Also included at the end of this list is the 1987 talk “Karma in Buddhism”.
 
-It may be surprising to learn that the concept of *karma*, far from being a side topic in Zen Buddhism, is referred to in almost every dharma talk by Katagiri Roshi. The word *karma* is not always used, but terms like *causation*, *cause and effect*, *action*, *karmic consciousness*, *ālaya-vijñāna*, *the conditioned*; *conditioned elements*, *samskaras*, *personality*, *whole personality*, *culture*, and *“lifetime after lifetime”* are all related to *karma*. 
+It may be surprising to learn that, far from being a side topic, the concept of *karma* is referred to in *almost all* of Katagiri Roshi’s dharma talks. The word *karma* is not always used, but terms like *causation*, *cause and effect*, *action*, *karmic consciousness*, *ālaya-vijñāna*, *the conditioned*; *conditioned elements*, *samskaras*, *personality*, *whole personality*, *culture*, and *“lifetime after lifetime”* are all related to *karma*. 
 
 The concept of karma is inextricably entwined with Buddhism itself. However, we should be careful to understand what Katagiri Roshi means by *karma*. Karma is not simply action, nor is it simple cause and effect; nor is it some kind of force that locks us into a certain destiny. Karma is not something pessimistic. According to Katagiri Roshi, karma is great energy that allows us to live, to relate to the world, and to move freely into the future.
 
