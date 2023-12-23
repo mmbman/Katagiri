@@ -17,42 +17,42 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 
 ---
 
-### [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+### [Twelve-Link Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
 #### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi completely explains the The Twelve-Linked Chain of Causation... presumably, but the audio is lost. However, there is substantial review of the topic in the talks following this one.
 
 ---
 
-### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
+### [Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 #### July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explains how *karma* is the source of our lives. He reviews the Twelve-Linked Chain of Causation, noting that karma is *samskara* (link two) and *bhava* (link ten). So karma originates from the first link: *avidyā* (*ignorance*). This means that avidyā is really *vitality* – it is how we get into the human world of the present moment. Our karma cannot be understood intellectually; the way to understand karma is to return to the source, which is to do *zazen* (sitting meditation). That is how we can look at who we are and where we are, and experience real joy. Katagiri Roshi describes four stages of zazen and five related consciousnesses; in particular, the descriptions of *prīti* and *sukha* may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist texts. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
 ---
 
-### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
+### [Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 #### July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve-Linked Chain of Causation, unmanifested karma is *samskaras*. (It is also related to *alayavijnana*, storehouse consciousness.) Despite its role in morality, unmanifested karma itself is completely neutral in nature. If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
 
 ---
 
-### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
+### [Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
 #### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ---
 
-### [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
+### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 #### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses karma in terms of Dogen’s teaching, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji focuses on practice over study or even realization. *Karma* does not mean simple cause and effect or *action*, as one popular understanding goes, but includes *unmanifested karma*, the impression left behind by our actions. *Karmic retribution* is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. There is also a surprising explanation of the line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi*. All of this relates to *eko* – giving away the merit from our actions – which is viewed as the fundamental attitude toward studying the Buddha Way. Also: Be the turtle.
 
 ---
 
-### [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
+### [Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 #### July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Karma is not a psychological entity: karma is consciousness, but also karma is really the human body, closely related. So if we want to know karma, we have to know the human body; and if we want to know the human body, we have to know consciousness. According to Twelvefold Causation, the base of our existence as karma is ignorance; but this ignorance is really vitality, allowing us to enter the gate of the human world. We should appreciate this. But we can’t just appreciate it without making any effort, because we carry many kinds of karma, stored at the bottom of human body and mind. This karma comes up only when time is right and conditions are arranged, so it is important that we arrange good conditions. We can do so because karma is a great source of energy, which we call *emptiness*. That means we can think in terms of possibility, and “dream the impossible dream” of helping all beings. Also: how to work with emotions in zazen.
