@@ -11,7 +11,7 @@ The [**Talk List**](list) lists the talks that are present in the [online audio 
 
 ## Series of Talks
 
-Katagiri Roshi gave many series of talks on topics in Zen Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are listed below. Readers should be aware that Katagiri Roshi’s discussion of topics is not limited to these talk series: because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
+Katagiri Roshi gave many series of talks on topics in Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are listed below. Readers should be aware that Katagiri Roshi’s discussion of topics is not limited to these talk series: because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
 
 - [**Diamond Sutra**](diamond-sutra) (1979-1980)
 - [**Blue Cliff Record (*Hekiganroku*)**](blue-cliff-record) (1979-1989)
