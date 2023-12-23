@@ -20,10 +20,10 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 
 *[Opening chant in Japanese]*
 
-An unsurpassed, penetrating and perfect dharma  
-Is rarely met with in a hundred thousand million kalpas  
-Having it to see and listen to, remember and accept  
-I vow to taste taste the truth of the Tathagatha’s words.
+*An unsurpassed, penetrating and perfect dharma*  
+*Is rarely met with even in a hundred thousand million kalpas*  
+*Having it to see and listen to, remember and accept*  
+*I vow to taste the truth of the Tathagatha’s words.*
 
 #### 2:40
 
