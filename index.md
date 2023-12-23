@@ -11,7 +11,7 @@ The [**Talk List**](list) lists the talks that are present in the [online audio 
 
 ## Series of Talks
 
-Katagiri Roshi gave many series of talks on topics in Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are listed below:
+Katagiri Roshi gave many series of talks on topics in Buddhism – some during a *sesshin* (meditation retreat), some over the course of a few weeks or months, and some that were ongoing for years. Some of these series are:
 
 - [**Diamond Sutra**](diamond-sutra) (1979-1980)
 - [**Blue Cliff Record (*Hekiganroku*)**](blue-cliff-record) (1979-1989)
@@ -25,7 +25,7 @@ In particular, Katagiri Roshi gave many series of talks on the works of Zen Mast
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [***Genjōkōan***](genjokoan) (1987)
 
-Readers should be aware that Katagiri Roshi’s discussion of these topics is not limited to these series of talks. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
+Readers should be aware that much discussion of these topics is also found outside of these series of talks. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere in Katagiri Roshi’s talks.
 
 These lists will be updated as talks are transcribed.
 
