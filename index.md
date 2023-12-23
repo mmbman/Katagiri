@@ -22,7 +22,7 @@ Readers should be aware that Katagiri Roshi’s discussion of topics is not limi
 
 ### Eihei Dōgen and *Shōbōgenzō*
 
-In particular, Katagiri Roshi did many series of talks on the works of Zen Master Eihei Dōgen. References to Dōgen throughout Katagiri Roshi’s talks are too numerous to list, but these are some of the series of talks on specific fascicles of *Shōbōgenzō* or related works:
+In particular, Katagiri Roshi gave many series of talks on the works of Zen Master Eihei Dōgen. References to Dōgen throughout Katagiri Roshi’s talks are too numerous to list, but these are some of the series of talks on specific fascicles of *Shōbōgenzō* or related works:
 
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [***Genjōkōan***](genjokoan) (1987)
