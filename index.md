@@ -29,6 +29,8 @@ These lists will be updated as talks are transcribed.
 
 ## Latest Updates
 
+**December 23, 2023**: More talk series pages. 
+
 **December 22, 2023**: Revised home page; added talk series pages. 
 
 **November 24, 2023**: Posted cleaned-up version of [Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18), with summary. 
