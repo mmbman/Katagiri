@@ -18,7 +18,7 @@ Katagiri Roshi gave many series of talks on topics in Buddhism – some during a
 - [**Karma**](karma) (1980, 1987)
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
 
-Readers should be aware that Katagiri Roshi’s discussion of topics is not limited to these talk series: because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
+Readers should be aware that Katagiri Roshi’s discussion of topics is not limited to these talk series. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere in his talks.
 
 ### Eihei Dōgen and *Shōbōgenzō*
 
