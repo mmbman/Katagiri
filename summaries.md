@@ -2,6 +2,8 @@
 title: "Talk Summaries"
 ---
 
+These are the talks that have been transcribed on this site, with brief summaries written by Kikan.
+
 ---
 
 ### [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
