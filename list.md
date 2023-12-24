@@ -2,7 +2,7 @@
 title: "Talk List"
 ---
 
-This list reflects talks that are in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html). There are many more Katagiri Roshi talks that are not yet in the online archive. 
+This list reflects talks that are in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html). There are many talks that are not yet in the online archive. 
 
 Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989)
 
