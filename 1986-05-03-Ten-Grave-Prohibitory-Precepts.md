@@ -163,18 +163,71 @@ So I guess for me I don’t quite understand the distinction between dualism and
 
 **Katagiri**: That is the zazen we do. That’s why in zazen, throw away all worldly affairs, good and bad, right and wrong. *[He laughs.]* We say so. Because if you are involved in the conscious world, you already stand up [in] *A* and *B* conscious world, dualistic world. So you never down here. So you are always looking at zazen in terms of *A* world, in terms of *B* world – either. Before, or after. That’s why you don’t know zazen itself. 
 
-This is call *shikantaza*. *Shikan* – we say *wholeheartedness*. 
+This is called *shikantaza*. *Shikan* – we say *wholeheartedness*. But even though you don’t understand it, if you practice, follow the suggestions, then you can exactly experience, you can touch it. 
 
+So that’s why all we have to do is continually to be *right on there*, *right on there*, *right on there*. This is the way of “facilitating the growth of the Buddha seed.” 
 
+Naturally, it’s growth. But intellectually, we don’t understand, consciousness doesn’t accept easily. Because it’s far from it, but it’s too close to know. 
 
+#### 55:54
 
+**Question**: Hojo-san? I was just wondering if, you using the word *moment*. ... small point here, but I was thinking maybe the word *instant* would be a better choie of words. 
 
+**Katagiri**: Oh. Okay. 
 
+**Question**: Because the moment sometimes can be like I say, “one moment, please,” and then you wait... *[Katagiri laughs]*  ... talking about 1/75th of an instant. 
 
+**Katagiri**: I see. Okay.
 
+**Question**: Because you mean something very brief, no duration.
 
+#### 56:28
 
-#### end of audio
+**Question**: Hojo-san, sometimes the image I get of zazen when you say zazen is a place where there is no awareness. But I remember Narasaki Roshi’s image of the transparent pyramid. I was thinking of this in terms of Gary’s question. 
+
+**Katagiri**: Transparent?
+
+**Question**: The transparent pyramid, in which we have thinking, non-thinking, and not thinking, are the three sides of the pyramid.
+
+**Katagiri**: Mmm-hmm. Yes.
+
+**Question**: And each is seen through the transparency of the other. 
+
+**Katagiri**: Mmm-hmm.
+
+**Question**: That’s how in the moment, we do not lose contact. 
+
+**Katagiri**: Mmm-hmm. So it’s already, that means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetration, as superspeed. That you can see, if you stand up in this instant world, instant sphere. Instant doesn’t mean instant, *[he chuckles,]* instant means eternal world, very vastness of existence. But it is a source of your life. That’s why I say instant or moment. Let me say instant, do you think? *[He laughs.]* Instant; right there. 
+
+And if you stand up there, the two things and more than two, because around the *A* world many beings exist, around the *B* world many beings exist, and those are interdependent, interpenetrated at superspeed. So you can see the really beautiful panorama pictures. 
+
+That is so-called “I use twenty-four hours,” instead of “being used by twenty-four hours”. But usually a human being is used by *A* and *B*, but they don’t know how to use *A* and *B*. So if you want to use properly *A* and *B* dualistic world, you have to stand up there, as clear as you can. This is awareness. But if you stand up there, awareness is simultaneously no awareness, [it] drops off. But simultaneously awareness is there. So awareness, no awareness [are] always interdependent. 
+
+**Question**: Then the important thing is how you respond to the awareness. If you’re at the partition and you know there’s *A* and *B*, the dualistic, where you say “Oh, I have to be at *A*m” and get all upset, but the way that you’re talking about is [instead] put your consciousness into the moment that you’re in, and accept both *A* and *B*.
+
+**Katagiri**: Yes. But, you should accept, but you shouldn’t be excited too much, you shouldn’t be disappointed too much. Not pessimistic, not optimistic too much. That is called “middle way,” we say “Middle Way.” You should accept *A* and *B* because immediately beautiful pictures you can see, but at that time, that is called you can use it, you can handle it. But don’t be excited too much. So you cannot be optimistic, you cannot be pessimistic... you cannot be neutral. *[He laughs.]* So totally you have to be fully alive, every day, from moment to moment. That’s why Nansen ... says, “Every day is a good day.” “Every day is a good day” means from moment to moment you have to be alive, just like a leaping fish. Anyway you have to. But more or less, we feel pessimistic, and then we are bogged down with, you know, pessimism. Next moment, we love optimistic world, so we are rushing to the other side. *[He laughs.]* And then we’re excited. So we are always missing the most important point. This is the Middle Way. 
+
+I don’t mean you should always [be] “calm.” *[He laughs.]* But always excitement coming up, but within the excitement how much do you excite? This is the question. How much? I don’t know. But if excitement comes up, it’s natural, okay? I don’t mean you *shouldn’t* be excited. You can see the excitement naturally, because it’s dualistic. But a question is, how do you accept excitement to the minimum? In other words, simply, as simple as you can. 
+
+1:02:22
+
+**Question**: Hojo-san? One question. In what you’re saying about being with the moment rather than attaching with *A* or with *B*, how does it fit in with the sense of sometimes needing ideas to guide you, or ideals, or imagining say a social situation in a different kind of way and working toward that? Is that...
+
+**Katagiri**: Ideal image? 
+
+**Question**: Part of your problem solving.
+
+**Katagiri**: Oh, problem. 
+
+Well, many problems. It depends on the problem. Sometimes small problem and sometimes big problem, and sometimes you can find the solution by yourself, but sometimes you cannot. Maybe you have to find the solution with the people together, sometimes it takes a long time. Lots of kinds of problems. But even though it takes a long time to solve, anyway from moment to moment, basically your base, where you stand up, is constantly that sphere I mentioned. That sphere where you are neither excited too much nor pessimistic too much.
+
+**Question**: But in that process is there a place your imagination of an idea.
+
+**Katagiri**: You can use lots of imagination, anyway. For instance, in my case, I have to talk in English, you know? And then if look at myself, this is big problem for me, still a problem. And then, how can I find the solution to this one? But basically, I have to stand up always that Middle Way, constantly stand up, and then I can use lots of ideas. Beautiful image, so-called eternal possibility. *[He laughs.]* Do you understand “eternal possibility”? That is my friend said to me, “Katagiri, you are stupid, because you are awakening always only when you’re reading a book in English.” Not in Japanese; if I started to read the book in Japanese, I started to sleep. *[Laughter.]* But in English, I was pretty busy with looking at the dictionary, so I was awakening. *[He laughs, and the group laughs.]* So he, “you’re stupid,” anyway. And then he put me down, and then next scooped up again and he said, “But, your capability of English is eternal possiblity.” *[Everyone laughs.]* Do you understand? I didn’t understand at that time. *[Everyone laughs.]* So it’s not criticizing, but it’s not good. But it’s not bad. *[He laughs.]* So constantly Middle Way. Okay? 
+
+So I can think, I can think a beautiful, ideal image of my life. I don’t think I should handle my life in terms of certain ideas, so-called “I am stupid,” or I am a particular person. I don’t think it’s necessary to do this. So constantly we have to think something, we have to stand up in the middle, and also using the [philosophy and] ideas. But if you start to use ideas, people are always excited too much, or pessimistic. So you cannot do it. But experience excitement, many things. 
+
+#### 1:07:32 end of recording
 
 ---
 
