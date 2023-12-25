@@ -121,16 +121,6 @@ Do you have questions?
 
 ---
 
-From https://www.sotozen.com/eng/library/leaflet/sotozen/pdf/soto_zen.pdf:
-Banjin Do ̄tan’s Zenkaisho ̄ said:
-Precept is restraint and treatment [to heal the sickness caused by the three poisons of greed, hatred, and delusion]. Shakyamuni Buddha, having completed supreme awakening while sitting under the bodhi- tree, established the precepts. This is called restraint. The Buddha expressed restraint by saying, “I and the great earth and all sentient beings have simultaneously attained the Way.” Therefore, these are called the buddha precepts. These precepts are the original source of all buddhas and the root of practicing the bodhisattva way. The foundation is that all sangha members are Buddha’s children.
-
-
-
-#### 1:10:03 end of recording
-
----
-
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1986) \| 
