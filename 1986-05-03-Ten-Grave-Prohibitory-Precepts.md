@@ -125,7 +125,49 @@ So not to take life means already you receive the idea of not taking life. So, a
 
 So you have to understand taking life which is taking life is doing taking life. Anyway. That means not taking life itself. You simply cannot take life [of] anything. That is Buddha Nature, Buddha’s world. So finally, practice is, how can you do it? You just be right on, that moment.
 
-So finally, the commentary says, “do not take life.” That’s it. Dogen Zenji says “do not take life,” but no meaning. No meaning. But you want to have meaning. *[He laughs.]* Do you? You want to have a meaning. But strictly speaking: do not take life; yes, sir! That’s it. No meaning. And then from this, lots of meaning coming up. 
+So finally, the commentary says, “do not take life.” That’s it. Dogen Zenji says “do not take life,” but no meaning. No meaning. But you want to have meaning. *[He laughs.]* Do you? You want to have a meaning. But strictly speaking: do not take life: yes, sir! That’s it. No meaning. And then from this, lots of meaning coming up. That actually is Buddha’s seed, it is a source of energies. So very naturally it grows, many things grow. But we are always understanding from dualistic world. Participating in the completely different world from [what] Buddha mentions. We also understand Buddha’s teaching itself from a different angle. So we never know the Buddha’s teaching as it really is. That’s why we have to teach real Buddha’s teaching. How do you practice Buddha’s teaching? Even though it seems to be difficult, anyway we have to practice this. Because your life is already like that. 
+
+So from this point, the main purpose of Buddhism is not to attain enlightenment, no. I don’t think so. The main purpose of practice is to form habit as a vow, forever. That is just like take a journey in the universe. Day by day, step by step, anyway you should move. Like walking in the mist: you don’t what the mist is, you don’t know here you are walking, you don’t know what the merit is. All you have to do is just walk. But everything is a blur. And then somebody comes: “Please come here. Let’s walk hand in hand.” 
+
+So this the Buddha’s practice, okay? But people understand the main purpose of Buddhism or Zen is to attain enlightenment. That is a false practice, because you already participate in where? You know? *[He laughs.]* Already the conceptual world. Before and after, missing the most important point! If you miss the most important point, you never understand what human life is. Always you just understand the surface. But it makes you enjoy, because it is the usual way. *[He laughs.]* That’s why people enjoy very much. But they don’t satisfy, that way of life. They have lots of questions. But they don’t know how to practice, but they don’t know to touch that main important point. That’s why they always usually is, “Let’s go, let’s go, let’s go. Better life, better life.” That’s it. But they don’t trust, they don’t feel it is the right way of life. But they don’t know how to, that’s why they are always living there and ... *A* or *B* life, and always going, “Better life, better life, better life.” That’s it. Do you understand? Let’s develop physics. *[He laughs.]* And then what’s going on in the human world? Because they are missing the most important point. 
+
+This is Zen precepts. So Zen precepts are difficult to understand. But anyway, it’s not necessary to try to understand. I think you should receive it, and form a habit, as a *vow*. If you have guidance, that’s fine. So Buddha’s teaching, ancestors, and living teachers, have to walk hand in hand. This is important. Because we don’t know how to practice it. How to maintain [it]. How to form a habit, of a way of living based on the Buddha’s way. We don’t know. That’s why we need guidance, anyway. 
+
+Do you have questions? 
+
+#### 50:10 
+
+**Question**: I’ve always understood what we’re doing here in that we’re trying to get beyond this compulsive choice making that is encapsulated by dualism...
+
+**Katagiri**: Mmm.
+
+**Question**: ... but you seem to say more than that, and that we’re not even aware of the stream of events or the context in which things are occurring. And it strikes me that the mind inevitably must deal with each individual event or object within a context ... 
+
+**Katagiri**: Yes. 
+
+**Question**: ... that is, nothing has meaning unless it’s seen in a stream of events, or as a set of a larger group of objects. It’d be like watching a television program frame by frame, without seeing where thing came from and where they’re going. And so it seems to me that unless we deal with individual things within a larger context, that we just become ignorant. And then we have to have somebody tell us what to do. 
+
+So I guess for me I don’t quite understand the distinction between dualism and this, what you seem to be saying, not being aware of the context of events.
+
+**Katagiri**: I think dualism, that’s why I mentioned as an example the *A* and *B*. *A* and *B* are dualistic world. But if you want to know *A* and *B*, *A* and *B* both go through *this*, the world of the 1/75th of a moment. So you cannot ignore the *A* and *B*. The point is, you have to understand where you are, from where you understand *A* and *B*. 
+
+**Question**: Well, is it then seeing *A* and *B* as part of a set?
+
+**Katagiri**: *A* and *B* is a kind of a flower, and branches, and leaves. But without stem, without root, it’s impossible to grow. What you have to do is, where you are standing. You have to stand up this partition, this world, and see clearly as best as we can where we are standing. And then you can see the *A* and *B* in the universal perspective, and you can deal with it. But usually, people stand up [in] *A* world, or *B* world, and then understand or deal with only *B* world. And then *A* world tries to join into the *B* world, and then people are fighting and struggling, et cetera. Because they don’t stand up here. Do you understand? This is the source of your energies. So-called moment. Moment means you have to go through, in order to under the sleep and awakening from sleep. You have passed through this moment. That moment is, I mentioned, awakening is awakening. 
+
+**Question**: Can you fully experience the present moment and still be aware of the context in which it exists?
+
+**Katagiri**: Yes [you can].
+
+**Question**: Okay. 
+
+**Katagiri**: That is the zazen we do. That’s why in zazen, throw away all worldly affairs, good and bad, right and wrong. *[He laughs.]* We say so. Because if you are involved in the conscious world, you already stand up [in] *A* and *B* conscious world, dualistic world. So you never down here. So you are always looking at zazen in terms of *A* world, in terms of *B* world – either. Before, or after. That’s why you don’t know zazen itself. 
+
+This is call *shikantaza*. *Shikan* – we say *wholeheartedness*. 
+
+
+
+
 
 
 
