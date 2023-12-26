@@ -6,6 +6,7 @@ title: "Karma: Twelve-Link Causation"
 [List](list#1980) \| 
 [Previous](1980-06-30-Karma-Two-Aspects) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates) 
+\| Series: [Karma](karma)
 
 ### Summary
 

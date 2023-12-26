@@ -6,6 +6,7 @@ title: "Karma: Where Karma Originates"
 [List](list#1980) \| 
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
 [Next](1980-07-03-Karma-Unmanifested)
+\| Series: [Karma](karma)
 
 ### Summary
 

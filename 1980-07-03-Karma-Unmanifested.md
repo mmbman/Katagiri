@@ -6,6 +6,7 @@ title: "Karma: Unmanifested Karma"
 [List](list#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
 [Next](1980-07-04-Karma-Taking-Care-of-Karma)
+\| Series: [Karma](karma)
 
 ### Summary
 

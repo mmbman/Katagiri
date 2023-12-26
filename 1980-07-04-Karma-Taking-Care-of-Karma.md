@@ -6,6 +6,7 @@ title: "Karma: Taking Care of Karma"
 [List](list#1980) \| 
 [Previous](1980-07-03-Karma-Unmanifested) \| 
 [Next](1980-07-10-Karmic-Retribution-in-Present-Life)
+\| Series: [Karma](karma)
 
 ### Summary
 

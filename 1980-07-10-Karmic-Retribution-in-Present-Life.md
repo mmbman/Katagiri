@@ -6,6 +6,7 @@ title: "Karma: Karmic Retribution in Present Life"
 [List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
 [Next](1980-07-11-Karma-As-Energy-Emptiness)
+\| Series: [Karma](karma)
 
 ### Summary
 

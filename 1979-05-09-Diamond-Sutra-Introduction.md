@@ -6,6 +6,7 @@ title: "Diamond Sutra: Introduction"
 [List](list#1979) \| 
 Previous \| 
 [Next](1979-06-09-Fukanzazengi-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)
 
 ### Summary
 

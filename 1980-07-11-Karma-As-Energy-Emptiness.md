@@ -6,6 +6,7 @@ title: "Karma: Karma as Energy/Emptiness"
 [List](list#1980) \| 
 [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
 [Next](1980-07-12-Karma-Conclusion)
+\| Series: [Karma](karma)
 
 ### Summary
 

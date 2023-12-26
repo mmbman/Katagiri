@@ -3,11 +3,10 @@ title: "Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Ta
 ---
 ## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Blue Cliff Record](blue-cliff-record) series.
-
 [List](list#1979) \| 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)
 
 ### Summary
 

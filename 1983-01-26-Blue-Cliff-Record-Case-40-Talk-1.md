@@ -3,11 +3,10 @@ title: "Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Tal
 ---
 ## January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Blue Cliff Record](blue-cliff-record) series.
-
 [List](list#1983) \| 
 [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
 [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)
 
 ### Summary
 

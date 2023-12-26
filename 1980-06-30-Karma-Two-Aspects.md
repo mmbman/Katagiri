@@ -6,6 +6,7 @@ title: "Karma: Two Aspects"
 [List](list#1980) \| 
 [Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 
 [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) 
+\| Series: [Karma](karma)
 
 ### Summary
 
