@@ -3,6 +3,8 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 ---
 ## April 12, 1986 Dharma Talk by Dainin Katagiri Roshi
 
+Part of the [Lay Ordination Lectures](lay-ordination) series.
+
 [List](list#1986) \| 
 [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
