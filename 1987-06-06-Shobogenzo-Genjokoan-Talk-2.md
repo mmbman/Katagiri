@@ -272,3 +272,4 @@ So, [they are] always connected, something like that.
 [List](list#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| 
 [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
+\| Series: [Genjokoan](genjokoan)
