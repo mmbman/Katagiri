@@ -504,3 +504,4 @@ Drop off means, become one with zazen. In other words, absorb into zazen. That i
 [List](list#1979) \| 
 [Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
 [Next](1979-06-14-Fukanzazengi-Talk-6)
+\| Series: [Fukanzazengi](fukanzazengi)

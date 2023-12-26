@@ -476,3 +476,4 @@ That’s why that is number six: total personality. Let’s be there.
 [List](list#1979) \| 
 [Previous](1979-06-09-Fukanzazengi-Talk-1) \| 
 [Next](1979-06-11-Fukanzazengi-Talk-3)
+\| Series: [Fukanzazengi](fukanzazengi)

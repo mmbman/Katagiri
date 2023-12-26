@@ -248,3 +248,4 @@ This is zazen. Yes it is.
 [List](list#1979) \| 
 [Previous](1979-06-11-Fukanzazengi-Talk-3) \| 
 [Next](1979-06-13-Fukanzazengi-Talk-5)
+\| Series: [Fukanzazengi](fukanzazengi)
