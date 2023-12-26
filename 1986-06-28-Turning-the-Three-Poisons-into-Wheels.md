@@ -4,7 +4,7 @@ title: "Turning the Three Poisons into Wheels"
 ## June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
+[Previous](1986-04-12-Receiving-the-Precepts) \| 
 [Next](1987-05-23-Karma-in-Buddhism)
 
 ### Transcript
@@ -123,5 +123,5 @@ So that is [what] “the threefold wheel is pure and clean” [means]. Naturally
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
+[Previous](1986-04-12-Receiving-the-Precepts) \| 
 [Next](1987-05-23-Karma-in-Buddhism)
