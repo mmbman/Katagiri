@@ -224,3 +224,4 @@ Buddhism is always not to touch the extreme ideas, *perception of soul* or *perc
 [List](list#1979) \| 
 [Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
 [Next](1979-08-01-Diamond-Sutra-Emptiness)
+\| Series: [Diamond Sutra](diamond-sutra)

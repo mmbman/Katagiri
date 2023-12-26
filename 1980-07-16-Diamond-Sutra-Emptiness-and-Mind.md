@@ -174,3 +174,4 @@ In the koan I told you about: not ignoring causation, cause and effect, and not 
 [List](list#1980) \| 
 [Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1980-07-23-Diamond-Sutra-Final-Lecture)
+\| Series: [Diamond Sutra](diamond-sutra)
