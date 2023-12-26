@@ -3,11 +3,10 @@ title: "Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts"
 ---
 ## April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Lay Ordination Lectures](lay-ordination) series.
-
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+\| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 

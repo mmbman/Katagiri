@@ -3,11 +3,10 @@ title: "Turning the Three Poisons into Wheels"
 ---
 ## June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Lay Ordination Lectures](lay-ordination) series.
-
 [List](list#1986) \| 
 [Previous](1986-04-12-Receiving-the-Precepts) \| 
 [Next](1987-05-23-Karma-in-Buddhism)
+\| Series: [Lay Ordination](lay-ordination)
 
 ### Transcript
 

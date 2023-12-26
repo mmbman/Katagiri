@@ -6,6 +6,7 @@ title: "Genjokoan: A, B, and C Worlds"
 [List](list#1987) \| 
 [Previous](1987-06-20-Manas) \| 
 [Next](1988-10-05-Review-and-Renew)
+\| Series: [Genjokoan](genjokoan)
 
 ### Transcript
 

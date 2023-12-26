@@ -3,11 +3,10 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 ---
 ## March 15, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Lay Ordination Lectures](lay-ordination) series.
-
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
 [Next](1986-04-12-Receiving-the-Precepts)
+\| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 

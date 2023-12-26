@@ -6,6 +6,7 @@ title: "Genjokoan: Talk 3 (Flow)"
 [List](list#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 
 [Next](1987-06-20-Manas)
+\| Series: [Genjokoan](genjokoan)
 
 ### Transcript
 
