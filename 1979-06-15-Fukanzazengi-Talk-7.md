@@ -3,11 +3,10 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7"
 ---
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Fukanzazengi](fukanzazengi) series.
-
 [List](list#1979) \| 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
 [Next](1979-07-25-Diamond-Sutra-Provisional-Being)
+\| Series: [Fukanzazengi](fukanzazengi)
 
 ### Summary
 

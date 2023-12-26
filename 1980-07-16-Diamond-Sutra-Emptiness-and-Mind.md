@@ -3,11 +3,10 @@ title: "Diamond Sutra: Emptiness and Mind"
 ---
 ## July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Diamond Sutra](diamond-sutra) series.
-
 [List](list#1980) \| 
 [Previous](1980-07-12-Karma-Conclusion) \| 
 [Next](1980-07-23-Diamond-Sutra-Final-Lecture)
+\| Series: [Diamond Sutra](diamond-sutra)
 
 ### Summary
 

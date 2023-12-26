@@ -3,11 +3,10 @@ title: "Diamond Sutra: Emptiness"
 ---
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Diamond Sutra](diamond-sutra) series.
-
 [List](list#1979) \| 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+\| Series: [Diamond Sutra](diamond-sutra)
 
 ### Summary
 

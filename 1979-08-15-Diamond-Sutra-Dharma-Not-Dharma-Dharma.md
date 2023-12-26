@@ -3,11 +3,10 @@ title: "Diamond Sutra: Dharma / Not Dharma / Dharma"
 ---
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Diamond Sutra](diamond-sutra) series.
-
 [List](list#1979) \| 
 [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
 [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+\| Series: [Diamond Sutra](diamond-sutra)
 
 ### Summary
 

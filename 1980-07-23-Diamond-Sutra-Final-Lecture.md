@@ -3,11 +3,10 @@ title: "Diamond Sutra: Final Lecture"
 ---
 ## July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Diamond Sutra](diamond-sutra) series.
-
 [List](list#1980) \| 
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
+\| Series: [Diamond Sutra](diamond-sutra)
 
 ### Summary
 
