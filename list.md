@@ -298,7 +298,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. The Awakening of Faith 3/28/86
 1. The Awakening of Faith 4/11/86
 
-1. Lay Ordination Lecture 5 of 7: Receiving the Precepts
+1. [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
 
 1. Buddha's Birthday
 1. The Awakening of Faith 4/18/84

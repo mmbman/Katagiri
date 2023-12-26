@@ -29,6 +29,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**December 25, 2023**: Posted rough draft of [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts).
+
 **December 23, 2023**: More talk series pages. 
 
 **December 22, 2023**: Revised home page; added talk series pages. 

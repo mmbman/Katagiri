@@ -34,10 +34,10 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
-### Lay Ordination Lecture 5 of 7: Receiving the Precepts
+### [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
 #### April 12, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-*In process.*
+*Summary not yet available.*
 
 ---
 

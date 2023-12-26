@@ -424,6 +424,13 @@ Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the f
 
 The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue or characteristics*, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge. Also: how Gandhi dealt with events and circumstances.
 
+--- 
+
+### [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
+#### April 12, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
 ---
 
 ### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)

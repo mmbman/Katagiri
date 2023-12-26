@@ -4,7 +4,7 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 ## April 12, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
+[Previous](1986-03-15-Triple-Treasure-Lecture-2) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
 
 ### Summary
@@ -81,8 +81,6 @@ The second is the teaching of *emptiness in self-substance*. [Emptiness] making 
 
 These two teachings are the Buddhist Precepts. *To put on the brake, to stop* is backed by these two teachings. 
 
-#### 
-
 So let me say about this: number one, the teaching based on interdependent co-origination. Simply speaking, it means freedom lies in limitation, liberation lies in delusions, buddha is present in samsara. I think *Saddharma Pundarika* (the Lotus Sutra) says, “the place where Buddha should be is ... ” nyan nyan budhi in Japanese... I forgot the Sanskrit – that is “solemn part of the universe,” that is the place where human beings exist. So in the Lotus Sutra it says the place for the Buddha is that human world, we say samsara. Samsara means repetition of life and death, going constantly. So freedom lies in limitation, or liberation lies in delusion, buddha lies in samsara, because nothing exists alone. So if you say *liberation* – “I want to have liberation,” or “I want to be free from something,” object or subject – you never see liberation or freedom within freedom. But people believe unconsciously freedom is only in the realm of freedom. No. It’s wrong. It’s completely misunderstood. Freedom must be found in samsara; limitation. Because everything is dependent on a support or conditioned element. That means what? Already the dualistic world. *Dualistic world* means already you exist – not only human beings, *anything* exists depending on something else, support. So when you think *liberation*, liberation comes into existence when you accept limitation of the world; *then* [liberation] comes into existence. So without the limitation, you cannot think anything at all, so-called liberation. 
 
 So, it is because of the self nature of delusion in delusions. Because of the self nature of delusion in delusion – in other words, it means that when a delusion is thoroughly squeezed dry, delusion disappears and liberation emerges from [it]. Just like you can squeeze juice from an orange. So if you squeeze delusions in your hand, in your body and mind, dry, thoroughly, the liberation emerges from [this]. Because it has no sense of self-substance. *No sense of self-substance* means always moving. The basis of your existence is constantly moving and connected with each-other, very quickly, at superspeed. 
@@ -103,7 +101,7 @@ And then, between the brake and you, you can see a bigger space. Between you and
 
 For instance, if I sit here and Ty Cashman sits over there – what do I mean, *I* sit here and *Ty Cashman* sits over there? Should I attach to Ty Cashman? Yes or no? *[He laughs.]* I cannot attach to Ty Cashman, because if I want to know real relationship, I should accept this space between Ty and I. What do I mean, this space? Space enables me to realize how I can have a close, warm, and compassionate relationship between Ty and I. This is relation. Without space, I cannot have any relation with Ty. Because Ty is always impermanent: now he is sitting over there; maybe next moment, he leaves. [Maybe] he might get tired of listening to the Buddha’s teaching *[he laughs, and someone, presumably Ty, laughs]*, or pain from the legs, and boredom. So, we don’t know. But if I have a warm compassionate relation between Ty and I through this space, even though Ty leaves, still I can see this warm relationship. Okay? And then, simultaneously I can create a whole mood, imparting to every inch of this room. *[He laughs.]* 
 
-For instance, you come here and sit in zazen in this room. But this room itself is not different from rooms in other buildings. This is nothing but a building. But this is different, you can feel the difference from others’ rooms. If you visit others’ houses, you can feel different. The moment when you come here – something. So what we you mean? Who creates this mood, *whole* mood? I use “mood,” but it’s not imaginary world, it’s *something*. Because your existence is always penetrating to every inch of space and time. When you come here, sit in zazen, immediately you are connected with many things, visibly and invisibly. And then, you can have a relationship between you and zazen, and space, and [okesa], and many things. And, you create whole mood, totally. Wonderful mood, imparting to every inch of this room. [We] leave here, [and] somebody comes after that, [it] feels wonderful, peaceful. That is most important. That’s why relationship is very important for us. 
+For instance, you come here and sit in zazen in this room. But this room itself is not different from rooms in other buildings. This is nothing but a building. But this is different, you can feel the difference from others’ rooms. If you visit others’ houses, you can feel different. The moment when you come here – something. So what we you mean? Who creates this *whole mood*? I use [the word] “mood,” but it’s not imaginary world, it’s *something*. Because your existence is always penetrating to every inch of space and time. When you come here, sit in zazen, immediately you are connected with many things, visibly and invisibly. And then, you can have a relationship between you and zazen, and space, and [okesa], and many things. And, you create whole mood, totally. Wonderful mood, imparting to every inch of this room. [We] leave here, [and] somebody comes after that, [it] feels wonderful, peaceful. That is most important. That’s why relationship is very important for us. 
 
 So how can we be free from the dualistic world, based on emptiness in self-substance? At that time, that means to *squeeze* the brake, and you. Squeeze the brake thoroughly. It means, wholeheartedness. We say sometimes wholeheartedness, or one-pointedness. Sometimes in Sanskrit [we say] *manasikara*, [which] means “taking to heart.” Take the brake to heart. That means thoroughly, deeply take the brake to heart. At that time, you and the brake become one. According to the Buddhist technical term, we say *samadhi*, or one-pointedness, or wholeheartedness. Through wholeheartedness or one-pointedness, you can squeeze something thoroughly dry, and then you can get something else. 
 
@@ -113,7 +111,7 @@ So *put on a brake* in the common sense is the moral sense, morality, moral worl
 
 But mind is always moving. So in a sense, strictly speaking, you have to stop moving your mind. But there is constantly minutely moving your mind. So if you come to the ultimate terminal station of moving your mind, terminal station of the mind moving minutely, at that time what you have to do is very simple practice: just put on a brake, that’s it. Because it’s minute moving. You never know how much, you never know how can you stop moving. No. What you can do is just stop, beyond intellectual [or] emotional discussion of how we should stop. When you come to the terminal station of the mind minutely moving, it’s very simple practice you can reach. That’s all you can do. 
 
-#### 
+#### 48:36
 
 So [a] precept is to put on a brake, to stop. To stop means you have to put on a brake. Why do we have to put on a brake? It is not the usual moral practice, because you have to stop in the realm of the truth, so-called total, perfect peace and harmony. Stop your mind moving, anyway. When you stop it, very naturally there is actual practice there. That is called *not kill*, et cetera. Various precepts there. 
 
@@ -121,27 +119,25 @@ So “not to take life” is to put on a brake. So you have to practice this one
 
 But when you look at your life, how much can you obey this precept? Well, lots of times you break this precept: killing insects and killing many things, unconsciously or sometimes consciously. But anyway, there is no room for us to discuss [whether] we can follow this precept or not: from moment to moment we have to just put on the brake. That means just accept and practice it. And then, this is exactly a way to enable you to stop in the peaceful, harmonious world. 
 
-That’s why in lay ordination we said, *who* obeys this precept? For what should we obey this precept? 
-
-For whom do myriad flowers bloom in spring? For whom? If you see flowers, you are really impressed by the beautiful flowers in the spring. It comes from where? It comes from spring? [That] is already discussion. It comes from ground? [That’s] already discussion. It is blooming for somebody else? [That] is discussion already. So finally what you think is, for whom does this beautiful flower bloom in the spring? We don’t know. For whom you have to obey this precept? We don’t know. But it is reality, and it is very clear fact that flower is blooming from moment to moment, before your intellectual sense pokes into it. It’s already there. That is simple practice: just bloom. So all we have to do is just obey, and just follow the precepts as best as we can. 
+That’s why in lay ordination we said, *who* obeys this precept? For what should we obey this precept? For whom do myriad flowers bloom in spring? For whom? If you see flowers, you are really impressed by the beautiful flowers in the spring. It comes from where? It comes from spring? [That] is already discussion. It comes from ground? [That’s] already discussion. It is blooming for somebody else? [That] is discussion already. So finally what you think is, for whom does this beautiful flower bloom in the spring? We don’t know. For whom you have to obey this precept? We don’t know. But it is reality, and it is very clear fact that flower is blooming from moment to moment, before your intellectual sense pokes into it. It’s already there. That is simple practice: just bloom. So all we have to do is just obey, and just follow the precepts as best as we can. 
 
 So that’s why in lay ordination we say finally... as Buddha mentions, who obeys this precept, for whom do we obey this precept? Who gives this benefit? What is the benefit of the precept? Who give this benefit, to whom? Lots of questions come up. But all questions, anyway, must be squeezed, thoroughly. Where? In your hand, so-called the moment, right now, right here. And then, all things disappear. And then digest it. And then, you can create a wonderful mood, so-called Spring. Extending into every being: rocks, and trees... everybody. Everybody feels wonderful, anyway. 
 
 This is the meaning of *precept* in Buddhism, okay? So I think, even if you don’t understand now, well, please keep it in your heart. And contemplate the meaning of the Precepts in your everyday life. Beyond whether you will be able to obey or not, we have to think, we have to maintain, we have to be mindful of this precept. And then, gradually, you become wonderful. Sometimes immediately – but, no guarantee. *[He laughs, and the audience laughs.]* You can just do it. 
 
-A guarantee is something coming from an insurance company. *[Laughter.]* It’s not yours. My life insurance company is not mine. It’s the Zen Center’s! *[He laughs.]* It’s for somebody else. So my life has a guarantee, yes. What is the guarantee? I don’t know... I cannot get it, because I’d have to die. *[He laughs.]* Do you understand? If you want a guarantee, you have to die, anyway. And then, it really works. That is the real meaning of life insurance. *[Laughter.]* So that’s why I say always, “You can be reborn in paradise.” Surely. Surely: I make a promise. But no guarantee. *[He laughs.]* It means, you have to do it. Not my life: your life. You have to do it. But we have to help others, that’s why we practice like this. 
+A guarantee is something coming from an insurance company. *[Laughter.]* It’s not yours. My life insurance company is not mine. It’s the Zen Center’s! *[He laughs.]* It’s for somebody else. So my life has a guarantee, yes. What is the guarantee? I don’t know... I cannot get it, because I’d have to die. *[He laughs.]* Do you understand? If you want a guarantee, you have to die, anyway. And then, it really works. That is the real meaning of life insurance. *[Laughter.]* So that’s why I say always, “You can be reborn in paradise.” *Surely*. Surely: I make a promise. But no guarantee. *[He laughs.]* It means, you have to do it. Not my words, not my life – *your* life. You have to do it. But we have to help others, that’s why we practice like this. 
 
 Do you have questions? 
 
 #### 57:14
 
-**Question**: At Hokyoji last summer, Narasaki Roshi ... we had a full moon ceremony, taking the Precepts, which maybe we do every month [in Japan].
+**Question**: At Hokyoji last summer, Narasaki Roshi ... we had a full moon ceremony, taking the Precepts, which maybe they do every month [...] in Japan?
 
 **Katagiri**: Twice a month. 
 
-**Question**: Could you say a little bit about that? And say if we’ll ever do that here? 
+**Question**: Could you say a little bit about that, and say if we’ll ever do that here? 
 
-**Katagiri**: Yeah, I am thinking of practicing that one, in Hokyoji. Someday.
+**Katagiri**: Yeah, I am thinking of practicing that one in Hokyoji. Someday.
 
 #### 57:56 end of recording
 
@@ -150,5 +146,5 @@ Do you have questions?
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
+[Previous](1986-03-15-Triple-Treasure-Lecture-2) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)

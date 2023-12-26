@@ -5,7 +5,7 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+[Next](1986-04-12-Receiving-the-Precepts)
 
 ### Summary
 
@@ -196,4 +196,4 @@ But Gandhi’s example is very good for you. You can think of it. If you are Gan
 
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+[Next](1986-04-12-Receiving-the-Precepts)
