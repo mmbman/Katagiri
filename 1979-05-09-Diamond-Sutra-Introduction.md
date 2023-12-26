@@ -3,11 +3,10 @@ title: "Diamond Sutra: Introduction"
 ---
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Part of the [Diamond Sutra](diamond-sutra) series.
-
 [List](list#1979) \| 
 Previous \| 
-[Next](1979-06-09-Fukanzazengi-Talk-1)
+[Next](1979-06-09-Fukanzazengi-Talk-1) \|
+Series: [Diamond Sutra](diamond-sutra)
 
 ### Summary
 
