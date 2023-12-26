@@ -55,13 +55,13 @@ So you must be *habituated* to do something, but this must last for a long time,
 
 So let’s [look at] the Three Collective Pure Precepts from this point [of view].
 
-The first one [is] “collective all Buddha’s laws and rules.” The commentary says, “This is the abode of the Buddha’s laws, and the source of the Buddha’s laws.” So *collective all Buddhas laws and rules* means not only human beings, but also all sentient beings, all beings are ...
+The first one [is] “collective all Buddha’s laws and rules.” The commentary says, “This is the abode of the Buddha’s laws, and the source of the Buddha’s laws.” So *collective all Buddha’s laws and rules* means not only human beings, but also all sentient beings, all beings are ...
 
 **Question**: Hojo-san? Is that “collective” or “corrective?”
 
-**Katagiri Roshi**: *Collective*. So, collecting all Buddha’s rules and laws.
+**Katagiri Roshi**: *Collective*. So, collecting all buddhas’ rules and laws.
 
-That means all beings are structured by Buddha, or the truth. The essence of existence is suchness. So not only human beings, [but] tables, and trees, air, all beings are structured by the suchness or the essence of existence. Then according to the Awakening of Faith it is called Tathāgatagarbha. In other words, the essence of your existence is Buddha Nature. So microphone, the cushions and tables, all are Buddha, all are suchness. That’s why here the commentary says, “This is the abode of the Buddha’s laws, and the source of the Buddha’s laws.” 
+... That means all beings are structured by Buddha, or the Truth. The essence of existence is suchness. So not only human beings, [but] tables, and trees, air, all beings are structured by the suchness or the essence of existence. Then according to *The Awakening of Faith* it is called *tathāgatagarbha*. In other words, the essence of your existence is Buddha Nature. So microphone, the cushions and tables, all are Buddha, all are suchness. That’s why here the commentary says, “This is the abode of the Buddha’s laws, and the source of the Buddha’s laws.” 
 
 The second one is the collective wholesome dharmas. The commentary says, “It is the law of *anuttara-samyak-sambodhi*, and the way to guide oneself and others to practice it.” So collective wholesome dharmas. So in terms of a human eye, all sentient beings are something bright. In other words, greatness. Because the essence of existence, the essence of all sentient beings is structured by suchness. If so, all sentient beings are something bright, so-called “One Bright Pearl.” So under all circumstances we have respect all sentient beings. Whatever you feel, basically what we have to practice is to respect all sentient beings, to deal with all sentient beings with deep respect. Because it is the law of *anuttara-samyak-sambodhi*, our body is the law of anuttara-samyak-sambodhi, the unsurpassed perfect enlightenment, perfect greatness. And the way to guide oneself and others to practice it. So we have to teach this one. To yourself, you have to guide yourself and others to practice this. And then very naturally you can let the habit of vow grow on you. Even though you don’t know what the vow is. 
 
