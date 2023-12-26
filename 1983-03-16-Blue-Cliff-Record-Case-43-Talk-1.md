@@ -217,3 +217,4 @@ So if you see this bottom basis of human existence with your consciousness, cons
 [List](list#1983) \| 
 [Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 
 [Next](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

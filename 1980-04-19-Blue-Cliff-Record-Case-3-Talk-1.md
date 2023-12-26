@@ -243,3 +243,4 @@ So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha
 [List](list#1980) \| 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

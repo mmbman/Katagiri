@@ -122,3 +122,4 @@ Because you cannot judge the world and your life in terms of what you have under
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+\| Series: [Lay Ordination](lay-ordination)

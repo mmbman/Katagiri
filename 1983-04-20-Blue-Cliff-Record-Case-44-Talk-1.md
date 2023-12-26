@@ -221,3 +221,4 @@ Well, we should contemplate this koan again and again, in our whole life. Thatâ€
 [List](list#1983) \| 
 [Previous](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2) \| 
 [Next](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

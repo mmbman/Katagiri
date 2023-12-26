@@ -57,3 +57,4 @@ So that is Buddha Nature. If you want to know the meaning of the vastness of exi
 [List](list#1983) \| 
 [Previous](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2) \| 
 [Next](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

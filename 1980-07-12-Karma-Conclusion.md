@@ -142,3 +142,4 @@ Is that okay? *[He laughs.]* So of course I can say yes, grace is interdependent
 [List](list#1980) \| 
 [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
 [Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
+\| Series: [Karma](karma)

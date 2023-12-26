@@ -241,3 +241,4 @@ Whatever you judge, evaluate, think, it is nothing but understanding human life 
 [List](list#1982) \| 
 [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 
 [Next](1982-12-15-Blue-Cliff-Record-Case-37)
+\| Series: [Blue Cliff Record](blue-cliff-record)

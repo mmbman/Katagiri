@@ -33,3 +33,4 @@ Case [Twenty] of Blue Cliff Record
 [List](list#1981) \| 
 [Previous](unfinished-1981-1) \| 
 [Next](unfinished-1981-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

@@ -158,3 +158,4 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 [List](list#1986) \| 
 [Previous](1985-06-22-Introduction-to-Buddhism) \| 
 [Next](1986-03-01-Three-Aspects-of-Repentance)
+\| Series: [Lay Ordination](lay-ordination)

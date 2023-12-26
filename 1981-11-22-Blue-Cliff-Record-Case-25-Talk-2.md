@@ -246,3 +246,4 @@ But Buddhism is not discussing about that. Buddhism is that you have to know tha
 [List](list#1981) \| 
 [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Next](1982-11-17-Blue-Cliff-Record-Case-34)
+\| Series: [Blue Cliff Record](blue-cliff-record)

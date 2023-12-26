@@ -150,3 +150,4 @@ Sometimes with trailing vines, there is something interrupted, so sometimes tree
 [List](list#1979) \| 
 [Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
 [Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

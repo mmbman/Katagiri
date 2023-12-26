@@ -149,3 +149,4 @@ Do you have questions?
 [List](list#1986) \| 
 [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+\| Series: [Lay Ordination](lay-ordination)

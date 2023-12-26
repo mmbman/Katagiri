@@ -156,3 +156,4 @@ That is “The moon’s brightness shines, revealing the night traveller.”
 [List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 
 [Next](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)

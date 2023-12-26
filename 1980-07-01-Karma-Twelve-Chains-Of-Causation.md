@@ -49,3 +49,4 @@ So before time and space is completely no sense of [ignorance]. This is *[uninte
 [List](list#1980) \| 
 [Previous](1980-06-30-Karma-Two-Aspects) \| 
 [Next](1980-07-02-Karma-Where-Karma-Originates)
+\| Series: [Karma](karma)

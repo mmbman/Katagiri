@@ -224,3 +224,4 @@ Just like a music concert. Many beings exist in this world, but [as one], it mus
 [List](list#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 
 [Next](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

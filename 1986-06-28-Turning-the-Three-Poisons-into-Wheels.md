@@ -126,3 +126,4 @@ So that is [what] “the threefold wheel is pure and clean” [means]. Naturally
 [List](list#1986) \| 
 [Previous](1986-04-12-Receiving-the-Precepts) \| 
 [Next](1987-05-23-Karma-in-Buddhism)
+\| Series: [Lay Ordination](lay-ordination)

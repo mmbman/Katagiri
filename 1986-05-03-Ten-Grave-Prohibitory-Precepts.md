@@ -237,3 +237,4 @@ So I can think, I can think a beautiful, ideal image of my life. I don’t think
 [List](list#1986) \| 
 [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
 [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+\| Series: [Lay Ordination](lay-ordination)

@@ -250,3 +250,4 @@ That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Bre
 [List](list#1987) \| 
 [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+\| Series: [Karma](karma)

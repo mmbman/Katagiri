@@ -174,3 +174,4 @@ Very naturally that is just like energies moving. So that is called *everything 
 [List](list#1983) \| 
 [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
 [Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)

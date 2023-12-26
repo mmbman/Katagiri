@@ -95,3 +95,4 @@ In Japan there were two famous Zen Masters:  Bokusan Nishiari Zen Master (Nishia
 [List](list#1983) \| 
 [Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
 [Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)

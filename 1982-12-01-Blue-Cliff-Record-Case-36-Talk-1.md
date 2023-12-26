@@ -243,3 +243,4 @@ And then if you become a master of dance, both are working very smoothly. Withou
 [List](list#1982) \| 
 [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
 [Next](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

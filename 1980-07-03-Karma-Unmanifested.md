@@ -226,3 +226,4 @@ For instance, if maybe a few days ago a person walked on the bridge and immediat
 [List](list#1980) \| 
 [Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
 [Next](1980-07-04-Karma-Taking-Care-of-Karma)
+\| Series: [Karma](karma)

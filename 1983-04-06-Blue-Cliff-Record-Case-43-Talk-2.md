@@ -256,3 +256,4 @@ Remember this. My teacher said, when I complained a little bit about life (in th
 [List](list#1983) \| 
 [Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| 
 [Next](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)

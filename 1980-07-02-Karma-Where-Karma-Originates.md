@@ -318,3 +318,4 @@ So that’s why it’s a very unstable field. But all we have to do is do our be
 [List](list#1980) \| 
 [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
 [Next](1980-07-03-Karma-Unmanifested)
+\| Series: [Karma](karma)

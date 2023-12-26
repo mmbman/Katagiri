@@ -168,3 +168,4 @@ That’s why Dogen Zenji says, “this human body is nothing but emptiness, from
 [List](list#1980) \| 
 [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
 [Next](1980-07-12-Karma-Conclusion)
+\| Series: [Karma](karma)

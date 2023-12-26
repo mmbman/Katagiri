@@ -204,3 +204,4 @@ That is the pointer. And then, the main case: ...
 [List](list#1980) \| 
 [Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
 [Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+\| Series: [Blue Cliff Record](blue-cliff-record)

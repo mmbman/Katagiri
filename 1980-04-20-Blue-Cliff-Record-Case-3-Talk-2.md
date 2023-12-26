@@ -356,3 +356,4 @@ That’s why *[unintelligible]* is necessary for us. Why don’t you read “The
 [List](list#1980) \| 
 [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| 
 [Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)

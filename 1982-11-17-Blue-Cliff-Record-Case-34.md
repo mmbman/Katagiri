@@ -236,3 +236,4 @@ I understand it’s pretty hard, because getting up in the morning is a very sim
 [List](list#1982) \| 
 [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| 
 [Next](1982-11-24-Blue-Cliff-Record-Case-35)
+\| Series: [Blue Cliff Record](blue-cliff-record)

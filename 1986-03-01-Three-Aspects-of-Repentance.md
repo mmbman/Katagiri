@@ -190,3 +190,4 @@ Sandalwood is a really good smell, a very good fragrance of tree. “Cut down”
 [List](list#1986) \| 
 [Previous](1986-02-22-Significance-of-Ordination) \| 
 [Next](1986-03-08-Triple-Treasure-Lecture-1)
+\| Series: [Lay Ordination](lay-ordination)

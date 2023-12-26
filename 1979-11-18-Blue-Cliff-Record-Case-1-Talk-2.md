@@ -385,3 +385,4 @@ The commentary is very helpful for you, so if you have time, read the commentary
 [List](list#1979) \| 
 [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
 [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+\| Series: [Blue Cliff Record](blue-cliff-record)

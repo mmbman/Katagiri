@@ -200,3 +200,4 @@ That’s why Dogen Zenji also says it like this. Because all beings are benefiti
 [List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
 [Next](1980-07-11-Karma-As-Energy-Emptiness)
+\| Series: [Karma](karma)
