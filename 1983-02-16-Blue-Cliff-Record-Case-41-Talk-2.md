@@ -3,6 +3,8 @@ title: "Blue Cliff Record, Case 41: Chao Chou’s Man Who Has Died the Great Dea
 ---
 ## February 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
+Part of the [Blue Cliff Record](blue-cliff-record) series.
+
 [List](list#1983) \| 
 [Previous](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1) \| 
 [Next](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)

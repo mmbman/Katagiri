@@ -3,6 +3,8 @@ title: "Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum –
 ---
 ## April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
 
+Part of the [Blue Cliff Record](blue-cliff-record) series.
+
 [List](list#1983) \| 
 [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)

@@ -3,6 +3,8 @@ title: "Blue Cliff Record, Case 20: Lung Ya’s Meaning of the Coming from the W
 ---
 ## August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 
+Part of the [Blue Cliff Record](blue-cliff-record) series.
+
 [List](list#1981) \| 
 [Previous](unfinished-1981-1) \| 
 [Next](unfinished-1981-2) 
