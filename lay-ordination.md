@@ -41,10 +41,10 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
-### Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts
+### [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
 #### April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-*In process.*
+*Summary not yet available.*
 
 ---
 

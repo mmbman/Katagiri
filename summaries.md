@@ -433,6 +433,13 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
+### [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
+#### April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 ### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
 #### June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 

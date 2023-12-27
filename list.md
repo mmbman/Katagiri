@@ -305,7 +305,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Book of Equanimity: Case 5 – Talk 1
 1. Book of Equanimity: Case 5 – Talk 2
 
-1. Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts
+1. [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
 
 1. The Awakening of Faith 5/2/86
 

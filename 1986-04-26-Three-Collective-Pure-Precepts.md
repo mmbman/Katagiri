@@ -1,11 +1,11 @@
 ---
-title: "Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts"
+title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 ---
 ## April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+[List](list#1986) 
+\| [Previous](1986-04-12-Receiving-the-Precepts) 
+\| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) 
 \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
@@ -17,6 +17,8 @@ title: "Lay Ordination Lecture 6 of 7: Three Pure Collective Precepts"
 **This transcript is in rough draft stage.**
 
 **Archive Issue: the end of this talk is missing.**
+
+(*Transcriber’s Note*: The title of this talk in the audio archive says “Three Pure Collective Precepts,” but the term that is generally used, and which Katagiri Roshi uses, is “Three Collective Pure Precepts” – there’s a slight difference in word order. The title of the transcript has been adjusted accordingly. Although, it must be admitted that “pure collective precepts” does make sense, given the contents of the talk.)
 
 <a name="000"></a>
 #### 0:00 start of recording
@@ -83,19 +85,17 @@ So I think from this point, I am not criticizing American Buddhism or Japanese B
 
 But if you practice this, you can realize how difficult it is to be free from egoism, because anywhere, any time, egoism immediately appears. That’s why everyday we have to form the custom or habit of practicing vow. 
 
-#### 30:50 
+For instance, if you look around the world, nowadays, most people believe that the world is terrible, because many tragic situations have happened. And then, if you see the world in terms of your own understanding, you don’t know how to live in this world. Very naturally your life becomes pessimistic, because you see the world from your own viewpoint. Of course, the world is not going well, but I don’t think that is [the] true situation of the world. Still the world, the human beings, all beings are beautiful. So we shouldn’t be stuck in individual viewpoint or prejudice. We should deal with the world as truth, or peace and harmony, as much as possible. As much as possible, we try accept the world and human beings as truth and suchness, peace and harmony. And then, deal with the world in peace and harmony. Then, your activity becomes inconceivable. This is to obey following the Three Collective Pure Precepts. But most people don’t like the world. If people don’t like the world, very naturally the people behave in a not good way; always kind of trying to destroy, trying to take the pessimistic view of the world and life. At that time, you never have a chance to build up the peaceful world, peaceful life. You never help anybody. 
 
-For instance, if you look around the world, nowadays, most people believe that the world is terrible, because many tragic situations have happened. And then, if you see the world in terms of your own understanding, you don’t know how to live in this world. Very naturally, your life becomes pessimistic. Because you see the world from your own viewpoint. Of course, the world is not going well, but I don’t think that is a real situation, true situation of the world. Still the world, the human beings, all beings are beautiful. So we shouldn’t be stuck in individual viewpoint or prejudice. We should deal with the world as truth or peace and harmony as much as possible. As much as possible, we try accept the world and human beings as truth and suchness. Peace and harmony. And then deal with the world in peace and harmony. Then, your activity becomes inconceivable. This is obey, following the Three Collective Pure Precepts. But most people don’t like the world. If people don’t like the world, very naturally the people behave in not good way. Always kind of trying to destroy, trying to take the pessimistic view of the world and life. At that time, you never have a chance to build up the peaceful world, peaceful life. You never help anybody. 
+So through and through, we have to practice this. Take the world, take the human beings, take all sentient beings as Buddha, as truth. Next, totally, without any excuse – just like Mother Theresa: his body, your body, is Jesus’s body, exactly. Gassho, and take a piece of toilet paper and clean your body. When you take the bus, you bow to the Buddhas and chant the verse. Even though you don’t understand, anyway you should accept your object, your bus, your toilet, your body, just like this. And then your can deal with the toilet paper as Buddha’s life. At that time, there is what is called *kanno-doko*, which means very profound communication between you and the Buddhas, you and suchness, you and the universe. Not you and a piece of toilet paper; you can have very peaceful, harmonious communion between you and the universe. At that time, you can can help the life of toilet paper. 
 
-So through and through, we have to practice this one. Take the world, take the human beings, take all sentient beings as Buddha, as truth. Next, totally, without any excuse, just like Mother Theresa, his body, your body, is Jesus’s body, exactly. Gassho, and take a piece of toilet paper and clean your body. When you take the bus, you bow to the Buddhas and chant the verse. Even though you don’t understand, anyway you should accept your object, your bus, your toilet, your body, just like this. And then your can deal with toilet paper as Buddha’s life. At that time, there is which is called *kanno-doko*, which means very profound communication between you and the Buddhas, you and suchness, you and the universe. Not you and a piece of toilet paper; you can have very peaceful, harmonious communion between you and the universe. At that time, you can can help the life of toilet paper. 
+So that’s why every day, without being bogged down with lots of spirituality, we just deal with everyday life like this. This is [the] *Bendo ho* we practice. But sometimes we don’t understand, that’s why sometimes [...] we have to say “this body is Buddha’s body,” “the microphone is Buddha’s head,” “*oryoki* is Buddha’s head.” We say so, and deal with *oryoki* as Buddha’s head. We have to say it directly, because we don’t understand it, our consciousness always spins. That’s why that direct statement sometimes cuts off that tangle, [the] spinning of your consciousness. Just like Mother Theresa: this is the suggestion, instructions of a teacher. 
 
-So that’s why every day, without being bogged down with lots of spirituality, we just deal with everyday like. This is *Bendo ho* we practice. But sometimes we don’t understand, that’s why sometimes we have to do this, we have to say “this body is Buddha’s body,” “microphone is Buddha’s head,” “oryoki is Buddha’s head.” We say so, and deal with oryoki as Buddha’s head. We have to say directly, because we don’t understand it. Our consciousness always spins. That’s why that direct statement sometimes cuts off that [...], spinning of your consciosness. Just like Mother Theresa. This is the suggestion, instructions of a teacher. 
-
-Okay. Do you have some questions? 
+Do you have some questions? 
 
 #### 37:17
 
-**Question**: Hojo-san? Recently, you gave the name for this temple, Living in Vow Temple, Ganshoji. Is that that same notion of precept that you say there? 
+**Question**: Hojo-san? Recently, you gave the name for this temple, Living in Vow Temple, *Ganshoji*. Is that that same notion of *precept* that you say there? 
 
 **Katagiri**: Yes. That’s my hope. 
 
@@ -107,23 +107,19 @@ Vow is a big hope, huge hope.
 
 #### 38:17
 
-**Question**: I didn’t understand that aspiring to the vow. What ... ?
+**Question**: I didn’t understand “aspiring to the vow.” What ... ?
 
-**Katagiri**: Uh, I used [the word] aspiration, but that is not usual aspiration, [it is] profound aspiration. I’m mean it’s exactly the same as vow. I used a different term, [that’s all].
+**Katagiri**: Uh, I used [the word] aspiration, but that is not usual aspiration, [it is] profound aspiration. It’s exactly the same as vow; I [just] used a different term.
 
-#### 39:02
-
-**Question**: Would you explain that point again? You said that most people don’t understand vow, and that’s fine. But you said that the probably was that most people didn’t – what you said was have an aspiration for the vow. 
+**Question**: Would you explain that point again? You said that most people don’t understand vow and that’s fine. But you said that the problem was that most people didn’t – what you said was, have an aspiration for the vow. 
 
 **Katagiri**: Mmm-hmm.
 
 **Question**: So, how does that work? 
 
-**Katagiri**: I think... if you don’t understand the vow, most people ignore the vow. “It’s not my business,” you know? Something like that. In other words, you don’t want to do it because you don’t understand it. And also you don’t understand what to do, how to practice it, so you don’t have any intention to aspire for it under the guidance of a teacher; you don’t seek for it. That’s a problem. In other words, such a person has a very narrow point of view, always seeing the world which he can see, he can understand, that’s all. But he doesn’t see what – he cannot see the world. Is that clear? 
+**Katagiri**: I think... if you don’t understand the vow, most people ignore the vow. “It’s not my business,” you know? Something like that. In other words, you don’t want to do it because you don’t understand it. And also you don’t understand what to do, how to practice it, so you don’t have any intention to aspire for it under the guidance of a teacher; you don’t seek for it. That’s a problem. In other words, such a person has a very narrow point of view, always seeing the world which he can see, he can understand, that’s all. But he doesn’t see what he cannot see [in] the world. Is that clear? Because you cannot judge the world and your life in terms of what you have understood, or what you have seen. No. There is something which you don’t know; there are many beings ...
 
-Because you cannot judge the world and your life in terms of what you have understood, or what you have seen. No. There is something which you don’t know; there are many beings 
-
-***(Archive Issue: the audio ends unexpectedly at this point.)***
+**(Archive Issue: the audio ends unexpectedly at this point.)**
 
 #### 40:47 end of audio
 
@@ -131,7 +127,7 @@ Because you cannot judge the world and your life in terms of what you have under
 
 *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+[List](list#1986) 
+\| [Previous](1986-04-12-Receiving-the-Precepts) 
+\| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) 
 \| Series: [Lay Ordination](lay-ordination)
