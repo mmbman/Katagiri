@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1"
+title: "*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths – Talk 1"
 ---
 ## November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1979) \| 
 [Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
 [Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -19,9 +19,9 @@ Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Reco
 <a name="000"></a>
 #### 0:00 start of recording
 
-I have not studied the [*Blue Cliff Record*](glossary#blue-cliff-record) with you since I moved to Minneapolis. We studied [*Shōyōroku*](glossary#book-of-serenity) (the *Book of Equanimity*) which is pretty similar to the Blue Cliff Record (*Hekiganroku* in Japanese). But the *Blue Cliff Record* is a little different, and pretty unique, from *Shōyōroku* we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this *Blue Cliff Record* so much. 
+I have not studied the [*Blue Cliff Record*](glossary#blue-cliff-record) with you since I moved to Minneapolis. We studied [*Shōyōroku*](glossary#book-of-serenity) (the *Book of Equanimity*) which is pretty similar to the *Blue Cliff Record* (*Hekiganroku* in Japanese). But the *Blue Cliff Record* is a little different, and pretty unique, from *Shōyōroku* we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this *Blue Cliff Record* so much. 
 
-*Blue Cliff Record* consist of five parts. The main subjects are [a collection of one hundred very] short stories, in question and answer style, or in conversation style, or usually, in short story style. And second, each story has a verse of its own, by [Setchō Zen Master](glossary#setchō-jūken), who lived 980-1052 (CE). (Setchō Jūken is the Japanese name for the Chinese ancestor Hsueh Tou Ch’ung Hsien, or Xuedou Chongxian, 雪竇重顯, who compiled the cases of the Blue Cliff Record.) Also, later, [Engo Zen Master](glossary#engo-kokugon), who lived from 1063-1135, added the introductions to the main subjects, and also the notes – D.T. Suzuki used the term “pithy remarks”. Engo Zen Master added the notes to each phrase, and also the commentary to the main subject and the verses by Setchō Zen Master. (Engo Kokugon is the Japanese name for ancestor Yuan Wu K’e Ch’in, or Yuanwu Keqin, 圓悟克勤.)
+*Blue Cliff Record* consist of five parts. The main subjects are [a collection of one hundred very] short stories, in question and answer style, or in conversation style, or usually, in short story style. And second, each story has a verse of its own, by [Setchō Zen Master](glossary#setchō-jūken), who lived 980-1052 (CE). (Setchō Jūken is the Japanese name for the Chinese ancestor Hsueh Tou Ch’ung Hsien, or Xuedou Chongxian, 雪竇重顯, who compiled the cases of the *Blue Cliff Record*.) Also, later, [Engo Zen Master](glossary#engo-kokugon), who lived from 1063-1135, added the introductions to the main subjects, and also the notes – D.T. Suzuki used the term “pithy remarks”. Engo Zen Master added the notes to each phrase, and also the commentary to the main subject and the verses by Setchō Zen Master. (Engo Kokugon is the Japanese name for ancestor Yuan Wu K’e Ch’in, or Yuanwu Keqin, 圓悟克勤.)
 
 So each case in the Blue Cliff Record consists of five parts. In this book, the introduction to each case is represented as *Pointer*. So there is the Pointer, and the Case, or main subject, and Notes, Commentary, and Verse, and Commentary – the verses’ commentary, and also the main subjects’ commentary. 
 
@@ -35,7 +35,7 @@ The Pointer:
 
 > When you see smoke on the other side of a mountain, you already know there is a fire; when you see horns on the other side of a fence, right away you know there is an ox there. To understand three when one is raised, to judge precisely at a glance — this is the everyday food and drink of a patchrobed monk. Getting to where he cuts off the myriad streams, he is free to arise in the east and sink in the west, to go against or to go with, in any and all directions, free to give or to take away. But say, at just such a time, whose actions are these? Look into Hsueh Tou’s trailing vines.
 > 
-> (From [“The Blue Cliff Record”](books#BCR) translated by Thomas Cleary.)
+> (From [*The Blue Cliff Record*](books#BCR) translated by Thomas Cleary.)
 
 That is the introduction, which is called Pointer, to the main subject. Let me read the main subject:
 
@@ -43,7 +43,7 @@ That is the introduction, which is called Pointer, to the main subject. Let me r
 > 
 > Later the Emperor brought this up to Master Chih and asked him about it. Master Chih asked, “Does your majesty know who this man is?” The Emperor said, “I don’t know.” Master Chih said, “He is the Mahasattva Avalokitesvara, transmitting the Buddha Mind Seal.” The Emperor felt regretful, so he wanted to send an emissary to go invite (Bodhidharma to return). Master Chih told him, “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.”
 > 
-> (From [“The Blue Cliff Record”](books#BCR) translated by Thomas Cleary.)
+> (From [*The Blue Cliff Record*](books#BCR) translated by Thomas Cleary.)
 
 That is the main subject. And the introduction or Pointer is – I’ll read it again. *[He reads it again.]*
 
@@ -150,4 +150,4 @@ Sometimes with trailing vines, there is something interrupted, so sometimes tree
 [List](list#1979) \| 
 [Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
 [Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
