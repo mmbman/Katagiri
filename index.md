@@ -37,7 +37,7 @@ I (Kikan) will be co-leading this class at Clouds in Water Zen Center. The focus
 ### [When Conditions are Arranged: Katagiri Roshi's Lectures on Karma](https://www.oceanzen.org/buddhist-studies)
 #### Every Wednesday, January 24 – March 13, 2023 (8 sessions)
 
-My dharma uncle Genpo Michael O’Neal will be leading Compassionate Ocean Zen Center’s Buddhist Studies class, with the primary reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
+Genpo Michael O’Neal will be leading Compassionate Ocean Zen Center’s Buddhist Studies class, with the primary reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
 
 For both classes, a Zoom option is available for those who can only attend remotely. Four of the class sessions overlap in time, but a sufficiently motivated person could conceivably participate in both classes via some combination of in-person attendance, Zoom, and recordings. 
 
