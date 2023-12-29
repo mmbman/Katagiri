@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2"
+title: "Blue Cliff Record Case 4: Te Shan Carrying His Bundle – Talk 2"
 ---
 ## May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
 [Next](1980-06-30-Karma-Two-Aspects)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -350,4 +350,4 @@ This story is really dramatic. *[He laughs.]* Well, that koan is pretty hard for
 [List](list#1980) \| 
 [Previous](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| 
 [Next](1980-06-30-Karma-Two-Aspects)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

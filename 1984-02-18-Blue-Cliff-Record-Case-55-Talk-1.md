@@ -6,7 +6,7 @@ title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call – Talk 1"
 [List](list#1984) \| 
 [Previous](1984-03-23-Mindfulness-Talk-3) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -245,4 +245,4 @@ That’s why the teacher says, “I am not the teacher for you. I want to send y
 [List](list#1984) \| 
 [Previous](1984-03-23-Mindfulness-Talk-3) \| 
 [Next](1985-06-22-Introduction-to-Buddhism)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2"
+title: "Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2"
 ---
 ## April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1983) \| 
 [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -249,4 +249,4 @@ So, you cannot be careless. But I don’t mean you should be nervous. No. You ca
 [List](list#1983) \| 
 [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| 
 [Next](1984-03-21-Mindfulness-Talk-1)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

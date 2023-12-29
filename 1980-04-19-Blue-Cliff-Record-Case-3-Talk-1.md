@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1"
+title: "Blue Cliff Record Case 3: Master Ma Is Unwell – Talk 1"
 ---
 ## April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -19,7 +19,7 @@ What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feel
 <a name="000"></a>
 #### 0:00 start of recording
 
-Blue Cliff Record, Case 3, “Master Ma is Unwell”:
+*Blue Cliff Record*, Case 3, “Master Ma is Unwell”:
 
 > Great Master Ma was unwell. The temple superintendent asked him, “Teacher, how has your venerable health been in recent days?” The Great Master said, “Sun Face Buddha, Moon Face Buddha.”
 > 
@@ -243,4 +243,4 @@ So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha
 [List](list#1980) \| 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 
 [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

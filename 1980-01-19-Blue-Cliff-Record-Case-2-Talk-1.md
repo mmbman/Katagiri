@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1"
+title: "Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty – Talk 1"
 ---
 ## January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1980) \| 
 [Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
 [Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -204,4 +204,4 @@ That is the pointer. And then, the main case: ...
 [List](list#1980) \| 
 [Previous](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| 
 [Next](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

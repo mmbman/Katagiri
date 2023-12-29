@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho"
+title: "Blue Cliff Record Case 35: The Dialogue of Manjusri and Wu Cho"
 ---
 ## November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1982) \| 
 [Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -194,4 +194,4 @@ I told you several years ago, in Zen there are three ways of thinking and unders
 [List](list#1982) \| 
 [Previous](1982-11-17-Blue-Cliff-Record-Case-34) \| 
 [Next](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

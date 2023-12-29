@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1"
+title: "Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1"
 ---
 ## April 20, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1983) \| 
 [Previous](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2) \| 
 [Next](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -221,4 +221,4 @@ Well, we should contemplate this koan again and again, in our whole life. That�
 [List](list#1983) \| 
 [Previous](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2) \| 
 [Next](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

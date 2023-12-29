@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument"
+title: "Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument"
 ---
 ## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1981) \| 
 [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| 
 [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -278,4 +278,4 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 [List](list#1981) \| 
 [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| 
 [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

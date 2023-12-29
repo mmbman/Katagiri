@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2"
+title: "Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2"
 ---
 ## November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1981) \| 
 [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Next](1982-11-17-Blue-Cliff-Record-Case-34)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -246,4 +246,4 @@ But Buddhism is not discussing about that. Buddhism is that you have to know tha
 [List](list#1981) \| 
 [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
 [Next](1982-11-17-Blue-Cliff-Record-Case-34)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

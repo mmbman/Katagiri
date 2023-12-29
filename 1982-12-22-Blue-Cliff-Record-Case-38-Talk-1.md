@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1"
+title: "Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1"
 ---
 ## December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1982) \| 
 [Previous](1982-12-15-Blue-Cliff-Record-Case-37) \| 
 [Next](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -287,4 +287,4 @@ If you do something wrong, maybe you bump your head against an electric pole and
 [List](list#1982) \| 
 [Previous](1982-12-15-Blue-Cliff-Record-Case-37) \| 
 [Next](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)

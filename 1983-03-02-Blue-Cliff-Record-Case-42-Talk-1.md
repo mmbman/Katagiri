@@ -1,12 +1,12 @@
 ---
-title: "Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1"
+title: "Blue Cliff Record Case 42: Layman P’ang’s Good Snowflakes – Talk 1"
 ---
 ## March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 [List](list#1983) \| 
 [Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| 
 [Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -105,4 +105,4 @@ Even though you accept totally and all sentient beings respond to your life, sti
 [List](list#1983) \| 
 [Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| 
 [Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-\| Series: [Blue Cliff Record](blue-cliff-record)
+\| Series: [*Blue Cliff Record*](blue-cliff-record)
