@@ -30,12 +30,14 @@ Readers should be aware that these topics are discussed in many places within Ka
 ## Upcoming Classes
 
 ### [Realizing Full Aliveness: Katagiri Roshi’s Teachings on Karma and Being Human](https://cloudsinwater.org/2023/12/28/realizing-full-aliveness-katagiri-roshis-teachings-on-karma-and-being-human-jan-21/)
+#### every other Wednesday from January 31 – April 10, 2024
 
-I (Kikan) will be co-leading a class at Clouds in Water Zen Center every other Wednesday from January 31 – April 10, 2024, called . The focus of the class will be [Katagiri Roshi’s commentary on Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](https://katagiritranscripts.net/1981-07-18-Blue-Cliff-Record-Case-18).
+I (Kikan) will be co-leading this class at Clouds in Water Zen Center. The focus of the class will be [Katagiri Roshi’s commentary on Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](https://katagiritranscripts.net/1981-07-18-Blue-Cliff-Record-Case-18).
 
 ### [When Conditions are Arranged: Katagiri Roshi's Lectures on Karma](https://www.oceanzen.org/buddhist-studies)
+#### every Wednesday from January 24 to March 13, 2023
 
-My dharma uncle (or something like that) Genpo Michael O’Neal will be leading Compassionate Ocean Zen Center’s Buddhist Studies class on  every Wednesday from January 24 to March 13, 2023, with the primary course reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
+My dharma uncle Genpo Michael O’Neal will be leading Compassionate Ocean Zen Center’s Buddhist Studies class, with the primary reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
 
 For both classes, a Zoom option is available for those who can only attend remotely. Four of the class sessions occur at the same time, but a sufficiently motivated person could conceivably participate in both classes via some combination of in-person attendance, Zoom, and recordings. 
 
