@@ -181,7 +181,7 @@ And then,
 
 > Shuang said, “Vast waves spread far and wide, foaming billows flood the skies—”
 
-This is a Zen expression, in order to say something about the vastness of existence. The realm of X – this is a special expression Zen always says. Or according to Bodhidharma, Bodhidharma says “vastness and nothing holy,” et cetera. Very often this expression appears in the Blue Cliff Record. “Vast waves spread far and wide, foaming billows flood the skies” – this is completely the world of X, which is moving in the ten directions, everywhere. Nothing to pin down, you want to say. 
+This is a Zen expression, in order to say something about the vastness of existence. The realm of X – this is a special expression Zen always says. Or according to Bodhidharma, Bodhidharma says “vastness and nothing holy,” et cetera. Very often this expression appears in the *Blue Cliff Record*. “Vast waves spread far and wide, foaming billows flood the skies” – this is completely the world of X, which is moving in the ten directions, everywhere. Nothing to pin down, you want to say. 
 
 So that’s why the relics of the master [are] just like X. Or the spirit of your master becomes X. His death becomes X, your life becomes X. Your practice you think becomes X too. 
 

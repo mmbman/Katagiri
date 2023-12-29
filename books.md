@@ -14,7 +14,7 @@ This is a list of books or other publications that are referenced in Katagiri Ro
 ## The Blue Cliff Record
 Translated by Thomas Cleary
 
-Quotes from the Blue Cliff Record in the talks usually refer to Cleary's translation. ([Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)).
+Quotes from the *Blue Cliff Record* in the talks usually refer to Cleary's translation. ([Amazon link](https://www.amazon.com/dp/159030232X/ref=cm_sw_em_r_mt_dp_aLlMFb72FPDHC)).
 
 - [Blue Cliff Record Index](BCR).
 
