@@ -18,7 +18,7 @@ Katagiri Roshi gave many series of talks on topics in Buddhism – some during a
 - [**Karma**](karma) (1980, 1987)
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
 
-In particular, Katagiri Roshi gave many series of talks on the works of Zen Master Eihei Dōgen. Some of the series on fascicles of *Shōbōgenzō* or related works are: 
+In particular, Katagiri Roshi gave many series of talks on the works of Zen Master Eihei Dōgen. Some of the series on *Shōbōgenzō* or related works are: 
 
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [***Genjōkōan***](genjokoan) (1987)
