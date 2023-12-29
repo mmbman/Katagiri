@@ -76,13 +76,13 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 20 – Talk 2
 1. *Blue Cliff Record* Case 22
 
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 1
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 2
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 3
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 4
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 5
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 6
-1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 7
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 1
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 2
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 3
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 4
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 5
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 6
+1. *Shobogenzo Gyobutsu Igi*: Majestic Activity – Talk 7
 
 1. *Blue Cliff Record* Case 23 – Talk 1
 1. *Blue Cliff Record* Case 23 – Talk 3
@@ -117,7 +117,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
-1. Book of Equanimity: Case 52
+1. *Book of Equanimity*: Case 52
 
 1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 1. [*Blue Cliff Record* Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 1](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
@@ -155,7 +155,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Precepts for Lay Ordination – Part 1
 1. Precepts for Lay Ordination – Part 2
 
-1. The Awakening of Faith 3/16/84
+1. *The Awakening of Faith* 3/16/84
 
 1. [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 1. [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)
@@ -164,37 +164,37 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Mindfulness – Talk 4
 1. Mindfulness – Talk 5
 
-1. The Awakening of Faith 4/6/84
+1. *The Awakening of Faith* 4/6/84
 
 1. *Blue Cliff Record* Case 55 – Talk 3
 
-1. The Awakening of Faith 4/20/84
+1. *The Awakening of Faith* 4/20/84
 
 1. *Blue Cliff Record* Case 57 – Talk 1
 
-1. The Awakening of Faith 4/27/84
+1. *The Awakening of Faith* 4/27/84
 
 1. *Blue Cliff Record* Case 57 – Talk 2
 
-1. The Awakening of Faith 5/4/84
-1. The Awakening of Faith 5/11/84
+1. *The Awakening of Faith* 5/4/84
+1. *The Awakening of Faith* 5/11/84
 
-1. [The Awakening of Faith: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness)
+1. [*The Awakening of Faith*: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness)
 
-1. The Awakening the Faith 5/16/84: Time
-1. The Awakening the Faith 5/18/84: Alayavijnana and Tathagatagarbha
-1. The Awakening of Faith 5/22/84: Tathagatagarbha
-1. The Awakening of Faith 5/24/84: Tathagatagarbha and Alayavijinana
+1. *The Awakening of Faith* 5/16/84: Time
+1. *The Awakening of Faith* 5/18/84: Alayavijnana and Tathagatagarbha
+1. *The Awakening of Faith* 5/22/84: Tathagatagarbha
+1. *The Awakening of Faith* 5/24/84: Tathagatagarbha and Alayavijinana
 
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 1
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 2
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 3
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 4
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 5
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 7
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 8
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 10
-1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 11
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 1
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 2
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 3
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 4
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 5
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 7
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 8
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 10
+1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 11
 
 1. *Blue Cliff Record* Case 58 – Talk 1
 1. *Blue Cliff Record* Case 58 – Talk 2
@@ -205,14 +205,14 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 61 – Talk 1
 
-1. The Awakening of Faith 10/19/84
+1. *The Awakening of Faith* 10/19/84
 
-1. Book of Equanimity: Dongshan's "Always Close" – Talk 1
-1. Book of Equanimity: Dongshan's "Always Close" – Talk 2
+1. *Book of Equanimity*: Dongshan's "Always Close" – Talk 1
+1. *Book of Equanimity*: Dongshan's "Always Close" – Talk 2
 
 1. *Blue Cliff Record* Case 61 – Talk 2
 
-1. The Awakening of Faith 10/26/84
+1. *The Awakening of Faith* 10/26/84
 
 1. The Four Sustenances – Talk 1
 1. The Four Sustenances – Talk 2
@@ -257,20 +257,20 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 71
 
-1. The Awakening of Faith 10/18/85
+1. *The Awakening of Faith* 10/18/85
 
 1. *Blue Cliff Record* Case 72
 
-1. The Awakening of Faith 10/25/85
+1. *The Awakening of Faith* 10/25/85
 
 1. *Blue Cliff Record* Case 73
 
-1. The Awakening of Faith 11/01/85
+1. *The Awakening of Faith* 11/01/85
 
 1. *Blue Cliff Record* Case 74
 1. *Blue Cliff Record* Case 75
 
-1. The Awakening of Faith 11/15/85
+1. *The Awakening of Faith* 11/15/85
 1. Two Points to Consider: The Great Matter of Birth and Death Saving all Being
 1. Sharing Our Lives: The Practice of Attendance (Using the Selfish Self)
 
@@ -281,11 +281,11 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 1. [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
 
-1. The Awakening of Faith 3/7/86
+1. *The Awakening of Faith* 3/7/86
 
 1. [Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
 
-1. The Awakening of Faith 3/14/86
+1. *The Awakening of Faith* 3/14/86
 
 1. [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
 
@@ -295,19 +295,19 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Principles of Practice: Faith
 1. Principles of Practice: Direct Transmission
 
-1. The Awakening of Faith 3/28/86
-1. The Awakening of Faith 4/11/86
+1. *The Awakening of Faith* 3/28/86
+1. *The Awakening of Faith* 4/11/86
 
 1. [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
 
 1. Buddha's Birthday
-1. The Awakening of Faith 4/18/84
-1. Book of Equanimity: Case 5 – Talk 1
-1. Book of Equanimity: Case 5 – Talk 2
+1. *The Awakening of Faith* 4/18/84
+1. *Book of Equanimity*: Case 5 – Talk 1
+1. *Book of Equanimity*: Case 5 – Talk 2
 
 1. [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
 
-1. The Awakening of Faith 5/2/86
+1. *The Awakening of Faith* 5/2/86
 
 1. Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts
 
@@ -329,27 +329,27 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Verse of Offering Incense
 1. Bowing
 
-1. Shobogenzo Hossho: Dharma Nature – Talk 5
-1. Shobogenzo Hossho: Dharma Nature – Talk 6
-1. Shobogenzo Hossho: Dharma Nature – Talk 7
-1. Shobogenzo Hossho: Dharma Nature – Talk 8
-1. Shobogenzo Hossho: Dharma Nature – Talk 9
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 5
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 6
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 7
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 8
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 9
 
-1. Shobogenzo Tsuki: The Moon – Talk 1
-1. Shobogenzo Tsuki: The Moon – Talk 2
-1. Shobogenzo Tsuki: The Moon – Talk 3
-1. Shobogenzo Tsuki: The Moon – Talk 4
-1. Shobogenzo Tsuki: The Moon – Talk 5
-1. Shobogenzo Tsuki: The Moon – Talk 6
-1. Shobogenzo Tsuki: The Moon – Talk 7
+1. *Shobogenzo Tsuki*: The Moon – Talk 1
+1. *Shobogenzo Tsuki*: The Moon – Talk 2
+1. *Shobogenzo Tsuki*: The Moon – Talk 3
+1. *Shobogenzo Tsuki*: The Moon – Talk 4
+1. *Shobogenzo Tsuki*: The Moon – Talk 5
+1. *Shobogenzo Tsuki*: The Moon – Talk 6
+1. *Shobogenzo Tsuki*: The Moon – Talk 7
 
-1. Shobogenzo Hossho: Dharma Nature – Talk 10
-1. Shobogenzo Hossho: Dharma Nature – Talk 11
-1. Shobogenzo Hossho: Dharma Nature – Talk 12
-1. Shobogenzo Hossho: Dharma Nature – Talk 13
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 10
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 11
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 12
+1. *Shobogenzo Hossho*: Dharma Nature – Talk 13
 
-1. Shobogenzo Kokyo: Form and Mirror – Talk 1
-1. Shobogenzo Kokyo: Form and Mirror – Talk 2
+1. *Shobogenzo Kokyo*: Form and Mirror – Talk 1
+1. *Shobogenzo Kokyo*: Form and Mirror – Talk 2
 
 1. T'ien T'ai Buddhism: Historical Background
 
@@ -364,13 +364,13 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Bowing
 
-1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 1
-1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 3
-1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 4
-1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 5
-1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 6
-1. Shobogenzo Gabyo: Painting of a Rice Cake – Talk 7
-1. Commentary on Shobogenzo Gabyo (Painted Rice Cake)
+1. *Shobogenzo Gabyo*: Painting of a Rice Cake – Talk 1
+1. *Shobogenzo Gabyo*: Painting of a Rice Cake – Talk 3
+1. *Shobogenzo Gabyo*: Painting of a Rice Cake – Talk 4
+1. *Shobogenzo Gabyo*: Painting of a Rice Cake – Talk 5
+1. *Shobogenzo Gabyo*: Painting of a Rice Cake – Talk 6
+1. *Shobogenzo Gabyo*: Painting of a Rice Cake – Talk 7
+1. Commentary on *Shobogenzo Gabyo* (Painted Rice Cake)
 
 1. Obedience
 
@@ -388,28 +388,28 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 81 – Talk 1
 1. *Blue Cliff Record* Case 81 – Talk 2
 
-1. Platform Sutra – Talk 1
+1. *Platform Sutra* – Talk 1
 
-1. Shobogenzo Bendowa: Entry to the Buddha Dharma
-1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1
-1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 2
-1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 3
-1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 4
-1. Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 5
+1. *Shobogenzo Bendowa*: Entry to the Buddha Dharma
+1. *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 1
+1. *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2
+1. *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 3
+1. *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4
+1. *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5
 
-1. Platform Sutra – Talk 2
-1. Platform Sutra – Talk 3
+1. *Platform Sutra* – Talk 2
+1. *Platform Sutra* – Talk 3
 
 1. Living in Vow Life after Life
 
-1. Platform Sutra – Talk 4
-1. Platform Sutra – Talk 5
-1. Platform Sutra – Talk 6
+1. *Platform Sutra* – Talk 4
+1. *Platform Sutra* – Talk 5
+1. *Platform Sutra* – Talk 6
 
 1. Deepening the Experience of Our Lives – Talk 1
 1. Deepening the Experience of Our Lives – Talk 2
 
-1. Platform Sutra – Talk 7
+1. *Platform Sutra* – Talk 7
 
 1. Prajna Paramita and Emptiness
 
@@ -428,7 +428,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Impermanence and the Meaning of Silence
 1. Three Aspects of Buddha's Silence
-1. Shobogenzo Sansuikyo: Eastern Mountains Traveling on the Water
+1. *Shobogenzo Sansuikyo*: Eastern Mountains Traveling on the Water
 1. On a Poem by the Boatman: Fishing with a Straight Hook
 1. What is Right Human Effort – Part 1
 1. What is Right Human Effort – Part 2
@@ -437,7 +437,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 86 – Talk 2
 
 1. Wisdom of Living
-1. Chanting Practive: Chanting Practice
+1. Chanting Practice
 1. Disporting with the Buddhas: Transformation through Play
 
 ### 1988
@@ -449,31 +449,31 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Lay Ordination Lecture: (2nd Series, 3 of 3): Restraint and Extermination
 
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 1
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 2
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 3
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 4
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 5
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 6
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 7
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 8
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 9
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 10
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 11
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 1
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 2
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 3
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 4
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 5
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 6
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 7
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 8
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 9
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 10
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 11
 
 1. [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
-1. Shobogenzo Kuge: Flowers in the Sky – Talk 12
+1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 12
 
 1. *Blue Cliff Record* Case 87, Lecture 1
 1. *Blue Cliff Record* Case 87, Lecture 2
 
-1. Shobogenzo Baika: Plum Blossoms – Talk 1
-1. Shobogenzo Baika: Plum Blossoms – Talk 2
-1. Shobogenzo Baika: Plum Blossoms – Talk 3
-1. Shobogenzo Baika: Plum Blossoms – Talk 4
-1. Shobogenzo Baika: Plum Blossoms – Talk 5
-1. Shobogenzo Baika: Plum Blossoms – Talk 6
+1. *Shobogenzo Baika*: Plum Blossoms – Talk 1
+1. *Shobogenzo Baika*: Plum Blossoms – Talk 2
+1. *Shobogenzo Baika*: Plum Blossoms – Talk 3
+1. *Shobogenzo Baika*: Plum Blossoms – Talk 4
+1. *Shobogenzo Baika*: Plum Blossoms – Talk 5
+1. *Shobogenzo Baika*: Plum Blossoms – Talk 6
 
 1. [Devotion: Walking Alone with Open Heart](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 

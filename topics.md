@@ -230,7 +230,7 @@ Japanese: Kaiin-zanmai
 
 ---
 
-# Book of Equanimity Index
+# *Book of Equanimity* Index
 
 ### Case 21: Yunyan Sweeps the Ground
 
