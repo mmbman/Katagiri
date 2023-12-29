@@ -43,6 +43,8 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 ## Latest Updates
 
+**December 29, 2023**: Posted information on upcoming classes, and more.
+
 **December 26, 2023**: Posted rough draft of [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts).
 
 **December 25, 2023**: Posted rough draft of [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts).
