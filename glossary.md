@@ -44,7 +44,7 @@ External links:
 
 "Aesthetic contemplation" may refer to Schopenhauer’s aesthetic theory. If so, this is an interesting connection to Western philosophy. "In aesthetic contemplation, we stop thinking about the world and the objects in it as means to our ends, that is, as objects of our will. We also see attention and perception take center stage."
 
-- [Diamond Sutra: Provisional Being (43:50)](1979-07-25-Diamond-Sutra-Provisional-Being#4350)
+- [*Diamond Sutra*: Provisional Being (43:50)](1979-07-25-Diamond-Sutra-Provisional-Being#4350)
 
 External links:
 
@@ -211,7 +211,7 @@ The room used for teaching (giving talks) in a traditional Zen monastery.
 
 The original nature of existence, perfect and all pervading. Interconnection.
 
-- [Diamond Sutra Introduction (40:46)](1979-05-09-Diamond-Sutra-Introduction#4046)
+- [*Diamond Sutra* Introduction (40:46)](1979-05-09-Diamond-Sutra-Introduction#4046)
 - e.g. [Fukanzazengi – Talk 2 (4:32)](1979-06-10-Fukanzazengi-Talk-2#432)
 
 External links:
@@ -315,7 +315,7 @@ Dharma as action, activity.
 
 Vajracchedikā Prajñāpāramitā Sūtra
 
-- [Diamond Sutra Introduction](1979-05-09-Diamond-Sutra-Introduction), etc.
+- [*Diamond Sutra* Introduction](1979-05-09-Diamond-Sutra-Introduction), etc.
 - [*Blue Cliff Record* Case 3 – Talk 1 (27:19)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2719)
 
 ## Distraction
@@ -413,7 +413,7 @@ The Four Dharma Seals are:
 
 It is said that if a teaching contains the Four Dharma Seals then it can be considered [Buddha Dharma](glossary#buddha- dharma).
 
-- [Diamond Sutra Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
+- [*Diamond Sutra* Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
 
 External links:
 
@@ -537,7 +537,7 @@ Japanese: Isan Reiyū
 Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐  
 771-853 CE
 
-- [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+- [*Diamond Sutra*: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
 - [*Blue Cliff Record* Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 External links:
@@ -800,7 +800,7 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 
 - [Fukanzazengi – Talk 1 (28:39)](1979-06-09-Fukanzazengi-Talk-1#2839)
 - [Fukanzazengi – Talk 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Talk-6#000)
-- [Diamond Sutra: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
+- [*Diamond Sutra*: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 
 External links:
 

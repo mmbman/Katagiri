@@ -6,7 +6,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6"
 [List](list#1979) \| 
 [Previous](1979-06-13-Fukanzazengi-Talk-5) \| 
 [Next](1979-06-15-Fukanzazengi-Talk-7)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -416,4 +416,4 @@ According to that, I told you about [Mount Sumeru](glossary#mount-sumeru). Right
 [List](list#1979) \| 
 [Previous](1979-06-13-Fukanzazengi-Talk-5) \| 
 [Next](1979-06-15-Fukanzazengi-Talk-7)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)

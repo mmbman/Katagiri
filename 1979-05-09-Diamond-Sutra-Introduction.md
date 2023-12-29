@@ -6,7 +6,7 @@ title: "Diamond Sutra: Introduction"
 [List](list#1979) \| 
 Previous \| 
 [Next](1979-06-09-Fukanzazengi-Talk-1)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -200,4 +200,4 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 [List](list#1979) \| 
 Previous \| 
 [Next](1979-06-09-Fukanzazengi-Talk-1)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)

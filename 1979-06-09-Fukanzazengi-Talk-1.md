@@ -6,7 +6,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 [List](list#1979) \| 
 [Previous](1979-05-09-Diamond-Sutra-Introduction) \| 
 [Next](1979-06-10-Fukanzazengi-Talk-2)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -225,4 +225,4 @@ If you believe by the zazen that “I should be happy,” or “I want to do som
 [List](list#1979) \| 
 [Previous](1979-05-09-Diamond-Sutra-Introduction) \| 
 [Next](1979-06-10-Fukanzazengi-Talk-2)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)

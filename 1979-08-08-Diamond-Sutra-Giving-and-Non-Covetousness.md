@@ -6,7 +6,7 @@ title: "Diamond Sutra: Giving and Non-Covetousness"
 [List](list#1979) \| 
 [Previous](1979-08-01-Diamond-Sutra-Emptiness) \| 
 [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -242,4 +242,4 @@ I went to the convent in South Dakota, and from the convent I could see the Miss
 [List](list#1979) \| 
 [Previous](1979-08-01-Diamond-Sutra-Emptiness) \| 
 [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)

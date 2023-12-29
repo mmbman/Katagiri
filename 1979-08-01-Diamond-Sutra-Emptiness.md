@@ -6,7 +6,7 @@ title: "Diamond Sutra: Emptiness"
 [List](list#1979) \| 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -269,4 +269,4 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 [List](list#1979) \| 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
 [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)

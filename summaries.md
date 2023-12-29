@@ -6,84 +6,84 @@ These are the talks that have been transcribed on this site, with brief summarie
 
 ---
 
-### [Diamond Sutra: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+### [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 #### May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the fundamental point that it teaches: “*A* is *A*, but *A* is not *A*, this means *A* is really *A*.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 #### June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
 #### June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi expands on the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, *samadhi* (one-pointedness), egolessness, “no design on having a reward”, and *shikantaza* (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
 #### June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
 #### June 12, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 What does it mean to die sitting in zazen? Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” in relation to Blue Cliff Record Case 46, “Ching Ch’ing’s Sound of Raindrops”. He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 #### June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi talks about the difference between zazen itself and seeing zazen *before zazen* or *after zazen*, using the example of Gensha Shibi in “One Bright Pearl.” In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the “vomit” of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most “pure” way?
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 #### June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi talks about *body and mind dropping off* from a psychological point of view. This talk focuses on samskara, which is usually translated as *impulses*, one of the five *skandhas* or *aggregates*. Here he discusses samskara as the “together-maker,” and also as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, he explains a key line from Dogen’s Genjokoan: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either,” and “Is it not the principle that is prior to knowledge and perceptions?” During a challenging discussion on the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ---
 
-### [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
+### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 #### June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 The conclusion to the series of talks on *Fukanzazengi* takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness, and the meaning of the term *jijuyu* (usually translated as “self-fulfillment”) in *Bendowa*. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
 ---
 
-### [Diamond Sutra: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+### [*Diamond Sutra*: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 #### July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is *no perception of self and no perception of object*. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of *provisional being*, and also *empathy*, which is universal consciousness. This is how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if some king insists on chopping you to bits.
 
 ---
 
-### [Diamond Sutra: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+### [*Diamond Sutra*: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 #### August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *shō* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
 ---
 
-### [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+### [*Diamond Sutra*: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 #### August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Why is the perfection of generosity the most important quality in Mahayana Buddhism? What is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the *Duino Elegies* by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to “get” something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face,” he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
 
 ---
 
-### [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+### [*Diamond Sutra*: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 #### August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *nirmanakaya*, *sambhogakaya*, and *dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would be wise to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
@@ -209,14 +209,14 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 
 ---
 
-### [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
+### [*Diamond Sutra*: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 #### July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajnaparamita Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
 
 ---
 
-### [Diamond Sutra: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
+### [*Diamond Sutra*: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
 #### July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.

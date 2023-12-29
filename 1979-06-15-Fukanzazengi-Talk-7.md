@@ -6,7 +6,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7"
 [List](list#1979) \| 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
 [Next](1979-07-25-Diamond-Sutra-Provisional-Being)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -174,4 +174,4 @@ Remember that story. That’s a beautiful story, isn’t it?
 [List](list#1979) \| 
 [Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
 [Next](1979-07-25-Diamond-Sutra-Provisional-Being)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)

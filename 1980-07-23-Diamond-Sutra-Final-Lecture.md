@@ -6,7 +6,7 @@ title: "Diamond Sutra: Final Lecture"
 [List](list#1980) \| 
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -283,4 +283,4 @@ Unfortunately I have to go to Omaha this weekend, I cannot be [at the rummage sa
 [List](list#1980) \| 
 [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
 [Next](1981-07-18-Blue-Cliff-Record-Case-18)
-\| Series: [Diamond Sutra](diamond-sutra)
+\| Series: [*Diamond Sutra*](diamond-sutra)

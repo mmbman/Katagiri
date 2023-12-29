@@ -6,7 +6,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3"
 [List](list#1979) \| 
 [Previous](1979-06-10-Fukanzazengi-Talk-2) \| 
 [Next](1979-06-12-Fukanzazengi-Talk-4)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -393,4 +393,4 @@ Such delusions come up, always. This is really flickering. But whatever you say,
 [List](list#1979) \| 
 [Previous](1979-06-10-Fukanzazengi-Talk-2) \| 
 [Next](1979-06-12-Fukanzazengi-Talk-4)
-\| Series: [Fukanzazengi](fukanzazengi)
+\| Series: [*Fukanzazengi*](fukanzazengi)
