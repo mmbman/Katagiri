@@ -13,8 +13,8 @@ The [**Talk List**](list) lists the talks that are present in the [online audio 
 
 Katagiri Roshi gave many series of talks on topics in Buddhism – some during a *sesshin* (meditation retreat), some during a practice period, and some that were ongoing for years. Some of these series are:
 
-- [**Diamond Sutra**](diamond-sutra) (1979-1980)
-- [**Blue Cliff Record**](blue-cliff-record) (1979-1989)
+- [***Diamond Sutra***](diamond-sutra) (1979-1980)
+- [***Blue Cliff Record***](blue-cliff-record) (1979-1989)
 - [**Karma**](karma) (1980, 1987)
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
 
