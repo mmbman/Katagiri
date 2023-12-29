@@ -29,9 +29,13 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Upcoming Classes
 
-I (Kikan) will be co-leading a class at Clouds in Water Zen Center every other Wednesday from January 31 – April 10, 2024, called [Realizing Full Aliveness: Katagiri Roshi’s Teachings on Karma and Being Human](https://cloudsinwater.org/2023/12/28/realizing-full-aliveness-katagiri-roshis-teachings-on-karma-and-being-human-jan-21/). The focus of the class will be [Katagiri Roshi’s commentary on Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](https://katagiritranscripts.net/1981-07-18-Blue-Cliff-Record-Case-18).
+### [Realizing Full Aliveness: Katagiri Roshi’s Teachings on Karma and Being Human](https://cloudsinwater.org/2023/12/28/realizing-full-aliveness-katagiri-roshis-teachings-on-karma-and-being-human-jan-21/)
 
-My dharma uncle (or something like that) Genpo Michael O’Neal will be leading Compassionate Ocean Zen Center’s Buddhist Studies class on [When Conditions are Arranged: Katagiri Roshi's Lectures on Karma](https://www.oceanzen.org/buddhist-studies) every Wednesday from January 24 to March 13, 2023, with the primary course reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
+I (Kikan) will be co-leading a class at Clouds in Water Zen Center every other Wednesday from January 31 – April 10, 2024, called . The focus of the class will be [Katagiri Roshi’s commentary on Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](https://katagiritranscripts.net/1981-07-18-Blue-Cliff-Record-Case-18).
+
+### [When Conditions are Arranged: Katagiri Roshi's Lectures on Karma](https://www.oceanzen.org/buddhist-studies)
+
+My dharma uncle (or something like that) Genpo Michael O’Neal will be leading Compassionate Ocean Zen Center’s Buddhist Studies class on  every Wednesday from January 24 to March 13, 2023, with the primary course reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
 
 For both classes, a Zoom option is available for those who can only attend remotely. Four of the class sessions occur at the same time, but a sufficiently motivated person could conceivably participate in both classes via some combination of in-person attendance, Zoom, and recordings. 
 
