@@ -152,7 +152,7 @@ Chinese: Mazu Daoyi (Ma-tsu Tao-yi), 馬祖道一
 Japanese: Baso Dōitsu  
 709–788.
 
-- [Blue Cliff Record, Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+- [*Blue Cliff Record* Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 
 External links:
 
@@ -252,9 +252,9 @@ External links:
 An enigmatic being that sometimes appears in Katagiri Roshi's talks.
 
 - [Fukanzazengi – Talk 2 (27:00)](1979-06-10-Fukanzazengi-Talk-2#2700)
-- [Blue Cliff Record, Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
-- [Blue Cliff Record, Case 3 – Talk 1 (13:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#1344)
-- [Blue Cliff Record, Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
+- [*Blue Cliff Record* Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
+- [*Blue Cliff Record* Case 3 – Talk 1 (13:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#1344)
+- [*Blue Cliff Record* Case 18 (38:10)](1981-07-18-Blue-Cliff-Record-Case-18#3810)
 
 ## Chan
 Also: **Ch'an**
@@ -277,7 +277,7 @@ Katagiri Roshi's Buddhist name, meaning "Great Patience". See [Katagiri](#katagi
 
 Mistaking a perception for an independent object or fact.
 
-- [Blue Cliff Record, Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
+- [*Blue Cliff Record* Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
 - etc.
 
 ## Demon
@@ -298,13 +298,13 @@ Truth; the teachings; universal law; original nature of existence; phenomena.
 
 ‘Dharma’ is a multi-faceted word with no single equivalent in English, so it is often left untranslated.
 
-- e.g. [Blue Cliff Record, Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
+- e.g. [*Blue Cliff Record* Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
 ## Dharma Vehicle
 
 Dharma as action, activity.
 
-- [Blue Cliff Record, Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
+- [*Blue Cliff Record* Case 2 – Talk 1 (2:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200), [24:16](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#2416)
 
 ## Dhātu
 
@@ -316,7 +316,7 @@ Dharma as action, activity.
 Vajracchedikā Prajñāpāramitā Sūtra
 
 - [Diamond Sutra Introduction](1979-05-09-Diamond-Sutra-Introduction), etc.
-- [Blue Cliff Record, Case 3 – Talk 1 (27:19)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2719)
+- [*Blue Cliff Record* Case 3 – Talk 1 (27:19)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2719)
 
 ## Distraction
 
@@ -355,7 +355,7 @@ External links:
 
 ## Eightfold Path
 
-- [Blue Cliff Record, Case 3 – Talk 1 (1:10:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#11044)
+- [*Blue Cliff Record* Case 3 – Talk 1 (1:10:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#11044)
 
 ## Eihei Dogen 
 
@@ -395,7 +395,7 @@ Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glo
 
 Awakening from [delusion](glossary#delusion).
 
-- [Blue Cliff Record, Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
+- [*Blue Cliff Record* Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
 - etc.
 
 # F
@@ -445,7 +445,7 @@ External links:
 
 Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa).
 
-- [Blue Cliff Record, Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
+- [*Blue Cliff Record* Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
 
 ## Genjokoan
 
@@ -538,7 +538,7 @@ Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐
 771-853 CE
 
 - [Diamond Sutra: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
-- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+- [*Blue Cliff Record* Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 External links:
 
@@ -562,7 +562,7 @@ Japanese: Jōshū Jūshin,<br>
 
 One of the greatest Zen teachers in China. It is said that he became a monk at 60 years old, and until his death, he practiced continuously. Jōshū figures in many Zen stories, and is often mentioned by [Dogen](glossary#dogen).
 
-- [Blue Cliff Record, Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
+- [*Blue Cliff Record* Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
 
 External links:
 
@@ -704,7 +704,7 @@ External links:
 ---
 ## Nichiren
 
-- [Blue Cliff Record, Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
+- [*Blue Cliff Record* Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
 
 External links:
 
@@ -880,7 +880,7 @@ External links:
 
 "Connected Discourses". See [Āgama](glossary#āgama).
 
-- [Blue Cliff Record, Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
+- [*Blue Cliff Record* Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
 
 External links:
 
@@ -911,7 +911,7 @@ External links:
 
 A buddha who attains enlightenment through listening the Buddha’s teaching. (Basically, an [arhat](glossary#arhat).)
 
-- [Blue Cliff Record, Case 3 – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+- [*Blue Cliff Record* Case 3 – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 External links:
 
@@ -967,7 +967,7 @@ Shijo 止靜 (Japanese): Signal of the beginning of [zazen](glossary#zazen).
 
 The “*just*” from “just sitting”; see [shikantaza](glossary#shikantaza).
 
-- [Blue Cliff Record, Case 3 – Talk 1 (21:33)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2133)
+- [*Blue Cliff Record* Case 3 – Talk 1 (21:33)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#2133)
 
 ## Shikantaza
 
@@ -1159,7 +1159,7 @@ External links:
 
 Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate way, and carried under the sleeve of the robes when not in use. The zagu and okesa are supposed to stay together. 
 
-- [Blue Cliff Record, Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+- [*Blue Cliff Record* Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 ## Zazen
 

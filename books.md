@@ -48,7 +48,7 @@ By Theodore Stcherbatsky
 ## The Zen Doctrine of No-Mind
 By [D. T. Suzuki](glossary#d-t-suzuki)
 
-- [Blue Cliff Record, Case 3 – Talk 2 (10:59)](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#1059)
+- [*Blue Cliff Record* Case 3 – Talk 2 (10:59)](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2#1059)
 
 ---
 [Next: Resources](resources)

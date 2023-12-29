@@ -23,20 +23,20 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Diamond Sutra: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 1. [Diamond Sutra: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
-1. [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-1. [Blue Cliff Record, Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+1. [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+1. [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 ### 1980
 
-1. [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-1. [Blue Cliff Record, Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+1. [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+1. [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 
 1. [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
 
-1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-1. [Blue Cliff Record, Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
-1. [Blue Cliff Record, Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
+1. [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+1. [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+1. [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+1. [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 
 1. [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
 1. [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
@@ -49,32 +49,32 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [Diamond Sutra: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 
-1. Blue Cliff Record, Case 5 – Talk 1
-1. Blue Cliff Record, Case 5 – Talk 2
+1. *Blue Cliff Record* Case 5 – Talk 1
+1. *Blue Cliff Record* Case 5 – Talk 2
 
 1. [Diamond Sutra: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
 
-1. Blue Cliff Record, Case 7 – Talk 1
-1. Blue Cliff Record, Case 7 – Talk 2
+1. *Blue Cliff Record* Case 7 – Talk 1
+1. *Blue Cliff Record* Case 7 – Talk 2
 
 ### 1981
 
-1. Blue Cliff Record, Case 8 – Talk 1
-1. Blue Cliff Record, Case 8 – Talk 2
-1. Blue Cliff Record, Case 9
-1. Blue Cliff Record, Case 10
-1. Blue Cliff Record, Case 11
-1. Blue Cliff Record, Case 12 – Part 1
-1. Blue Cliff Record, Case 12 – Part 2
-1. Blue Cliff Record, Case 13
-1. Blue Cliff Record, Case 14
-1. Blue Cliff Record, Case 15
+1. *Blue Cliff Record* Case 8 – Talk 1
+1. *Blue Cliff Record* Case 8 – Talk 2
+1. *Blue Cliff Record* Case 9
+1. *Blue Cliff Record* Case 10
+1. *Blue Cliff Record* Case 11
+1. *Blue Cliff Record* Case 12 – Part 1
+1. *Blue Cliff Record* Case 12 – Part 2
+1. *Blue Cliff Record* Case 13
+1. *Blue Cliff Record* Case 14
+1. *Blue Cliff Record* Case 15
 
-1. [Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
+1. [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
 
-1. Blue Cliff Record, Case 20 – Talk 1
-1. Blue Cliff Record, Case 20 – Talk 2
-1. Blue Cliff Record, Case 22
+1. *Blue Cliff Record* Case 20 – Talk 1
+1. *Blue Cliff Record* Case 20 – Talk 2
+1. *Blue Cliff Record* Case 22
 
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 1
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 2
@@ -84,73 +84,73 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 6
 1. Shobogenzo Gyobutsu Igi: Majestic Activity – Talk 7
 
-1. Blue Cliff Record, Case 23 – Talk 1
-1. Blue Cliff Record, Case 23 – Talk 3
-1. Blue Cliff Record, Case 24
+1. *Blue Cliff Record* Case 23 – Talk 1
+1. *Blue Cliff Record* Case 23 – Talk 3
+1. *Blue Cliff Record* Case 24
 
-1. [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-1. [Blue Cliff Record, Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
+1. [*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
+1. [*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 
-1. Blue Cliff Record, Case 27 – Talk 1
-1. Blue Cliff Record, Case 27 – Talk 2
+1. *Blue Cliff Record* Case 27 – Talk 1
+1. *Blue Cliff Record* Case 27 – Talk 2
 
 ### 1982
 
-1. Blue Cliff Record, Case 28
-1. Blue Cliff Record, Case 29 – Talk 1
-1. Blue Cliff Record, Case 29 – Talk 2
-1. Blue Cliff Record, Case 30
-1. Blue Cliff Record, Case 33
-1. Blue Cliff Record, Case 33
+1. *Blue Cliff Record* Case 28
+1. *Blue Cliff Record* Case 29 – Talk 1
+1. *Blue Cliff Record* Case 29 – Talk 2
+1. *Blue Cliff Record* Case 30
+1. *Blue Cliff Record* Case 33
+1. *Blue Cliff Record* Case 33
 
-1. [Blue Cliff Record, Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
-1. [Blue Cliff Record, Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
-1. [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
-1. [Blue Cliff Record, Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
-1. [Blue Cliff Record, Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
-1. [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
+1. [*Blue Cliff Record* Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
+1. [*Blue Cliff Record* Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
+1. [*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
+1. [*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
+1. [*Blue Cliff Record* Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
+1. [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 
 ### 1983
 
-1. [Blue Cliff Record, Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
-1. [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
-1. [Blue Cliff Record, Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
-1. [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+1. [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
+1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
+1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
+1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
 1. Book of Equanimity: Case 52
 
-1. [Blue Cliff Record, Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
-1. [Blue Cliff Record, Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 1](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
-1. [Blue Cliff Record, Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
-1. [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
-1. [Blue Cliff Record, Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-1. [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
-1. [Blue Cliff Record, Case 43: Tung Shan’s No Cold or Heat – Talk 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
-1. [Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
-1. [Blue Cliff Record, Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
+1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+1. [*Blue Cliff Record* Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 1](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
+1. [*Blue Cliff Record* Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
+1. [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
+1. [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
+1. [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
+1. [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat – Talk 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+1. [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
+1. [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
 
-1. Blue Cliff Record, Case 45 – Talk 1
-1. Blue Cliff Record, Case 45 – Talk 2
-1. Blue Cliff Record, Case 46 – Talk 1
-1. Blue Cliff Record, Case 46 – Talk 2
+1. *Blue Cliff Record* Case 45 – Talk 1
+1. *Blue Cliff Record* Case 45 – Talk 2
+1. *Blue Cliff Record* Case 46 – Talk 1
+1. *Blue Cliff Record* Case 46 – Talk 2
 
 1. Arts and Buddhism – Part 1
 1. Arts and Buddhism – Part 2
 1. Westerners' Reluctance Toward Bowing – Part 1
 1. Westerners' Reluctance Toward Bowing – Part 2
 
-1. Blue Cliff Record, Case 49 – Talk 1
-1. Blue Cliff Record, Case 49 – Talk 2
+1. *Blue Cliff Record* Case 49 – Talk 1
+1. *Blue Cliff Record* Case 49 – Talk 2
 
 ### 1984
 
-1. Blue Cliff Record, Case 50
-1. Blue Cliff Record, Case 51 – Talk 1
-1. Blue Cliff Record, Case 51 – Talk 2
-1. Blue Cliff Record, Case 52 – Talk 2
-1. Blue Cliff Record, Case 53
-1. Blue Cliff Record, Case 54
-1. Blue Cliff Record, Case 55 – Talk 1
+1. *Blue Cliff Record* Case 50
+1. *Blue Cliff Record* Case 51 – Talk 1
+1. *Blue Cliff Record* Case 51 – Talk 2
+1. *Blue Cliff Record* Case 52 – Talk 2
+1. *Blue Cliff Record* Case 53
+1. *Blue Cliff Record* Case 54
+1. *Blue Cliff Record* Case 55 – Talk 1
 
 1. Precepts for Lay Ordination – Part 1
 1. Precepts for Lay Ordination – Part 2
@@ -166,15 +166,15 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. The Awakening of Faith 4/6/84
 
-1. Blue Cliff Record, Case 55 – Talk 3
+1. *Blue Cliff Record* Case 55 – Talk 3
 
 1. The Awakening of Faith 4/20/84
 
-1. Blue Cliff Record, Case 57 – Talk 1
+1. *Blue Cliff Record* Case 57 – Talk 1
 
 1. The Awakening of Faith 4/27/84
 
-1. Blue Cliff Record, Case 57 – Talk 2
+1. *Blue Cliff Record* Case 57 – Talk 2
 
 1. The Awakening of Faith 5/4/84
 1. The Awakening of Faith 5/11/84
@@ -196,39 +196,39 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 10
 1. Shobogenzo Juundo Shiki: Rules for the Monks Annex – Talk 11
 
-1. Blue Cliff Record, Case 58 – Talk 1
-1. Blue Cliff Record, Case 58 – Talk 2
-1. Blue Cliff Record, Case 59
-1. Blue Cliff Record, Case 60
+1. *Blue Cliff Record* Case 58 – Talk 1
+1. *Blue Cliff Record* Case 58 – Talk 2
+1. *Blue Cliff Record* Case 59
+1. *Blue Cliff Record* Case 60
 
 1. A Basis for Practice
 
-1. Blue Cliff Record, Case 61 – Talk 1
+1. *Blue Cliff Record* Case 61 – Talk 1
 
 1. The Awakening of Faith 10/19/84
 
 1. Book of Equanimity: Dongshan's "Always Close" – Talk 1
 1. Book of Equanimity: Dongshan's "Always Close" – Talk 2
 
-1. Blue Cliff Record, Case 61 – Talk 2
+1. *Blue Cliff Record* Case 61 – Talk 2
 
 1. The Awakening of Faith 10/26/84
 
 1. The Four Sustenances – Talk 1
 1. The Four Sustenances – Talk 2
 
-1. Blue Cliff Record, Case 62 – Talk 1
+1. *Blue Cliff Record* Case 62 – Talk 1
 
 1. Buddha's Impermancence
 
-1. Blue Cliff Record, Case 62 – Talk 2
-1. Blue Cliff Record, Case 63
+1. *Blue Cliff Record* Case 62 – Talk 2
+1. *Blue Cliff Record* Case 63
 
 1. Suffering: Three Stages
 1. Always There Is a Scream: Track 1 of 2
 1. Always There Is a Scream: Track 2 of 2
 
-1. Blue Cliff Record, Case 64: Case 64
+1. *Blue Cliff Record* Case 64: Case 64
 
 ### 1985
 
@@ -236,45 +236,45 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. True Heart is not Infactuation
 1. The Simple Practice
 
-1. Blue Cliff Record, Case 67
-1. Blue Cliff Record, Case 68 – Talk 1
+1. *Blue Cliff Record* Case 67
+1. *Blue Cliff Record* Case 68 – Talk 1
 
 1. [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
 
-1. Blue Cliff Record, Case 68 – Talk 2
-1. Blue Cliff Record, Case 69 – Talk 1
+1. *Blue Cliff Record* Case 68 – Talk 2
+1. *Blue Cliff Record* Case 69 – Talk 1
 
 1. Buddha Dharma: Big Sky Does not Bother with the Function of a Small Cloud
 
-1. From Blue Cliff Record, Case 69, Note 2: Symmetry and Unsymmetry
-1. Blue Cliff Record, Case 69 – Talk 2
-1. Blue Cliff Record, Case 70 – Talk 1
+1. From *Blue Cliff Record* Case 69, Note 2: Symmetry and Unsymmetry
+1. *Blue Cliff Record* Case 69 – Talk 2
+1. *Blue Cliff Record* Case 70 – Talk 1
 
 1. Zazen and Creating Space
 1. Truth, Phenomenology, Noumenology
 1. Creating Space Between
 1. Letting Go of Labels
 
-1. Blue Cliff Record, Case 71
+1. *Blue Cliff Record* Case 71
 
 1. The Awakening of Faith 10/18/85
 
-1. Blue Cliff Record, Case 72
+1. *Blue Cliff Record* Case 72
 
 1. The Awakening of Faith 10/25/85
 
-1. Blue Cliff Record, Case 73
+1. *Blue Cliff Record* Case 73
 
 1. The Awakening of Faith 11/01/85
 
-1. Blue Cliff Record, Case 74
-1. Blue Cliff Record, Case 75
+1. *Blue Cliff Record* Case 74
+1. *Blue Cliff Record* Case 75
 
 1. The Awakening of Faith 11/15/85
 1. Two Points to Consider: The Great Matter of Birth and Death Saving all Being
 1. Sharing Our Lives: The Practice of Attendance (Using the Selfish Self)
 
-1. Blue Cliff Record, Case 76
+1. *Blue Cliff Record* Case 76
 
 ### 1986
 
@@ -319,8 +319,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Meal Chants – Talk 2
 1. Meal Chants – Talk 3
 
-1. Blue Cliff Record, Case 78 – Talk 1
-1. Blue Cliff Record, Case 78 – Talk 2
+1. *Blue Cliff Record* Case 78 – Talk 1
+1. *Blue Cliff Record* Case 78 – Talk 2
 
 1. Gatha of Opening the Sutra
 1. Gatha of Closing the Sutra
@@ -358,7 +358,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Talk 1
 1. T'ein T'ai Buddhism: Outline of 4-Fold Teaching – Talk 2
 
-1. Blue Cliff Record, Case 79 – Talk 1
+1. *Blue Cliff Record* Case 79 – Talk 1
 
 1. T'ien T'ai Buddhism: Conclusion
 
@@ -379,14 +379,14 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Dogen Four Points: Track 1 of 2
 1. Dogen Four Points: Track 2 of 2
 
-1. Blue Cliff Record, Case 80 – Talk 1
-1. Blue Cliff Record, Case 80 – Talk 2
+1. *Blue Cliff Record* Case 80 – Talk 1
+1. *Blue Cliff Record* Case 80 – Talk 2
 
 1. Zazen: Dropping off Body and Mind
 1. Inconceivable, Universal, Cosmic Life
 
-1. Blue Cliff Record, Case 81 – Talk 1
-1. Blue Cliff Record, Case 81 – Talk 2
+1. *Blue Cliff Record* Case 81 – Talk 1
+1. *Blue Cliff Record* Case 81 – Talk 2
 
 1. Platform Sutra – Talk 1
 
@@ -423,8 +423,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Obon Memorial – Part 1
 1. Obon Memorial – Part 2
 
-1. Blue Cliff Record, Case 84 – Talk 1
-1. Blue Cliff Record, Case 84 – Talk 2
+1. *Blue Cliff Record* Case 84 – Talk 1
+1. *Blue Cliff Record* Case 84 – Talk 2
 
 1. Impermanence and the Meaning of Silence
 1. Three Aspects of Buddha's Silence
@@ -433,8 +433,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. What is Right Human Effort – Part 1
 1. What is Right Human Effort – Part 2
 
-1. Blue Cliff Record, Case 86 – Talk 1
-1. Blue Cliff Record, Case 86 – Talk 2
+1. *Blue Cliff Record* Case 86 – Talk 1
+1. *Blue Cliff Record* Case 86 – Talk 2
 
 1. Wisdom of Living
 1. Chanting Practive: Chanting Practice
@@ -465,8 +465,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Shobogenzo Kuge: Flowers in the Sky – Talk 12
 
-1. Blue Cliff Record, Case 87, Lecture 1
-1. Blue Cliff Record, Case 87, Lecture 2
+1. *Blue Cliff Record* Case 87, Lecture 1
+1. *Blue Cliff Record* Case 87, Lecture 2
 
 1. Shobogenzo Baika: Plum Blossoms – Talk 1
 1. Shobogenzo Baika: Plum Blossoms – Talk 2

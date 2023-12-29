@@ -51,5 +51,5 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 **December 22, 2023**: Revised home page; added talk series pages. 
 
-**November 24, 2023**: Posted cleaned-up version of [Blue Cliff Record, Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18), with summary. 
+**November 24, 2023**: Posted cleaned-up version of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18), with summary. 
 
