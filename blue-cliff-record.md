@@ -2,7 +2,9 @@
 title: "Blue Cliff Record"
 ---
 
-Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive. [List without summaries](blue-cliff-record-nosum)
+Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive. 
+
+[Switch to list without summaries](blue-cliff-record-nosum)
 
 ---
 
@@ -306,3 +308,5 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 - Case 86 Talk 2
 - Case 87 Talk 1
 - Case 87 Talk 2
+
+---

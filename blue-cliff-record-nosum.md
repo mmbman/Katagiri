@@ -2,9 +2,9 @@
 title: "Blue Cliff Record"
 ---
 
-Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive. [List with summaries](blue-cliff-record)
+Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive. 
 
----
+[Switch to list with summaries](blue-cliff-record)
 
 - [Case 1 Talk 1: The Highest Meaning of the Holy Truths](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 - [Case 1 Talk 2: The Highest Meaning of the Holy Truths, Part 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
