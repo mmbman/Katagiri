@@ -231,7 +231,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 ---
 
-### [Case 43 Talk 2: Tung Shan’s No Cold or Heat, Part 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+### [Case 43 Talk 2: The Five Ranks](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
 #### April 6, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. *(Warning: the archive audio cuts out before the explanation of the fifth rank.)*

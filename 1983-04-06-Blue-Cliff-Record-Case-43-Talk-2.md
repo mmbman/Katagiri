@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 43 Talk 2: Tung Shan’s No Cold or Heat, Part 2"
+title: "Blue Cliff Record Case 43 Talk 2: The Five Ranks"
 ---
 ## April 6, 1983 Dharma Talk by Dainin Katagiri Roshi
 
