@@ -6,7 +6,7 @@ title: "Genjokoan: Talk 1 (Egolessness)"
 [List](list#1987) \| 
 [Previous](1987-05-23-Karma-in-Buddhism) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
-\| Series: [Genjokoan](genjokoan)
+\| Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -258,4 +258,4 @@ Is that okay? Do you have any other questions? We will have [more] discussion [l
 [List](list#1987) \| 
 [Previous](1987-05-23-Karma-in-Buddhism) \| 
 [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
-\| Series: [Genjokoan](genjokoan)
+\| Series: [*Genjokoan*](genjokoan)
