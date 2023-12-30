@@ -62,10 +62,35 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 ---
 
+- Case 5 – Talk 1
+- Case 5 – Talk 2
+- Case 7 – Talk 1
+- Case 7 – Talk 2
+- Case 8 – Talk 1
+- Case 8 – Talk 2
+- Case 9
+- Case 10
+- Case 11
+- Case 12 – Part 1 and 2
+- Case 13
+- Case 14
+- Case 15
+
+---
+
 ### [Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
 #### July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 What will we need after we die? What is the meaning of keeping silent? Keeping silent means to take off the “clothes” of our concepts, such as success and failure, pleasure and suffering, life and death. But you cannot stay with the silence; you have to know the person completely unfolded behind the silence. This is how to “light the candle” of human culture. Also: There is no discrimination between the four kinds of horses, which are us. Still, at some point, you need a whip. And then, you can run.
+
+---
+
+- Case 20 – Talk 1
+- Case 20 – Talk 2
+- Case 22
+- Case 23 – Talk 1
+- Case 23 – Talk 3
+- Case 24
 
 ---
 
@@ -80,6 +105,17 @@ What happens when we unexpectedly come face-to-face with real life, such as bein
 #### November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
+
+---
+
+- Case 27 – Talk 1
+- Case 27 – Talk 2
+- Case 28
+- Case 29 – Talk 1
+- Case 29 – Talk 2
+- Case 30
+- Case 32 (Mislabeled as Case 33 in the archive)
+- Case 33
 
 ---
 
@@ -201,3 +237,58 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 *Summary not yet available.*
 
 ---
+
+- Case 45 – Talk 1
+- Case 45 – Talk 2
+- Case 46 – Talk 1
+- Case 46 – Talk 2
+- Case 49 – Talk 1
+- Case 49 – Talk 2
+- Case 50
+- Case 51 – Talk 1
+- Case 51 – Talk 2
+- Case 52 – Talk 2
+- Case 53
+- Case 54
+- Case 55 – Talk 1
+- Case 55 – Talk 3
+- Case 57 – Talk 1
+- Case 57 – Talk 2
+- Case 58 – Talk 1
+- Case 58 – Talk 2
+- Case 59
+- Case 60
+- Case 61 – Talk 1
+- Case 61 – Talk 2
+- Case 62 – Talk 1
+- Case 62 – Talk 2
+- Case 63
+- Case 64
+- Case 67
+- Case 68 – Talk 1
+- Case 68 – Talk 2
+- Case 69 – Talk 1
+- From *Blue Cliff Record* Case 69, Note 2: Symmetry and Unsymmetry
+- Case 69 – Talk 2
+- Case 70 – Talk 1
+- Case 71
+- Case 72
+- Case 73
+- Case 74
+- Case 75
+- Case 76
+- Case 78 – Talk 1
+- Case 78 – Talk 2
+- Case 79 – Talk 1
+- Case 80 – Talk 1
+- Case 80 – Talk 2
+- Case 81 – Talk 1
+- Case 81 – Talk 2
+- Case 84 – Talk 1
+- Case 84 – Talk 2
+- Case 84 Talk 3: Impermanence and the Meaning of Silence
+- Case 84 Talk 4: Three Aspects of Buddha's Silence
+- Case 86 – Talk 1
+- Case 86 – Talk 2
+- Case 87 – Talk 1
+- Case 87 – Talk 2

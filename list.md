@@ -100,7 +100,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 29 – Talk 1
 1. *Blue Cliff Record* Case 29 – Talk 2
 1. *Blue Cliff Record* Case 30
-1. *Blue Cliff Record* Case 33
+1. *Blue Cliff Record* Case 32
 1. *Blue Cliff Record* Case 33
 
 1. [*Blue Cliff Record* Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
@@ -228,7 +228,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Always There Is a Scream: Track 1 of 2
 1. Always There Is a Scream: Track 2 of 2
 
-1. *Blue Cliff Record* Case 64: Case 64
+1. *Blue Cliff Record* Case 64
 
 ### 1985
 
@@ -428,9 +428,9 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 84 – Talk 1
 1. *Blue Cliff Record* Case 84 – Talk 2
+1. *Blue Cliff Record* Case 84 Talk 3: Impermanence and the Meaning of Silence
+1. *Blue Cliff Record* Case 84 Talk 4: Three Aspects of Buddha's Silence
 
-1. Impermanence and the Meaning of Silence
-1. Three Aspects of Buddha's Silence
 1. *Shobogenzo Sansuikyo*: Eastern Mountains Traveling on the Water
 1. On a Poem by the Boatman: Fishing with a Straight Hook
 1. What is Right Human Effort – Part 1
@@ -468,8 +468,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Shobogenzo Kuge*: Flowers in the Sky – Talk 12
 
-1. *Blue Cliff Record* Case 87, Lecture 1
-1. *Blue Cliff Record* Case 87, Lecture 2
+1. *Blue Cliff Record* Case 87 – Talk 1
+1. *Blue Cliff Record* Case 87 – Talk 2
 
 1. *Shobogenzo Baika*: Plum Blossoms – Talk 1
 1. *Shobogenzo Baika*: Plum Blossoms – Talk 2
