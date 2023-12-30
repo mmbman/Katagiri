@@ -34,28 +34,28 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 
 ---
 
-### [Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+### [Case 3 Talk 1: Master Ma Is Unwell](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 #### April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is fleeting, ephemeral. What is the opportunity of this human body and mind? How can we communicate human life to each other, in order to enter a peaceful world? Even though body and mind are going on in the rhythm of the universe, we are always poking our head into a hole, like a cat. Do we need to stay in the hole, turning it into a den? Katagiri Roshi discusses what is *right*, in the sense of *Right Thought* and *Right View* in Buddha’s Noble Eightfold Path. He also discusses how we should relate to modern civilization, and there is a story about his brother learning to swim in the Navy.
 
 ---
 
-### [Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+### [Case 3 Talk 2: Master Ma Is Unwell, Part 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 #### April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
 
 ---
 
-### [Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+### [Case 4 Talk 1: Te Shan Carrying His Bundle](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 #### May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the *Diamond Sutra*, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan is the abbot the monastery, founder of one of the schools of Zen, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
 
 ---
 
-### [Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
+### [Case 4 Talk 2: Te Shan Carrying His Bundle, Part 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 #### May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan, and the dynamics between *process itself* and *doings as a result*. The wild fox spirit and the board-carrying fellow live right next door to each other. “Wrong” and “sure enough.” Check!
@@ -94,14 +94,14 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 
 ---
 
-### [Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
+### [Case 25 Talk 1: The Hermit of Lotus Flower Peak Holds Up His Staff](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 #### November 21, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
 
 ---
 
-### [Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
+### [Case 25 Talk 2: The Hermit of Lotus Flower Peak Holds Up His Staff, Part 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 #### November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
@@ -133,14 +133,14 @@ Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure
 
 ---
 
-### [Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
+### [Case 36 Talk 1: Ch’ang Sha Wandering in the Mountains](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
 #### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: how to get fired from a job in the human world. The caution against falling into the weeds is ironic commentary.
 
 ---
 
-### [Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
+### [Case 36 Talk 2: Ch’ang Sha Wandering in the Mountains, Part 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
 #### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse. He especially focuses on the first line, “The earth is clear of any dust.” This is Buddha’s world, which is identical with the original nature of existence. But also, “A mad monkey cries on the ancient terrace”: this is us looking through the telescope of our karmic perceptions. Buddhist practice is not to destroy all human delusions and *then* you can have Buddha’s world; we need both. Good or bad are nothing but time, but time is not good or bad. A monk walks in the snow without leaving a trace. 
@@ -154,14 +154,14 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 
 ---
 
-### [Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
+### [Case 38 Talk 1: Feng Hsueh’s Workings of the Iron Ox](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 #### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
 
 ---
 
-### [Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
+### [Case 38 Talk 2: Feng Hsueh’s Workings of the Iron Ox, Part 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 #### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, and joyful mind – to the next generation. This is why Feng Hsueh Zen Master explains Buddha Mind as being just like an Iron Ox. Katagiri Roshi further examines this case. Should we add our own ideas to Buddhism?

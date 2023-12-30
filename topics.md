@@ -144,7 +144,7 @@ Japanese: Kaiin-zanmai
 ### Vimalakirti Sutra
 
 - [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
-- [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+- [*Blue Cliff Record* Case 3 Talk 2: Master Ma Is Unwell, Part 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 ### Mahāyāna Mahāparinirvāṇa Sūtra (Nirvana Sutra)
 
@@ -199,8 +199,8 @@ Japanese: Kaiin-zanmai
 <a name="BCR-3"></a>
 ### Case 3: Master Ma Is Unwell
 
-- [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-- [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+- [*Blue Cliff Record* Case 3 Talk 1: Master Ma Is Unwell](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+- [*Blue Cliff Record* Case 3 Talk 2: Master Ma Is Unwell, Part 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 <a name="BCR-5"></a>
 ### Case 5
@@ -250,7 +250,7 @@ Japanese: Kaiin-zanmai
 
 ### Case 2: Baizhang and a Fox
 
-- [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle – Talk 2 (1:12:07)](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2#11207)
+- [*Blue Cliff Record* Case 4 Talk 2: Te Shan Carrying His Bundle, Part 2 (1:12:07)](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2#11207)
 
 
 

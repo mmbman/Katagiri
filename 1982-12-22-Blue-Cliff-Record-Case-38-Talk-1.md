@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1"
+title: "Blue Cliff Record Case 38 Talk 1: Feng Hsueh’s Workings of the Iron Ox"
 ---
 ## December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 

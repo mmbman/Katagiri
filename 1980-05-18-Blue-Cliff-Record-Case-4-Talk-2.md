@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 4: Te Shan Carrying His Bundle – Talk 2"
+title: "Blue Cliff Record Case 4 Talk 2: Te Shan Carrying His Bundle, Part 2"
 ---
 ## May 18, 1980 Dharma Talk by Dainin Katagiri Roshi
 

@@ -33,10 +33,10 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
 
-1. [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-1. [*Blue Cliff Record* Case 3: Master Ma Is Unwell – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-1. [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
-1. [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle – Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
+1. [*Blue Cliff Record* Case 3 Talk 1: Master Ma Is Unwell](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+1. [*Blue Cliff Record* Case 3 Talk 2: Master Ma Is Unwell, Part 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+1. [*Blue Cliff Record* Case 4 Talk 1: Te Shan Carrying His Bundle](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+1. [*Blue Cliff Record* Case 4 Talk 2: Te Shan Carrying His Bundle, Part 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 
 1. [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
 1. [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
@@ -88,8 +88,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 23 – Talk 3
 1. *Blue Cliff Record* Case 24
 
-1. [*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-1. [*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff – Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
+1. [*Blue Cliff Record* Case 25 Talk 1: The Hermit of Lotus Flower Peak Holds Up His Staff](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
+1. [*Blue Cliff Record* Case 25 Talk 2: The Hermit of Lotus Flower Peak Holds Up His Staff, Part 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 
 1. *Blue Cliff Record* Case 27 – Talk 1
 1. *Blue Cliff Record* Case 27 – Talk 2
@@ -105,14 +105,14 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [*Blue Cliff Record* Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
 1. [*Blue Cliff Record* Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
-1. [*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains – Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
-1. [*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains – Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
+1. [*Blue Cliff Record* Case 36 Talk 1: Ch’ang Sha Wandering in the Mountains](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
+1. [*Blue Cliff Record* Case 36 Talk 2: Ch’ang Sha Wandering in the Mountains, Part 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
 1. [*Blue Cliff Record* Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
-1. [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
+1. [*Blue Cliff Record* Case 38 Talk 1: Feng Hsueh’s Workings of the Iron Ox](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
 
 ### 1983
 
-1. [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox – Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
+1. [*Blue Cliff Record* Case 38 Talk 2: Feng Hsueh’s Workings of the Iron Ox, Part 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
