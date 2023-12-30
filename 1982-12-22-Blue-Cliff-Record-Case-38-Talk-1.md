@@ -10,7 +10,7 @@ title: "Blue Cliff Record Case 38 Talk 1: Feng Hsueh’s Workings of the Iron Ox
 
 ### Summary
 
-Is the Iron Ox dead or alive? Katagiri Roshi discusses the gradual and the sudden, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop! Also: do you need a boss?
+Is the Iron Ox dead or alive? Katagiri Roshi discusses the sudden and the gradual in Zen. We need both, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop!
 
 ### Transcript
 
