@@ -24,12 +24,12 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Diamond Sutra*: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 1. [*Blue Cliff Record* Case 1 Talk 1: The Highest Meaning of the Holy Truths](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-1. [*Blue Cliff Record* Case 1 Talk 2: The Highest Meaning of the Holy Truths](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+1. [*Blue Cliff Record* Case 1 Talk 2: The Highest Meaning of the Holy Truths, Part 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
 ### 1980
 
 1. [*Blue Cliff Record* Case 2 Talk 1: The Ultimate Path Is Without Difficulty](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-1. [*Blue Cliff Record* Case 2 Talk 2: The Ultimate Path Is Without Difficulty](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+1. [*Blue Cliff Record* Case 2 Talk 2: The Ultimate Path Is Without Difficulty, Part 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 
 1. [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
 
