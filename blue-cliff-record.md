@@ -13,7 +13,7 @@ Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Reco
 
 ---
 
-### [Case 1 Talk 2: The Highest Meaning of the Holy Truths, Part 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+### [Case 1 Talk 2: The Highest Meaning of the Holy Truths](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 #### November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
@@ -27,7 +27,7 @@ Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Pat
 
 ---
 
-### [Case 2 Talk 2: The Ultimate Path Is Without Difficulty, Part 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+### [Case 2 Talk 2: The Ultimate Path Is Without Difficulty](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 #### January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called *shikantaza*. But this simplicity is not simple as we usually understand it: this simplicity is to do something with no choice, on the edge of life and death.
