@@ -2,7 +2,7 @@
 title: "Blue Cliff Record"
 ---
 
-Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive.
+Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive. [List without summaries](blue-cliff-record-nosum)
 
 ---
 
