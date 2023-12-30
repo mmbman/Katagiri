@@ -43,6 +43,8 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 ## Latest Updates
 
+**December 30, 2023**: Improved the summary for [Blue Cliff Record Case 38 Talk 1: Feng Hsueh’s Workings of the Iron Ox](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
+
 **December 29, 2023**: Posted information on upcoming classes, and more.
 
 **December 26, 2023**: Posted rough draft of [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts).
