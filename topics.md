@@ -30,7 +30,7 @@ Sections:
 - [Fukanzazengi – Talk 2 (1:20:50)](1979-06-10-Fukanzazengi-Talk-2#12050)
 - [Fukanzazengi – Talk 6 (27:01)](1979-06-14-Fukanzazengi-Talk-6#2701)
 - [Karma: Taking Care of Karma (1:00:05)](1980-07-04-Karma-Taking-Care-of-Karma#10005)
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (36:34)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634)
+- [*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2 (36:34)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634)
 - [Genjokoan: Talk 1 (Egolessness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 - [Genjokoan: Talk 2 (Consciousness)](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 - [Genjokoan: Talk 3 (Flow)](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
@@ -116,7 +116,7 @@ Japanese: Kaiin-zanmai
 - [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 - [*Diamond Sutra*: Provisional Being (20:52)](1979-07-25-Diamond-Sutra-Provisional-Being#2052) – “think not-thinking”
 - [*Blue Cliff Record* Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1 (1:01)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#101)
+- [*Blue Cliff Record* Case 40 Talk 1: Nan Ch’uan’s It’s Like a Dream (1:01)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#101)
 
 ---
 
@@ -152,8 +152,8 @@ Japanese: Kaiin-zanmai
 
 ### Hōkyō Zanmai or Hōkyō Zammai (Song of the Jewel Mirror Samadhi)
 
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
-- [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 1  (20:34)](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
+- [*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+- [*Blue Cliff Record* Case 42 Talk 1: Layman P’ang’s Good Snowflakes  (20:34)](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
 - [Turning the Three Poisons into Wheels (39:58)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#3958)
 
 --- 
@@ -205,13 +205,13 @@ Japanese: Kaiin-zanmai
 <a name="BCR-5"></a>
 ### Case 5
 
-[*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
+[*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2 (24:56)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#2456)
 
 <a name="BCR-40"></a>
 ### Case 40: Nan Ch’uan’s It’s like a Dream
 
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+- [*Blue Cliff Record* Case 40 Talk 1: Nan Ch’uan’s It’s Like a Dream](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+- [*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
 <a name="BCR-43"></a>
 ### Case 43: Tung Shan’s No Cold or Heat
@@ -226,7 +226,7 @@ Japanese: Kaiin-zanmai
 <a name="BCR-89"></a>
 ### Case 89
 
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1 (23:12)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#2312)
+- [*Blue Cliff Record* Case 40 Talk 1: Nan Ch’uan’s It’s Like a Dream (23:12)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#2312)
 
 ---
 
@@ -242,7 +242,7 @@ Japanese: Kaiin-zanmai
 
 ### Case 52: Caoshan’s “Reality Body”
 
-- [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
+- [*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2 (18:15)](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#1815)
 
 ---
 

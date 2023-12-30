@@ -293,70 +293,70 @@ The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, 
 
 ---
 
-### [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
+### [*Blue Cliff Record* Case 39 Talk 1: Yun Men’s Flowering Hedge](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
 #### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance; we must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
 
 ---
 
-### [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
+### [*Blue Cliff Record* Case 39 Talk 2: Yun Men’s Flowering Hedge, Part 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
 #### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
 
 ---
 
-### [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+### [*Blue Cliff Record* Case 40 Talk 1: Nan Ch’uan’s It’s Like a Dream](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 #### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
 
 --- 
 
-### [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+### [*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 #### February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. What is the *dharma stage*?
 
 ---
 
-### [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
+### [*Blue Cliff Record* Case 42 Talk 1: Layman P’ang’s Good Snowflakes](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
 #### March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’ang says, “Good snowflakes—they don’t fall in any other place.” As it says in the *Song of the Jewel Mirror Samadhi*, “Inquiry and response come up together.” If we really devote ourselves to doing zazen beyond our evaluation, accepting totally, we manifest ourselves in a totally appropriate way, and very naturally, everything will respond. We must jump into the realm of silence so that our life springs forth. Even if we don’t say anything with our mouth, our whole body speaks volumes. Buddha is not something divine, apart from us; Buddha has to go down to the human world and work. 
 
 ---
 
-### [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
+### [*Blue Cliff Record* Case 42 Talk 2: Layman P’ang’s Good Snowflakes, Part 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
 #### March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the rhythm of causation, which is *not falling into cause and effect and not ignoring cause and effect*.  Representing cause and effect is Layman P’ang; representing freedom from cause and effect or *emptiness* is the monk Ch’uan. If you understand emptiness, you can become sick of emptiness. To avoid Zen sickness, offer a turning word. Also: Teaching without doing is not a good deal. 
 
 ---
 
-### [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
+### [*Blue Cliff Record* Case 43 Talk 1: Tung Shan’s No Cold or Heat](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
 #### March 16, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
-### [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat – Talk 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+### [*Blue Cliff Record* Case 43 Talk 2: Tung Shan’s No Cold or Heat, Part 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
 #### April 6, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. *(Warning: the archive audio cuts out before the explanation of the fifth rank.)*
 
 ---
 
-### [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
+### [*Blue Cliff Record* Case 44 Talk 1: Ho Shan’s Knowing How to Beat the Drum](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
 #### April 20, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
-### [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
+### [*Blue Cliff Record* Case 44 Talk 2: Ho Shan’s Knowing How to Beat the Drum, Part 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
 #### April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*

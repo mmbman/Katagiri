@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 42: Layman P’ang’s Good Snowflakes – Talk 2"
+title: "Blue Cliff Record Case 42 Talk 2: Layman P’ang’s Good Snowflakes, Part 2"
 ---
 ## March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 

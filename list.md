@@ -113,21 +113,21 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 ### 1983
 
 1. [*Blue Cliff Record* Case 38 Talk 2: Feng Hsueh’s Workings of the Iron Ox, Part 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
-1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
-1. [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge – Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
-1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
+1. [*Blue Cliff Record* Case 39 Talk 1: Yun Men’s Flowering Hedge](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
+1. [*Blue Cliff Record* Case 39 Talk 2: Yun Men’s Flowering Hedge, Part 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
+1. [*Blue Cliff Record* Case 40 Talk 1: Nan Ch’uan’s It’s Like a Dream](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
 1. *Book of Equanimity*: Case 52
 
-1. [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream – Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
-1. [*Blue Cliff Record* Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 1](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
-1. [*Blue Cliff Record* Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
-1. [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
-1. [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes – Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-1. [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat – Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
-1. [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat – Talk 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
-1. [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
-1. [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum – Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
+1. [*Blue Cliff Record* Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, Part 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+1. [*Blue Cliff Record* Case 41 Talk 1: Chao Chou’s Man Who Has Died the Great Death](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
+1. [*Blue Cliff Record* Case 41 Talk 2: Chao Chou’s Man Who Has Died the Great Death, Part 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
+1. [*Blue Cliff Record* Case 42 Talk 1: Layman P’ang’s Good Snowflakes](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
+1. [*Blue Cliff Record* Case 42 Talk 2: Layman P’ang’s Good Snowflakes, Part 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
+1. [*Blue Cliff Record* Case 43 Talk 1: Tung Shan’s No Cold or Heat](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
+1. [*Blue Cliff Record* Case 43 Talk 2: Tung Shan’s No Cold or Heat, Part 2](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
+1. [*Blue Cliff Record* Case 44 Talk 1: Ho Shan’s Knowing How to Beat the Drum](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
+1. [*Blue Cliff Record* Case 44 Talk 2: Ho Shan’s Knowing How to Beat the Drum, Part 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
 
 1. *Blue Cliff Record* Case 45 – Talk 1
 1. *Blue Cliff Record* Case 45 – Talk 2
@@ -242,12 +242,12 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
 
 1. *Blue Cliff Record* Case 68 – Talk 2
-1. *Blue Cliff Record* Case 69 – Talk 1
+1. *Blue Cliff Record* Case 69 Talk 1
 
 1. Buddha Dharma: Big Sky Does not Bother with the Function of a Small Cloud
 
-1. From *Blue Cliff Record* Case 69, Note 2: Symmetry and Unsymmetry
-1. *Blue Cliff Record* Case 69 – Talk 2
+1. *Blue Cliff Record* Case 69 Talk 2: On Note 2, Symmetry and Unsymmetry
+1. *Blue Cliff Record* Case 69 Talk 3
 1. *Blue Cliff Record* Case 70 – Talk 1
 
 1. Zazen and Creating Space

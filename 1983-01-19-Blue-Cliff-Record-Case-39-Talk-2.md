@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 39: Yun Men’s Flowering Hedge – Talk 2"
+title: "Blue Cliff Record Case 39 Talk 2: Yun Men’s Flowering Hedge, Part 2"
 ---
 ## January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
