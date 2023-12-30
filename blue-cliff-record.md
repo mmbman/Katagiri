@@ -6,28 +6,28 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*
 
 ---
 
-### [Case 1: The Highest Meaning of the Holy Truths – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+### [Case 1 Talk 1: The Highest Meaning of the Holy Truths](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 #### November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*, a renowned collection of one hundred *koans* (or “public cases”) in the Zen tradition. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
 
 ---
 
-### [Case 1: The Highest Meaning of the Holy Truths – Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+### [Case 1 Talk 2: The Highest Meaning of the Holy Truths, Part 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 #### November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Soto denominations.
 
 ---
 
-### [Case 2: The Ultimate Path Is Without Difficulty – Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+### [Case 2 Talk 1: The Ultimate Path Is Without Difficulty](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 #### January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting one hundred percent” – not ninety, not ninety-nine, only one hundred or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? Also: dragging yourself in muddy water like a sewer rat chased by a cat. 
 
 ---
 
-### [Case 2: The Ultimate Path Is Without Difficulty – Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+### [Case 2 Talk 2: The Ultimate Path Is Without Difficulty, Part 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 #### January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called *shikantaza*. But this simplicity is not simple as we usually understand it: this simplicity is to do something with no choice, on the edge of life and death.
@@ -62,12 +62,12 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 ---
 
-- Case 5 – Talk 1
-- Case 5 – Talk 2
-- Case 7 – Talk 1
-- Case 7 – Talk 2
-- Case 8 – Talk 1
-- Case 8 – Talk 2
+- Case 5 Talk 1
+- Case 5 Talk 2
+- Case 7 Talk 1
+- Case 7 Talk 2
+- Case 8 Talk 1
+- Case 8 Talk 2
 - Case 9
 - Case 10
 - Case 11
@@ -85,11 +85,11 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 
 ---
 
-- Case 20 – Talk 1
-- Case 20 – Talk 2
+- Case 20 Talk 1
+- Case 20 Talk 2
 - Case 22
-- Case 23 – Talk 1
-- Case 23 – Talk 3
+- Case 23 Talk 1
+- Case 23 Talk 3
 - Case 24
 
 ---
@@ -108,11 +108,11 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 
 ---
 
-- Case 27 – Talk 1
-- Case 27 – Talk 2
+- Case 27 Talk 1
+- Case 27 Talk 2
 - Case 28
-- Case 29 – Talk 1
-- Case 29 – Talk 2
+- Case 29 Talk 1
+- Case 29 Talk 2
 - Case 30
 - Case 32 *(mislabeled as Case 33 in the archive)*
 - Case 33
@@ -252,57 +252,57 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 ---
 
-- Case 45 – Talk 1
-- Case 45 – Talk 2
-- Case 46 – Talk 1
-- Case 46 – Talk 2
-- Case 49 – Talk 1
-- Case 49 – Talk 2
+- Case 45 Talk 1
+- Case 45 Talk 2
+- Case 46 Talk 1
+- Case 46 Talk 2
+- Case 49 Talk 1
+- Case 49 Talk 2
 - Case 50
-- Case 51 – Talk 1
-- Case 51 – Talk 2
-- Case 52 – Talk 2
+- Case 51 Talk 1
+- Case 51 Talk 2
+- Case 52 Talk 2
 - Case 53
 - Case 54
-- Case 55 – Talk 1
-- Case 55 – Talk 3
-- Case 57 – Talk 1
-- Case 57 – Talk 2
-- Case 58 – Talk 1
-- Case 58 – Talk 2
+- Case 55 Talk 1
+- Case 55 Talk 3
+- Case 57 Talk 1
+- Case 57 Talk 2
+- Case 58 Talk 1
+- Case 58 Talk 2
 - Case 59
 - Case 60
-- Case 61 – Talk 1
-- Case 61 – Talk 2
-- Case 62 – Talk 1
-- Case 62 – Talk 2
+- Case 61 Talk 1
+- Case 61 Talk 2
+- Case 62 Talk 1
+- Case 62 Talk 2
 - Case 63
 - Case 64
 - Case 67
-- Case 68 – Talk 1
-- Case 68 – Talk 2
-- Case 69 – Talk 1
+- Case 68 Talk 1
+- Case 68 Talk 2
+- Case 69 Talk 1
 - From *Blue Cliff Record* Case 69, Note 2: Symmetry and Unsymmetry
-- Case 69 – Talk 2
-- Case 70 – Talk 1
+- Case 69 Talk 2
+- Case 70 Talk 1
 - Case 71
 - Case 72
 - Case 73
 - Case 74
 - Case 75
 - Case 76
-- Case 78 – Talk 1
-- Case 78 – Talk 2
-- Case 79 – Talk 1
-- Case 80 – Talk 1
-- Case 80 – Talk 2
-- Case 81 – Talk 1
-- Case 81 – Talk 2
-- Case 84 – Talk 1
-- Case 84 – Talk 2
+- Case 78 Talk 1
+- Case 78 Talk 2
+- Case 79 Talk 1
+- Case 80 Talk 1
+- Case 80 Talk 2
+- Case 81 Talk 1
+- Case 81 Talk 2
+- Case 84 Talk 1
+- Case 84 Talk 2
 - Case 84 Talk 3: Impermanence and the Meaning of Silence
 - Case 84 Talk 4: Three Aspects of Buddha's Silence
-- Case 86 – Talk 1
-- Case 86 – Talk 2
-- Case 87 – Talk 1
-- Case 87 – Talk 2
+- Case 86 Talk 1
+- Case 86 Talk 2
+- Case 87 Talk 1
+- Case 87 Talk 2
