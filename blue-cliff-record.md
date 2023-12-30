@@ -196,14 +196,14 @@ Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjo
 
 ---
 
-### [Blue Cliff Record Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 1](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
+### [Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 1](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
 #### February 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *This talk is not available due to an error in the online audio archive.*
 
 ---
 
-### [Blue Cliff Record Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
+### [Case 41: Chao Chou’s Man Who Has Died the Great Death – Talk 2](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2)
 #### February 16, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *This talk is not available due to an error in the online audio archive.*
