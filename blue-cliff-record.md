@@ -114,7 +114,7 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 - Case 29 – Talk 1
 - Case 29 – Talk 2
 - Case 30
-- Case 32 (Mislabeled as Case 33 in the archive)
+- Case 32 *(mislabeled as Case 33 in the archive)*
 - Case 33
 
 ---
