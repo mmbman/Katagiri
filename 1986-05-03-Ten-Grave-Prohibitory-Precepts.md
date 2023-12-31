@@ -28,39 +28,43 @@ title: "Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts"
 
 #### 2:10
 
-**Katagiri Roshi**: Today, I would like to explain, one by one, the Ten Prohibitory Precepts. (*Transcriber’s Note:* The first Prohibitory Precept is discussed in this talk. The second was discussed in a talk following this one that is lost, and the third is discussed in [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
+**Katagiri Roshi**: Today, I would like to explain, one by one, the Ten Prohibitory Precepts. (*Transcriber’s Note:* The first Prohibitory Precept is discussed in this talk. The second was discussed in a talk following this one which is lost, and the third is discussed in [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
 
-I think the Ten Great Prohibitory Precepts mean to actualize the embodiment of living in vow which corresponds to the Three Collective Precepts: the precepts of “all Buddha’s laws and rules,” “collective wholesome dharma,” [and] “collective inconceivable activity for all beings.” 
+I think the Ten Great Prohibitory Precepts mean to actualize the embodiment of living in vow which corresponds to the Three Collective Precepts: the precepts of “all Buddha’s laws and rules,” “collective wholesome dharma,” and “collective inconceivable activity for all beings.” 
 
-Devoting yourself fully to the Triple Treasure is the Buddhist faith. Using your mind and consciousness, you should devote yourself to the Triple Treasure, regardless of whether you understand or not. All you have to do is to move in the deep course of the Triple Treasure. This is the faith; and then, that faith is [three] of the Precepts. A *Precept*, I told you last time, is to form a habit of a way of living based on Buddha’s teaching. Constantly, every day, you have to form a habit, a custom. This is a Precept. So [for] the Triple Treasure, if you want to know what faith is, you have to form a habit of a way of living based on Buddha’s teaching; this is called faith. Every day you have to do it like this. 
+[First there is] the Triple Treasure. Devoting yourself fully to the Triple Treasure is the Buddhist faith. Using your mind and consciousness, you should devote yourself to the Triple Treasure, regardless of whether you understand or not. All you have to do is to move in the deep course of the Triple Treasure; this is the faith. And then, that faith is [three] of the Precepts. I told you last time, a *Precept* is to form a habit of a way of living based on Buddha’s teaching. Constantly, every day, you have to form a habit, a custom; this is a Precept. So [for] the Triple Treasure, if you want to know what faith is, you have to form a habit of a way of living based on Buddha’s teaching; this is called faith. Every day you have to do it like this. 
 
-And then, if you have Buddhist faith, next you have to receive the Three Collective Pure Precepts, which means the Buddhist *vow*. Because *habit* is not the same meaning as “addiction” or the usual [kind of] habit, which may last only for your lifetime. If you want to practice spiritual life, you have to maintain your habit for the long run, life after life, beyond time [and] space. 
+And then, if you have Buddhist faith, next you have to receive the Three Collective Pure Precepts, which means the Buddhist *vow*. Because *habit* is not the same meaning as “addiction” or the usual [kind of] habit, which may last only for your lifetime. If you want to practice spiritual life, you have to maintain your habit for the long run, life after life, beyond time and space. So continuing forever to form a habit of a way of living based on Buddha’s teaching is called *vow*. Vow is continually going, in the realm of eternity, beyond time and space, life after life. 
 
-So [...] forming a habit of a way of living based on Buddha’s teaching is called vow. Vow is continually going, in the realm of eternity, beyond time and space, life after life. And also, vow is no sense of self-attachment, no desire, no individual interest. But habit in the usual sense has self attachment and object attachment, or individual desires, interest. Always they are involved in the usual sense of a habit. A vow doesn’t have [that].
+And also, *vow* is no sense of self-attachment, no desire, no individual interest. Habit in the usual sense has self attachment and object attachment, or individual desires, or interest; always they are involved in the usual sense of a habit. But a vow doesn’t have [that].
 
 And now, we have to put this vow into practice in our everyday life. This is the Ten Prohibitory Precepts.
 
 #### 7:57
 
-The first [Prohibitory Precept]: *Abstain from taking life*. 
+The first Prohibitory Precept: *Abstain from taking life*. 
 
 The commentary says: 
 
 > Not taking life facilitates the growth of the Buddha seed. We should succeed to the wisdom life vein of the Buddha. Do not take life.
 
-So I mentioned before, a Precept is Buddha Nature. And a few minutes ago, I mentioned that in terms of terminology, *precept* – or *śīla* in Sanskrit – means to form a habit. But on the other hand, the deep meaning of the Precept is Buddha Nature, or we say Truth, with a capital T. Or we can say [that] all myriad dharmas themselves are ultimate reality.
+[...] I mentioned that in terms of terminology, *precept* – or *śīla* in Sanskrit – means to form a habit. But on the other hand, the deep meaning of the Precept is Buddha Nature, or we say Truth, with a capital T. Or we can say [that] all myriad dharmas themselves are ultimate reality. So to receive the Precepts is to awaken to the Buddha Nature. Even if you don’t understand what Buddha Nature or the Truth is, to receive is awareness. 
 
-So to receive the Precepts is to awaken to the Buddha Nature. Even if you don’t understand what Buddha Nature or the Truth is, to receive is awareness. In other words, if you don’t understand the value of a diamond, but anyway somebody gives a diamond to you and [you] receive it in your hand, that is already awareness of the value of diamond. It doesn’t “hit” your consciousness, but more-or-less it hits your life, in many ways. To receive the Precepts is awareness of Buddha Nature. That’s why to receive the Precepts is important. So that’s why during the ceremony we ask, “[Will] you observe the Precept?” And we say, “Yes, I will!” 
+In other words, if you don’t understand the value of a diamond, but anyway somebody gives a diamond to you and [you] receive it in your hand, that is already awareness of the value of diamond. It doesn’t “hit” your consciousness, but more-or-less it hits your life, in many ways. To receive the Precepts is awareness of Buddha Nature. That’s why to receive the Precepts is important. So that’s why during the ceremony we ask, “[Will] you observe the Precept?” And we say, “Yes, I will!” 
 
-“Yes, I will” really makes sense. Because we always try to receive something in terms of the intellectual sense, in terms of individual knowledge, individual level of education, individual degree of understanding yourself and others, and then you can [choose to] receive or [not to] receive [what] happens. But in spiritual life, I think regardless of whether you understand or not, to receive the Precepts means to receive Buddha Nature, Truth. Because you have to help grow the true nature, the Buddha Nature, the Truth. So again and again you have to receive the diamond. Even though you don’t understand what it is, somebody gives it to you. Then receive, receive, every day receive it. And then that practice helps grow the seed of true nature. 
+“Yes, I will” really makes sense. Because we always try to receive something in terms of the intellectual sense, in terms of individual knowledge, individual level of education, individual degree of understanding yourself and others. And then you can [choose to] receive or [not to] receive [what] happens. But in spiritual life, I think regardless of whether you understand or not, to receive the Precepts means to receive Buddha Nature, Truth. Because you have to help grow the true nature, the Buddha Nature, the Truth, so again and again you have to receive the diamond. Even though you don’t understand what it is, somebody gives it to you; then receive, receive, every day receive it. And then that practice helps grow the seed of true nature. 
 
 From this point, practice is simple. But your consciousness is always *grumbling*, always making complaints. That’s why apparently life becomes very complicated. And also, apparently, life is tossed away by consciousness, the [conceptual] world. But actually, if you want to develop your spiritual life, it’s a very simple life: regardless of whether you understand or not, totally you should receive the diamond as it is. And then, this practice helps grow the seed of Buddha Nature. 
 
 So, the Ten Grave Prohibitory Precepts are to actualize the embodiment of living in vow. 
 
-In the commentary, there are a few difficult terms there. “Not taking life facilitates the growth of the Buddha seed. We should succeed to the wisdom life vein of the Buddha.” *To facilitate*, and *not taking life*, and also *Buddha’s seeds*, and also *wisdom life-vein of Buddha*: those terms are a little bit complicated. Not complicated, [but] we are not familiar with them. Even though you study Buddhism, we don’t understand these. “Facilitate growth”: what is the meaning of facilitating the growth? What is the meaning of the Buddha seed? How can you facilitate the growth of Buddha’s seed? Where? How? And then, what is the wisdom life vein of Buddha? How can we maintain the wisdom life vein of Buddha forever? How? And also, how do those terms relate with the meaning of not taking life? What do we mean? Lots of questions come up. 
+#### 14:27
 
-#### 
+In the commentary, there are a few difficult terms there.
+
+> Not taking life facilitates the growth of the Buddha seed. We should succeed to the wisdom life vein of the Buddha.
+
+*To facilitate*, and *not taking life*, and *Buddha seeds*, and also *wisdom life-vein of Buddha*: those terms are a little bit complicated. Not complicated, [but] we are not familiar with them. Even though you study Buddhism, we don’t understand these. “Facilitate growth”: what is the meaning of facilitating the growth? What is the meaning of the Buddha seed? How can you facilitate the growth of Buddha’s seed? Where? How? And then, what is the wisdom life vein of Buddha? How can we maintain the wisdom life vein of Buddha forever? How? And also, how do those terms relate with the meaning of not taking life? What do we mean? Lots of questions come up. 
 
 But first of all, we have to understand the Buddha’s world. What is the Buddha’s world? What is the Truth? I don’t want to explain the Truth or Buddha’s world, but I think you can touch a little bit what the Buddha’s world is, what the Truth is we are talking about. And then, we have to continually form a habit of this precept in the Buddha’s world; not in the dualistic world. So first of all, what is the Buddha’s world?
 
@@ -118,6 +122,8 @@ But you don’t understand the *real* meaning of not taking life: *not taking li
 
 So you have to understand [the] taking life which is *taking life is doing taking life*. That means *not taking life* itself. You simply cannot take [the] life [of] anything. That is Buddha Nature, Buddha’s world. So finally, how can you [practice] it? You just be right on, that moment.
 
+#### 
+
 So finally, the commentary says, “do not take life.” That’s it. Dogen Zenji says “do not take life,” but [there is] no meaning. No meaning. But you want to have a meaning. *[He laughs.]* Don’t you? You want to have a meaning. But strictly speaking: “Do not take life.” – “Yes, sir!” That’s it. No meaning. And then from this, lots of meaning is coming up. That actually is Buddha’s seed, it is a source of energies, so very naturally it grows, many things grow. But we are always understanding from [the] dualistic world, participating in the completely different world from [what] Buddha mentions. We also understand Buddha’s teaching itself from a different angle, so we never know the Buddha’s teaching as it really is. That’s why we have to teach real Buddha’s teaching. How do you practice Buddha’s teaching? Even though it seems to be difficult, anyway we have to practice this. Because your life is already like that. 
 
 So from this point, the main purpose of Buddhism is not to attain enlightenment. No, I don’t think so. The main purpose of practice is to form a habit as a vow, forever. That is just like taking a journey in the universe. Day by day, step by step, you should move. Like walking in the mist: you don’t what the mist is, you don’t know here you are walking, you don’t know what the merit is. All you have to do is just walk. But everything is a blur. And then somebody comes: “Please come here. Let’s walk hand in hand.” 
@@ -146,7 +152,7 @@ So I guess for me I don’t quite understand the distinction between dualism and
 
 **Question**: Well, is it then seeing *A* and *B* as part of a set?
 
-**Katagiri**: *A* and *B* is a kind of a flower, and branches, and leaves. But without the stem, without the root, it’s impossible to grow. What you have to do is, [see] where you are standing. We have to stand up [in] this partition, this world, and see clearly as best as we can where we are standing, and then we can see the *A* and *B* in the universal perspective, and we can deal with it. But usually, people stand up [in] *A* world, or *B* world, and then understand or deal with only *B* world. And then *A* world tries to join into the *B* world, and then people are fighting and struggling, et cetera. Because they don’t stand up here [in the partition]. Do you understand? This is the source of your energies, so-called *moment*. Moment means you have to go through [it]. In order to understand sleep and awakening from sleep, you have passed through this moment. That moment is, I said, *awakening is awakening*. 
+**Katagiri**: *A* and *B* is a kind of a flower, and branches, and leaves. But without the stem, without the root, it’s impossible to grow. What you have to do is, [see] where you are standing. We have to stand up [in] this partition, this world, and see clearly as best as we can where we are standing, and then we can see the *A* and *B* in the universal perspective, and we can deal with it. But usually, people stand up [in] *A* world, or *B* world, and then understand or deal with only *B* world. And then *A* world tries to join into the *B* world, and then people are fighting and struggling, et cetera. Because they don’t stand up here [in the partition]. This is the source of your energies, so-called *moment*. Moment means you have to go through [it]. In order to understand sleep and awakening from sleep, you have passed through this moment. That moment is, I said, *awakening is awakening*. 
 
 **Question**: Can you fully experience the present moment and still be aware of the context in which it exists?
 
@@ -154,13 +160,13 @@ So I guess for me I don’t quite understand the distinction between dualism and
 
 **Question**: Okay. 
 
-**Katagiri**: That is the zazen we do. That’s why in zazen, throw away all worldly affairs, good and bad, right and wrong. *[He laughs.]* We say so. Because if you are involved in the [conceptual] world, you already stand up [in] *A* and *B* world, dualistic world. So you never sit down here; you are always looking at zazen in terms of *A* world, in terms of *B* world – either [one], before, or after. That’s why you don’t know zazen itself. 
+**Katagiri**: That is the zazen we do. That’s why in zazen, throw away all worldly affairs, good and bad, right and wrong. *[He laughs.]* We say so. Because if you are involved in the [conceptual] world, you already stand up [in] *A* and *B* world, dualistic world. So you never sit down here; you are always looking at zazen in terms of *A* world, in terms of *B* world – either before, or after. That’s why you don’t know zazen itself. 
 
 This is called *shikantaza*. *Shikan* – we say *wholeheartedness*. But even though you don’t understand it, if you practice, following the suggestions, then you can exactly experience it, you can touch it. So that’s why all we have to do is continually to be *right on there*, *right on there*, *right on there*. This is the way of “facilitating the growth of the Buddha seed.” Naturally, it’s growth. But intellectually, we don’t understand it, consciousness doesn’t accept it easily. Because it’s far from it, but it’s too close to know. 
 
 #### 55:54
 
-**Question**: Hojo-san? I was just wondering if you using the word *moment*. [Maybe it’s a] small point here, but I was thinking maybe the word *instant* would be a better choice of words. 
+**Question**: Hojo-san? I was just wondering about you using the word *moment*. [Maybe it’s a] small point here, but I was thinking maybe the word *instant* would be a better choice of words. 
 
 **Katagiri**: Oh. Okay. 
 
@@ -170,7 +176,7 @@ This is called *shikantaza*. *Shikan* – we say *wholeheartedness*. But even th
 
 #### 56:28
 
-**Question**: Hojo-san, sometimes the image I get of zazen, when you say zazen, is a place where there is no awareness. But I remember Narasaki Roshi’s image of the transparent pyramid. I was thinking of this in terms of [the previous] question. 
+**Question**: Hojo-san, when you say zazen, sometimes the image I get of zazen is a place where there is no awareness. But I remember Narasaki Roshi’s image of the transparent pyramid. I was thinking of this in terms of [the previous] question. 
 
 **Katagiri**: Transparent?
 
@@ -184,39 +190,37 @@ This is called *shikantaza*. *Shikan* – we say *wholeheartedness*. But even th
 
 **Question**: That’s how in the moment, we do not lose contact. 
 
-**Katagiri**: Mmm-hmm. That means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetrating at superspeed. That you can see, if you stand up in this instant world, instant sphere. *Instant* doesn’t mean instant, *[he chuckles,]* instant means eternal world, the vastness of existence. But it is a source of your life. That’s why I say *instant* or *moment*. Let me say *instant*, do you think? *[He laughs.]* Instant: right there. 
+**Katagiri**: Mmm-hmm. That means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetrating at superspeed. You can see that, if you stand up in this instant world, instant sphere. *Instant* doesn’t mean instant, *[he chuckles,]* instant means eternal world, the vastness of existence. But it is a source of your life. That’s why I say *instant* or *moment*. Let me say *instant*, do you think? *[He laughs.]* Instant: right there. 
 
 And if you stand up there, [there are] two things and more than two, because around the *A* world many beings exist, around the *B* world many beings exist, and those are interdependent, interpenetrating at superspeed. So you can see the really beautiful panoramic pictures. 
 
-That is so-called “I use the twenty-four hours,” instead of, “being used by the twenty-four hours.” (*Transcriber’s Note:* This is probably a reference to a saying by Yunmen Wenyan; see [*The Awakening of Faith*: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness).) Usually a human being is *used by* *A* and *B*, they don’t know how to *use* *A* and *B*. So if you want to properly use [the] *A* and *B* dualistic world, you have to stand up there, as clear as you can. This is awareness. If you stand up there, awareness is simultaneously no awareness, [it] drops off. But simultaneously awareness is there. So awareness [and] no awareness [are] always interdependent. 
+That is so-called “I use the twenty-four hours instead of being used by the twenty-four hours.” (*Transcriber’s Note:* This is probably a reference to a saying by Yunmen Wenyan; see [*The Awakening of Faith*: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness).) Usually a human being is *used by* A and B, they don’t know how to *use* A and B. So if you want to properly use [the] *A* and *B* dualistic world, you have to stand up there, as clear as you can. This is awareness. If you stand up there, awareness is simultaneously no awareness, [it] drops off. But simultaneously awareness is there. So awareness [and] no awareness [are] always interdependent. 
 
 **Question**: Then the important thing is how you respond to the awareness. If you’re at the partition and you know there’s *A* and *B*, the dualistic way is to say, “Oh, I have to be at *A*,” and get all upset, but the way that you’re talking about is to [instead] put your consciousness into the moment that you’re in, and accept both *A* and *B*.
 
-**Katagiri**: Yes. You should accept, but you shouldn’t be excited too much, you shouldn’t be disappointed too much. Not too pessimistic, not too optimistic. [We call that] “the Middle Way.” You should accept *A* and *B* because immediately you can see beautiful pictures, but at that time, that is called *you can use it*, you can handle it. But don’t be excited too much. So you cannot be optimistic, you cannot be pessimistic... you cannot be neutral. *[He laughs.]* So totally you have to be fully alive, every day, from moment to moment. That’s why [Yun Men] says, “Every day is a good day.” (*Transcriber’s Note:* This is probably a reference to *Blue Cliff Record* Case 6.) “Every day is a good day” means from moment to moment you have to be alive, just like a leaping fish. But more or less, we feel pessimistic, and then we are bogged down with pessimism. We love the optimistic world, so next moment, we are rushing to the other side, and then we’re excited. *[He laughs.]* So we are always missing the most important point: the Middle Way. 
+**Katagiri**: Yes. You should accept, but you shouldn’t be excited too much, you shouldn’t be disappointed too much. Not too pessimistic, not too optimistic. [We call that] the Middle Way. You should accept *A* and *B* because immediately you can see beautiful pictures, but at that time, that is called *you can use it*, you can handle it. But don’t be excited too much. So you cannot be optimistic, you cannot be pessimistic... you cannot be neutral. *[He laughs.]* So totally you have to be fully alive, every day, from moment to moment. That’s why [Yun Men] says “Every day is a good day.” (*Transcriber’s Note:* This is probably a reference to *Blue Cliff Record* Case 6.) “Every day is a good day” means from moment to moment you have to be alive, just like a leaping fish. But more or less, we feel pessimistic, and then we are bogged down with pessimism. We love the optimistic world, so next moment we are rushing to the other side, and then we’re excited. *[He laughs.]* So we are always missing the most important point: the Middle Way. 
 
-I don’t mean you should always [be] “calm.” *[He laughs.]* Excitement is always coming up, but within the excitement, how much do you excite? This is a question. How much? I don’t know. *[He laughs.]* If excitement comes up, it’s natural; I don’t mean you *shouldn’t* [be] excited. You can see excitement naturally, because it’s dualistic. But a question is, how do you accept excitement to the minimum? In other words, as simple as you can. 
+I don’t mean you should always [be] “calm.” *[He laughs.]* Excitement is always coming up, but within the excitement, how much do you excite? This is a question. How much? I don’t know. *[He laughs.]* It’s natural for excitement to come up; I don’t mean you *shouldn’t* [be] excited. You can see excitement naturally, because it’s dualistic. But a question is, how do you accept excitement to the minimum? In other words, as simple as you can. 
 
-1:02:22
+#### 1:02:22
 
-**Question**: Hojo-san? One question. In what you’re saying about being with the moment rather than attaching with *A* or with *B*, how does it fit in with the sense of sometimes needing ideas to guide you, or ideals? Or imagining, say, a social situation in a different kind of way, and working toward that? Is that...
+**Question**: Hojo-san? In what you’re saying about being with the moment rather than attaching with *A* or with *B*, how does it fit in with the sense of sometimes needing ideas to guide you, or ideals? Or imagining, say, a social situation in a different kind of way, and working toward that? Is that...
 
 **Katagiri**: Ideal image? [...] 
 
 **Another person**: Kind of your problem solving.
 
-**Katagiri**: Oh, problem. 
+**Katagiri**: Oh, problem. Well, many problems, so it depends on the problem. Sometimes small problem and sometimes big problem, and sometimes you can find the solution by yourself, but sometimes you cannot. Maybe you have to find the solution together with people; sometimes it takes a long time. Lots of kinds of problems. But even though it takes a long time to solve, anyway from moment to moment, basically your base where you stand up is constantly that sphere I mentioned, that sphere where you are neither excited too much nor pessimistic too much.
 
-Well, many problems, so it depends on the problem. Sometimes small problem and sometimes big problem, and sometimes you can find the solution by yourself, but sometimes you cannot. Maybe you have to find the solution with the people together; sometimes it takes a long time. Lots of kinds of problems. But even though it takes a long time to solve, anyway from moment to moment, basically your base where you stand up is constantly that sphere I mentioned. That sphere where you are neither excited too much nor pessimistic too much.
-
-**Question**: But in that process is there a place for your imagination of an idea.
+**Question**: But in that process is there a place for your imagination of an idea?
 
 **Katagiri**: Sure, you can use lots of imagination. 
 
 For instance, in my case, I have to talk in English, you know? And then if look at myself, this is *big* problem for me, still a problem. And then, how can I find a solution to this? But basically, I have to stand up always in that Middle Way, constantly stand up. And then, I can use lots of ideas. [A] beautiful image, so-called “eternal possibility.” *[He laughs.]* 
 
-Do you understand “eternal possibility”? A friend said to me, “Katagiri, you are stupid, because you are always awake only when you’re reading a book in English.” Not in Japanese; if I started to read the book in Japanese, I started to sleep. *[Laughter.]* But [reading it] in English, I was pretty busy with looking at the dictionary, so I was awake! *[He laughs, and the group laughs.]* So he said, “you’re stupid.” *[He laughs.]* He put me down, and then next scooped [me] up again and said, “But, your capability of English is eternal possibility.” *[Everyone laughs.]* Do you understand? I didn’t understand at that time. *[Everyone laughs.]* So it’s not criticizing, but it’s not good. But it’s not bad. *[He laughs.]* So constantly the Middle Way.
+Do you understand “eternal possibility”? A friend said to me, “Katagiri, you are stupid, because you are always awake only when you’re reading a book in English.” Not in Japanese; if I read the book in Japanese, I started to sleep. *[Laughter.]* But [reading it] in English, I was pretty busy with looking at the dictionary, so I was awake! *[He laughs, and the group laughs.]* So he said, “You’re stupid.” He put me down; and then next he scooped [me] up again and said, “But, your capability of English is eternal possibility.” *[Everyone laughs.]* Do you understand? I didn’t understand at that time. *[Everyone laughs.]* So it’s not criticizing, but it’s not good. But it’s not bad. *[He laughs.]* So constantly the Middle Way.
 
-So I can think. I can think of a beautiful, ideal image of my life. I don’t think I should handle my life in terms of certain ideas, so-called “I am stupid,” or “I am a particular person.” I don’t think it’s necessary to do this. So constantly we have to think something, we have to stand up in the middle, and also use the [...] ideas. But if you start to use ideas, people are always excited too much, or pessimistic, so you cannot do it. But [you] experience excitement, many things. 
+So I can think. I can think of a beautiful, ideal image of my life. I don’t think I should handle my life in terms of certain ideas, so-called “I am stupid,” or “I am a particular person”; I don’t think it’s necessary to do this. So constantly we have to think something, we have to stand up in the middle, and also use the [...] ideas. But if you start to use ideas, people are always excited too much, or pessimistic, so you cannot do it. But [you] experience excitement, many things. 
 
 #### 1:07:32 end of recording
 
