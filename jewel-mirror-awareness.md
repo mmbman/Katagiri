@@ -12,16 +12,15 @@ This document is drawn from a series of nine talks given by Dainin Katagiri Rosh
 
 This is a song.
 
-In Japanese we call it Hôkyozammal, "Jewel Mirror Awareness," omitting the word "Song." But Manzan, a famous Japanese Zen master, stressed that the title should include the word "Song." For this is not only a very important sutra: it is a song, one which is chanted every day in Soto Zen monasteries.
+In Japanese we call it *Hôkyozammai*, "Jewel Mirror Awareness," omitting the word "Song." But Manzan, a famous Japanese Zen master, stressed that the title should include the word "Song." For this is not only a very important sutra: it is a song, one which is chanted every day in Soto Zen monasteries.
 
-A song appeals very deeply to your heart, and impresses you very much. Even if you don't understand it. We learn songs as children, often singing them before we understand what the words mean, and as adults we stils remember them.
+A song appeals very deeply to your heart, and impresses you very much. Even if you don't understand it. We learn songs as children, often singing them before we understand what the words mean, and as adults we still remember them.
 
 This is why it is called the "Song of Jewel Mirror Awareness." "Awareness" of course means "samadhi." The Song of Jewel Mirror Samadhi.
 
-
 So here we have a song which is also a very important sutra. You should recite it as well as study it, so that it becomes as much of you as a song of your childhood.
 
-The Song of Jewel Mirror Awareness is a very simple sutra, consisting of 376 Chinese characters arranged into 94 phrases. It was written by the Zen master Tozan, who lived from 807 to 865, and who is greatly respected as the founder of the sotö tradition of Zen Buddhism. He also systematized the philosophical background of Soto Zen teaching into the so-called "Five Ranks."
+The *Song of Jewel Mirror Awareness* is a very simple sutra, consisting of 376 Chinese characters arranged into 94 phrases. It was written by the Zen master Tozan, who lived from 807 to 865, and who is greatly respected as the founder of the Sotö tradition of Zen Buddhism. He also systematized the philosophical background of Soto Zen teaching into the so-called "Five Ranks."
 
 ***
 
@@ -64,7 +63,7 @@ Outside, or inside of you?
 
 Exactly neither.
 
-Because if you say outside, then you are just seeking the truth outside of yourself, and it will get farther and farther away from you, become more and mure conceptualized and artificial. If you say inside, you are still seeking the truth through your ordinary consciousness, objectively. What inside part of you is it?
+Because if you say outside, then you are just seeking the truth outside of yourself, and it will get farther and farther away from you, become more and more conceptualized and artificial. If you say inside, you are still seeking the truth through your ordinary consciousness, objectively. What inside part of you is it?
 
 Not "inside," not "outside." True Self is completely beyond our ability to discuss in words.
 
@@ -112,7 +111,7 @@ Together with the whole world.
 
 When a dying Buddhist comes to a Zen master and asks for some words of sympathy and relief, the Zen master will say, "please, go ahead, quietly."
 
-That means, when you have to die, just go ahead and die, quietly. it seems cold, but it is very true. The Zen master understands pretty well what life and death are. So "alone I proceed through myself." "Through myself" means through this body, right here, right now. Why this body? Because there is no other choice.
+That means, when you have to die, just go ahead and die, quietly. It seems cold, but it is very true. The Zen master understands pretty well what life and death are. So "alone I proceed through myself." "Through myself" means through this body, right here, right now. Why this body? Because there is no other choice.
 
 Wherever I may go, I meet this reflection. He is completely myself but simultaneously he is not me. But only the True Self is going along. Yet the reflection is what we discuss, what we stumble over all the time. So we say this is me, this is you; but it is not you, and it is not I.
 
@@ -120,7 +119,7 @@ Wherever I may go, I meet this reflection. He is completely myself but simultane
 
 Is this vastness of existence then nothing? We call it "emptiness," but there is something there. It is always coming, and it is always going. So when you see the reflection it is coming but in the next moment it is going. When the reflection is gone, you say "this is not me;" but immediately the reflection comes.
 
-So without this reflection 1 cannot exist, I cannot understand who I am. But that reflection is always coming and going; it does not stay even for a moment. The only thing that stays is the vastness of existence. That is called truth, or in Japanese, "hokyo:" the Jewel Mirror.
+So without this reflection I cannot exist, I cannot understand who I am. But that reflection is always coming and going; it does not stay even for a moment. The only thing that stays is the vastness of existence. That is called truth, or in Japanese, "hokyo:" the Jewel Mirror.
 
 Manzan said that the Jewel Mirror was a metaphor for wisdom, and that he took great pity on those who did not realize wisdom; the greatest sadness in the world was not to realize wisdom.
 
@@ -128,7 +127,7 @@ This wisdom is not a matter of words and discussion. This wisdom is the truth, B
 
 When I alone proceed through myself, then there is wisdom.
 
-If you think about it, proceeding alone is very hard. Because no one can really reach you or help you. We can communicate by means of language, send each other words of sympathy and encouragement. But no matter what words you send me, 1 alone proceed through myself. It is very hard to stay there, with aloneness.
+If you think about it, proceeding alone is very hard. Because no one can really reach you or help you. We can communicate by means of language, send each other words of sympathy and encouragement. But no matter what words you send me, I alone proceed through myself. It is very hard to stay there, with aloneness.
 
 But there is no other way. Whatever you say, whatever opinion you have, you have to just proceed alone through yourself within this world. When you let your True Self proceed, this proceeding is called wisdom.
 
@@ -143,7 +142,8 @@ Wisdom lets you look with depth and penetration into the the core of human exist
 The practice of wisdom is the practice of samadhi. One-pointedness. And the simplest practice of samadhi is Zazen.
 
 ***
-Buddhism, and particularly the Prajna Paramita Sutra, places great stress on the Wisdom of Emptiness. Wisdom of Emptiness is the realization that the human world has no substantiality of its own
+
+Buddhism, and particularly the Prajna Paramita Sutra, places great stress on the Wisdom of Emptiness. Wisdom of Emptiness is the realization that the human world has no substantiality of its own.
 
 No substantiality of its own means that there is no single thing to pin down, to count, to explain, to know, or to understand as an independent entity.
 
@@ -175,7 +175,7 @@ One Japanese alphabet, Hirakana, is made up of fourty-seven syllables. Kobo Dais
 
 > Though flowers bloom, they soon fall.  
 > How can this life be permanent to anyone?  
->  Crossing the mountains of life's vicissitudes today, 
+> Crossing the mountains of life's vicissitudes today, 
 > We shall not have light dreams or be infatuated again.
 
 So even first grade children, by repeating their alphabet, are saying this poem. Even before they learn the meaning of the words. So when you grow up with the Japanese language you very naturally experience the emptiness of the world. Emptiness in the sense that everything is constantly moving, functioning dynamically, constantly working.
@@ -332,13 +332,13 @@ Then maybe you say, which will I be, a violet or a rose? That is already making 
 
 You are already something. Before you compare yourself with somebody else, you are already you. All you have to do is let the flow of your life force to cause you to bloom as you really are.
 
-In the Teno Kyokun, by Dogen Zenji, we find the passage:
+In the Tenzo Kyokun, by Dogen Zenji, we find the passage:
 
 > "Put those things that naturally go on a high place onto a high place, and those that would be most stable on a low place onto a low place; things that naturally belong on a high place settle best on a high place, while those that belong on a low place find their greatest stability there."
 
 This is a very important passage; you should consider it again and again.
 
-If you go to work for a company, the company will do many things to get your life force to bloom. But if you are a violet, they will tell you not to bloom as a Violet but to bloom as a rose. So they will do things like put up lists of who is the best saleman or some such thing.
+If you go to work for a company, the company will do many things to get your life force to bloom. But if you are a violet, they will tell you not to bloom as a Violet but to bloom as a rose. So they will do things like put up lists of who is the best salesman or some such thing.
 
 That's pretty nice, in a sense, because it seems to be encouragement. But encouragement is not always good for you. If it makes you see the world dualistically, then it makes you nervous. You can accept your life when things are going well. But when things are not going well you become very depressed.
 Nervous. Sick. You can die from it.
@@ -374,7 +374,212 @@ So when I look at myself, sometimes I feel good and sometimes I don't feel good,
 
 Then I can experience up and down, and take care of it. If I don't proceed by myself, stably, how can I survive an up and down life? And so you should read this passage in the Tenzo Kyokan, and consider it again and again.
 
----
+### The Text
+
+> The teaching of thusness  
+> Has been intimately communicated by buddhas and patriarchs;  
+> Now you have it,  
+> So keep it well.  
+
+In Japanese we use the word "nyoze" for "thusness." The word is made up of two syllables, "nyo" and "ze." "Nyo" means thus, or like, or likeness; "ze" means this, or something affirmative or assenting. Nyo can be taken to stand for the ultimate principle, and ze for the phenomenal world: thusness and thisness. Taken together they mean principle and practice. In English we say "thusness" or "suchness," but you should think of it as principle and practice, ultimate principle and phenomena.
+
+We combine them in one word because they are not separate.
+
+Principle cannot exist alone, separate from practice. If it did, it would be like a dead tree: it would not live. So when you say principle, there must be practice; when you say practice there must be principle.
+
+Even though you don't actually say the second word.
+
+Then practice does not become the practice of something with blind or ignorant mind. Practice requires that you polish your mind through and through.
+
+So we have "The teaching of nyoze." "Teaching," is, of course, "dharma." Dharma has to be understood in three ways: as the ultimate principle, as phenomena, and as teaching. You may also understand dharma in terms of its working, as perfect harmony.
+
+In terms of a purely intellectual understanding you can describe dharma as principle and phenomena, and analyze it in terms of parts. But in reality they are not separate; they must be completely harmonized.
+
+Interconnected, interpenetrated, in perfect harmony.
+
+Then teaching must focus constantly on this perfect harmony of ultimate principle and phenomenal world. It cannot just be something written or spoken, or something conceptualized. It must be alive. It must remove suffering, and awaken people to the truth.
+
+It must be something you manifest with your mind and your body as well as your mouth. Even without speaking, you can teach with your whole body the perfect harmony of ultimate truth and the phenomenal world.
+
+That is why your behavior on a daily basis is so important. As is your talking. And your silence.
+
+Silence teaches a lot.
+
+If you don't completely understand the meaning of the human world, then you should keep your mouth shut and contemplate. If you keep your mouth shut you will find that you can naturally go very deeply into the human world.
+
+That is our practice.
+
+Being silent does not mean being isolated from the human world. You should go very deeply into the human world; that is silence. Getting deeply into the human heart; this is silence.
+
+So silence, human bodies, human words, all teach.
+
+This is the dharma.
+
+Generally speaking you should probably understand the dharma in terms of its working, as harmony. But this is still just a philosophical understanding.
+
+You have to put it into practice in your daily living.
+
+You cannot talk about truth separate from the human world; if you try, your life gets farther and farther away from everyday living and eventually you become crazy.
+
+On the other hand, if you ignore the ultimate principle and concentrate on everyday living, your life becomes very cold, without meaning.
+
+Very shallow.
+
+You can make a lot of fancy noises and make your life very exciting, but it is very shallow. You will feel an uneasiness at the bottom of your life. Even though apparently you are very happy and leading a very fancy life, at the very bottom there will be a definite uneasiness.
+
+So you need thusness and thisness, principle and practice, truth and the phenomenal world; both working in harmony.
+
+This is dharma.
+
+***
+
+Dharma is the object of belief for Buddhists. It is not an object of analysis, or philosophical or psychological discussion; it is something to realize through your life. A person who makes the dharma real, manifests the dharma through their life, is called a buddha.
+
+A patriarch is a descendant, one who has received the teachings of a buddha. So each of us is a patriarch. And if you are a patriarch, and you become qualified to teach future generations, then you become a buddha. A buddha understands how important his life is and also lets other people realize how important their lives are, by transmitting the teaching to the next generation.
+
+If you are not a buddha, you cannot teach. If you receive the teaching of a buddha, then you are a patriarch. If you become able to transmit Buddha's teaching to the next generation, then you become buddha. Such buddha-patriarchs are bestowed with the perfect harmony of truth and phenomenal world.
+
+Principle and practice.
+
+They understand the world very deeply, with more than just a scientific understanding. And they practice this understanding through their lives, so that principle and practice becomes one.
+
+***
+
+And then they intimately communicate.
+
+Intimately: A state of uncoveredness. The dharma is with you so closely that you cannot create a gap between the phenomenal world and the truth, you cannot separate them to even the slightest degree. If you have very intimate communication, it's very difficult to separate the two parties, to make a space between them. Oh, intellectually you can do so, you can say that this is one and that is the other. But actually the relationship is beyond this and that, one and the other, good and bad. There is no boundary. This kind of intimacy is very important in Buddhism, especially in Zen Buddhism.
+
+To communicate or transmit: Although we are already buddha, we must be led to attain the buddha by someone who has already attained; the way to attain must be taught and we must follow that teaching.
+
+Otherwise, although we are buddha, we will fail to manifest the buddha.
+
+If you want your life to work perfectly and peacefully, you have to understand yourself and others and all sentient beings, the visible and the invisble, and you have to accept. Whether you like something or you don't like it, intellectually or emotionally, you have to completely accept it.
+
+This is not only true of your life, it is also true of other's lives as well.
+
+So then what is your life?
+
+Your life is the entire whole world. Dogen Zenji said: the self is the entire whole world, which is one bright pearl. This is what I mean when I say you are buddha: that you are the entire whole world, which is one bright pearl. Same is true of your book, even the smallest pebble. It is its entire whole world, because there is nothing to compare it to, no way to discriminate between it and something else.
+
+But if you are already buddha, why must you practice?
+
+In order to manifest your buddha, to make it alive in your life, to attain the buddha way.
+
+It is like a golden statue of Buddha. Every part of the statue, nose, ears, everything, is exactly gold. But it is not Buddha until the gold has been poured into a mold, so that the nose in the gold becomes a nose, and the ears in the gold become ears. Then the Buddha is manifested, realized, and made alive.
+
+How do we do this?
+
+Under the guidance of a person who has realized buddha. A teacher. And if you practice under the guidance of the teacher as buddha, you become exactly buddha, just as this teacher who has attained.
+
+At that time teacher will intimately communicate the dharma of nyoze. And you will intimately receive it. And then you must completely follow it, practice it, and make it alive in your life. That means you must put yourself in the same way of life as the person who has attained the buddha.
+
+It is just like learning calligraphy. If you want to learn calligraphy under a teacher, you are first taught to write using a textbook. First you receive and accept the textbook, because it is part of the teaching of your teacher. Then the teacher tells you exactly how to hold the brush. Next, you exactly follow the textbook and the the teacher's way.
+
+Whether you like it or not.
+
+There will be times when you read the teacher's textbook and observe the teacher's examples; but when you try to write, your calligraphy will be far from your teacher's way.
+
+And immediately he will say that he does not like it.
+
+If you refuse to accept this criticism, and refuse to accept the teacher's way, then you will never master calligraphy to the degree your teacher has. So you must completely follow his way.
+
+This is egolessness. And the practice of egolessness is very hard.
+
+Finally your calligraphy becomes exactly the same as your teacher's. And then you must go beyond your teacher, and cause your own style of calligraphy to bloom and grow. Unless you go beyond, your calligraphy will always be nothing but an imitation of the teacher's style.
+
+Do you understand?
+
+People always are saying "my way," I want to create "my way" of life.
+
+Well, that's fine. But without perfectly following the teacher's way and becoming one with that way, you cannot really create your life.
+
+You have to practice for many, many years. You have to mold yourself, like the golden Buddha statue, in the way of life demonstrated by your teacher. In order to manifest your buddha.
+
+Do you know how to attain the buddha?
+
+No, you don't. But your teacher knows. Buddhas know. So that's why you have to follow his teaching.
+
+I am told that in Japan, when thread is dyed in the traditional manner, the white thread is dipped into the dye and then pressed and dried, over and over again. When you dip it first into the dye it looks as if it were fully colored, but when you press it, the color seems to leave it. But not all; a little bit is left.
+Then you dip it again and press it again and finally after many times, the thread is dyed through and through. And then no matter what kind of cloth you weave it into, no matter how badly it is worn or damaged, the color is always there.
+
+Same is true of buddha nature. It is like the color of the thread, or the gold of the golden Buddha statue. But you must mold it, or weave it into cloth before it is manifest. So you practice again and again, until you become exactly the same as your teacher, exactly the same as a buddha.
+
+***
+
+I went to Japan to visit Narazaki Roshi, who is the abbot of a monastery called Zuioji. His brother is also at that monastery. Both of them had practiced for many years under the famous Zen master Hashimoto Roshi, whom I knew very well.
+
+After I had stayed at Zuioji for a little while I was surprised to notice that the abbot's behavior was exactly the same as Hashimoto Roshi's. Walking style, talking style, voice, calligraphy: exactly the same.
+
+But he is not Hashimoto Roshi, he is Narazaki Roshi. He is himself, but his way has become that of his teacher. Now his life is really blooming. And everybody respects him, because he has attained Hashimoto Roshi's way. They are not respecting Hashimoto Roshi, they are respecting Narazaki Roshi.
+
+***
+
+If you want to learn the tea ceremony you have to practice again and again exactly as the teacher tells you; your behavior, your attitude, your understanding must be exactly the same as that of you teacher. Finally, the teacher knows the time or opportunity when he or she has to transmit the real teaching of the ceremony.
+At that time, the teacher transmits the secret key point of how to deal with the tea ceremony.
+
+We call that the dharma transmission.
+
+The perfect harmony is transmitted from one to another, from me to you. But perfect harmony is not something I give; you are already perfect harmony. You yourself are already the perfect harmonious working of the whole world. You already have this, but you don't know how to manifest it; this is why we have to practice. And then when the time is right and the conditions arranged, the perfect harmonious working of the whole world is manifested.
+
+This is the dharma transmission.
+
+So Tozan tells us "now you have it." That means you have it at this very instant; but you must manifest it. And then he tells us, "keep it well." Keep it well; take good care of it.
+Manifest the perfect harmony in your life under the guidance of a buddha, keep it, preserve it by receiving it and transmitting it to others.
+
+Do not give up to despair or self-neglect.
+
+Or destroy the indescribable, distinctive, peculiar flavor of your life.
+
+This peculiar flavor is called the Dharmakaya buddha, or the dharma body. It is the same as the ultimate principle; it is what I refer to when I say you are already buddha.
+
+That is the seed. Everyone's body and mind are the seed. Everyone has the seed and everyone deserves to let it grow, and blossom, and bear fruit. The fruit is called the Sambhogakaya buddha.
+
+Samboghakaya buddha is something between Dharmakaya buddha and what is called Nirmanakaya buddha, which is the physical world we can sense.
+
+So if you have this seed, where can it grow?
+
+In an appropriate place. And that is your body. Your body and your mind and your whole circumstance: sunsets, sunrises, warmth, cold, everything visible and invisible. That is Nirmanakaya buddha.
+
+And then your seed grows, in peace and harmony, interconnected, interpenetrated with all sentient beings. That is the dharma of perfect harmony of truth and phenomenal world.
+
+If you put the seed in an inappropriate place then the seed doesn't grow. So you have to put the seed in an appropriate place, one where there is harmony between the truth and the phenomenal world. And then the seed will grow and bear fruit: Samboghokaya buddha, something between the seed of Dharmakaya buddha and the circumstance of Nirmanakaya buddha. Warmth, cold, everything works together and contributes to the growing of the seed into fruit.
+
+And that fruit will have its own peculiar, incredible, indescribable flavor.
+
+Pumpkins, bananas, apples, oranges: every fruit has its own particular, peculiar flavor.
+
+You cannot describe it in words.
+
+Each individual orange has a different flavor, according to the place in which it grew, the sunrises, the sunsets, the different warmth of the sun; all different.
+
+You know, it is very convenient for us to have vegetables during the winter, so we grow them in the greenhouse. But those vegetables are not so delicious; a vegetable has to go through severe winter, very hot summer, spring and autumn. And when it grows that way, naturally, then it has incredible, indescribable, peculiar flavor.
+
+So regardless of whether you like your circumstances or not, try to keep it well. And also your circumstances, your bodies, your minds are constantly changing. So you have to learn how to keep it well.
+
+This is our practice.
+
+This is why in one of the precepts it states: no killing.
+
+Bodhidharma explained it this way: in accordance with refraining from taking life, a buddha seed grows to achieve continuity of the Buddha's wisdom.
+
+To achieve continuity of the Buddha's wisdom means to achieve continuity of keeping the perfect harmony of the whole universe, truth and phenomena. If we kill we break that continuity; and so we should refrain from taking life.
+
+In any event, regardless of whether you know it or not, you have already been taught by Buddha. This is why we say you are buddha. You know, even if just intellectually, that you are buddha. This is why Tozan tells you that you have it at this very moment, and urges you to keep it well.
 
 ---
 
+> Filling a silver bowl with snow,  
+> Hiding a heron in moonlight --  
+> When you array them, they're not the same;  
+> When you mix them, you know where they are.  
+
+How can you keep it well?
+
+Tozan says: "Filling a silver bowl with snow."
+
+Snow is each of us. Silver bowl is Buddha, your teacher, Buddha's teachings.
+
+So you should put yourself in the silver bowl, Buddha's bowl.
+Silver and snow are the same color, but they are different. So when you put yourself in the Buddha's bowl, there is no gap between you and it. You are buddha, and Buddha is buddha. That is how to keep it well.
+
+- 31 -
