@@ -440,6 +440,13 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
+### [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
+#### May 3, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 ### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
 #### June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 

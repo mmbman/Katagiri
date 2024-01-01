@@ -5,7 +5,7 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 
 [List](list#1986) 
 \| [Previous](1986-04-12-Receiving-the-Precepts) 
-\| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) 
+\| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) 
 \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
@@ -127,5 +127,5 @@ Vow is a big hope, huge hope.
 
 [List](list#1986) 
 \| [Previous](1986-04-12-Receiving-the-Precepts) 
-\| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) 
+\| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) 
 \| Series: [Lay Ordination](lay-ordination)

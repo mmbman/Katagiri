@@ -311,7 +311,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *The Awakening of Faith* Talk 38 – Final Talk
 
-1. Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts
+1. [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
 
 1. The Goldenness of the Earth, the Sweet Milk of the Long River
 
