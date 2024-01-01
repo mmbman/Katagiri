@@ -73,7 +73,7 @@ It is something alive.
 
 It is life itself, real life.
 
-<center>* * *</center>
+<p><center>* * *</center></p>
 
 You don't think consciously about your breath or the beating of our heart when you go to sleep. If you did, you would become very nervous; maybe even schizophrenic. Even though you sleep, your heart keeps on beating. But there is no guarantee that your heart will keep on beating. Because a beating heart is something that belongs to this limited world. There is uncertainty with each heartbeat, a kind of crisis. Because you don't know whether or not your heart is going to stop. So your heart exists within the limits of its own life, and also in a state of crisis.
 
