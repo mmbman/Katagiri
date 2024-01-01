@@ -1475,18 +1475,17 @@ People, microphone, this table exists interconnected, interpenetrated with table
 
 The relative and absolute integrate, piled up they make three, the complete transformation makes five. This can be understood if you consider the following diagram:
 	
-		
-                                 |	 relative within the absolute
-                            	 |
-                                 |   absolute within the relative
-	piled up, they		 | 
-	make three           |						| 	coming within the absolute
-                                 |                 		|
-                                 |   integrate		|	arrival within the relative
-                                                		|
-    the complete                          		|	attained within integration
-	transformation
-	makes five
+                     |– relative within the absolute
+                     |
+                     |– absolute within the relative
+    piled up, they   |
+    make three       |             |– coming within the absolute
+                     |             |
+                     |– integrate –|– arrival within the relative
+                                   |
+    the complete                   |– attained within integration
+    transformation
+    makes five
 	
 	
 The relative and absolute integrate. The relative means the relative within the absolute. The absolute means the absolute within the relative. Then integrate, which refers to the coming within the absolute, the arrival within the relative, and the attained within integration.
