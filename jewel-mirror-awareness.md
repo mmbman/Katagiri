@@ -374,7 +374,7 @@ So when I look at myself, sometimes I feel good and sometimes I don't feel good,
 
 Then I can experience up and down, and take care of it. If I don't proceed by myself, stably, how can I survive an up and down life? And so you should read this passage in the Tenzo Kyokan, and consider it again and again.
 
-### The Text
+### Part 1
 
 > The teaching of thusness  
 > Has been intimately communicated by buddhas and patriarchs;  
@@ -582,4 +582,86 @@ Snow is each of us. Silver bowl is Buddha, your teacher, Buddha's teachings.
 So you should put yourself in the silver bowl, Buddha's bowl.
 Silver and snow are the same color, but they are different. So when you put yourself in the Buddha's bowl, there is no gap between you and it. You are buddha, and Buddha is buddha. That is how to keep it well.
 
-- 31 -
+If you try to always judge yourself in terms of your own understanding and your own feelings, then it is difficult to put yourself in the silver bowl, because you feel so conspicuous, there in the Buddha bowl.
+
+At that time you are not keeping it well.
+
+Keep it well means to let the seed of the buddha nature grow. And to do this you must continually put yourself in the Buddha bowl. That is what is meant by the practice of egolessness: to put snow in a silver bowl.
+
+That's why Tozan tells us at the end of this sutra: Practice secretly, working within, as though a fool, like an idiot -- if you can achieve continuity, this is called the host within the host.
+
+This is the best way.
+
+You become host within the host, in whatever situation you may be in. You become the host, but you become something more than the host, because you can create your own life. So it is not the practice of imitation. That is what is meant by filling a silver bowl with snow, hiding a heron in moonlight.
+
+Dogen Zenji wrote:
+
+> A snowy heron on the snow field  
+> Where winter grass is unseen  
+> Hides itself in its own figure.  
+
+This is our practice.
+
+Filling a silver bowl with snow, hiding a heron in moonlight.
+
+Put yourself in the silver bowl, put yourself in a certain pattern of the Buddha way of life. This does not mean that you should be hidden behind the Buddha's way of life, or that you should imitate. It means that your practice should be like the snowy heron, that hides itself in its own figure. You are already white like the snow, which means that you are already buddha nature. When you put yourself in the silver bowl, then there is growth. But it doesn't show conspicously; it is difficult to distinguish, like the difference between snow and silver.
+
+That is why Tozan goes on to say: When you array them, they're not the same; when you mix them, you know where they are.
+
+A heron has long legs, a chicken has very short legs. Katagiri is short man and Don here is very tall man. So there is a difference. But the difference doesn't matter. Snowy heron is a heron, snow is snow. The difference is there, but it is not fundamental.
+
+When you mix them you know where they are. "Mix" is not really the word; they do not mix like paint. When you see them together you know which is which.
+
+You are you, Buddha bowl is Buddha bowl, silver is silver. There is a difference. When you throw yourself into the Buddha way and practice it, it's not mixed up. It's not a combination. It's not fused. You are you, Buddha is Buddha.
+
+If we lose sight of this then very naturally we feel that practice means losing our own particular life-style and personality. It's not like that at all. Buddhist training is not like Army training, or brainwashing. The heron still has its own figure.
+
+---
+
+Text: 
+
+> The meaning is not in the words,  
+> Yet it responds to the inquiring impulse.  
+
+Commentary:
+
+"Meaning" here refers to the real dharma, something behind the song; the real meaning. So the dharma which has been transmitted is more than words. Yet it responds to the inquiring impulse --if you look for it you can find it. There is an interacting communication, a communion, between the snow and the silver bowl, the snowy heron and the snowy world. And that communion is completely beyond words and language.
+
+There is a very famous story of Rinzai, or Lin Chi in Chinese, told in the Record of Lin Chi. Rinzai said: "The true man without rank is going and coming through your nose and eyes and ears; if you don't know this yet, look." A monk came up to him and said, what is the true man without rank? Rinzai immediately grasped the monk and shook him, saying "Speak! Speak!"
+
+This means that buddha nature, true man, True Self, is not something a Zen Master gives or a monk receives. True man is already in everybody, manifesting perfect harmony of whole universe.
+
+You are whole universe, and you are perfect harmony; that's why you are alive.
+
+Perfect harmony with what? Whole universe, including truth; all things visible and invisble. The whole universe comes together and harmonizes in your life. Supports your life. This is called the true man.
+
+And then Rinzai got up from his seat and grasped the monk and shook him, saying "Speak! Speak!"
+
+"Speak!" means here you are; here buddha is.
+
+And then the monk said "Oh! Oh!"
+
+He was too rattled to speak, and he completely lost the chance to say something; all he could say was "Oh!"
+
+"Oh!" means "Oh! I am buddha;" means he realized, "Oh! I am buddha." Completely beyond the word. Rinzai said "Speak!" and the monk realized, "Oh!" And he accepted himself as buddha.
+
+It is like when you see the beautiful flower. At that moment you cannot say anything; just "Wow!, " that's all. It is beautiful beyond all words. So you just accept.
+
+Wow.
+
+When you say "Wow!, " you completely accept the whole world.
+
+And then after the monk said "Oh!," Rinzai pushed him away and left.
+
+This gesture meant that just accepting is not good enough. We say, don't stay on the chair of the Buddha. This means you have to go beyond realization, you have to live. You cannot stay on the chair of just saying "Oh!"
+
+Do you understand this?
+
+Even though you realize how beautiful the human world is, you cannot spend every day saying "Wow! Beautiful! Beautiful!," or your life will be completely up in the air.
+
+For morning will come and you will have to get up. Evening will come and you will have to go to sleep.
+You cannot just say "Wow!" Right in the middle of the "Wow!" you have to go beyond this and make it alive in your life.
+
+Which is why Rinzai pushed the monk away and left.
+
+- 35 -
