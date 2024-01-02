@@ -4,11 +4,13 @@ title: "Song of the Jewel Mirror Awareness"
 
 ## Teisho by Danin Katagiri Roshi 
 
-This document is drawn from a series of nine talks given by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness* from November 7, 1983 to January 1, 1984.
-
 Transcribed by Earl Broadbent  
 Edited by Jeff Broadbent  
 Scanned by Kikan  
+
+This document is drawn from a series of nine talks given by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness* from November 7, 1983 to January 1, 1984.
+
+### Contents:
 
 - [Introduction](#introduction)
 - [Part 1](#part-1)
