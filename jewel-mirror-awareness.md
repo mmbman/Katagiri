@@ -26,7 +26,7 @@ So here we have a song which is also a very important sutra. You should recite i
 
 The *Song of Jewel Mirror Awareness* is a very simple sutra, consisting of 376 Chinese characters arranged into 94 phrases. It was written by the Zen Master Tozan, who lived from 807 to 865, and who is greatly respected as the founder of the Sotö tradition of Zen Buddhism. He also systematized the philosophical background of Soto Zen teaching into the so-called “Five Ranks.”
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 Tozan practiced under the guidance of Ungan. One day he was to leave his teacher and set out on a pilgrimage to other Zen temples. Before he left, Tozan asked Ungan:
 
@@ -77,7 +77,7 @@ It is something alive.
 
 It is life itself, real life.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 You don’t think consciously about your breath or the beating of our heart when you go to sleep. If you did, you would become very nervous; maybe even schizophrenic. Even though you sleep, your heart keeps on beating. But there is no guarantee that your heart will keep on beating. Because a beating heart is something that belongs to this limited world. There is uncertainty with each heartbeat, a kind of crisis. Because you don’t know whether or not your heart is going to stop. So your heart exists within the limits of its own life, and also in a state of crisis.
 
@@ -111,7 +111,7 @@ No one. Even if you tried, it would be impossible. So all I have to do is to jus
 
 Together with the whole world.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 When a dying Buddhist comes to a Zen master and asks for some words of sympathy and relief, the Zen master will say, “please, go ahead, quietly.”
 
@@ -145,7 +145,7 @@ Wisdom lets you look with depth and penetration into the the core of human exist
 
 The practice of wisdom is the practice of samadhi. One-pointedness. And the simplest practice of samadhi is Zazen.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 Buddhism, and particularly the Prajna Paramita Sutra, places great stress on the Wisdom of Emptiness. Wisdom of Emptiness is the realization that the human world has no substantiality of its own.
 
@@ -153,7 +153,7 @@ No substantiality of its own means that there is no single thing to pin down, to
 
 But you can be there. Just be; that is the Wisdom of Emptiness, emphasized so much in the Prajna Paramita.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 There are three aspects to the Wisdom of Emptiness: Emptiness of the Conditioned, the Emptiness of the Unconditioned, and Ultimate Emptiness.
 
@@ -192,7 +192,7 @@ Ideas and thoughts are important, but they should come from this emptiness of li
 
 So that pensiveness or sadness we get from much of Japanese literature is normal. But don’t think that you can realize the impermanence of life by reading novels. Impermanence is something more serious than that. It is something you must taste directly, in your own life.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 So that is the Emptiness of the Conditioned. The second aspect of the Wisdom of Emptiness is the Emptiness of the Unconditioned.
 
@@ -232,7 +232,7 @@ Let it be.
 
 If you touch it, it is no longer the Unconditioned. It’s something you have created. You have made the Unconditioned into the Conditioned. If you experience the Unconditioned, that’s fine. But let it be.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 So that is the second aspect, the Wisdom of the Unconditioned. The third is the Ultimate Emptiness.
 
@@ -284,7 +284,7 @@ So I just said, “Why were you born an American?”
 
 Speaking is really very interesting. It is one of the ways I hope to avoid ignorance, by poking away into every nook and cranny, just like a cat.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 So Ultimate Emptiness is exactly what you can do, in the simplest way, from moment to moment. At that time you can experience it. Beyond your idea of experience, it is the true experience.
 
@@ -441,7 +441,7 @@ So you need thusness and thisness, principle and practice, truth and the phenome
 
 This is dharma.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 Dharma is the object of belief for Buddhists. It is not an object of analysis, or philosophical or psychological discussion; it is something to realize through your life. A person who makes the dharma real, manifests the dharma through their life, is called a buddha.
 
@@ -453,7 +453,7 @@ Principle and practice.
 
 They understand the world very deeply, with more than just a scientific understanding. And they practice this understanding through their lives, so that principle and practice becomes one.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 And then they intimately communicate.
 
@@ -514,7 +514,7 @@ Then you dip it again and press it again and finally after many times, the threa
 
 Same is true of buddha nature. It is like the color of the thread, or the gold of the golden Buddha statue. But you must mold it, or weave it into cloth before it is manifest. So you practice again and again, until you become exactly the same as your teacher, exactly the same as a buddha.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 I went to Japan to visit Narazaki Roshi, who is the abbot of a monastery called Zuioji. His brother is also at that monastery. Both of them had practiced for many years under the famous Zen master Hashimoto Roshi, whom I knew very well.
 
@@ -522,7 +522,7 @@ After I had stayed at Zuioji for a little while I was surprised to notice that t
 
 But he is not Hashimoto Roshi, he is Narazaki Roshi. He is himself, but his way has become that of his teacher. Now his life is really blooming. And everybody respects him, because he has attained Hashimoto Roshi’s way. They are not respecting Hashimoto Roshi, they are respecting Narazaki Roshi.
 
-<p align=”center”>* * *</p>
+<p align="center">* * *</p>
 
 If you want to learn the tea ceremony you have to practice again and again exactly as the teacher tells you; your behavior, your attitude, your understanding must be exactly the same as that of you teacher. Finally, the teacher knows the time or opportunity when he or she has to transmit the real teaching of the ceremony.
 At that time, the teacher transmits the secret key point of how to deal with the tea ceremony.
