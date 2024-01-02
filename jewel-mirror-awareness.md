@@ -943,11 +943,7 @@ This is zazen. And it is pretty good for us.
 
 Then the practical question is, how do we come to understand the fresh and living energy which is present in everything?
 
-By the practice of no arrogance.
-
-Selflessness.
-
-Egolessness.
+By the practice of no arrogance. Selflessness. Egolessness.
 
 Through the practice of egolessness you can realize how everything has its own fresh and vivid energy. If you become selfless, you can get that energy. As soon as you sit down in zazen, you have begun the practice of egolessness.
 
@@ -962,7 +958,7 @@ How do we learn this?
 
 Through the practice of no arrogance; egolessness; forgetting the self. At that time everything will come up to you.
 
-In other words you should deal with you rpen, and water, and vegetable with wholeheartedness.
+In other words you should deal with your pen, and water, and vegetable with wholeheartedness.
 
 And then vegetable will come to you. But you cannot make it happen. Vegetable has its own fresh and vivid energies. So it can help your life. And the arrival within the relative means you can move toward the vegetable; and then the vegetable will come to you.
 
@@ -978,9 +974,7 @@ And you can practice egolessness, even in the use of this little piece of toilet
 
 This is egolessness.
 
-Egolessness does not mean to reduce your individuality. If I said that you wouldn’t believe me, because you always want to express your identity and exercise your power.
-
-Show how wonderful you are.
+Egolessness does not mean to reduce your individuality. If I said that you wouldn’t believe me, because you always want to express your identity and exercise your power. Show how wonderful you are.
 
 So always you come first.
 
@@ -1018,9 +1012,7 @@ This is called oneness.
 
 It is a kind of identity action. You and I work together completely, absolutely. Perfect harmony exists.
 
-Regardless of whether we understand or not, perfect harmony will constantly exist.
-
-In you, in me, in the relationship between you and me. Wherever we may go.
+Regardless of whether we understand or not, perfect harmony will constantly exist. In you, in me, in the relationship between you and me. Wherever we may go.
 
 If your practice proceeds through the first four ranks, then very naturally you will learn the true meaning of things like love and hatred.
 
@@ -1043,9 +1035,7 @@ I don’t mean you should injure yourself, or commit suicide. Sometimes you have
 That is called identity action.
 
 For example, you are an adult and you want to play with a child.
-To play with a child you must practice egolessness. Forget who you are. Jump into the child’s world.
-
-Then you can play.
+To play with a child you must practice egolessness. Forget who you are. Jump into the child’s world. Then you can play.
 
 It is just like a mother, making funny faces and talking to her baby. On the street, or in a car. Her baby doesn’t understand, but it talks back. That indicates that the mother is practicing no arrogance. Forgetting herself, jumping completely into baby’s world, no matter where she may be.
 
@@ -1058,17 +1048,13 @@ You have to practice no arrogance and jump into baby’s life but still you are 
 
 For example, you can say equally: “Katagiri is teacher” and “Katagiri is good friend.” The Buddha said this many times: “Teacher is good friend.” But you should not think that this means that the Buddha is just a good buddy, with no particular role or position. If you say to your teacher, “Oh, you good buddy,” then you are completely confused.
 
-Because teacher is teacher.
-
-Buddha is Buddha.
-
-You are you.
+Because teacher is teacher. Buddha is Buddha. You are you.
 
 You cannot mix them up. First you have to communicate with the Buddha as a friend; then you can really play with the Buddha. So when you have to bow, you should bow.
 
 But Buddha is Buddha, and you are you.
 
-On the one hand you have to completly forget yourself and jump into Buddha’s world. Then you will experience that world. On the other hand so you should keep your position, you should maintain your identity.
+On the one hand you have to completely forget yourself and jump into Buddha’s world. Then you will experience that world. On the other hand so you should keep your position, you should maintain your identity.
 
 So the first point is that you have to go completely beyond the distinction between mother and child. And from the second point you have to go beyond the equality.
 
@@ -1106,7 +1092,7 @@ Well, I don’t know either. I am still working on it.
 
 So you have to work hard. There is nothing wrong with that. And then at some time equality will manifest itself. It’s pretty nice, just sitting there and following your breath.
 
-That is called shikan. And then you will experience interacting communion between yourself and zazen. You guide zazen, and zazen guides you.
+That is called *shikan*. And then you will experience interacting communion between yourself and zazen. You guide zazen, and zazen guides you.
 
 So very naturally there is a wonderful communication.
 
@@ -1114,12 +1100,12 @@ Finally you cannot escape zazen; you really enjoy it, even though you feel pain.
 
 ---
 
-**Text:** 
+#### Text
 
 > It is bright just at midnight;  
 > It doesn’t appear at dawn.  
 
-**Commentary:** 
+#### Commentary
 
 “Bright” in this case is a metaphor for the phenomenal world; when it is bright you can see everything clearly: book, table, and so forth. A world of distinction. And “at midnight” means darkness; but in Zen Buddhism darkness doesn’t mean dark. It means the truth, or ultimate principle. Because in darkness everything becomes equal. So midnight stands for utimate truth, ultimate nature, or theory.
 
@@ -1503,7 +1489,7 @@ So here “Baba Wawa” means words, lots of words. Whether you use words or do 
 
 --- 
 
-Text：
+**Text:**
 
 > It is like the six lines of the double split hexagram;  
 > The relative and absolute integrate --  
