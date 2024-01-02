@@ -179,8 +179,8 @@ One Japanese alphabet, Hirakana, is made up of fourty-seven syllables. Kobo Dais
 
 > Though flowers bloom, they soon fall.  
 > How can this life be permanent to anyone?  
-> Crossing the mountains of life’s vicissitudes today, 
-> We shall not have light dreams or be infatuated again.
+> Crossing the mountains of life’s vicissitudes today,  
+> We shall not have light dreams or be infatuated again.  
 
 So even first grade children, by repeating their alphabet, are saying this poem. Even before they learn the meaning of the words. So when you grow up with the Japanese language you very naturally experience the emptiness of the world. Emptiness in the sense that everything is constantly moving, functioning dynamically, constantly working.
 
@@ -859,7 +859,7 @@ It is completely unthinkable. But we must think of “bread is butter” because
 
 It is unthinkable but we use it that way, so we have to think it.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 Someone says, “Katagiri is a good fellow.” Now you don’t know Katagiri, so you say, “What do you mean?” If you don’t know me, then it’s unthinkable.
 
@@ -968,7 +968,7 @@ And then vegetable will come to you. But you cannot make it happen. Vegetable ha
 
 That is the interacting communion between you and the vegetable; between all things.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 The first rank is the relative within the absolute. Everthing you see is not merely relative; it is something more. It has a very deep meaning. Even something as insignificant as toilet paper has a life full of deep meaning. So you should not use it carelessly. Because of the relative within the absolute; the toilet paper comes from somthing else. Your intellectual sense won’t let you think of it in that way, but that is the way it really is.
 
@@ -988,13 +988,13 @@ But I say, forget yourself; put yourself in the place of the toilet paper. You m
 
 And if you practice egolessness then very naturally the toilet paper moves toward you and helps your life. You move toward that deep life of the toilet paper and the toilet paper comes up to you and helps. That is the relative within the absolute.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 The second rank is the absolute within the relative. This means that you cannot deal with the absolute alone, separate from the relative. If you want to explain the absolute you must do so in terms of the relative, in terms of the human world.
 
 Now each thing in the relative has its own freedom. It can drop off its self-concept by itself. It can show very deep meaning.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 Then there is the third rank, the coming from within the absolute. Everything comes from the absolute. It is a huge world, one you cannot measure by any mental process. But you can experience it. Just move toward vegetable, or toilet paper with wholeheartedness. Wholeheartedness means to manifest your own fresh and vivid energies, which makes your life move toward your object in the pure sense.
 
@@ -1004,13 +1004,13 @@ Love, hatred, whatever.
 
 You have to learn about the real world. As a practical matter you must move toward the third rank. Because you have understood the first and the second, and you know how deep, how profound everything is. Then as a practical matter you should face everything with attentiveness, kindness, and compassion. That is the coming from within the absolute.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 And then there occurs the arrival within the relative. The toilet paper comes up to you and helps. So nothing is wasted. Even hatred and pain disappear and we learn the depth of human life. That is our arrival.
 
 So then you truly know how to take care of pen, and water, vegetable and toilet paper. You know how to take care of your life. That is the arrival within the relative.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 Finally, there is the fifth rank: the attained within the integration.
 
@@ -1086,7 +1086,7 @@ The more you practice like this the more difficult it becomes to separate yourse
 
 There is a huge interacting communion there, beyond specific babies or specific mothers. For it is really possible to take care of a baby as a wonderful buddha. That is the identity action, the fifth rank: the attained with integration.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 Intellectually we have to understand these Five Ranks, or five degrees of realization. But our practice is just sitting.
 
@@ -1255,7 +1255,7 @@ So body, mind, ideas are always characterized by their own power to move towards
 
 So very naturally you cannot hold onto the absolute. But the absolute is always coming into the human form, always interconnected with it. Just like two feet, walking as one.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 In the Bendowa Dogen Zenji wrote: “The practice of the way makes myriad dharmas exist in realization.” In the huge world, Buddhist world, the practice of the way makes myriad forms exist: tables, our bodies, everything.
 
@@ -1289,7 +1289,7 @@ Just accept the instruction of how to gassho, and then do the gassho carefully, 
 
 At that time, the buddha body blooms. The next moment, a thought arises, and you are back in the human body. The moment after that, you keep quiet and then the buddha body arises.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 Usually we are chasing after our thoughts, and so we just see the human body do gassho. And we think about gassho. We read a book of Mudras and find many kinds of gassho. So we complain to our teacher and refuse to accept the one we have been taught. Or we ask, “What is the meaning of gassho?”
 
@@ -1311,7 +1311,7 @@ This is what we call liberation, or emancipation. Everything is liberated. This 
 
 That freedom really teaches people. If you are not emancipated, liberated in your actions and your practice, it is very difficult to teach or to help people. We must keep that in mind always in our practice.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 There was a very famous Zen teacher, Ishtano Zenji [?], who was Abbot of the Eihei-ji monastery in Japan. He had a very wonderful practice, always manifesting that liberated human mind and human body, wherever he may have been.
 
@@ -1355,7 +1355,7 @@ How?
 
 You cannot escape having been born. And right in the middle of having been born you have to manifest the unconditioned world. This means your are right in the middle of life but you are not panicked. You are in the middle of panic but you are not panicked. That is what we call the practice of emancipation.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 Early in his life as a monk, Dogen Zenji asked the question: If everything is buddha nature, why is it that we have to practice?
 
@@ -1763,7 +1763,7 @@ And then if you practice in this way you can build up perfection of personality.
 
 Enmon of personality is complete fullness of the energy, and very round. No corners. If you have a corner, even a slight one, it is what we call ego-consciousness; selfishness. If you are perfectly round, then when you bump into somebody else you just pass by and no one is hurt. But if you have a corner then when Jou bump into somebody you hurt. Very much. That corner is called the ego. Enman, perfection, is no ego; no corners, and full of energy.
 
-<p align=”center”> * * * </p>
+<p align="center"> * * * </p>
 
 In this country people are always emphasising positive living.
 Live positively, think positively, see positively. Because the world is always creating negative things. Killing, fighting, divorce, no communication, children running away from home. Through the mass communication you get all this very negative information, and very naturally you fall into pessimism. You may not be conscious of it, but you get caught by that information in the mass media.
@@ -2900,10 +2900,10 @@ So that is what is meant by not serving is no help. We must serve, and then ther
 
 **Text:**
 
-Practice secretly, working within,  
-As though a fool, like an idiot --  
-If you can achieve continuity,  
-This is called the host within the host.  
+> Practice secretly, working within,  
+> As though a fool, like an idiot --  
+> If you can achieve continuity,  
+> This is called the host within the host.  
 
 **Commentary:**
 
