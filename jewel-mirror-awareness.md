@@ -8,7 +8,7 @@ Transcribed by Earl Broadbent
 Edited by Jeff Broadbent  
 Scanned by Kikan  
 
-This document is drawn from a series of nine talks given by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness* from November 7, 1983 to January 1, 1984.
+This document is drawn from a series of nine talks by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness*, given from November 7, 1983 to January 1, 1984. 
 
 ### Contents:
 
@@ -383,6 +383,109 @@ So when I look at myself, sometimes I feel good and sometimes I don’t feel goo
 
 Then I can experience up and down, and take care of it. If I don’t proceed by myself, stably, how can I survive an up and down life? And so you should read this passage in the Tenzo Kyokan, and consider it again and again.
 
+---
+
+### The Song of the Jewel Mirror Awareness
+
+#### by Zen Master Tozan
+
+> The teaching of thusness  
+> Has been intimately communicated by buddhas and patriarchs;  
+> Now you have it,  
+> So keep it well.  
+> Filling a silver bowl with snow,  
+> Hiding a heron in moonlight –  
+> When you array them, they’re not the same;  
+> When you mix them, you know where they are.  
+> The meaning is not in the words,  
+> Yet it responds to the inquiring impulse.  
+> If you’re excited, it becomes a pitfall;  
+> If you miss it you fall into retrospective hesitation.  
+> Turning away and touching are both wrong,  
+> For it is like a mass of fire.  
+
+> Just to depict it in literary form  
+> Is to relegate it to defilement.  
+> It is bright just at midnight;  
+> It doesn’t appear at dawn.  
+
+> It acts as a guide for all beings --  
+> Its use removes all pains.
+> Although it is not fabricated,  
+> It is not without speech.  
+
+> It is like facing a jewel mirror;  
+> Form and image behold each other --  
+> You are not it  
+> It actually is you.  
+> It is like a babe in the world, 
+> In five aspects complete;  
+> It does not go nor come,  
+> Nor rise nor stand.  
+> “Baba Wawa” --  
+> Is there anything said or not?  
+> Ultimately it does not apprehend anything  
+> Because its speech is not yet correct.
+> It is like the six lines of the double split hexagram;  
+> The relative and absolute integrate --  
+> Piled up, they make three;  
+> The complete transformation makes five.  
+> It is like the taste of the five-flavored herb,  
+> Like the diamond thunderbolt.  
+
+> Subtly included within the true,  
+> Inquiry and response come up together.  
+> Communing with the source and communing with the process,  
+> It includes integration and includes the road;  
+> Merging is auspicious;  
+> Do not violate it.  
+> Naturally real yet inconceivable,  
+> It is not within the realm of delusion or enlightenment.  
+> With causal conditions, time and season,  
+> Quiescently it shines bright.  
+> In its fineness it fits into spacelessness;  
+> In its greatness it is utterly beyond location.  
+> A hairsbreadth deviation  
+> Will fail to accord with the final attunement.  
+
+> Now there are sudden and gradual  
+> In connection with which are set up basic approaches.  
+> Once basic approaches are distinguished,  
+> Then there are guiding rules.  
+> But even though the basis is reached and the approach comprehended,  
+> True eternity still flows.  
+> Outwardly still while inwardly moving,  
+> Like a tethered colt, a trapped rat ––  
+> The ancient saints pitied them,  
+> And bestowed upon them the teaching;  
+> According to their delusions,  
+> They saw black as white --  
+> When erroneous imaginations cease,  
+> The acquiescent mind realizes itself.  
+
+> Because there is the base, (there are)  
+> Jewel pedestals, fine clothing;  
+> Because there is the startlingly different, (there are)  
+> House cat and cow.  
+> Yi, with his archer’s skill  
+> Could hit a target at a hundred paces.  
+> But when arrowpoints meet headon,  
+> What has this to do with the power of skill?  
+> When the wooden man begins to sing,  
+> The stone woman gets up to dance;  
+> It’s not within reach of feeling or discrimination --  
+> How could it admit of consideration in thought?
+> A minister serves the lord,  
+> A son obeys the father;  
+> Not obeying is not filial  
+> And not serving is no help.  
+> Practice secretly, working within,  
+> As though a fool, like an idiot --  
+> If you can achieve continuity,  
+> This is called the host within the host.  
+
+Translation from *Timeless Spring* by Thomas Cleary. 
+
 --- 
 
 ### Part 1
@@ -738,11 +841,9 @@ Fifth, “the attained within integration.”
 
 You need to study and understand these, because in the Zen teachings you will often encounter complicated and paradoxical expressions.
 
-For example, if you read the Fukan Zazen-gi, the Universal Recommendation for Zazen by Dogen Zenji, you will come across the following: “Think of nonthinking...This in itself is the essential art of zazen.”
+For example, if you read the *Fukan Zazen-gi*, the Universal Recommendation for Zazen by Dogen Zenji, you will come across the following: “Think of nonthinking...This in itself is the essential art of zazen.”
 
-You cannot understand this statement intellectually, but our daily life is just like that. That’s why Dogen Zenji says: “This in itself is the essential art of zazen.”
-
-The essential art of your life. The essential art of the tree’s life, or the bird’s life, and so on.
+You cannot understand this statement intellectually, but our daily life is just like that. That’s why Dogen Zenji says: “This in itself is the essential art of zazen.” The essential art of your life. The essential art of the tree’s life, or the bird’s life, and so on.
 
 “Think of nonthinking” means that “not to have a thought” implies
 “to have a thought.” So in that sense thinking lies within not thinking.
@@ -768,9 +869,7 @@ Which is why I say: “Don’t think!” And then immediately you say
 
 That’s why, within the framework of thinking, to think of nonthinking means thought and non-thought are the same.
 
-Zen always says I am you, you are I.
-
-Trees are me. Buddha is the oak tree. It doesn’t make sense, but it’s really true.
+Zen always says I am you, you are I. Trees are me. Buddha is the oak tree. It doesn’t make sense, but it’s really true.
 
 If you really think very deeply, what’s going on in your life is a perfect harmony of distinction and equality.
 
@@ -812,9 +911,7 @@ But if I say “Bread is butter,” you say “What? What did he say?” You don
 
 Why?
 
-You use these terms as single words. “Bread” and “butter.” If you say “Bread and butter is Katagiri,” it would be wrong grammatically.
-
-That means it doesn’t make sense intellectually.
+You use these terms as single words. “Bread” and “butter.” If you say “Bread and butter is Katagiri,” it would be wrong grammatically. That means it doesn’t make sense intellectually.
 
 But actually you use bread and butter as one: “Breadandbutter.”
 
@@ -828,11 +925,9 @@ Bread is butter.
 
 What could we possibly mean? How do you think of bread in butter?
 
-You cannot understand it rationally.
+You cannot understand it rationally. It is completely unthinkable. 
 
-It is completely unthinkable. But we must think of “bread is butter” because that is the way we use bread and butter.
-
-It is unthinkable but we use it that way, so we have to think it.
+But we must think of “bread is butter” because that is the way we use bread and butter. It is unthinkable but we use it that way, so we have to think it.
 
 <p align="center"> * * * </p>
 
@@ -846,7 +941,7 @@ This means that the notion of unthinkable is entirely free from its self-concept
 
 Non-thought exists, but in order to experience it you have to think it. There is the thinkable.
 
-Technically, this is called “datsuraku,” or falling off. Dropping off. Sometimes we say enlightenment, but that has a little different meaning; here we mean just dropping off or falling off.
+Technically, this is called *datsuraku*, or falling off. Dropping off. Sometimes we say enlightenment, but that has a little different meaning; here we mean just dropping off or falling off.
 
 It is not something you cause to happen. You cannot make bread drop the concept of bread. No. Bread is bread itself. The term “bread” drops off its own self-concept.
 
@@ -862,7 +957,7 @@ So, you have to think the unthinkable, realize this perfect harmony.
 
 Peace itself is originally free from any self-concept. It is just peace. So if you concentrate on peace alone, no matter for how long, you cannot achieve it.
 
-This is the meaning of the term datsuraku, dropping off.
+This is the meaning of the term *datsuraku*, dropping off.
 
 Bread itself is free from any concept of self. That’s why bread becomes butter. Very naturally. Butter itself is free from its concept of self.
 
@@ -941,7 +1036,7 @@ That is the interacting communion between you and the vegetable; between all thi
 
 <p align="center"> * * * </p>
 
-The first rank is the relative within the absolute. Everthing you see is not merely relative; it is something more. It has a very deep meaning. Even something as insignificant as toilet paper has a life full of deep meaning. So you should not use it carelessly. Because of the relative within the absolute; the toilet paper comes from somthing else. Your intellectual sense won’t let you think of it in that way, but that is the way it really is.
+The first rank is the relative within the absolute. Everything you see is not merely relative; it is something more. It has a very deep meaning. Even something as insignificant as toilet paper has a life full of deep meaning. So you should not use it carelessly. Because of the relative within the absolute; the toilet paper comes from something else. Your intellectual sense won’t let you think of it in that way, but that is the way it really is.
 
 There actually is a perfect harmony between your life and the life of the toilet paper; its life can help your life. So there is something thinkable there; and you should think it. That toilet paper comes from the effort of myriad people. It is a very small thing, but it is deeply interconnected with the lives of all sentient beings.
 
@@ -987,7 +1082,7 @@ It is a kind of identity action. You and I work together completely, absolutely.
 
 Regardless of whether we understand or not, perfect harmony will constantly exist. In you, in me, in the relationship between you and me. Wherever we may go.
 
-If your practice proceeds through the first four ranks, then very naturally you will learn the true meaning of things like love and hatred.
+If your practice proceeds through the first four ranks, then very naturally you will learn the true meaning of things like love and hatred. 
 
 In the process of sharing your life with other people you will touch the core of love, touch what love really is.
 
@@ -1079,7 +1174,7 @@ Finally you cannot escape zazen; you really enjoy it, even though you feel pain.
 
 #### Commentary:
 
-“Bright” in this case is a metaphor for the phenomenal world; when it is bright you can see everything clearly: book, table, and so forth. A world of distinction. And “at midnight” means darkness; but in Zen Buddhism darkness doesn’t mean dark. It means the truth, or ultimate principle. Because in darkness everything becomes equal. So midnight stands for utimate truth, ultimate nature, or theory.
+“Bright” in this case is a metaphor for the phenomenal world; when it is bright you can see everything clearly: book, table, and so forth. A world of distinction. And “at midnight” means darkness; but in Zen Buddhism darkness doesn’t mean dark. It means the truth, or ultimate principle. Because in darkness everything becomes equal. So midnight stands for ultimate truth, ultimate nature, or theory.
 
 So it is bright just at midnight.
 
@@ -1171,8 +1266,7 @@ Very hard.
 
 Very complicated.
 
-So you cannot manifest or expound it. We call it
-“Buddha-nature,” “Supreme Perfection,” “Supreme Bodhi.” Those are just technical terms; the meaning is that your life is very deep. Coming from the beginning of the past, going to the future; endlessly.
+So you cannot manifest or expound it. We call it “Buddha-nature,” “Supreme Perfection,” “Supreme Bodhi.” Those are just technical terms; the meaning is that your life is very deep. Coming from the beginning of the past, going to the future; endlessly.
 
 That is your life.
 
@@ -1184,17 +1278,15 @@ But you cannot grasp the absolute with these senses.
 
 Which is why this sutra begins, “The teaching of thusness has been intimately conveyed by buddhas and patriarchs.”
 
-“The teaching of thusness,” the dharma of nyoze, the relative and absolute working in perfect harmony: this is not something you can grasp directly by your six senses.
+“The teaching of thusness,” the dharma of *nyoze*, the relative and absolute working in perfect harmony: this is not something you can grasp directly by your six senses.
 
 But it can be transmitted from patriarch to patriarch; from person to person.
 
-So the dharma is mysterious, because it cannot be grasped by the six senses; but it is not mysterious, because it can be transmitted to the next generation.
-
-Very practically, very clearly.
+So the dharma is mysterious, because it cannot be grasped by the six senses; but it is not mysterious, because it can be transmitted to the next generation. Very practically, very clearly.
 
 Now this verse says, “...it is not fabricated.” That is a reference to the unconditioned world. But on the other hand, “...it is not without speech.” So you can transmit it.
 
-Now this is very important, for it means that the human form is not bound and constrained. It is, in fact, liberated; emancipated.
+Now this is very important, for it means that the human form is not bound and constrained. It is, in fact, liberated; emancipated. 
 
 Free.
 
@@ -1214,13 +1306,13 @@ So very naturally you cannot hold onto the absolute. But the absolute is always 
 
 <p align="center"> * * * </p>
 
-In the Bendowa Dogen Zenji wrote: “The practice of the way makes myriad dharmas exist in realization.” In the huge world, Buddhist world, the practice of the way makes myriad forms exist: tables, our bodies, everything.
+In the *Bendowa* Dogen Zenji wrote: “The practice of the way makes myriad dharmas exist in realization.” In the huge world, Buddhist world, the practice of the way makes myriad forms exist: tables, our bodies, everything.
 
 Exist where?
 
 Not in the small world where arguments happen, but in realization. In the largest, broadest perspective. A huge world, connected with past, present, and future.
 
-This is called Mu, the unconditioned world. In Zen we say “Your face before your parents’ birth.”
+This is called *Mu*, the unconditioned world. In Zen we say “Your face before your parents’ birth.”
 
 And then Dogen Zenji says: “And practice a total reality by transcending realization.” You cannot always stay with that realization, that so-called absolute or buddha-nature. In order understand the unconditioned world you have to practice.
 
@@ -1264,13 +1356,13 @@ That is our everyday practice.
 
 So the sutra says “Although it is not fabricated, it is not without speech.”
 
-This is what we call liberation, or emancipation. Everything is liberated. This table before me is liberated. It is not just the table you hold in your thoughts. It is free, emancipated from the limits of your thoughts. The technical term is “Samboghakaya Buddha.” Something between Dharmakaya Buddha, the truth or absolute, and Nirmanakaya Buddha, the world of our perceptions and concepts. Something more than the limited world of our concepts, something emancipated from it.
+This is what we call liberation, or emancipation. Everything is liberated. This table before me is liberated. It is not just the table you hold in your thoughts. It is free, emancipated from the limits of your thoughts. The technical term is *Samboghakaya Buddha*. Something between Dharmakaya Buddha, the truth or absolute, and Nirmanakaya Buddha, the world of our perceptions and concepts. Something more than the limited world of our concepts, something emancipated from it.
 
 That freedom really teaches people. If you are not emancipated, liberated in your actions and your practice, it is very difficult to teach or to help people. We must keep that in mind always in our practice.
 
 <p align="center"> * * * </p>
 
-There was a very famous Zen teacher, Ishtano Zenji [?], who was Abbot of the Eihei-ji monastery in Japan. He had a very wonderful practice, always manifesting that liberated human mind and human body, wherever he may have been.
+There was a very famous Zen teacher, Ishtano Zenji [?], who was Abbot of Eihei-ji monastery in Japan. He had a very wonderful practice, always manifesting that liberated human mind and human body, wherever he may have been.
 
 One day, he had to perform a Buddhist service for a particular family. This particular service involved chanting the family’s name before the service. Ishtano [?] chanted, but he chanted the wrong name. The Jisha heard this, went up to the Zenji and murmured in his ear that he had made a mistake and had to chant the name of the right family.
 
@@ -1294,9 +1386,7 @@ So there is something there. A difference you can detect, even without the use o
 
 If you practice every day, continually and inconspicuously, just like a child walking, then you will experience these wonderful things. It is what I mean when I tell you to make the roots of your life strong.
 
-That practice is not a showy practice.
-
-It is a very calm practice.
+That practice is not a showy practice. It is a very calm practice.
 
 When you do gassho, just do gassho. When the teacher says, “Just do gassho with wholeheartedness,” you say “Yes, Sir!” and just do it. Not showy; not one kind of fancy gesture or another.
 
@@ -1306,7 +1396,7 @@ And if you continue this practice you can make the root of your life strong, and
 
 This is the main point. This is the Buddhist practice. Buddhist practice is very calm, stable, and not showy. It is to make the root of your life strong.
 
-So that is emanicipation. The manifestation of the unconditioned world in our daily life. In this world, the phenomenal world. Right here.
+So that is emancipation. The manifestation of the unconditioned world in our daily life. In this world, the phenomenal world. Right here.
 
 How?
 
@@ -1322,9 +1412,7 @@ So there is the unconditioned world, or the absolute, which has a very deep life
 
 It is like a radish. You can eat a radish plain, and know that the radish is buddha. But it is much nicer if you use a little soy sauce, and some ginger, and other spices to add to the flavor. So that is the relation between buddha and phenomena.
 
-They are interconnected.
-
-Human body and the entire world of the absolute are interconnected.
+They are interconnected. Human body and the entire world of the absolute are interconnected.
 
 You do not understand the entire world of the absolute. You don’t know how your body enters this world. I don’t know either. But you can manifest the absolute.
 
@@ -1345,13 +1433,11 @@ When you do gassho, just gassho. Make that gassho the entire world. Don’t poke
 
 The jewel mirror means to be free from the stage of the absolute and free from the stage of phenomena. Phenomena does not hold to a fixed position.
 
-It has the power to move to move to the absolute.
+It has the power to move to the absolute.
 
 So the absolute and the relative are both characterized by being liberated. That is called the jewel mirror.
 
-If you stand up in front of this particular jewel mirror, form and image will behold each other. At this time you can see yourself and you can see your image. Image here means the absolute; you as form are the phenomenal world.
-
-Human world. Human body.
+If you stand up in front of this particular jewel mirror, form and image will behold each other. At this time you can see yourself and you can see your image. Image here means the absolute; you as form are the phenomenal world. Human world. Human body.
 
 But simultaneously human body shows its own shadow. The absolute. A deep, big world that you know nothing about.
 
@@ -1363,7 +1449,7 @@ Even though you cannot accept this intellectually, it is so.
 
 Because you live facing the jewel mirror, Buddha’s world. You may not want to, but you are living like this, with form and image always interconnected.
 
-The Zen Master (Tozan) composed a poem that said:
+The Zen master (Tozan) composed a poem that said:
 
 > Blue mountain is the father of the white cloud  
 > White cloud is the son of the blue mountain  
@@ -2045,7 +2131,7 @@ One day the Fifth Patriarch said to the assembly that those monks who have exper
 
 Briefly speaking, this means that Shen-hsiu attained perfectly the absolute after many years of practice. “This body is the Bodhi-tree” means that his body is completely pure, completely the absolute body. In Buddhism we cannot separate the body from the mind, so if you have a pure body like the Bodhi-tree then Inmediately your mind is like the mirror bright, working very Clearly without attaching to anything and accepting all sentient beings without discrimination.
 
-*Take heed to keep it clean, “ because in human worla, particularly in everyday life, there is lots of dust. If you Tense up, immediately there is dust upon the mirror. So Shen-hstu expends great energy to keep pure body and mind, Enrough practice. And practice is nothing but a powerful means to keep body and mind pure.
+“Take heed to keep it clean,” because in human world, particularly in everyday life, there is lots of dust. If you tense up, immediately there is dust upon the mirror. So Shen-hstu expends great energy to keep pure body and mind, Enrough practice. And practice is nothing but a powerful means to keep body and mind pure.
 
 Hui-Neng read this poem and then wrote one which was quite different:
 
@@ -2166,7 +2252,7 @@ If people look at someone who has experienced this, for example Shen-hsiu, the f
 
 > Outwardly still while inwardly moving,  
 > Like a tethered colt, a trapped rat ––  
->  The ancient saints pitied them,  
+> The ancient saints pitied them,  
 > And bestowed upon them the teaching;  
 
 #### Commentary:
@@ -2484,7 +2570,7 @@ And then, very naturally, your life will become mature. You will be like the sca
 > Because there is the base, (there are)  
 > Jewel pedestals, fine clothing;  
 
-#### Text:
+#### Commentary:
 
 This stanza refers to the Lotus Sutra. In it there appears the story of the son of a nobleman who had left home and been reduced to beggary for many years.
 
