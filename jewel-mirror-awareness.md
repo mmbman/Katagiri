@@ -461,15 +461,13 @@ How do we do this?
 
 Under the guidance of a person who has realized buddha. A teacher. And if you practice under the guidance of the teacher as buddha, you become exactly buddha, just as this teacher who has attained.
 
-At that time teacher will intimately communicate the dharma of nyoze. And you will intimately receive it. And then you must completely follow it, practice it, and make it alive in your life. That means you must put yourself in the same way of life as the person who has attained the buddha.
+At that time teacher will intimately communicate the dharma of *nyoze*. And you will intimately receive it. And then you must completely follow it, practice it, and make it alive in your life. That means you must put yourself in the same way of life as the person who has attained the buddha.
 
 It is just like learning calligraphy. If you want to learn calligraphy under a teacher, you are first taught to write using a textbook. First you receive and accept the textbook, because it is part of the teaching of your teacher. Then the teacher tells you exactly how to hold the brush. Next, you exactly follow the textbook and the the teacher’s way.
 
 Whether you like it or not.
 
-There will be times when you read the teacher’s textbook and observe the teacher’s examples; but when you try to write, your calligraphy will be far from your teacher’s way.
-
-And immediately he will say that he does not like it.
+There will be times when you read the teacher’s textbook and observe the teacher’s examples; but when you try to write, your calligraphy will be far from your teacher’s way. And immediately he will say that he does not like it.
 
 If you refuse to accept this criticism, and refuse to accept the teacher’s way, then you will never master calligraphy to the degree your teacher has. So you must completely follow his way.
 
@@ -489,8 +487,7 @@ Do you know how to attain the buddha?
 
 No, you don’t. But your teacher knows. Buddhas know. So that’s why you have to follow his teaching.
 
-I am told that in Japan, when thread is dyed in the traditional manner, the white thread is dipped into the dye and then pressed and dried, over and over again. When you dip it first into the dye it looks as if it were fully colored, but when you press it, the color seems to leave it. But not all; a little bit is left.
-Then you dip it again and press it again and finally after many times, the thread is dyed through and through. And then no matter what kind of cloth you weave it into, no matter how badly it is worn or damaged, the color is always there.
+I am told that in Japan, when thread is dyed in the traditional manner, the white thread is dipped into the dye and then pressed and dried, over and over again. When you dip it first into the dye it looks as if it were fully colored, but when you press it, the color seems to leave it. But not all; a little bit is left. Then you dip it again and press it again and finally after many times, the thread is dyed through and through. And then no matter what kind of cloth you weave it into, no matter how badly it is worn or damaged, the color is always there.
 
 Same is true of buddha nature. It is like the color of the thread, or the gold of the golden Buddha statue. But you must mold it, or weave it into cloth before it is manifest. So you practice again and again, until you become exactly the same as your teacher, exactly the same as a buddha.
 
@@ -504,8 +501,7 @@ But he is not Hashimoto Roshi, he is Narazaki Roshi. He is himself, but his way 
 
 <p align="center">* * *</p>
 
-If you want to learn the tea ceremony you have to practice again and again exactly as the teacher tells you; your behavior, your attitude, your understanding must be exactly the same as that of you teacher. Finally, the teacher knows the time or opportunity when he or she has to transmit the real teaching of the ceremony.
-At that time, the teacher transmits the secret key point of how to deal with the tea ceremony.
+If you want to learn the tea ceremony you have to practice again and again exactly as the teacher tells you; your behavior, your attitude, your understanding must be exactly the same as that of you teacher. Finally, the teacher knows the time or opportunity when he or she has to transmit the real teaching of the ceremony. At that time, the teacher transmits the secret key point of how to deal with the tea ceremony.
 
 We call that the dharma transmission.
 
@@ -513,8 +509,7 @@ The perfect harmony is transmitted from one to another, from me to you. But perf
 
 This is the dharma transmission.
 
-So Tozan tells us “now you have it.” That means you have it at this very instant; but you must manifest it. And then he tells us, “keep it well.” Keep it well; take good care of it.
-Manifest the perfect harmony in your life under the guidance of a buddha, keep it, preserve it by receiving it and transmitting it to others.
+So Tozan tells us “now you have it.” That means you have it at this very instant; but you must manifest it. And then he tells us, “keep it well.” Keep it well; take good care of it. Manifest the perfect harmony in your life under the guidance of a buddha, keep it, preserve it by receiving it and transmitting it to others.
 
 Do not give up to despair or self-neglect.
 
@@ -536,9 +531,7 @@ If you put the seed in an inappropriate place then the seed doesn’t grow. So y
 
 And that fruit will have its own peculiar, incredible, indescribable flavor.
 
-Pumpkins, bananas, apples, oranges: every fruit has its own particular, peculiar flavor.
-
-You cannot describe it in words.
+Pumpkins, bananas, apples, oranges: every fruit has its own particular, peculiar flavor. You cannot describe it in words.
 
 Each individual orange has a different flavor, according to the place in which it grew, the sunrises, the sunsets, the different warmth of the sun; all different.
 
@@ -561,7 +554,7 @@ In any event, regardless of whether you know it or not, you have already been ta
 #### Text:
 
 > Filling a silver bowl with snow,  
-> Hiding a heron in moonlight --  
+> Hiding a heron in moonlight –  
 > When you array them, they’re not the same;  
 > When you mix them, you know where they are.  
 
@@ -619,7 +612,7 @@ If we lose sight of this then very naturally we feel that practice means losing 
 
 #### Commentary: 
 
-“Meaning” here refers to the real dharma, something behind the song; the real meaning. So the dharma which has been transmitted is more than words. Yet it responds to the inquiring impulse --if you look for it you can find it. There is an interacting communication, a communion, between the snow and the silver bowl, the snowy heron and the snowy world. And that communion is completely beyond words and language.
+“Meaning” here refers to the real dharma, something behind the song; the real meaning. So the dharma which has been transmitted is more than words. Yet it responds to the inquiring impulse – if you look for it you can find it. There is an interacting communication, a communion, between the snow and the silver bowl, the snowy heron and the snowy world. And that communion is completely beyond words and language.
 
 There is a very famous story of Rinzai, or Lin Chi in Chinese, told in the Record of Lin Chi. Rinzai said: “The true man without rank is going and coming through your nose and eyes and ears; if you don’t know this yet, look.” A monk came up to him and said, what is the true man without rank? Rinzai immediately grasped the monk and shook him, saying “Speak! Speak!”
 
@@ -639,11 +632,11 @@ He was too rattled to speak, and he completely lost the chance to say something;
 
 “Oh!” means “Oh! I am buddha;” means he realized, “Oh! I am buddha.” Completely beyond the word. Rinzai said “Speak!” and the monk realized, “Oh!” And he accepted himself as buddha.
 
-It is like when you see the beautiful flower. At that moment you cannot say anything; just “Wow!, “ that’s all. It is beautiful beyond all words. So you just accept.
+It is like when you see the beautiful flower. At that moment you cannot say anything; just “Wow!,” that’s all. It is beautiful beyond all words. So you just accept.
 
 Wow.
 
-When you say “Wow!, “ you completely accept the whole world.
+When you say “Wow!,” you completely accept the whole world.
 
 And then after the monk said “Oh!,” Rinzai pushed him away and left.
 
@@ -653,8 +646,7 @@ Do you understand this?
 
 Even though you realize how beautiful the human world is, you cannot spend every day saying “Wow! Beautiful! Beautiful!,” or your life will be completely up in the air.
 
-For morning will come and you will have to get up. Evening will come and you will have to go to sleep.
-You cannot just say “Wow!” Right in the middle of the “Wow!” you have to go beyond this and make it alive in your life.
+For morning will come and you will have to get up. Evening will come and you will have to go to sleep. You cannot just say “Wow!” Right in the middle of the “Wow!” you have to go beyond this and make it alive in your life.
 
 Which is why Rinzai pushed the monk away and left.
 
@@ -688,17 +680,13 @@ So if you truly realize this most important point, the perfect harmony of your l
 
 #### Commentary: 
 
-“It” is the teaching of thusness, the dharma of nyoze mentioned in the first line of the song: truth and phenomena and teaching, the perfect harmony of principle and practice. If you want to teach human life you have to teach the perfect harmony of truth and phenomena, theory and practice, equality and distinction. If you teach them separately it won’t work; you have to digest through and through theory and practice, equality and distinction. Then you can teach.
+“It” is the teaching of thusness, the dharma of *nyoze* mentioned in the first line of the song: truth and phenomena and teaching, the perfect harmony of principle and practice. If you want to teach human life you have to teach the perfect harmony of truth and phenomena, theory and practice, equality and distinction. If you teach them separately it won’t work; you have to digest through and through theory and practice, equality and distinction. Then you can teach.
 
 The perfect harmony will manifest itself in your personality, and you will become buddha, spreading grace to people in all circumstances.
 
 But this perfect harmony is like a mass of fire: if you touch it you will be burned up and if you ignore it you will be frozen.
 
-If you ignore the phenomenal world and attach to the truth, then you become spaced out.
-
-Floating.
-
-Your life is up in the air and you become crazy. In the good sense you experience ecstasy, religious fascination; but I’m not sure whether that is good for you or not.
+If you ignore the phenomenal world and attach to the truth, then you become spaced out. Floating. Your life is up in the air and you become crazy. In the good sense you experience ecstasy, religious fascination; but I’m not sure whether that is good for you or not.
 
 Or you don’t know what to do about the truth and the phenomenal world, and you become very confused, and your head hurts, and you don’t know what to do. So you burn out. You say, “I can’t take all this complicated stuff, “ and you ignore the truth.
 
@@ -712,7 +700,7 @@ Some of you strongly support equality for women. Well, women are women; you shou
 
 To take care of your life is to burn your life’s energies, wherever you may go. In the realm of science, in the realm of literature, sports, whatever; every moment you have to burn your life’s energies. And when you do that you are doing something that is completely beyond our ability to describe in language.
 
-We use the technical term “dharma” to describe this energy, this perfect harmony, but no matter how you explain something technically you will always fail. Because theory is exactly practice. They are not separate. And practice is exactly theory. So if you don’t study, your head becomes very soft. And you just do what you like, become like an animal, or a bird. But that practice doesn’t last very long for human beings. So practice must be exactly one with theory.
+We use the technical term *dharma* to describe this energy, this perfect harmony, but no matter how you explain something technically you will always fail. Because theory is exactly practice. They are not separate. And practice is exactly theory. So if you don’t study, your head becomes very soft. And you just do what you like, become like an animal, or a bird. But that practice doesn’t last very long for human beings. So practice must be exactly one with theory.
 
 --- 
 
