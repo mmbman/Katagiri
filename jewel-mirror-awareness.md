@@ -549,7 +549,6 @@ To achieve continuity of the Buddha’s wisdom means to achieve continuity of ke
 
 In any event, regardless of whether you know it or not, you have already been taught by Buddha. This is why we say you are buddha. You know, even if just intellectually, that you are buddha. This is why Tozan tells you that you have it at this very moment, and urges you to keep it well.
 
----
 
 #### Text:
 
@@ -603,7 +602,6 @@ You are you, Buddha bowl is Buddha bowl, silver is silver. There is a difference
 
 If we lose sight of this then very naturally we feel that practice means losing our own particular life-style and personality. It’s not like that at all. Buddhist training is not like Army training, or brainwashing. The heron still has its own figure.
 
----
 
 #### Text: 
 
@@ -652,7 +650,6 @@ Which is why Rinzai pushed the monk away and left.
 
 This is the great teaching given by Rinzai, a teaching completely beyond words. You can read it in the Record of Lin Chi, Number Three.
 
----
 
 #### Text:
 
@@ -671,7 +668,6 @@ But if you understand the most important point, and you treat it as something ou
 
 So if you truly realize this most important point, the perfect harmony of your life interconnected, interpenetrated with the lives of all sentient beings, then you can make it alive. Beyond words, beyond excitement or non-excitement, despair or negation or self-affirmation. You can make your life truly alive. And that is how you keep it well. Nothing but the achievement of continuity of just quiet practice. It is quiet, but it is active; very active.
 
----
 
 #### Text: 
 
@@ -960,9 +956,7 @@ Now each thing in the relative has its own freedom. It can drop off its self-con
 
 Then there is the third rank, the coming from within the absolute. Everything comes from the absolute. It is a huge world, one you cannot measure by any mental process. But you can experience it. Just move toward vegetable, or toilet paper with wholeheartedness. Wholeheartedness means to manifest your own fresh and vivid energies, which makes your life move toward your object in the pure sense.
 
-So the first step is to jump into it, with true heart and sincerity. And then, in the process of jumping in with true heart you can learn what it is.
-
-Love, hatred, whatever.
+So the first step is to jump into it, with true heart and sincerity. And then, in the process of jumping in with true heart you can learn what it is. Love, hatred, whatever.
 
 You have to learn about the real world. As a practical matter you must move toward the third rank. Because you have understood the first and the second, and you know how deep, how profound everything is. Then as a practical matter you should face everything with attentiveness, kindness, and compassion. That is the coming from within the absolute.
 
@@ -1066,7 +1060,6 @@ So very naturally there is a wonderful communication.
 
 Finally you cannot escape zazen; you really enjoy it, even though you feel pain. The more you do zazen the more you realize that zazen and the more deeply it penetrates your life. It is just like chewing brown rice. When you see brown rice it looks ugly and distasteful, but if you chew it for a long time a wonderful flavor comes up. Zazen is just like that.
 
----
 
 #### Text:
 
@@ -1149,7 +1142,6 @@ So all you have to do is deal with the relative. At that moment the absolute wil
 
 This teaching fits every aspect of human life: professional life, everyday life, whatever. It fits any situation, and lets you create a peaceful, harmonious world. That is why it acts as a guide for beings. If you understand the teaching and use it you can really remove human pain and suffering.
 
----
 
 #### Text: 
 
@@ -1384,8 +1376,7 @@ I don’t know means I really don’t know.
 I just accept myself as a form living right in the middle of that interconnection, interpenetration between Buddha’s world and myself. So when I do gassho, Katagiri just stands up here and does gassho. That’s enough. And then the Buddha is exactly there.
 
 So from one point of view I am not the absolute when I practice gassho with my body. But on the other hand, “the absolute is exactly you” means that buddha nature is exactly Katagiri; so the entire world is exactly Katagiri’s human body. That is what is meant by interconnection and interpenetration. Always I depend on the absolute; but I cannot perceive how, because it is always exactly me.
-
---- 
+ 
 
 #### Text:
 
@@ -1454,8 +1445,7 @@ No, he doesn’t. He always gives the teaching according to circumstances, and t
 For example, if he sees a stingy person he may ask him what is the purpose of keeping all that money. Maybe he will give a sermon which will persuade that stingy person to use his money for someone, or some purpose. On the other hand, if he sees a profligate, he may convince him to save his money. So he does not have a fixed lesson about money. He does not teach that money is good or money is bad. That is what it means for the Tathagata not to speak.
 
 So here “Baba Wawa” means words, lots of words. Whether you use words or do not use words, real reality is beyond explanation or no explanation.
-
---- 
+ 
 
 #### Text:
 
@@ -1558,7 +1548,6 @@ You have to just proceed. Just practice, every day, like this.
 
 That is called Nirvana.
 
----
 
 #### Text:
 
@@ -1661,8 +1650,7 @@ And that is our human body.
 So it is through the human body, the human world, that the truth must be manifested. That is inquiry and response. That is the natural rhythm of life.
 
 There are no exceptions; everyone must live like this. Teacher cannot exist alone, separate from student; children cannot exist alone, separate from parents. Parents and children communicate, interpenetrate. And then you can build up a very peaceful world. But if there is even the slightest gap between them, any separation or deviation, then the cold air blows in. And that is the human trouble.
-
---- 
+ 
 
 #### Text:
 
@@ -1747,8 +1735,7 @@ It’s very round.
 No egoistic sense means you have to completely throw yourself into whatever you do. Not just for yourself. For all sentient beings. But usually you don’t do that. You try to live positively and you put yourself first. And then you live, positively. But this is very egoistic. So for a certain period of time you can be successful, but you fail to create a peaceful world where you can create peaceful, harmonious, perfect personality.
 
 That is why it says here that it includes integration and includes the road. The communion, interpenetration, perfect harmony of intercommunication between the relative and the absolute must be manifested on the road through which you pass. That is everyday life.
-
---- 
+ 
 
 #### Text:
 
@@ -1802,7 +1789,6 @@ Pay respect to your life, to your every activity. At that time you can interact,
 
 There are no exceptions.
 
----
 
 #### Text:
 
@@ -1857,7 +1843,6 @@ So to trust is not to trust or believe blindly. Behind trust, behind the belief,
 
 Constantly you have to understand zazen. To understand the zazen constantly you must first throw yourself into zazen. That is trust. And then you can Know, then you can understand.
 
----
 
 #### Text:
 
@@ -1969,7 +1954,6 @@ But we have to know the seed of buddha nature, which is each existence. As a pra
 
 So in Zen Buddhism we practice, instead of believe. Practice, every day, being fresh. This practice is very quiet, but simultaneously it is very bright. If you practice like this you can see all sentient beings very clearly, very intimately.
 
----
 
 #### Text:
 
@@ -1995,8 +1979,7 @@ Wherever you may go, whoever you are, you are small, you are not smart, I am sma
 What is this?
 
 Becoming fresh.
-
---- 
+ 
 
 #### Text:
 
@@ -2087,7 +2070,6 @@ Zen Buddhism. Because you must practice to gradually attain enlightenment, to pu
 
 Basic approaches means that we should understand the real meaning Of the teachings given by Shen-hsiu, founder of the Northern School, and that we should understand through and through the teachings of the Sixth Patriarch, Hui-Neng, founder of the Southern School.
 
----
 
 #### Text:
 
@@ -2152,7 +2134,6 @@ I don’t think so.
 
 It is not the teaching’s fault; it is your fault. The Buddha Just shows the way; you have to do the walking. But it is very common for people to criticize the teaching instead of looking at themselves. Very common, and perverted. So before you criticize others or the approach you should look first at yourself.
 
----
 
 #### Text:
 
@@ -2169,7 +2150,6 @@ But if you experience it very naturally the eternal life is in your heart. So ev
 
 If people look at someone who has experienced this, for example Shen-hsiu, the founder of the Northern School, they will respect him as a saint. As a pure being. Even though the basis is . reached and the approach comprehended, means that he can walk step by step according to the Buddha’s teaching. True eternity still flows; true eternity is always shown.
 
----
 
 #### Text:
 
@@ -2241,8 +2221,7 @@ That is why the ancient saints pitied them and bestowed upon them the teaching. 
 That is the teaching.
 
 And you can feel how pitiful human beings are. This does not mean a critical feeling toward them; it means you can give them compassion. Sympathy to all sentient beings.
-
---- 
+ 
 
 #### Text:
 
@@ -2280,8 +2259,7 @@ Mrs. L. G. Mitchell, who lives in Boston and teaches English to foreigners at Ha
 He would not teach her. Instead he told her to research and study it. Since then she has been interested in Buddhism and the Sutras. That is the interesting point.
 
 So Emptiness is fascinating, a kind of puzzle; but it is not a puzzle. It is very true. And you should keep your eyes open to it. Even though you don’t “understand” it.
-
---- 
+ 
 
 #### Text:
 
@@ -2663,7 +2641,6 @@ So, to be a Buddha we have to teach according to the individual personalities of
 
 That is what is meant by the jewel pedestals and fine clothing: you cannot give jewels and fine clothing to everyone; sometimes we have to give dirty clothes, and the job of cleaning the toilet.
 
----
 
 #### Text:
 
@@ -2700,7 +2677,6 @@ A boss has strong power to control the members, and this leads to a concern with
 
 That is what is meant here by house cat and cow. Lead an independent life and be a cat; but also be a cow. Understand your own life and respect your own viewpoint, but give it to other people according to individual personalities and circumstances. Then you can really teach; then you can really live in peace.
 
----
 
 #### Text:
 
@@ -2747,8 +2723,7 @@ You have to be what you are, under all circumstances. That is something more tha
 So you can reach the top of the mountain of enlightenment in Buddhism by study. It can be done. But at that time the peculiar flavor is left behind. So the final goal for the human being is to realize the peculiar flavor and be free from that flavor. At that time your life goes smoothly.
 
 That is a very hard practice for every day. It is harder than reaching the top of the mountain. That is why the Bodhisattva practices for many years. For instance, if you are an artist or a doctor, you can attain a certain stage. But after that your practice becomes harder. Because you have to share your capability and forget your own peculiar flavor. You have to become completely human, with your actions always based on compassion. Otherwise it is very difficult to share your life with all sentient beings.
-
---- 
+ 
 
 #### Text:
 
@@ -2786,8 +2761,7 @@ That is important.
 And then very naturally you will deepen your life. So practice is something quite different from the learning technique. That is why it this sutra says, “What has this to do with the power of skill?” And if you practice this way the stone woman gets up to dance and the wooden man sings; your life really works.
 
 So it’s not within the reach of feeling or discrimination. You sit down in front of a particular therapist and you feel relief. That is not your feeling. That is not your discrimination. Because before you can feel relief you must be relieved. That is the total picture of your personality, always working. You don’t know what it is; that is why it is like a wooden man or a stone woman. But it works every day. So it sings a song and gets up and dances.
-
---- 
+ 
 
 #### Text:
 
@@ -2850,7 +2824,6 @@ When you achieve seventy percent then you can let the flow or the Iife force blo
 
 So that is what is meant by not serving is no help. We must serve, and then there is really help.
 
----
 
 #### Text:
 
