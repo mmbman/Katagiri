@@ -5,8 +5,8 @@ title: "Song of the Jewel Mirror Awareness"
 ## Commentary by Dainin Katagiri Roshi 
 
 Transcribed by Earl Broadbent  
-Edited by Jeff Broadbent  
-Scanned by Kikan  
+Edited by Jeffrey Broadbent  
+Reformatted by Kikan Michael Howard
 
 This document is drawn from a series of nine dharma talks given by Dainin Katagiri Roshi from November 7, 1983 to January 1, 1984.
 
