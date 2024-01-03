@@ -4,11 +4,11 @@ title: "Song of the Jewel Mirror Awareness"
 
 ## Commentary by Dainin Katagiri Roshi 
 
-This document is drawn from a series of nine talks by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness*, given from November 7, 1983 to January 1, 1984. 
-
 Transcribed by Earl Broadbent  
 Edited by Jeff Broadbent  
 Scanned by Kikan  
+
+This document is drawn from a series of nine dharma talks given by Dainin Katagiri Roshi from November 7, 1983 to January 1, 1984.
 
 ### Contents:
 
@@ -29,7 +29,7 @@ Scanned by Kikan
 
 This is a song.
 
-In Japanese we call it *Hôkyozammai*, “Jewel Mirror Awareness,” omitting the word “Song.” But Manzan, a famous Japanese Zen master, stressed that the title should include the word “Song.” For this is not only a very important sutra: it is a song, one which is chanted every day in Soto Zen monasteries.
+In Japanese we call it *Hōkyōzanmai*, “Jewel Mirror Awareness,” omitting the word “Song.” But Manzan, a famous Japanese Zen master, stressed that the title should include the word “Song.” For this is not only a very important sutra: it is a song, one which is chanted every day in Soto Zen monasteries.
 
 A song appeals very deeply to your heart, and impresses you very much. Even if you don’t understand it. We learn songs as children, often singing them before we understand what the words mean, and as adults we still remember them.
 
@@ -37,7 +37,7 @@ This is why it is called the “Song of Jewel Mirror Awareness.” “Awareness�
 
 So here we have a song which is also a very important sutra. You should recite it as well as study it, so that it becomes as much of you as a song of your childhood.
 
-The *Song of Jewel Mirror Awareness* is a very simple sutra, consisting of 376 Chinese characters arranged into 94 phrases. It was written by the Zen Master Tozan, who lived from 807 to 865, and who is greatly respected as the founder of the Sotö tradition of Zen Buddhism. He also systematized the philosophical background of Soto Zen teaching into the so-called “Five Ranks.”
+The *Song of Jewel Mirror Awareness* is a very simple sutra, consisting of 376 Chinese characters arranged into 94 phrases. It was written by the Zen Master Tozan, who lived from 807 to 865, and who is greatly respected as the founder of the Sōtō tradition of Zen Buddhism. He also systematized the philosophical background of Soto Zen teaching into the so-called “Five Ranks.”
 
 <p align="center">* * *</p>
 
@@ -56,7 +56,7 @@ Tozan went on his travels, always pondering this statement “Just this is.” T
 > But when alone I proceed through myself,  
 > Wherever I go I meet him.  
 > Now he is not other than myself, yet I am not he.  
-> Only if you understand this will you unite with the Tathägata.  
+> Only if you understand this will you unite with the Tathāgata.  
 
 If you want to seek the truth you cannot search for it outwardly. If you do, the truth will become more and more remote from you. The more you conceptualize, the more you try to achieve objective and rational understanding, the more complex and distant the truth will become. But in fact the truth is really very simple.
 
@@ -132,7 +132,7 @@ That means, when you have to die, just go ahead and die, quietly. It seems cold,
 
 Wherever I may go, I meet this reflection. He is completely myself but simultaneously he is not me. But only the True Self is going along. Yet the reflection is what we discuss, what we stumble over all the time. So we say this is me, this is you; but it is not you, and it is not I.
 
-“Only if you understand this will you unite with the Tathagata.” “This” means Big Self, True Self. “Tathagata” comes from two words, “Tatha,” meaning “going,” and “agata,” meaning “coming;” so it means something that is going and coming. That is the truth, the vastness of existence. Before your thought or feelings, there is something there: the vastness of existence.
+“Only if you understand this will you unite with the Tathagata.” “This” means Big Self, True Self. *Tathagata* comes from two words, *Tatha*, meaning “going,” and *agata*, meaning “coming;” so it means something that is going and coming. That is the truth, the vastness of existence. Before your thought or feelings, there is something there: the vastness of existence.
 
 Is this vastness of existence then nothing? We call it “emptiness,” but there is something there. It is always coming, and it is always going. So when you see the reflection it is coming but in the next moment it is going. When the reflection is gone, you say “this is not me;” but immediately the reflection comes.
 
@@ -160,11 +160,11 @@ The practice of wisdom is the practice of samadhi. One-pointedness. And the simp
 
 <p align="center">* * *</p>
 
-Buddhism, and particularly the Prajna Paramita Sutra, places great stress on the Wisdom of Emptiness. Wisdom of Emptiness is the realization that the human world has no substantiality of its own.
+Buddhism, and particularly the *Prajna Paramita Sutra*, places great stress on the Wisdom of Emptiness. Wisdom of Emptiness is the realization that the human world has no substantiality of its own.
 
 No substantiality of its own means that there is no single thing to pin down, to count, to explain, to know, or to understand as an independent entity.
 
-But you can be there. Just be; that is the Wisdom of Emptiness, emphasized so much in the Prajna Paramita.
+But you can be there. Just be; that is the Wisdom of Emptiness, emphasized so much in the *Prajna Paramita*.
 
 <p align="center">* * *</p>
 
@@ -215,7 +215,7 @@ That is why Manzan said that Zen with no wisdom gives rise to the demons of medi
 
 In the *Zazen-Yōjinki* the Zen master Keizan describes the experience of the demons of meditation. He says:
 
-> “When sitting in meditation, your body may seem hot or cold, uneasy or comfortable, sometimes stiff, sometimes loose, sometimes heavy, sometimes light, sometimes startled awake.”
+> When sitting in meditation, your body may seem hot or cold, uneasy or comfortable, sometimes stiff, sometimes loose, sometimes heavy, sometimes light, sometimes startled awake.
 
 Have you experienced that?
 
@@ -349,7 +349,7 @@ You are already something. Before you compare yourself with somebody else, you a
 
 In the *Tenzo Kyokun*, by Dogen Zenji, we find the passage:
 
-> “Put those things that naturally go on a high place onto a high place, and those that would be most stable on a low place onto a low place; things that naturally belong on a high place settle best on a high place, while those that belong on a low place find their greatest stability there.”
+> Put those things that naturally go on a high place onto a high place, and those that would be most stable on a low place onto a low place; things that naturally belong on a high place settle best on a high place, while those that belong on a low place find their greatest stability there.
 
 This is a very important passage; you should consider it again and again.
 
@@ -671,6 +671,7 @@ To achieve continuity of the Buddha’s wisdom means to achieve continuity of ke
 
 In any event, regardless of whether you know it or not, you have already been taught by Buddha. This is why we say you are buddha. You know, even if just intellectually, that you are buddha. This is why Tozan tells you that you have it at this very moment, and urges you to keep it well.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -724,6 +725,7 @@ You are you, Buddha bowl is Buddha bowl, silver is silver. There is a difference
 
 If we lose sight of this then very naturally we feel that practice means losing our own particular life-style and personality. It’s not like that at all. Buddhist training is not like Army training, or brainwashing. The heron still has its own figure.
 
+<p align="center">* * *</p>
 
 #### Text: 
 
@@ -772,6 +774,7 @@ Which is why Rinzai pushed the monk away and left.
 
 This is the great teaching given by Rinzai, a teaching completely beyond words. You can read it in the Record of Lin Chi, Number Three.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -790,6 +793,7 @@ But if you understand the most important point, and you treat it as something ou
 
 So if you truly realize this most important point, the perfect harmony of your life interconnected, interpenetrated with the lives of all sentient beings, then you can make it alive. Beyond words, beyond excitement or non-excitement, despair or negation or self-affirmation. You can make your life truly alive. And that is how you keep it well. Nothing but the achievement of continuity of just quiet practice. It is quiet, but it is active; very active.
 
+<p align="center">* * *</p>
 
 #### Text: 
 
@@ -1174,6 +1178,7 @@ So very naturally there is a wonderful communication.
 
 Finally you cannot escape zazen; you really enjoy it, even though you feel pain. The more you do zazen the more you realize that zazen and the more deeply it penetrates your life. It is just like chewing brown rice. When you see brown rice it looks ugly and distasteful, but if you chew it for a long time a wonderful flavor comes up. Zazen is just like that.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -1256,6 +1261,7 @@ So all you have to do is deal with the relative. At that moment the absolute wil
 
 This teaching fits every aspect of human life: professional life, everyday life, whatever. It fits any situation, and lets you create a peaceful, harmonious world. That is why it acts as a guide for beings. If you understand the teaching and use it you can really remove human pain and suffering.
 
+<p align="center">* * *</p>
 
 #### Text: 
 
@@ -1482,7 +1488,8 @@ I just accept myself as a form living right in the middle of that interconnectio
 
 So from one point of view I am not the absolute when I practice gassho with my body. But on the other hand, “the absolute is exactly you” means that buddha nature is exactly Katagiri; so the entire world is exactly Katagiri’s human body. That is what is meant by interconnection and interpenetration. Always I depend on the absolute; but I cannot perceive how, because it is always exactly me.
  
- 
+ <p align="center">* * *</p>
+
 #### Text:
 
 > It is like a babe in the world,  
@@ -1551,6 +1558,7 @@ For example, if he sees a stingy person he may ask him what is the purpose of ke
 
 So here “Baba Wawa” means words, lots of words. Whether you use words or do not use words, real reality is beyond explanation or no explanation.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -1607,9 +1615,7 @@ The absolute within the relative is what the *Prajna Paramita* states as Emptine
 
 When we chant the *Sandokai* we encounter the words “The branching streams flow in the darkness.” Darkness here means the Truth; the Absolute. And there is the phrase “The spiritual Source shines clearly in the light.” “Spiritual source” means the ultimate source of existence. “Shines clearly in the light” refers to all things in the relative. When this ultimate source shines it becomes all things in the relative which you can clearly see. This table, human beings, trees, birds and the four seasons, all of that. All the branching streams are all things in the relative. They flow in the darkness; their lives have depth. Real depth. So the absolute does not exist alone, but is always connected with the relative.
 
-The third rank is the coming within the absolute. This refers to the great motivation that all things have to move to the depth of existence.
-
-Naturally.
+The third rank is the coming within the absolute. This refers to the great motivation that all things have to move to the depth of existence. Naturally.
 
 So even if you don’t like religion, even if you aren’t interested in a deep understanding of human life, you still very naturally move toward the depths of human beings.
 
@@ -1647,6 +1653,7 @@ You have to just proceed. Just practice, every day, like this.
 
 That is called Nirvana.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -1746,6 +1753,7 @@ So it is through the human body, the human world, that the truth must be manifes
 
 There are no exceptions; everyone must live like this. Teacher cannot exist alone, separate from student; children cannot exist alone, separate from parents. Parents and children communicate, interpenetrate. And then you can build up a very peaceful world. But if there is even the slightest gap between them, any separation or deviation, then the cold air blows in. And that is the human trouble.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -1824,6 +1832,7 @@ No egoistic sense means you have to completely throw yourself into whatever you 
 
 That is why it says here that it includes integration and includes the road. The communion, interpenetration, perfect harmony of intercommunication between the relative and the absolute must be manifested on the road through which you pass. That is everyday life.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -1872,6 +1881,7 @@ Pay respect to your life, to your every activity. At that time you can interact,
 
 There are no exceptions.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -1925,6 +1935,7 @@ So to trust is not to trust or believe blindly. Behind trust, behind the belief,
 
 Constantly you have to understand zazen. To understand the zazen constantly you must first throw yourself into zazen. That is trust. And then you can know, then you can understand.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2035,6 +2046,7 @@ But we have to know the seed of buddha nature, which is each existence. As a pra
 
 So in Zen Buddhism we practice, instead of believe. Practice, every day, being fresh. This practice is very quiet, but simultaneously it is very bright. If you practice like this you can see all sentient beings very clearly, very intimately.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2060,6 +2072,7 @@ What is this?
 
 Becoming fresh.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2150,6 +2163,7 @@ Zen Buddhism. Because you must practice to gradually attain enlightenment, to pu
 
 Basic approaches means that we should understand the real meaning of the teachings given by Shen-hsiu, founder of the Northern School, and that we should understand through and through the teachings of the Sixth Patriarch, Hui-neng, founder of the Southern School.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2214,6 +2228,7 @@ I don’t think so.
 
 It is not the teaching’s fault; it is your fault. The Buddha just shows the way; you have to do the walking. But it is very common for people to criticize the teaching instead of looking at themselves. Very common, and perverted. So before you criticize others or the approach you should look first at yourself.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2230,6 +2245,7 @@ But if you experience it very naturally the eternal life is in your heart. So ev
 
 If people look at someone who has experienced this, for example Shen-hsiu, the founder of the Northern School, they will respect him as a saint. As a pure being. “Even though the basis is reached and the approach comprehended” means that he can walk step by step according to the Buddha’s teaching. True eternity still flows; true eternity is always shown.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2302,6 +2318,7 @@ That is the teaching.
 
 And you can feel how pitiful human beings are. This does not mean a critical feeling toward them; it means you can give them compassion. Sympathy to all sentient beings.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2340,6 +2357,7 @@ He would not teach her. Instead he told her to research and study it. Since then
 
 So Emptiness is fascinating, a kind of puzzle; but it is not a puzzle. It is very true. And you should keep your eyes open to it. Even though you don’t “understand” it.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2412,9 +2430,11 @@ Otherwise it is very hard to live in peace and harmony with other sentient being
 
 That is why the fifth stage is the most important practice, and our final goal, toward which we strive forever.
 
-And when we reach it, erroneous imaginations cease. Perverted views cease. When perverted views cease, and we have to do someting, it is completely beyond any matters for discussion. You just stand alone and unmoved. You just act. That is pretty hard, for we usually expect, and criticize.
+And when we reach it, erroneous imaginations cease. Perverted views cease. When perverted views cease, and we have to do something, it is completely beyond any matters for discussion. You just stand alone and unmoved. You just act. That is pretty hard, for we usually expect, and criticize.
 
 So when the erroneous imaginations cease, the acquiescent mind realizes itself. Very naturally, there is peaceful mind, and it realizes itself. Simultaneously there is peaceful life. Just walk, just like this. That is peace. Real peace.
+
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2609,9 +2629,9 @@ What do you think about it?
 
 As a poem, it’s fine. Because poetry gives you something more than your understanding, gives you something that lies behind your life. It can be sentimental, or romantic, or artistic.
 
-There is no Rinzai, no Soto. Autumn sky. 
+“There is no Rinzai, no Soto. Autumn sky.” 
 
-That means it’s not good enough, through this people misunderstand human life.
+That means it’s not good enough. Through this people misunderstand human life.
 
 For instance, people think autumn sky is a big wrapping cloth, and Soto, Rinzai, Christianity and Buddhism all come together in the autumn skies.
 
@@ -2645,9 +2665,7 @@ Maybe you think of the worm as a kind of a life, or an illumination, so-called b
 
 No way.
 
-You cannot mix them up.
-
-Worm is worm. Buddha Shakyamuni is Buddha Shakyamuni.
+You cannot mix them up. Worm is worm. Buddha Shakyamuni is Buddha Shakyamuni.
 
 Now you are confused. Because Dogen Zenji says you should see worm as Buddha.
 
@@ -2729,6 +2747,7 @@ So, to be a Buddha we have to teach according to the individual personalities of
 
 That is what is meant by the jewel pedestals and fine clothing: you cannot give jewels and fine clothing to everyone; sometimes we have to give dirty clothes, and the job of cleaning the toilet.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2765,6 +2784,7 @@ A boss has strong power to control the members, and this leads to a concern with
 
 That is what is meant here by house cat and cow. Lead an independent life and be a cat; but also be a cow. Understand your own life and respect your own viewpoint, but give it to other people according to individual personalities and circumstances. Then you can really teach; then you can really live in peace.
 
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2811,6 +2831,7 @@ So you can reach the top of the mountain of enlightenment in Buddhism by study. 
 
 That is a very hard practice for every day. It is harder than reaching the top of the mountain. That is why the Bodhisattva practices for many years. For instance, if you are an artist or a doctor, you can attain a certain stage. But after that your practice becomes harder. Because you have to share your capability and forget your own peculiar flavor. You have to become completely human, with your actions always based on compassion. Otherwise it is very difficult to share your life with all sentient beings.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2847,6 +2868,7 @@ And then very naturally you will deepen your life. So practice is something quit
 
 So it’s not within the reach of feeling or discrimination. You sit down in front of a particular therapist and you feel relief. That is not your feeling. That is not your discrimination. Because before you can feel relief you must be relieved. That is the total picture of your personality, always working. You don’t know what it is; that is why it is like a wooden man or a stone woman. But it works every day. So it sings a song and gets up and dances.
  
+<p align="center">* * *</p>
 
 #### Text:
 
@@ -2904,10 +2926,11 @@ But whatever you do, seventy percent is what you have done. So you have to take 
 
 So that is to constantly serve. If you look at yourself, you are not perfect. If you look at your zazen, it is not perfect. Seventy percent. But in Zen Buddhism seventy percent is one hundred percent.
 
-When you achieve seventy percent then you can let the flow or the Iife force bloom in the middle of that seventy percent. Just like a tiny flower blooming in the heart of the mountains.
+When you achieve seventy percent then you can let the flow or the life force bloom in the middle of that seventy percent. Just like a tiny flower blooming in the heart of the mountains.
 
 So that is what is meant by not serving is no help. We must serve, and then there is really help.
 
+<p align="center">* * *</p>
 
 #### Text:
 
