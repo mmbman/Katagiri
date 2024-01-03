@@ -2,13 +2,13 @@
 title: "Song of the Jewel Mirror Awareness"
 ---
 
-## Teisho by Danin Katagiri Roshi 
+## Commentary by Dainin Katagiri Roshi 
+
+This document is drawn from a series of nine talks by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness*, given from November 7, 1983 to January 1, 1984. 
 
 Transcribed by Earl Broadbent  
 Edited by Jeff Broadbent  
 Scanned by Kikan  
-
-This document is drawn from a series of nine talks by Dainin Katagiri Roshi on the *Song of the Jewel Mirror Awareness*, given from November 7, 1983 to January 1, 1984. 
 
 ### Contents:
 
@@ -20,6 +20,7 @@ This document is drawn from a series of nine talks by Dainin Katagiri Roshi on t
 - [Part 5](#part-5)
 - [Part 6](#part-6)
 - [Part 7](#part-7)
+- [Notes](#notes)
 
 ---
 
@@ -134,7 +135,7 @@ Wherever I may go, I meet this reflection. He is completely myself but simultane
 
 Is this vastness of existence then nothing? We call it “emptiness,” but there is something there. It is always coming, and it is always going. So when you see the reflection it is coming but in the next moment it is going. When the reflection is gone, you say “this is not me;” but immediately the reflection comes.
 
-So without this reflection I cannot exist, I cannot understand who I am. But that reflection is always coming and going; it does not stay even for a moment. The only thing that stays is the vastness of existence. That is called truth, or in Japanese, “hokyo:” the Jewel Mirror.
+So without this reflection I cannot exist, I cannot understand who I am. But that reflection is always coming and going; it does not stay even for a moment. The only thing that stays is the vastness of existence. That is called truth, or in Japanese, *hokyo*: the Jewel Mirror.
 
 Manzan said that the Jewel Mirror was a metaphor for wisdom, and that he took great pity on those who did not realize wisdom; the greatest sadness in the world was not to realize wisdom.
 
@@ -186,7 +187,7 @@ We don’t know what a heartbeat is, but our heart beats anyway. As a whole, bef
 
 Now when I use the term “life,” I don’t mean just life in the biological sense, or what some people call “life force.” I mean something more than that. I mean that impulse which makes something exist, right in the middle of emptiness. So everything has a life. Trees, birds, rocks, this table, everything. And this life is impermanent.
 
-One Japanese alphabet, Hirakana, is made up of fourty-seven syllables. Kobo Daishi, the founder of Esoteric Buddhism in Japan, took these syllables and made a poem by grouping them into words:
+One Japanese alphabet, Hiragana, is made up of forty-seven syllables. Kobo Daishi, the founder of Esoteric Buddhism in Japan, took these syllables and made a poem by grouping them into words:
 
 > Though flowers bloom, they soon fall.  
 > How can this life be permanent to anyone?  
@@ -211,7 +212,7 @@ When I say “Unconditioned” I mean the experience of the truth, sometimes cal
 
 That is why Manzan said that Zen with no wisdom gives rise to the demons of meditation. This means that you can become crazed by zazen or by enlightenment.
 
-In the Zazen Yojinki the Zen master Keizan describes the experience of the demons of meditation. He says:
+In the *Zazen-Yōjinki* the Zen master Keizan describes the experience of the demons of meditation. He says:
 
 > “When sitting in meditation, your body may seem hot or cold, uneasy or comfortable, sometimes stiff, sometimes loose, sometimes heavy, sometimes light, sometimes startled awake.”
 
@@ -345,7 +346,7 @@ Then maybe you say, which will I be, a violet or a rose? That is already making 
 
 You are already something. Before you compare yourself with somebody else, you are already you. All you have to do is let the flow of your life force to cause you to bloom as you really are.
 
-In the Tenzo Kyokun, by Dogen Zenji, we find the passage:
+In the *Tenzo Kyokun*, by Dogen Zenji, we find the passage:
 
 > “Put those things that naturally go on a high place onto a high place, and those that would be most stable on a low place onto a low place; things that naturally belong on a high place settle best on a high place, while those that belong on a low place find their greatest stability there.”
 
@@ -381,7 +382,7 @@ So put up something which should be on a high place and put something which shou
 
 So when I look at myself, sometimes I feel good and sometimes I don’t feel good, because everything in life is up and down. But there is no way to escape this up and down. So basically I must just accept, just stand up and proceed. With stability. By myself.
 
-Then I can experience up and down, and take care of it. If I don’t proceed by myself, stably, how can I survive an up and down life? And so you should read this passage in the Tenzo Kyokan, and consider it again and again.
+Then I can experience up and down, and take care of it. If I don’t proceed by myself, stably, how can I survive an up and down life? And so you should read this passage in the *Tenzo Kyokun*, and consider it again and again.
 
 ---
 
@@ -1190,13 +1191,13 @@ Then what is distinction?
 
 It is distinction in equality. Working together. Bright just at midnight.
 
-In the The Merging of Difference and Unity, it says: “The spiritual source shines clearly in the light.” “Spiritual source” means the truth. When it is at work in everything then the world becomes bright.
+In the *The Merging of Difference and Unity*, it says: “The spiritual source shines clearly in the light.” “Spiritual source” means the truth. When it is at work in everything then the world becomes bright.
 
 Distinction arises, and you can see table, and people, and microphone. But table, and people, and microphone are in the spiritual source. So there is nothing but the spiritual source. Working together.
 
 On the other hand, it doesn’t appear at dawn. The truth does not appear in front of you, visible to your naked eye. But it’s there.
 
-Equality can be seen in distinction; distinction flows into equality, into the source. In the Merging of Difference and Unity, it says: “The branching streams flow in the darkness.”
+Equality can be seen in distinction; distinction flows into equality, into the source. In *The Merging of Difference and Unity*, it says: “The branching streams flow in the darkness.”
 
 All distinctions, all phenomena, flow into the darkness of truth and equality. And equality flows into the world of distinction and phenomena. So phenomena are phenomena, but they are something more.
 
@@ -1792,10 +1793,10 @@ But we don’t see our individual life like that; always we see individual lives
 
 Then integration is not some mysterious miracle. If you walk on the road with daily routines, gasshos and so forth, then very naturally integration is manifested. It is completely beyond calculation; you just have to do it.
 
-And then if you practice in this way you can build up perfection of personality. In Japanese we say *enmon*. *En* of enmon means
-“round;” *mon* means fullness. So *enmon* means round and full; we usually translate it “perfection.”
+And then if you practice in this way you can build up perfection of personality. In Japanese we say *enman*. *En* of enman means
+“round;” *man* means fullness. So *enman* means round and full; we usually translate it “perfection.”
 
-*Enmon* of personality is complete fullness of the energy, and very round. No corners. If you have a corner, even a slight one, it is what we call ego-consciousness; selfishness. If you are perfectly round, then when you bump into somebody else you just pass by and no one is hurt. But if you have a corner then when you bump into somebody you hurt. Very much. That corner is called the ego. *Enman*, perfection, is no ego; no corners, and full of energy.
+*Enman* of personality is complete fullness of the energy, and very round. No corners. If you have a corner, even a slight one, it is what we call ego-consciousness; selfishness. If you are perfectly round, then when you bump into somebody else you just pass by and no one is hurt. But if you have a corner then when you bump into somebody you hurt. Very much. That corner is called the ego. *Enman*, perfection, is no ego; no corners, and full of energy.
 
 <p align="center"> * * * </p>
 
@@ -2607,8 +2608,7 @@ What do you think about it?
 
 As a poem, it’s fine. Because poetry gives you something more than your understanding, gives you something that lies behind your life. It can be sentimental, or romantic, or artistic.
 
-There is no Rinzai, no Soto  
-Autumn sky.
+There is no Rinzai, no Soto. Autumn sky. 
 
 That means it’s not good enough, through this people misunderstand human life.
 
@@ -2995,4 +2995,295 @@ Freedom and enlightenment is not as difficult as you may think.
 
 ---
 
+### Notes
+
+J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
+
+#### Notes on the Introduction:
+
+“...Manzan” (1635-1714) A reformer in the Soto tradition.
+
+“...Tozan” J.: Tozan Ryokai; C.: Dongshan Liangjie; W.: Tung-Shan Liang-chieh. Not to be confused with Tozan Shusho, who lived somewhat later. Accounts of Tozan Ryokai appear in *Original Teachings of Ch'an Buddhism*, by Chang Chung-Yuan (Grove Press,
+1969) and *Ch'an and Zen Teaching, Second Series*, by Charles Luk (Rider, 1961). Tozan Ryokai also appears in Case 43 of the *Blue Cliff Record*.
+
+“...Ungan” J.: Ungan Donjo. C.: Yunyan W.: Yun-Yen T'an-Sheng. (780-841) Accounts of Ungan appear in Chung-Yuan and Luk (op. cit.). Ungan also appears in Cases 70, 72, and 89 of the *Blue Cliff Record*.
+
+“…Together with the whole world.” For a further discussion of this point, see *The Buddhist Teaching of Totality* by Garma C. C. Chang (Pennsylvania State University Press, 1971) and Wing-Tsit Chan, ed., *A Source Book in Chinese Philosophy* (Princeton University Press, 1963), pp 406-424.
+
+“...demons of meditation” J.: *makyo*. For an extended discussion of *makyo*, see Phillip Kapleau's *Three Pillars of Zen* (Anchor, 1980).
+
+“...Zazen Yojinki” For a translation of the *Zazen Yojinki*, see *Timeless Spring*, trans. by Thomas Cleary. (Weatherhill, Tokyo and New York, 1980), pg. 112-124.
+
+“...Keizan” Keizan Jokin (1268-1325), Founder of Soji Monastery, which ranks with Eihelfi as one of the two most important monasteries in the Soto tradition.
+
+“...Put those things” For a translation and commentary on the Tenzo Kyokun, see *Refining Your Life*, by Dogen and Uchiyama (Weatherhill, Tokyo and New York, 1983).
+
+#### Notes on the Text:
+
+> The teaching of thusness  
+> has been intimately communicated by buddhas and patriarchs.  
+> Now you have it,  
+> so keep it well.
+  
+“...buddhas and patriarchs” J.: *busso*. This has the connotation of universal perspective and phenomenal world. It can also be translated as "buddha-patriarch," or "enlightened predecessor."
+
+“...Now you have it” This does not mean “now” as opposed to “then,” but rather “at this very instant.”
+
+“...keep it well” This means to preserve, by receiving and transmitting to future generations; it does mean to “keep” in a selfish or miserly way.
+
+#### Notes on the Text:
+
+> Filling a silver bowl with snow,  
+> hiding a heron in moonlight –  
+> When you array them, they're not the same;  
+> When you mix them, you know where they are.  
+
+“...Filling a silver bowl” This phrase is the topic of case 13 of the *Blue Cliff Record*.
+
+“...When you array them” The literal Chinese can be rendered “Sorting/classification not uniform," with the next line reading “jumbled up distinguished.” Snow and a silver bowl, heron and moonlight are distinct no matter what system of classification you use, as well as distinct when encountered randomly in nature.
+
+#### Notes on the Text:
+
+> The meaning is not in the words,  
+> yet it responds to the inquiring impulse.  
+
+“...The meaning” A literal rendering of this is “More to it than words.”
+
+#### Notes on the Commentary:
+
+“...Rinzai” J.: Rinzai Gigen. Ch.: Linji Yixuan. W.: Lin-Chi I-Hsuan. (d. 867) Accounts of Rinzai appear in Chung-Yuan and Luk (op. cit.). Rinzai also appears in Cases 20 and 32 of the *Blue Cliff Record*.
+
+“...Record of Lin Chi” J.: Rinzai-roku. Ch.: Linji Lu. W.: Lin-chi Lu.
+
+#### Notes on the Text:
+
+> If you're excited it becomes a pitfall;  
+> If you miss it you fall into retrospective hesitation.  
+
+“...If you're excited” The literal Chinese reads “Excitement trap/Miss it quandary.”
+
+#### Notes on the Text:
+
+> Turning away and touching are both wrong,  
+> for it is like a mass of fire.  
+
+“...Turning away” A literal rendering line would be “Facing toward facing away both wrong.”
+
+“...mass of fire” The original has “churning” associated with
+“fire.”
+
+#### Notes on the Text:
+
+> Just to depict it in literary form  
+> is to relegate it to defilement.  
+
+"…literary form" This should be taken to mean pretentious or academic language.
+
+#### Notes on the Commentary:
+
+“...relative within the absolute” J.: sho chu hen. W.: cheng chung p'ien.
+
+“..absolute within the relative” J.: hen chu sho. W.: p'ien chung cheng.
+
+“...coming from within the absolute” J: sho chu rai. W.: cheng chung lai.
+
+“…arrival within the relative” J: hen chu shi. N.: p'ien chung chi. There exists a scholarly dispute about the exact rendering of this Rank, which is discussed in Chung-Yuan (op. cit.) pg. 79, n. 2.
+
+“...attained within integration” J: ren chu to. H: chien chung
+
+“...Fukan Zazen-gi” A translation of this work appears in *Zen Master Dogen*, by Yunto Yokot and Daizen Victoria (Weatherhill, New York and Tokyo, 1976), pp. 45-47, and *How to Raise an Ox*, by Francis Dojun Cook, (Center Publications, Los Angeles, 1979), pp 95-98.
+
+“...nonthinking” J.: fu-shiryo. This is variously translated as
+"not thinking, " "non-thought," or "the unthinkable." I have followed Yokoi and Victoria (op. cit.) in using "nonthinking" to denote the state which is independent of thought or absence of thought.
+
+“...peace is war.” The reader should note the fundamental difference between this usage and the similar slogan in George Orwell's *1984*. Katagiri Roshi is not re-defining the state of war as one of peace, but pointing out the essential unity of all states.
+
+#### Notes on the Text:
+
+> It is bright just at midnight;  
+> it doesn't appear at dawn.  
+
+“...midnight” This is a metaphor for darkness, not a specific time.
+
+“…dawn” Again, this should be taken to mean “light” and not the moment of sunrise.
+
+#### Notes on the Commentary
+
+“...The Merging of Difference and Unity.” J.: Sandokai. C.: Can Tong Qi. W.: Ts'an T'ung Ch'i. Written by Shitou Xiqian (N.: Shih t'ou Hsi ch'ien. J.: Sekito Kisen.), lived 700-790. A translation appears in Cleary, *Timeless Spring* (op. cit.), PP 36-37.
+
+#### Notes on the Text: 
+
+> It acts as a guide for all beings  
+> its use removes all pains.  
+
+“...Its use” Katagiri Roshi clarifies this as follows: By dint of the functioning of the Dharma, suffering works itself clear.
+He adds that it is like a boatman on a stream; the stream is the fundamental force, but the boatman must row and steer with care.
+This is the sense in which “use” should be understood, in distinction not “use” dualistically, like a tool or medicine.
+
+#### Notes on the Text:
+
+> Although it is not fabricated,  
+> it is not without speech.  
+
+“...not fabricated” The original reads literally “Although it doesn't do anything by itself”
+
+“...not without speech.” Literally, “It is not saying nothing.” “Speech” should be taken as communication in general, not just words.
+
+#### Notes on the Commentary:
+
+“…Bendowa” “Discourse on the Practice of the Way.” A chapter of the *Shobogenzo*, written in 1231. A translation by Norman Waddell and Abe Masao appears in the *Eastern Buddhist*, Vol. 6, No. 1, (1976) pg. 128.
+
+“...Mudras” Gestures, generally with the hands, used to assist in achieving particular states of mind.
+
+#### Notes on the Text:
+
+> It is like facing a jewel mirror;  
+> form and image behold each other  
+> You are not it  
+> it actually is you  
+
+“...facing” A literal rendition of the original is “looking.”
+
+#### Notes on the Text:
+
+> It is like a babe in the world,  
+> in five aspects complete;  
+> It does not go or come  
+> nor rise nor stand.  
+> “Baba Wawa” –  
+> is there anything said or not?  
+> Ultimately it does not apprehend anything,  
+> because its speech is not yet correct.  
+
+A literal rendering by a modern Chinese speaker yields:
+
+> Like baby in world  
+> Complete in all five features  
+> Not go not come  
+> Not rise not sit  
+> Po po ho ho
+> Phrase not phrase
+> Finally not achieve objective/result
+> Because words not accurate.
+
+Katagiri Roshi clarifies the use of the baby talk in this manner: Use words or do not use words, real reality is beyond explanation or no explanation.
+
+#### Notes on the Text:
+
+> It is like the six lines of the double split hexagram;  
+> The relative and absolute integrate –  
+
+“It is like...” This phrase does not appear in the original. For a complete explanation of the use of the *I Ching* hexagrams as illustrations of the Five Ranks, see Luk (op. cit.) pg. 127 and pg. 151, n. 1 and 2.
+
+#### Notes on the Text:
+
+> Piled up, they make three;  
+> the complete transformation makes five.  
+> It is like the taste of the five flavored herb,  
+> like the diamond thunderbolt.
+
+“...The complete transformation” Luk renders this as “which transform themselves into five.”
+
+#### Notes on the Text:
+
+> Subtly included within the true,  
+> inquiry and response come up together.
+> Communing with the source and communing with the process,  
+> it includes integration and includes the road;  
+> Merging is auspicious;  
+> do not violate it.  
+
+#### Notes on the Text:
+
+> Naturally real yet inconcievable,  
+> it is not within the province of delusion or enlightenment.  
+> With causal conditions, time and season,  
+> quiescently it shines bright.  
+
+The first line, to a speaker of modern Chinese, reads “wonderful purity,” where “purity” uses the same character as would be applied to a virgin.
+
+#### Notes on the Text:
+
+> In its fineness it fits into spacelessness;  
+> in its greatness it is utterly beyond location.  
+
+A more literal rendering of this is:
+
+> So minute that it penetrates any space.  
+> So enormous that it exceeds all bounds.  
+
+#### Notes on the Text:
+
+> A hairbreadth's deviation  
+> will fail to accord with the final harmony.  
+
+#### Notes on the Text:
+
+> Now there are sudden and gradual  
+> in connection with which are set up basic approaches.  
+> Once basic approaches are distinguished,  
+> then there are guiding rules.  
+
+The first line is literally “Things can happen suddenly, things can happen gradually.” The last line uses a Chinese character that has the same purpose as “i.e.” in Western languages, that is, to introduce a subordinate clause.
+
+#### Notes on the Text:
+
+> But even though the basis is reached and the approach comprehended,  
+> true eternity still flows.  
+> Outwardly still while inwardly moving,  
+> like a tethered colt, a trapped rat –  
+> The ancient saints pitied them,  
+> and bestowed upon them the teaching;  
+> According to their delusions,  
+> they saw black as white –  
+> When erroneous imaginations cease,  
+> the acquiescent mind realizes itself.  
+
+The first two lines of the original read literally
+
+> When all approaches understood/exhausted  
+> Truth flows/moves  
+
+And the last four read
+
+> Follow inversion  
+> Call black white  
+> When inverted thinking extinguished  
+> Accepting mind aware itself  
+
+#### Notes on the Text:
+
+> If you want to conform to the ancient way  
+> please observe the ancients of former times;  
+> When about to fulfill the way of buddhahood,  
+> one gazed at a tree for ten aeons,  
+> Like a tiger leaving part of its prey,  
+> a horse with a white left hind leg.  
+
+“...like a tiger leaving part of its prey” The literal translation is "Like a tiger's incompleteness, " where the character for incompleteness is the same as the one used to describe the moon when it is not full.
+
+#### Notes on the Text:
+
+> Because there is the base, (there are)  
+> jewel pedestals, fine clothing;  
+> Because there is the startlingly different, (there are)  
+> house cat and cow.  
+
+A literal rendition of this is:
+
+> As there are cheap and shabby things  
+> So there are precious utensils and royal jewelry  
+> As there are strange and amazing things  
+> So there are nimble cats and white cows.  
+
+(page is missing)
+
+#### Notes on the Text:
+
+> Practice secretly, working within,  
+> As though a fool, like an idiot –  
+> If you can achieve continuity,  
+> This is called the host within the host.  
+
+“...As though a fool” A literal rendition of the second line is something like “Like a fool and a fumbler,” that is, inept both mentally and physically.
 
