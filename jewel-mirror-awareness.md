@@ -412,7 +412,7 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > it doesn’t appear at dawn.  
 
 > It acts as a guide for all beings –  
-> its use removes all pains.
+> its use removes all pains.  
 > Although it is not fabricated,  
 > it is not without speech.  
 
@@ -420,14 +420,14 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > form and image behold each other –  
 > You are not it  
 > it actually is you.  
-> It is like a babe in the world, 
+> It is like a babe in the world,  
 > in five aspects complete;  
 > It does not go nor come,  
 > nor rise nor stand.  
 > “Baba Wawa” –  
 > is there anything said or not?  
 > Ultimately it does not apprehend anything  
-> because its speech is not yet correct.
+> because its speech is not yet correct.  
 > It is like the six lines of the double split hexagram;  
 > the relative and absolute integrate –  
 > Piled up, they make three;  
@@ -482,7 +482,7 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > When the wooden man begins to sing,  
 > the stone woman gets up to dance;  
 > It’s not within reach of feeling or discrimination –  
-> how could it admit of consideration in thought?
+> how could it admit of consideration in thought?  
 > A minister serves the lord,  
 > a son obeys the father;  
 > Not obeying is not filial  
@@ -1214,7 +1214,7 @@ Then you can guide. Then you can educate. Then you can take care.
 #### Text: 
 
 > It acts as a guide for all beings –  
-> its use removes all pains.
+> its use removes all pains.  
 
 #### Commentary: 
 
@@ -1485,14 +1485,14 @@ So from one point of view I am not the absolute when I practice gassho with my b
  
 #### Text:
 
-> It is like a babe in the world, 
+> It is like a babe in the world,  
 > in five aspects complete;  
 > It does not go nor come,  
 > nor rise nor stand.  
 > “Baba Wawa” –  
 > is there anything said or not?  
 > Ultimately it does not apprehend anything  
-> because its speech is not yet correct.
+> because its speech is not yet correct.  
 
 #### Commentary:
 
@@ -2817,7 +2817,7 @@ That is a very hard practice for every day. It is harder than reaching the top o
 > When the wooden man begins to sing,  
 > the stone woman gets up to dance;  
 > It’s not within reach of feeling or discrimination –  
-> how could it admit of consideration in thought?
+> how could it admit of consideration in thought?  
 
 #### Commentary:
 
