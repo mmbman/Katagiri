@@ -457,7 +457,7 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > But even though the basis is reached and the approach comprehended,  
 > true eternity still flows.  
 > Outwardly still while inwardly moving,  
-> like a tethered colt, a trapped rat ––  
+> like a tethered colt, a trapped rat –  
 > The ancient saints pitied them,  
 > and bestowed upon them the teaching;  
 > According to their delusions,  
@@ -2250,7 +2250,7 @@ If people look at someone who has experienced this, for example Shen-hsiu, the f
 #### Text:
 
 > Outwardly still while inwardly moving,  
-> like a tethered colt, a trapped rat ––  
+> like a tethered colt, a trapped rat –  
 > The ancient saints pitied them,  
 > and bestowed upon them the teaching;  
 
