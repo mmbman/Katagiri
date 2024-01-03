@@ -13,6 +13,7 @@ Scanned by Kikan
 ### Contents:
 
 - [Introduction](#introduction)
+- [The Song of the Jewel Mirror Awareness](#the-song-of-the-jewel-mirror-awareness)
 - [Part 1](#part-1)
 - [Part 2](#part-2)
 - [Part 3](#part-3)
