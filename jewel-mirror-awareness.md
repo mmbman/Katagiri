@@ -395,31 +395,38 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > has been intimately communicated by buddhas and patriarchs;  
 > Now you have it,  
 > so keep it well.  
+> 
 > Filling a silver bowl with snow,  
 > hiding a heron in moonlight –  
 > When you array them, they’re not the same;  
 > when you mix them, you know where they are.  
+>
 > The meaning is not in the words,  
 > Yet it responds to the inquiring impulse.  
+>  
 > If you’re excited, it becomes a pitfall;  
 > if you miss it you fall into retrospective hesitation.  
+>
 > Turning away and touching are both wrong,  
 > for it is like a mass of fire.  
-
+>
 > Just to depict it in literary form  
 > is to relegate it to defilement.  
+>
 > It is bright just at midnight;  
 > it doesn’t appear at dawn.  
-
+>
 > It acts as a guide for all beings –  
 > its use removes all pains.  
+> 
 > Although it is not fabricated,  
 > it is not without speech.  
-
+>
 > It is like facing a jewel mirror;  
 > form and image behold each other –  
 > You are not it  
 > it actually is you.  
+>  
 > It is like a babe in the world,  
 > in five aspects complete;  
 > It does not go nor come,  
@@ -428,65 +435,84 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > is there anything said or not?  
 > Ultimately it does not apprehend anything  
 > because its speech is not yet correct.  
+> 
 > It is like the six lines of the double split hexagram;  
 > the relative and absolute integrate –  
 > Piled up, they make three;  
 > the complete transformation makes five.  
+>  
 > It is like the taste of the five-flavored herb,  
 > like the diamond thunderbolt.  
-
+> 
 > Subtly included within the true,  
 > inquiry and response come up together.  
+> 
 > Communing with the source and communing with the process,  
 > it includes integration and includes the road;  
+> 
 > Merging is auspicious;  
 > do not violate it.  
+> 
 > Naturally real yet inconceivable,  
 > it is not within the realm of delusion or enlightenment.  
+> 
 > With causal conditions, time and season,  
 > quiescently it shines bright.  
+>
 > In its fineness it fits into spacelessness;  
 > in its greatness it is utterly beyond location.  
+> 
 > A hairsbreadth deviation  
 > will fail to accord with the final attunement.  
-
+> 
 > Now there are sudden and gradual  
 > in connection with which are set up basic approaches.  
+> 
 > Once basic approaches are distinguished,  
 > then there are guiding rules.  
+> 
 > But even though the basis is reached and the approach comprehended,  
 > true eternity still flows.  
+> 
 > Outwardly still while inwardly moving,  
 > like a tethered colt, a trapped rat –  
 > The ancient saints pitied them,  
 > and bestowed upon them the teaching;  
+> 
 > According to their delusions,  
 > they saw black as white –  
+> 
 > When erroneous imaginations cease,  
 > the acquiescent mind realizes itself.  
+> 
 > If you want to conform to the ancient way  
 > please observe the ancients of former times;  
 > When about to fulfill the way of buddhahood,  
 > one gazed a tree for ten aeons,  
 > Like a tiger leaving part of its prey,  
 > a horse with a white left hind leg.  
-
+> 
 > Because there is the base, (there are)  
 > jewel pedestals, fine clothing;  
+> 
 > Because there is the startlingly different, (there are)  
 > house cat and cow.  
+> 
 > Yi, with his archer’s skill  
 > could hit a target at a hundred paces.  
 > But when arrow-points meet head-on,  
 > what has this to do with the power of skill?  
+> 
 > When the wooden man begins to sing,  
 > the stone woman gets up to dance;  
 > It’s not within reach of feeling or discrimination –  
 > how could it admit of consideration in thought?  
+> 
 > A minister serves the lord,  
 > a son obeys the father;  
 > Not obeying is not filial  
 > and not serving is no help.  
+> 
 > Practice secretly, working within,  
 > as though a fool, like an idiot –  
 > If you can achieve continuity,  
