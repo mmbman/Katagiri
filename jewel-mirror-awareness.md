@@ -15,7 +15,7 @@ This document is drawn from a series of nine dharma talks given by Dainin Katagi
 ### Contents:
 
 - [Introduction](#introduction)
-- [Song of the Jewel Mirror Awareness](#song-of-the-jewel-mirror-awareness)
+- [*Song of the Jewel Mirror Awareness*](#song-of-the-jewel-mirror-awareness)
 - [Part 1](#part-1)
 - [Part 2](#part-2)
 - [Part 3](#part-3)
@@ -3133,15 +3133,15 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 #### Notes on the Commentary:
 
-“...relative within the absolute” J.: sho chu hen. W.: cheng chung p'ien.
+“...relative within the absolute” J.: *sho chu hen*. W.: *cheng chung p'ien*.
 
-“..absolute within the relative” J.: hen chu sho. W.: p'ien chung cheng.
+“..absolute within the relative” J.: *hen chu sho*. W.: *p'ien chung cheng*.
 
-“...coming from within the absolute” J: sho chu rai. W.: cheng chung lai.
+“...coming from within the absolute” J: *sho chu rai*. W.: *cheng chung lai*.
 
-“…arrival within the relative” J: hen chu shi. N.: p'ien chung chi. There exists a scholarly dispute about the exact rendering of this Rank, which is discussed in Chung-Yuan (op. cit.) pg. 79, n. 2.
+“…arrival within the relative” J: *hen chu shi*. N.: *p'ien chung chi*. There exists a scholarly dispute about the exact rendering of this Rank, which is discussed in Chung-Yuan (op. cit.) pg. 79, n. 2.
 
-“...attained within integration” J: ren chu to. H: chien chung
+“...attained within integration” J: *ren chu to*. H: *chien chung*
 
 “...Fukan Zazen-gi” A translation of this work appears in *Zen Master Dogen*, by Yunto Yokot and Daizen Victoria (Weatherhill, New York and Tokyo, 1976), pp. 45-47, and *How to Raise an Ox*, by Francis Dojun Cook, (Center Publications, Los Angeles, 1979), pp 95-98.
 
