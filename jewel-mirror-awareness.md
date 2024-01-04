@@ -764,7 +764,7 @@ If we lose sight of this then very naturally we feel that practice means losing 
 
 “Meaning” here refers to the real dharma, something behind the song; the real meaning. So the dharma which has been transmitted is more than words. Yet it responds to the inquiring impulse – if you look for it you can find it. There is an interacting communication, a communion, between the snow and the silver bowl, the snowy heron and the snowy world. And that communion is completely beyond words and language.
 
-There is a very famous story of Rinzai, or Lin Chi in Chinese, told in the Record of Lin Chi. Rinzai said: “The true man without rank is going and coming through your nose and eyes and ears; if you don’t know this yet, look.” A monk came up to him and said, what is the true man without rank? Rinzai immediately grasped the monk and shook him, saying “Speak! Speak!”
+There is a very famous story of Rinzai, or Lin Chi in Chinese, told in the *Record of Lin Chi*. Rinzai said: “The true man without rank is going and coming through your nose and eyes and ears; if you don’t know this yet, look.” A monk came up to him and said, what is the true man without rank? Rinzai immediately grasped the monk and shook him, saying “Speak! Speak!”
 
 This means that buddha nature, true man, True Self, is not something a Zen Master gives or a monk receives. True man is already in everybody, manifesting perfect harmony of whole universe.
 
@@ -3145,7 +3145,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...Fukan Zazen-gi” A translation of this work appears in *Zen Master Dogen*, by Yunto Yokot and Daizen Victoria (Weatherhill, New York and Tokyo, 1976), pp. 45-47, and *How to Raise an Ox*, by Francis Dojun Cook, (Center Publications, Los Angeles, 1979), pp 95-98.
 
-“...nonthinking” J.: fu-shiryo. This is variously translated as
+“...nonthinking” J.: *fu-shiryo*. This is variously translated as
 "not thinking, " "non-thought," or "the unthinkable." I have followed Yokoi and Victoria (op. cit.) in using "nonthinking" to denote the state which is independent of thought or absence of thought.
 
 “...peace is war.” The reader should note the fundamental difference between this usage and the similar slogan in George Orwell's *1984*. Katagiri Roshi is not re-defining the state of war as one of peace, but pointing out the essential unity of all states.
