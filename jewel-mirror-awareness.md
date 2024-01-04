@@ -10,10 +10,12 @@ Reformatted by Kikan Michael Howard
 
 This document is drawn from a series of nine dharma talks given by Dainin Katagiri Roshi from November 7, 1983 to January 1, 1984.
 
+---
+
 ### Contents:
 
 - [Introduction](#introduction)
-- [The Song of the Jewel Mirror Awareness](#the-song-of-the-jewel-mirror-awareness)
+- [Song of the Jewel Mirror Awareness](#the-song-of-the-jewel-mirror-awareness)
 - [Part 1](#part-1)
 - [Part 2](#part-2)
 - [Part 3](#part-3)
