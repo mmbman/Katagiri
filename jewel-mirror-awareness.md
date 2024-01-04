@@ -800,7 +800,7 @@ For morning will come and you will have to get up. Evening will come and you wil
 
 Which is why Rinzai pushed the monk away and left.
 
-This is the great teaching given by Rinzai, a teaching completely beyond words. You can read it in the Record of Lin Chi, Number Three.
+This is the great teaching given by Rinzai, a teaching completely beyond words. You can read it in the *Record of Lin Chi*, Number Three.
 
 <p align="center">* * *</p>
 
@@ -3105,7 +3105,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...Rinzai” J.: Rinzai Gigen. Ch.: Linji Yixuan. W.: Lin-Chi I-Hsuan. (d. 867) Accounts of Rinzai appear in Chung-Yuan and Luk (op. cit.). Rinzai also appears in Cases 20 and 32 of the *Blue Cliff Record*.
 
-“...Record of Lin Chi” J.: Rinzai-roku. Ch.: Linji Lu. W.: Lin-chi Lu.
+“...*Record of Lin Chi*” J.: *Rinzai-roku*. Ch.: *Linji Lu*. W.: *Lin-chi Lu*.
 
 #### Notes on the Text:
 
