@@ -4,9 +4,9 @@ title: "Song of the Jewel Mirror Awareness"
 
 ## Commentary by Dainin Katagiri Roshi 
 
-Transcribed by Earl Broadbent  
-Edited by Jeffrey Broadbent  
-Reformatted by Kikan Michael Howard
+Edited by Jeffrey Broadbent   
+Transcribed by Earl Boebert (or Broadbent?)  
+Reformatted by Kikan Michael Howard  
 
 This document is drawn from a series of nine dharma talks given by Dainin Katagiri Roshi from November 7, 1983 to January 1, 1984.
 
@@ -387,9 +387,9 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 
 ---
 
-### The Song of the Jewel Mirror Awareness
+### Song of the Jewel Mirror Awareness
 
-#### by Zen Master Tozan
+#### by Zen Master Tozan Ryokai
 
 > The teaching of thusness  
 > has been intimately communicated by buddhas and patriarchs;  
