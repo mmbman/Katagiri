@@ -393,6 +393,8 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 
 #### by Zen Master Tozan Ryokai
 
+Translation from *Timeless Spring* by Thomas Cleary. 
+
 > The teaching of thusness  
 > has been intimately communicated by buddhas and patriarchs;  
 > Now you have it,  
@@ -519,8 +521,6 @@ Then I can experience up and down, and take care of it. If I don’t proceed by 
 > as though a fool, like an idiot –  
 > If you can achieve continuity,  
 > this is called the host within the host.  
-
-Translation from *Timeless Spring* by Thomas Cleary. 
 
 --- 
 
