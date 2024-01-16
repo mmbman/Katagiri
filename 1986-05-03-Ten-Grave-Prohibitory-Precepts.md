@@ -119,9 +119,9 @@ So when you do gassho, *do* gassho, that’s all. [In] gassho, maintain gassho. 
 
 #### 40:00 
 
-So all you have to do is, in the realm of the partition [...] where awakening is awakening, you don’t know. 
+[...] In the realm of the partition [...] where awakening is awakening, you don’t know. And then, the Precept comes up: *do not take life*. What should you do? *Not taking life* [is] coming up: how do you understand, how do you accept this precept [of] not taking life? 
 
-And then, the Precept comes up: *do not take life*. What should you do? *Not taking life* [is] coming up: how do you understand, how do you accept this precept [of] not taking life? Already before you take this precept of not taking life, immediately your computer starts to work and – *[clacking sound effects]* – lots of lights coming up, you know? And then, at superspeed, you catch the meaning of the idea of *not taking life* in terms of morality, ethics, and physics, biology. *[He laughs.]* Very busy, very busy. But it’s very quick; you can do it. 
+Already before you take this precept of not taking life, immediately your computer starts to work and – *[clacking sound effects]* – lots of lights coming up, you know? And then, at superspeed, you catch the meaning of the idea of *not taking life* in terms of morality, ethics, and physics, biology. *[He laughs.]* Very busy, very busy. But it’s very quick; you can do it. 
 
 So Buddha gives you the precept of not taking life, and then immediately your computer starts to work. [...] You are participating in *where*? You are already completely before and after. The computer working means already you are participating in a different world [than] Buddha teaches you; already you slip off. You already miss the most important point [that] everyone has to go through: this is called [the] *path*, this is called *the Way*. Everyone, all sentient beings, have to pass [through this]; trees, birds, lions, elephants, all things pass through that world. But human beings always ... 
 
