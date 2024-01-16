@@ -49,7 +49,7 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 **December 31, 2023**: Posted draft of [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts).
 
-**December 30, 2023**: Improved the summary for [Blue Cliff Record Case 38 Talk 1: Feng Hsueh’s Workings of the Iron Ox](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
+**December 30, 2023**: Improved the summary for [Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
 
 **December 29, 2023**: Posted information on upcoming classes, and more.
 

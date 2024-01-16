@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call – Talk 1"
+title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 1"
 ---
 ## February 18, 1984 Dharma Talk by Dainin Katagiri Roshi
 

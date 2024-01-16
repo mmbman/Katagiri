@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 41 Talk 1: Chao Chou’s Man Who Has Died the Great Death"
+title: "Blue Cliff Record Case 41: Chao Chou’s Man Who Has Died the Great Death, Talk 1"
 ---
 ## February 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 

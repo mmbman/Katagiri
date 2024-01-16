@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 3 Talk 2: Master Ma Is Unwell, Part 2"
+title: "Blue Cliff Record Case 3: Master Ma Is Unwell, Talk 2"
 ---
 ## April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
