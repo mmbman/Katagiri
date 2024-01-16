@@ -174,7 +174,9 @@ Do you have any questions?
 
 **Same person:** Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I’m not sure, I’d have to listen to be sure. But that sentence really struck me. 
 
-**Katagiri:** *[Quietly:]* Yeah. *[Laughter.]*
+**Katagiri:** *[Quietly:]* Yeah... 
+
+*[Laughter.]*
 
 Maybe it’s connected with a previous statement ... 
 
