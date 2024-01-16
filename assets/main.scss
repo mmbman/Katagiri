@@ -100,11 +100,12 @@ hr {
 	text-align: center
 }
 
-@media screen and (max-width: 800px) {
-    .post-content h4 {
-        font-size:20px;
-        text-align: center
-    }
+.post-content h5 {
+    font-size:20px
+}
+
+.post-content h6 {
+    font-size:18px
 }
 
 // duplicates for page-content; this is a kludge.
@@ -140,9 +141,10 @@ hr {
     text-align: center
 }
 
-@media screen and (max-width: 800px) {
-    .page-content h4 {
-        font-size:20px;
-        text-align: center
-    }
+.page-content h5 {
+    font-size:20px
+}
+
+.page-content h6 {
+    font-size:18px
 }
