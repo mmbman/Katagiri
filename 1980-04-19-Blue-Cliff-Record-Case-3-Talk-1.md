@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 3 Talk 1: Master Ma Is Unwell"
 ---
 ## April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-03-15-Save-All-Sentient-Beings) \| 
-[Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1980) \| [Previous](1980-03-15-Save-All-Sentient-Beings) \| [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,8 +15,8 @@ What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feel
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 *Blue Cliff Record*, Case 3, “Master Ma is Unwell”:
 
@@ -242,7 +239,4 @@ So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-03-15-Save-All-Sentient-Beings) \| 
-[Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1980) \| [Previous](1980-03-15-Save-All-Sentient-Beings) \| [Next](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

@@ -3,9 +3,7 @@ title: "Book of Equanimity: Case 52"
 ---
 ## January 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
-[Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+### [List](list#1983) \| [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
 ### Transcript
 
@@ -13,7 +11,7 @@ title: "Book of Equanimity: Case 52"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/book-of-equanimity-case-52" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 In the *Book of Equanimity*, there is an interesting question and answer between Zen teacher and his student. Case 52: 
 
@@ -56,6 +54,4 @@ Let’s read the first sentence:
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
-[Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
+### [List](list#1983) \| [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)

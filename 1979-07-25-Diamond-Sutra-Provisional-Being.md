@@ -3,10 +3,7 @@ title: "Diamond Sutra: Provisional Being"
 ---
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
-[Next](1979-08-01-Diamond-Sutra-Emptiness)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| [Previous](1979-06-15-Fukanzazengi-Talk-7) \| [Next](1979-08-01-Diamond-Sutra-Emptiness) \| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Why should we not be disappointed with this world, if there seems to be nothing 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 There must be a person who tries to establish a peaceful world, always. When we see the human world, it’s pretty difficult for us to see a beautiful aspect; in most cases, we are disappointed. But [in] *Diamond Sutra*, Subhuti – one of Buddha’s ten major disciples – asks him, “How do we teach the Buddha’s teaching, which seems to be complicated, particularly in the confused world?” Buddha says, “There must be even one person who tries to teach Buddha’s teaching, under all circumstances.” That is Buddha’s answer. So, you shouldn’t be disappointed with this world, even though there seems to be nothing to help your life. Still there is a person who helps you, teaching Buddha’s teaching. Buddha says, “Don’t think that; don’t be disappointed. There is always some person who teaches Buddha’s teaching.”
 
@@ -223,7 +220,4 @@ Buddhism is always not to touch the extreme ideas, *perception of soul* or *perc
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-06-15-Fukanzazengi-Talk-7) \| 
-[Next](1979-08-01-Diamond-Sutra-Emptiness)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| [Previous](1979-06-15-Fukanzazengi-Talk-7) \| [Next](1979-08-01-Diamond-Sutra-Emptiness) \| Series: [*Diamond Sutra*](diamond-sutra)

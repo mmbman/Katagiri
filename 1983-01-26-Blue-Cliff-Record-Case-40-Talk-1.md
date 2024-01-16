@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 40 Talk 1: Nan Ch’uan’s It’s Like a Dream"
 ---
 ## January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
-[Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -20,7 +17,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-40-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 Case 40: “Nan Ch’uan’s It’s Like a Dream”. 
 
@@ -170,7 +167,4 @@ That is oneness, the-same-and-oneness. Heaven and earth and you are the-same-and
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 
-[Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

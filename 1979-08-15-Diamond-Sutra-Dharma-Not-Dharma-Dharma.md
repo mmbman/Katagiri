@@ -3,10 +3,7 @@ title: "Diamond Sutra: Dharma / Not Dharma / Dharma"
 ---
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
-[Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -18,8 +15,8 @@ If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-dharma-not-dharma-dharma" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 > (Chapter 8)  
 >  
@@ -190,7 +187,4 @@ So you must be free from the enlightenment that you have experienced – and the
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| 
-[Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| [Previous](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| [Next](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| Series: [*Diamond Sutra*](diamond-sutra)

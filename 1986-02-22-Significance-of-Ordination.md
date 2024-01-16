@@ -3,10 +3,7 @@ title: "Lay Ordination Lecture 1 of 7: Significance of Ordination"
 ---
 ## February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) \| 
-[Previous](1985-06-22-Introduction-to-Buddhism) \| 
-[Next](1986-03-01-Three-Aspects-of-Repentance)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1985-06-22-Introduction-to-Buddhism) \| [Next](1986-03-01-Three-Aspects-of-Repentance) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi introduces a series of lectures on *Jukai*, lay ordination. In th
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/significance-of-ordination" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 We will have lay ordination at the end of March. So I would like to talk about the significance of lay ordination for a couple of weeks, every Saturday. Today I would like to talk about just the significance of lay ordination. Then after that, from next Saturday, I will explain the contents of the ceremony, one by one. 
 
@@ -157,7 +154,4 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) \| 
-[Previous](1985-06-22-Introduction-to-Buddhism) \| 
-[Next](1986-03-01-Three-Aspects-of-Repentance)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1985-06-22-Introduction-to-Buddhism) \| [Next](1986-03-01-Three-Aspects-of-Repentance) \| Series: [Lay Ordination](lay-ordination)

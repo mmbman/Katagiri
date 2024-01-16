@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 2 Talk 2: The Ultimate Path Is Without Difficulty
 ---
 ## January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| 
-[Next](1980-03-15-Save-All-Sentient-Beings)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1980) \| [Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| [Next](1980-03-15-Save-All-Sentient-Beings) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-2-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 > [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
@@ -264,7 +261,4 @@ Engo’s commentary is pretty nice. So, if you have time, read the commentary to
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| 
-[Next](1980-03-15-Save-All-Sentient-Beings)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1980) \| [Previous](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| [Next](1980-03-15-Save-All-Sentient-Beings) \| Series: [*Blue Cliff Record*](blue-cliff-record)

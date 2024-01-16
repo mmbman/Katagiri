@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 38 Talk 2: Feng Hsueh’s Workings of the Iron Ox
 ---
 ## January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
-[Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| [Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -20,7 +17,7 @@ The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, 
 
 *(Archive Issue: The online audio for this talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.)*
 
-#### 0:00 start of recording
+#### 0:00
 
 Let me explain again, simply, the main case we studied last time, before making remarks about the Verse. In the main case, one day Feng Hsueh Zen Master, at the government headquarters in China, talked about some aspect of Buddha’s teaching. 
 
@@ -94,7 +91,4 @@ In Japan there were two famous Zen Masters:  Bokusan Nishiari Zen Master (Nishia
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| 
-[Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1) \| [Next](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

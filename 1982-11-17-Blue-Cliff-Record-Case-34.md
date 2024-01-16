@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 34: Yang Shan Asks “Where Have You Come From?�
 ---
 ## November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1982) \| 
-[Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| 
-[Next](1982-11-24-Blue-Cliff-Record-Case-35)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1982) \| [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| [Next](1982-11-24-Blue-Cliff-Record-Case-35) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -20,8 +17,8 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 
 (Transcriber’s Note: While reading Katagiri Roshi’s commentary on this case, consider substituting the word *ordinary* where he says *usual*. For example, instead of “in the usual way,” you might read, “in the ordinary way”. *Usual* means *customary*, so it depends more on the context; for example, “the usual” in studying Zen may be different than “the usual” in daily life. In contrast, *ordinary* is pretty much just *ordinary*. Cleary’s translation of the Notes to the case uses the word *ordinary*.)
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 > Yang Shan asked a monk, “Where have you just come from?”  
 >
@@ -235,7 +232,4 @@ I understand it’s pretty hard, because getting up in the morning is a very sim
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1982) \| 
-[Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| 
-[Next](1982-11-24-Blue-Cliff-Record-Case-35)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1982) \| [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| [Next](1982-11-24-Blue-Cliff-Record-Case-35) \| Series: [*Blue Cliff Record*](blue-cliff-record)

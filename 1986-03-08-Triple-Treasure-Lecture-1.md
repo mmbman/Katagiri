@@ -3,10 +3,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 ---
 ## March 8, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) \| 
-[Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1986-03-15-Triple-Treasure-Lecture-2)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1986-03-15-Triple-Treasure-Lecture-2) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the f
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 [Today I would like to] talk about the Triple Treasure. What is the significance of the Triple Treasure: taking refuge in Buddha, dharma, sangha?
 
@@ -207,7 +204,4 @@ But it’s pretty easy to stay with the result. And then, the Buddhist way is yo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) \| 
-[Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1986-03-15-Triple-Treasure-Lecture-2)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1986-03-15-Triple-Treasure-Lecture-2) \| Series: [Lay Ordination](lay-ordination)

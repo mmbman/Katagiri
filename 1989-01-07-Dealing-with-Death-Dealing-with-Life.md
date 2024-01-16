@@ -3,9 +3,7 @@ title: "Dealing with Death, Dealing with Life"
 ---
 ## January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1989) \| 
-[Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 
-Next
+#### [List](list#1989) \| [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| Next
 
 ### Summary
 
@@ -19,8 +17,8 @@ Katagiri Roshi discusses how we should practice with those who are ill or dying.
 
 (Transcriber’s Note: An edited version of this talk, from a different transcript, [is available on cuke.com](http://www.cuke.com/pdf-wb2/90-1-wb-kat-lect-dying.pdf).)
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 (The recording begins with the community chanting the Verse of Opening the Sutras:)
 
@@ -166,6 +164,4 @@ I vow to attain it.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1989) \| 
-[Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| 
-Next
+#### [List](list#1989) \| [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| Next

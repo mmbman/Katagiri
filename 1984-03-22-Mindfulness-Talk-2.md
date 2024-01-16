@@ -3,9 +3,7 @@ title: "Mindfulness – Talk 2"
 ---
 ## March 22, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1984) \| 
-[Previous](1984-03-21-Mindfulness-Talk-1) \| 
-[Next](1984-03-23-Mindfulness-Talk-3)
+#### [List](list#1984) \| [Previous](1984-03-21-Mindfulness-Talk-1) \| [Next](1984-03-23-Mindfulness-Talk-3)
 
 ### Summary
 
@@ -315,6 +313,4 @@ So the *mountains are mountains* I am talking about is quite different from the 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1984) \| 
-[Previous](1984-03-21-Mindfulness-Talk-1) \| 
-[Next](1984-03-23-Mindfulness-Talk-3)
+#### [List](list#1984) \| [Previous](1984-03-21-Mindfulness-Talk-1) \| [Next](1984-03-23-Mindfulness-Talk-3)

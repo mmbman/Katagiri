@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 40 Talk 2: Nan Ch’uan’s It’s Like a Dream, 
 ---
 ## February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
-[Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| [Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -20,7 +17,7 @@ Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjo
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-40-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 [I will discuss] the Verse of the fortieth case. I think you remember the case, but let me read it again:
 
@@ -173,7 +170,4 @@ Very naturally that is just like energies moving. So that is called *everything 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| 
-[Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| [Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

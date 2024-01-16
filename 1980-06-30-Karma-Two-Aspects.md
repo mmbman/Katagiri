@@ -3,10 +3,7 @@ title: "Karma: Two Aspects"
 ---
 ## June 30, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) 
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,7 +15,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/july-30-1980-audio" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 During this seminar I would like to study and learn about *karma* with you. I’m very happy to do that.
 
@@ -194,7 +191,4 @@ And also, unfortunately, there are not many textbooks on karma [in this country]
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| 
-[Next](1980-07-01-Karma-Twelve-Chains-Of-Causation)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| [Next](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| Series: [Karma](karma)

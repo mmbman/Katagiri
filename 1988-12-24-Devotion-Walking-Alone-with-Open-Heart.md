@@ -3,9 +3,7 @@ title: "Devotion: Walking Alone with Open Heart"
 ---
 ## December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1988) \| 
-[Previous](1988-10-05-Review-and-Renew) \| 
-[Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)
+#### [List](list#1988) \| [Previous](1988-10-05-Review-and-Renew) \| [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 
 ### Summary
 
@@ -17,8 +15,8 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/walking-alone-with-open-heart" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Good morning. It seems like we haven’t had a talk on a Saturday for a long time. For me, it seems to be for many years. *[He laughs.]* Anyway, I am very glad to have this opportunity today. 
 
@@ -282,6 +280,4 @@ In order to walk, you need a peaceful way of life, more or less; because you don
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1988) \| 
-[Previous](1988-10-05-Review-and-Renew) \| 
-[Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)
+#### [List](list#1988) \| [Previous](1988-10-05-Review-and-Renew) \| [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life)

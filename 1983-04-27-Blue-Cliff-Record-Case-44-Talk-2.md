@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 44 Talk 2: Ho Shan’s Knowing How to Beat the Dr
 ---
 ## April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -19,7 +16,7 @@ title: "Blue Cliff Record Case 44 Talk 2: Ho Shan’s Knowing How to Beat the Dr
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-44-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 The forty-fourth case. 
 
@@ -248,7 +245,4 @@ So, you cannot be careless. But I don’t mean you should be nervous. No. You ca
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| 
-[Next](1984-03-21-Mindfulness-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

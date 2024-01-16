@@ -3,10 +3,7 @@ title: "Karma: Where Karma Originates"
 ---
 ## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-[Next](1980-07-03-Karma-Unmanifested)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| [Next](1980-07-03-Karma-Unmanifested) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews the T
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-where-karma-originates" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording 
+
+#### 0:00 
 
 I talked in the early morning [zazen](glossary#zazen), I said, “to deport oneself in [samādhi](glossary#samadhi).” I have to correct this term: to *disport*, not deport. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
 
@@ -317,7 +314,4 @@ So that’s why it’s a very unstable field. But all we have to do is do our be
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| 
-[Next](1980-07-03-Karma-Unmanifested)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-01-Karma-Twelve-Chains-Of-Causation) \| [Next](1980-07-03-Karma-Unmanifested) \| Series: [Karma](karma)

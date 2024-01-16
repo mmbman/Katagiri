@@ -3,10 +3,7 @@ title: "Genjokoan: Talk 3 (Flow)"
 ---
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1987) \| 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 
-[Next](1987-06-20-Manas)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| [Next](1987-06-20-Manas) \| Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -16,8 +13,8 @@ title: "Genjokoan: Talk 3 (Flow)"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Yesterday I mentioned that the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who we are; such as tasting, realizing *manas*, psychologically speaking. At that time, the realization of manas guides you to touch karmic life, coming from past life. That is [*alayavijñāna*](glossary#alayavijñāna). 
 
@@ -296,7 +293,4 @@ If you become a spiritual teacher, you must be like that. You cannot be a *front
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1987) \| 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 
-[Next](1987-06-20-Manas)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| [Next](1987-06-20-Manas) \| Series: [*Genjokoan*](genjokoan)

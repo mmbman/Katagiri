@@ -3,10 +3,7 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 ---
 ## April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) 
-\| [Previous](1986-04-12-Receiving-the-Precepts) 
-\| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) 
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-04-12-Receiving-the-Precepts) \| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -22,8 +19,8 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 
 (*Transcriber’s Note*: The title of this talk in the audio archive says “Three Pure Collective Precepts,” but the term that is generally used, and which Katagiri Roshi uses, is “Three Collective Pure Precepts” – there’s a slight difference in word order. The title of the transcript has been adjusted accordingly. Although, it must be admitted that “pure collective precepts” does make sense, given the contents of the talk.)
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Last time, I explained the Triple Treasure as one of the sixteen precepts. Today, I would like to talk about the Three Collective Pure Precepts. 
 
@@ -127,7 +124,4 @@ Vow is a big hope, huge hope.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) 
-\| [Previous](1986-04-12-Receiving-the-Precepts) 
-\| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) 
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-04-12-Receiving-the-Precepts) \| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| Series: [Lay Ordination](lay-ordination)

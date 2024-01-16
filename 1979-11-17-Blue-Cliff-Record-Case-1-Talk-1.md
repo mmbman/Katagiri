@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 1 Talk 1: The Highest Meaning of the Holy Truths"
 ---
 ## November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
-[Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1979) \| [Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| [Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Reco
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 I have not studied the [*Blue Cliff Record*](glossary#blue-cliff-record) with you since I moved to Minneapolis. We studied [*Shōyōroku*](glossary#book-of-serenity) (the *Book of Equanimity*) which is pretty similar to the *Blue Cliff Record* (*Hekiganroku* in Japanese). But the *Blue Cliff Record* is a little different, and pretty unique, from *Shōyōroku* we studied. Particularly [Rinzai Zen](glossary#rinzai-zen ) uses this *Blue Cliff Record* so much. 
 
@@ -149,7 +146,4 @@ Sometimes with trailing vines, there is something interrupted, so sometimes tree
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| 
-[Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1979) \| [Previous](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| [Next](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

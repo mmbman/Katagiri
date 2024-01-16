@@ -3,9 +3,7 @@ title: "Mindfulness – Talk 3"
 ---
 ## March 23, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1984) \| 
-[Previous](1984-03-22-Mindfulness-Talk-2) \| 
-[Next](1984-05-14-Two-Kinds-of-Nowness)
+#### [List](list#1984) \| [Previous](1984-03-22-Mindfulness-Talk-2) \| [Next](1984-05-14-Two-Kinds-of-Nowness)
 
 ### Summary
 
@@ -311,6 +309,4 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1984) \| 
-[Previous](1984-03-22-Mindfulness-Talk-2) \| 
-[Next](1984-05-14-Two-Kinds-of-Nowness)
+#### [List](list#1984) \| [Previous](1984-03-22-Mindfulness-Talk-2) \| [Next](1984-05-14-Two-Kinds-of-Nowness)

@@ -3,10 +3,7 @@ title: "Karma: Karma as Energy/Emptiness"
 ---
 ## July 11, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
-[Next](1980-07-12-Karma-Conclusion)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| [Next](1980-07-12-Karma-Conclusion) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Karma is not a psychological entity: karma is consciousness, but also karma is r
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-as-energy-emptiness" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Today the subject I am going to deal with is the great source of energy [that is] our karma. Karma is nothing but a great source of energy. If you use the technical term, that is *emptiness*. 
 
@@ -167,7 +164,4 @@ That’s why Dogen Zenji says, “this human body is nothing but emptiness, from
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| 
-[Next](1980-07-12-Karma-Conclusion)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-10-Karmic-Retribution-in-Present-Life) \| [Next](1980-07-12-Karma-Conclusion) \| Series: [Karma](karma)

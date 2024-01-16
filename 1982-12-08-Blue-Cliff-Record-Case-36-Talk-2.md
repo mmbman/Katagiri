@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 36 Talk 2: Ch’ang Sha Wandering in the Mountain
 ---
 ## December 8, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1982) \| 
-[Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 
-[Next](1982-12-15-Blue-Cliff-Record-Case-37)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1982) \| [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| [Next](1982-12-15-Blue-Cliff-Record-Case-37) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,7 +15,7 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-36-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 Tonight we will study Setchō Zenji’s verse on Case 36. Let me first read the case that we studied last week:
 
@@ -240,7 +237,4 @@ Whatever you judge, evaluate, think, it is nothing but understanding human life 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1982) \| 
-[Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| 
-[Next](1982-12-15-Blue-Cliff-Record-Case-37)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1982) \| [Previous](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1) \| [Next](1982-12-15-Blue-Cliff-Record-Case-37) \| Series: [*Blue Cliff Record*](blue-cliff-record)

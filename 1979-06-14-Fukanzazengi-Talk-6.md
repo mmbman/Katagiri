@@ -15,8 +15,8 @@ Katagiri Roshi talks about *body and mind dropping off* from a psychological poi
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-6" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 We talked about [zazen](glossary#zazen) based on body and mind dropping off, which means that from the first dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
 

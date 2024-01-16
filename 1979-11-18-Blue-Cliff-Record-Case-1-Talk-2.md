@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 1 Talk 2: The Highest Meaning of the Holy Truths,
 ---
 ## November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
-[Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1979) \| [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Why is there “no merit”? Katagiri Roshi covers one of the most famous storie
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 I read the main subject of Case 1 already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism), so I think most of you know it pretty well. 
 
@@ -384,7 +381,4 @@ The commentary is very helpful for you, so if you have time, read the commentary
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| 
-[Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1979) \| [Previous](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1) \| [Next](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

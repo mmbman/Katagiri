@@ -3,9 +3,7 @@ title: "Introduction to Buddhism"
 ---
 ## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1985) \| 
-[Previous](1984-05-14-Two-Kinds-of-Nowness) \| 
-[Next](1986-02-22-Significance-of-Ordination)
+#### [List](list#1985) \| [Previous](1984-05-14-Two-Kinds-of-Nowness) \| [Next](1986-02-22-Significance-of-Ordination)
 
 ### Summary
 
@@ -19,8 +17,8 @@ An alternative title for this talk might have been, â€œWhat Is Buddhist Faith?â€
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Good morning. Today, I would like to talk about Buddhist faith, particularly in Zen Buddhism. 
 
@@ -197,6 +195,4 @@ Thank you very much.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1985) \| 
-[Previous](1984-05-14-Two-Kinds-of-Nowness) \| 
-[Next](1986-02-22-Significance-of-Ordination)
+#### [List](list#1985) \| [Previous](1984-05-14-Two-Kinds-of-Nowness) \| [Next](1986-02-22-Significance-of-Ordination)

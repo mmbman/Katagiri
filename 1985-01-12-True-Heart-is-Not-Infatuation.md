@@ -3,9 +3,7 @@ title: "True Heart is Not Infatuation"
 ---
 ## January 12, 1985 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1985) \| 
-[Previous](1984-03-21-Mindfulness-Talk-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1985) \| [Previous](1984-03-21-Mindfulness-Talk-1) \| [Next](1985-06-22-Introduction-to-Buddhism)
 
 ### Summary
 
@@ -17,8 +15,8 @@ title: "True Heart is Not Infatuation"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/true-heart-is-not-infatuation" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 In the *Lotus Sutra*, Chapter 25, it says:
 
@@ -38,6 +36,4 @@ This conversation goes between the Bodhisattva Avalokiteshvara and the Bodhisatt
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1985) \| 
-[Previous](1984-03-21-Mindfulness-Talk-1) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1985) \| [Previous](1984-03-21-Mindfulness-Talk-1) \| [Next](1985-06-22-Introduction-to-Buddhism)

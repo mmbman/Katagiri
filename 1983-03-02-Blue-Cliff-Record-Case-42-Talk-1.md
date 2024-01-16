@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 42 Talk 1: Layman P’ang’s Good Snowflakes"
 ---
 ## March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| 
-[Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| [Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -20,7 +17,7 @@ Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-42-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 Case 42: “Layman P’ang’s Good Snowflakes”. The pointer:
 
@@ -104,7 +101,4 @@ Even though you accept totally and all sentient beings respond to your life, sti
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| 
-[Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-02-16-Blue-Cliff-Record-Case-41-Talk-2) \| [Next](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

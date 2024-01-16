@@ -3,10 +3,7 @@ title: "Karma: Conclusion"
 ---
 ## July 12, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
-[Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| [Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-conclusion" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 This is my last talk on karma during this two week seminar. 
 
@@ -141,7 +138,4 @@ Is that okay? *[He laughs.]* So of course I can say yes, grace is interdependent
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-11-Karma-As-Energy-Emptiness) \| 
-[Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-11-Karma-As-Energy-Emptiness) \| [Next](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| Series: [Karma](karma)

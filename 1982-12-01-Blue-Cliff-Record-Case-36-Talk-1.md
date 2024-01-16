@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 36 Talk 1: Ch’ang Sha Wandering in the Mountain
 ---
 ## December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1982) \| 
-[Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
-[Next](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1982) \| [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| [Next](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,7 +15,7 @@ Wandering in the mountains, life flowing freely: how very like the sense of spri
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-36-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-#### 0:00 start of recording
+#### 0:00
 
 Case 36:
 
@@ -242,7 +239,4 @@ And then if you become a master of dance, both are working very smoothly. Withou
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1982) \| 
-[Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| 
-[Next](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1982) \| [Previous](1982-11-24-Blue-Cliff-Record-Case-35) \| [Next](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

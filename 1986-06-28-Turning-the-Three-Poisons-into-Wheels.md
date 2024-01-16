@@ -3,10 +3,7 @@ title: "Turning the Three Poisons into Wheels"
 ---
 ## June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) 
-\| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) 
-\| [Next](1987-05-23-Karma-in-Buddhism)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Lay Ordination](lay-ordination)
 
 ### Transcript
 
@@ -16,8 +13,8 @@ title: "Turning the Three Poisons into Wheels"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/turning-the-three-poisons-into-wheels" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Today I would like to talk about the third of the Ten Prohibitory Precepts: abstaining from sexual greed. The comment [on this] by Dogen Zenji says:
 
@@ -125,7 +122,4 @@ So that is [what] “the threefold wheel is pure and clean” [means]. Naturally
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) 
-\| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) 
-\| [Next](1987-05-23-Karma-in-Buddhism)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Lay Ordination](lay-ordination)

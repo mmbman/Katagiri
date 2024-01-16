@@ -3,10 +3,7 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 ---
 ## March 15, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1986-04-12-Receiving-the-Precepts)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -18,8 +15,8 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – buddha, dharma, and sangha – the Three Collective Pure Precepts, and Ten Prohibitory Precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
 
@@ -197,7 +194,4 @@ But Gandhi’s example is very good for you. You can think of it. If you are Gan
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) \| 
-[Previous](1986-03-08-Triple-Treasure-Lecture-1) \| 
-[Next](1986-04-12-Receiving-the-Precepts)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Lay Ordination](lay-ordination)

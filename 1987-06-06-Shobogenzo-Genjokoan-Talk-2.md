@@ -3,10 +3,7 @@ title: "Genjokoan: Talk 2 (Consciousness)"
 ---
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1987) \| 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| 
-[Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3) \| Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -16,8 +13,8 @@ title: "Genjokoan: Talk 2 (Consciousness)"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 \[...] [In the previous talk] I mentioned [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, [are] never separate from each other. You should understand deeply the merging of enlightenment and salvation. 
 
@@ -271,7 +268,4 @@ So, [they are] always connected, something like that.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1987) \| 
-[Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| 
-[Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3) \| Series: [*Genjokoan*](genjokoan)

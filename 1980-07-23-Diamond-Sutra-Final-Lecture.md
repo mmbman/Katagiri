@@ -3,10 +3,7 @@ title: "Diamond Sutra: Final Lecture"
 ---
 ## July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1980) \| [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| [Next](1981-07-18-Blue-Cliff-Record-Case-18) \| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-final-lecture" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 [At the end, there is a] famous verse in the *Diamond Sutra*. It says:
 
@@ -282,7 +279,4 @@ Unfortunately I have to go to Omaha this weekend, I cannot be [at the rummage sa
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| 
-[Next](1981-07-18-Blue-Cliff-Record-Case-18)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1980) \| [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| [Next](1981-07-18-Blue-Cliff-Record-Case-18) \| Series: [*Diamond Sutra*](diamond-sutra)

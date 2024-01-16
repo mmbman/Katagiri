@@ -15,8 +15,8 @@ Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [*Diamond Sutra*](glossary#diamond-sutra). This is quite different from [*Vimalakirti Sutra*](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. 
 

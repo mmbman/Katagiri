@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 25 Talk 2: The Hermit of Lotus Flower Peak Holds 
 ---
 ## November 22, 1981 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1981) \| 
-[Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
-[Next](1982-11-17-Blue-Cliff-Record-Case-34)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1981) \| [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| [Next](1982-11-17-Blue-Cliff-Record-Case-34) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-25-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 [The pointer to the case:]
 
@@ -245,7 +242,4 @@ But Buddhism is not discussing about that. Buddhism is that you have to know tha
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1981) \| 
-[Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| 
-[Next](1982-11-17-Blue-Cliff-Record-Case-34)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1981) \| [Previous](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| [Next](1982-11-17-Blue-Cliff-Record-Case-34) \| Series: [*Blue Cliff Record*](blue-cliff-record)

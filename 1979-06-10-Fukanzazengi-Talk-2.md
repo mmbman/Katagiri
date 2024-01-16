@@ -15,8 +15,8 @@ Katagiri Roshi expands on the six-component system for understanding zazen that 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 ... Whatever kind of questions you have about the subject I mentioned yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
 

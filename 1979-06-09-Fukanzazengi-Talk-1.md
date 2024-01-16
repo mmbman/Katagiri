@@ -15,8 +15,8 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 The last sentence of the main subject of [*Fukanzazengi* – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
 

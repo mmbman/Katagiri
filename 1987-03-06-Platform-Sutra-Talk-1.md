@@ -3,9 +3,7 @@ title: "Platform Sutra – Talk 1"
 ---
 ## March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+#### [List](list#1980) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
 ### Summary
 
@@ -18,8 +16,8 @@ title: "Platform Sutra – Talk 1"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/platform-sutra-1-of-7" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 > Once a customer bought firewood and ordered it delivered to his shop. When the delivery had been made, and Hui Neng had received the money, he went outside the gate, where he noticed a customer reciting a Sutra. Upon once hearing the words of this Sutra: “One should produce that thought which is nowhere supported.” Hui Neng’s mind immediately opened to enlightenment.)
 >
@@ -65,6 +63,4 @@ So according to Dogen’s point, Buddha Nature, there are two points.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1986-03-01-Three-Aspects-of-Repentance) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+#### [List](list#1980) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)

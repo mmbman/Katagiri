@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument"
 ---
 ## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1981) \| 
-[Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| 
-[Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1981) \| [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -18,8 +15,8 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-18" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 (*Transcriber’s Note*: The recording of this talk is nearly inaudible. Transcription errors are likely.)
 
@@ -277,7 +274,4 @@ That’s why Hsueh Tou said, “Within the crystal palace, there is no one who k
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1981) \| 
-[Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| 
-[Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1981) \| [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

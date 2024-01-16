@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 4 Talk 1: Te Shan Carrying His Bundle"
 ---
 ## May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
-[Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1980) \| [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| [Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -20,8 +17,8 @@ Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Case Four of *Blue Cliff Record*. The title is, “Te Shan Carrying His Bundle”. 
 
@@ -224,7 +221,4 @@ Tomorrow, I would like to read the commentary by Engo Zen Master. It’s a very 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| 
-[Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1980) \| [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| [Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

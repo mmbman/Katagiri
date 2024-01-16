@@ -15,8 +15,8 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-5" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi), who lived from 835 to 908 (CE). He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [*Shobogenzo*](topics#shobogenzo) in the fascicle [“The One Bright Pearl”](topics#one-bright-pearl); you can find this story there.
 

@@ -3,10 +3,7 @@ title: "Karma: Taking Care of Karma"
 ---
 ## July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](1980-07-10-Karmic-Retribution-in-Present-Life)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-03-Karma-Unmanifested) \| [Next](1980-07-10-Karmic-Retribution-in-Present-Life) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-taking-care-of-karma" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dogen, the founder of Soto Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dogen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
 
@@ -213,7 +210,4 @@ That is the conclusion of my talk this week. Do you have any questions?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-03-Karma-Unmanifested) \| 
-[Next](1980-07-10-Karmic-Retribution-in-Present-Life)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-03-Karma-Unmanifested) \| [Next](1980-07-10-Karmic-Retribution-in-Present-Life) \| Series: [Karma](karma)

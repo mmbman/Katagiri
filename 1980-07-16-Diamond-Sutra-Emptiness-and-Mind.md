@@ -3,10 +3,7 @@ title: "Diamond Sutra: Emptiness and Mind"
 ---
 ## July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-12-Karma-Conclusion) \| 
-[Next](1980-07-23-Diamond-Sutra-Final-Lecture)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1980) \| [Previous](1980-07-12-Karma-Conclusion) \| [Next](1980-07-23-Diamond-Sutra-Final-Lecture) \| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -18,8 +15,8 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-chapter-32-emptyness-and-mind" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 [Soon] my lectures on *Diamond Sutra* will be over. There are two more lectures: today and maybe next week. 
 
@@ -173,7 +170,4 @@ In the koan I told you about: not ignoring causation, cause and effect, and not 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-12-Karma-Conclusion) \| 
-[Next](1980-07-23-Diamond-Sutra-Final-Lecture)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1980) \| [Previous](1980-07-12-Karma-Conclusion) \| [Next](1980-07-23-Diamond-Sutra-Final-Lecture) \| Series: [*Diamond Sutra*](diamond-sutra)

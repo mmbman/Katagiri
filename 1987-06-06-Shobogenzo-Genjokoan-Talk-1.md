@@ -3,10 +3,7 @@ title: "Genjokoan: Talk 1 (Egolessness)"
 ---
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1987) \| 
-[Previous](1987-05-23-Karma-in-Buddhism) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-05-23-Karma-in-Buddhism) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -16,8 +13,8 @@ title: "Genjokoan: Talk 1 (Egolessness)"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan). You have the textbook; the title in English is “The Issue At Hand.” *(Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)*
 
@@ -257,7 +254,4 @@ Is that okay? Do you have any other questions? We will have [more] discussion [l
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1987) \| 
-[Previous](1987-05-23-Karma-in-Buddhism) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-05-23-Karma-in-Buddhism) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| Series: [*Genjokoan*](genjokoan)

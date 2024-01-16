@@ -3,10 +3,7 @@ title: "Karma in Buddhism"
 ---
 ## May 23, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1987) \| 
-[Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
-\| Series: [Karma](karma)
+#### [List](list#1987) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -16,7 +13,7 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 
 *(This talk is split into two files in the audio archive: [Part 1](#part-1) and [Part 2](#part-2).)*
 
-<a name="000"></a>
+
 #### Part 1
 
 <p align="center" style="font-style: italic">
@@ -251,7 +248,4 @@ That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Bre
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1987) \| 
-[Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 
-[Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
-\| Series: [Karma](karma)
+#### [List](list#1987) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| Series: [Karma](karma)

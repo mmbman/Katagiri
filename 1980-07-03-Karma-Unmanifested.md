@@ -3,10 +3,7 @@ title: "Karma: Unmanifested Karma"
 ---
 ## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
-[Next](1980-07-04-Karma-Taking-Care-of-Karma)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-02-Karma-Where-Karma-Originates) \| [Next](1980-07-04-Karma-Taking-Care-of-Karma) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-unmanifested" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 This morning I would like to talk about the [karma](glossary#karma) which is one’s individual karma and simultaneously is not individual, is completely beyond our individual control. This is also [an aspect of] karma. 
 
@@ -225,7 +222,4 @@ For instance, if maybe a few days ago a person walked on the bridge and immediat
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-02-Karma-Where-Karma-Originates) \| 
-[Next](1980-07-04-Karma-Taking-Care-of-Karma)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-02-Karma-Where-Karma-Originates) \| [Next](1980-07-04-Karma-Taking-Care-of-Karma) \| Series: [Karma](karma)

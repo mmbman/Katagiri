@@ -3,9 +3,7 @@ title: "The Awakening of Faith"
 ---
 ## March 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1984) \| 
-[Previous](1984-03-24-Mindfulness-Talk-4) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism)
 
 ### Transcript
 
@@ -15,8 +13,8 @@ title: "The Awakening of Faith"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand, mainly I want to concentrate on the teaching of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also the teaching of the function of human psychology.
 
@@ -182,6 +180,4 @@ That is, from day to day you have to practice, anyway. There is no end. Day to d
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1984) \| 
-[Previous](1984-03-24-Mindfulness-Talk-4) \| 
-[Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism)

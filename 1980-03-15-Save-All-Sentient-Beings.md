@@ -3,9 +3,7 @@ title: "Save All Sentient Beings"
 ---
 ## March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 
-[Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+#### [List](list#1980) \| [Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| [Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 
 ### Summary
 
@@ -17,8 +15,8 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/save-all-sentient-beings" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Probably you may notice that there are many English terms in Buddhism using “all,” or “all sentient beings,” or “all [dharmas](glossary#dharma).” In the four vows, we say, “I vow to save all sentient beings.” Whatever Buddhist scriptures you read, you realize there are many Buddhist terms including “all dharmas,” “all sentient beings.” That’s why we are very often confused: “to save all sentient beings” – what do you mean, “save all sentient beings”? Or, “All is impermanent.” What is *all*? This morning I would like to learn these terms with you. 
 
@@ -300,6 +298,4 @@ But first, get it. That’s why the Sixth Patriarch said it in that way.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| 
-[Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+#### [List](list#1980) \| [Previous](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2) \| [Next](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)

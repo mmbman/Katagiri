@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 39 Talk 2: Yun Men’s Flowering Hedge, Part 2"
 ---
 ## January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| 
-[Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| [Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -48,7 +45,7 @@ The Verse:
 
 *From* The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.*)
 
-#### 0:00 start of recording
+#### 0:00
 
 ... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
@@ -177,7 +174,4 @@ Okay. Next, please read Case Forty.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| 
-[Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1) \| [Next](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

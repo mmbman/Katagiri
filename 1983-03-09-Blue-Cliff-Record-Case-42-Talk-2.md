@@ -3,10 +3,7 @@ title: "Blue Cliff Record Case 42 Talk 2: Layman P’ang’s Good Snowflakes, Pa
 ---
 ## March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1983) \| 
-[Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
-[Next](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| [Next](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -28,7 +25,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 >
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-#### 0:00 start of recording
+#### 0:00
 
 ... transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything moves and changes. That is the law of causation: cause and effect. 
 
@@ -254,7 +251,4 @@ Well, that is a little bit going away [from the point]. *[He chuckles.]* But fun
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1983) \| 
-[Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| 
-[Next](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
-\| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1) \| [Next](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)

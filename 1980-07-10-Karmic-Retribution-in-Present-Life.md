@@ -3,10 +3,7 @@ title: "Karma: Karmic Retribution in Present Life"
 ---
 ## July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1980) \| 
-[Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
-[Next](1980-07-11-Karma-As-Energy-Emptiness)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| [Next](1980-07-11-Karma-As-Energy-Emptiness) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi discusses karma in terms of Dogen’s teaching, including three m
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-attribution-in-present-life" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 First of all, I and all members of the sangha want to express appreciation to Doctor Huston Smith for his compassion in spending his valuable time with us, to guide us to Buddha’s Way. We really [benefit] from Doctor Smith, not only through his words, but behind the words. We deeply appreciate [your visit]. Thank you very much. 
 
@@ -199,7 +196,4 @@ That’s why Dogen Zenji also says it like this. Because all beings are benefiti
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1980) \| 
-[Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 
-[Next](1980-07-11-Karma-As-Energy-Emptiness)
-\| Series: [Karma](karma)
+#### [List](list#1980) \| [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| [Next](1980-07-11-Karma-As-Energy-Emptiness) \| Series: [Karma](karma)

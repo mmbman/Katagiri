@@ -3,10 +3,7 @@ title: "Diamond Sutra: Emptiness"
 ---
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
-[Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -18,8 +15,8 @@ What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes th
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-chapter-7-emptiness" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording 
+
+#### 0:00 
 
 Chapter Seven:
 
@@ -268,7 +265,4 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 
-[Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| Series: [*Diamond Sutra*](diamond-sutra)

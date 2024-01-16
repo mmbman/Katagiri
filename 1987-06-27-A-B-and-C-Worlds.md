@@ -3,10 +3,7 @@ title: "Genjokoan: A, B, and C Worlds"
 ---
 ## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1987) \| 
-[Previous](1987-06-20-Manas) \| 
-[Next](1988-10-05-Review-and-Renew)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-06-20-Manas) \| [Next](1988-10-05-Review-and-Renew) \| Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -18,8 +15,8 @@ title: "Genjokoan: A, B, and C Worlds"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 \[At the beginning of] [*Shobogenzo*](topics#shobogenzo) [*Genjokoan*](topics#genjokoan) [it says]:
 
@@ -143,7 +140,4 @@ But practically speaking, for instance, if you want to master dance or skiing or
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1987) \| 
-[Previous](1987-06-20-Manas) \| 
-[Next](1988-10-05-Review-and-Renew)
-\| Series: [*Genjokoan*](genjokoan)
+#### [List](list#1987) \| [Previous](1987-06-20-Manas) \| [Next](1988-10-05-Review-and-Renew) \| Series: [*Genjokoan*](genjokoan)

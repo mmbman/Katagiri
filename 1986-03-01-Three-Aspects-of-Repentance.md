@@ -3,10 +3,7 @@ title: "Lay Ordination Lecture 2 of 7: Three Aspects of Repentance"
 ---
 ## March 1, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1986) \| 
-[Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1986-03-08-Triple-Treasure-Lecture-1)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-02-22-Significance-of-Ordination) \| [Next](1986-03-08-Triple-Treasure-Lecture-1) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -18,8 +15,8 @@ Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *for
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/three-aspects-of-repentance" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-<a name="000"></a>
-#### 0:00 start of recording
+
+#### 0:00
 
 Last week, we studied the significance of lay ordination. Today, I would like to talk about *repentance*, because lay ordination begins with the ritual of repentance. Sometimes Buddhist repentance is translated as *formless repentance* *(transcriber’s note:* or *formless atonement)*. But anyway, let’s use the usual term *repentance*.
 
@@ -189,7 +186,4 @@ Sandalwood is a really good smell, a very good fragrance of tree. “Cut down”
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1986) \| 
-[Previous](1986-02-22-Significance-of-Ordination) \| 
-[Next](1986-03-08-Triple-Treasure-Lecture-1)
-\| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-02-22-Significance-of-Ordination) \| [Next](1986-03-08-Triple-Treasure-Lecture-1) \| Series: [Lay Ordination](lay-ordination)
