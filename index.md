@@ -34,6 +34,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 I (Kikan) will be co-leading this class at Clouds in Water Zen Center. The focus of the class will be [Katagiri Roshi’s commentary on *Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](https://katagiritranscripts.net/1981-07-18-Blue-Cliff-Record-Case-18).
 
+--- 
+
 ##### [When Conditions are Arranged: Katagiri Roshi's Lectures on Karma](https://www.oceanzen.org/buddhist-studies)
 ###### Every Wednesday, January 24 – March 13, 2023 (8 sessions)
 
