@@ -5,12 +5,9 @@ title: "Blue Cliff Record Case 44 Talk 2: Ho Shan’s Knowing How to Beat the Dr
 
 #### [List](list#1983) \| [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
-### Summary
-
-
 ### Transcript
 
-**This transcript is in rough draft stage.**
+#### **This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-44-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
