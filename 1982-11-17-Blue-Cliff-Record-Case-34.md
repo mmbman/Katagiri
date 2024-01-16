@@ -20,6 +20,8 @@ Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an
 
 #### 0:00
 
+**Katagiri Roshi**: 
+
 > Yang Shan asked a monk, “Where have you just come from?”  
 >
 > The monk said, “Mount Lu.”  

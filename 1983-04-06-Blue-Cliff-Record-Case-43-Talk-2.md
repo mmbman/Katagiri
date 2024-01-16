@@ -21,7 +21,7 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 #### 0:00
 
-Today I would like to explain the Five Ranks of Zen Buddhism. This is a kind of philosophical background for Soto Zen teaching.
+**Katagiri Roshi**: Today I would like to explain the Five Ranks of Zen Buddhism. This is a kind of philosophical background for Soto Zen teaching.
  
 The development of Chinese Buddhism might be divided into three periods. Perhaps the first period was between the first century and the fifth century, during which the Buddhist texts were translated. And the second period is maybe the sixth century to the [seventh] century, during which the teaching of Buddhism in China was established and systematized, after translating the texts. That is Chinese Buddhism: the T'ien-t'ai and Avatamsaka schools – school also means Buddhist psychology – and also the Nirvana school; several schools were established in those days. And the third period is from the seventh century to the thirteenth century: the Tang and Song dynasties.
 

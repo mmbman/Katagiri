@@ -16,7 +16,7 @@ title: "Genjokoan: Talk 1 (Egolessness)"
 
 #### 0:00
 
-At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan). You have the textbook; the title in English is “The Issue At Hand.” *(Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)*
+**Katagiri Roshi**: At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan). You have the textbook; the title in English is “The Issue At Hand.” *(Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)*
 
 There are two crucial points in practicing and studying [Buddhism](glossary#buddhism) in general. The first one is the practice of egolessness. I don’t know how I can say it; you don’t understand “the practice of egolessness”... or excuse me, [I should say,] probably you have questions how you should practice egolessness. But anyway, temporarily I’ll use [the term] *the practice of egolessness*. 
 

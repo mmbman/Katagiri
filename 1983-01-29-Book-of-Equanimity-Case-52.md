@@ -13,7 +13,7 @@ title: "Book of Equanimity: Case 52"
 
 #### 0:00
 
-In the *Book of Equanimity*, there is an interesting question and answer between Zen teacher and his student. Case 52: 
+**Katagiri Roshi**: In the *Book of Equanimity*, there is an interesting question and answer between Zen teacher and his student. Case 52: 
 
 > Sozan Zen Master – Caoshan in Chinese – asked Elder De, “‘The buddha’s true reality body is like space: it manifests form in response to beings, like the moon in the water.’ How do you explain the principle of response?”
 > 

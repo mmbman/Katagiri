@@ -16,7 +16,7 @@ title: "Genjokoan: Talk 2 (Consciousness)"
 
 #### 0:00
 
-\[...] [In the previous talk] I mentioned [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, [are] never separate from each other. You should understand deeply the merging of enlightenment and salvation. 
+**Katagiri Roshi**: \[...] [In the previous talk] I mentioned [enlightenment](glossary#enlightenment) and salvation. Enlightenment and salvation, or wisdom and compassion, [are] never separate from each other. You should understand deeply the merging of enlightenment and salvation. 
 
 I think enlightenment is seeing deeply into the human world, human beings. And next, salvation is to realize how to put enlightenment into practice – in other words, how to save yourself; how to get peace and harmony in every single form of your life. Not in a particular realm of human life; in every single form of human life. [In the] form of standing up, and the form of sitting, the form of talking, the form of washing, there is salvation. If you don’t realize this, no matter how long you study [Buddhism](glossary#buddhism), understanding [it] deeply, [still] Buddhism doesn’t make sense for you [as] a human being. 
 

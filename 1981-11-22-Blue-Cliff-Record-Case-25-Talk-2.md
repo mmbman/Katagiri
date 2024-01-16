@@ -18,7 +18,7 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 
 #### 0:00
 
-[The pointer to the case:]
+**Katagiri Roshi**: [The pointer to the case:]
 
 > If your potential does not leave (its fixed) position, you tumble down into the poison sea. If your words don’t startle the crowd, you fall into the streams of the commonplace.
 > 

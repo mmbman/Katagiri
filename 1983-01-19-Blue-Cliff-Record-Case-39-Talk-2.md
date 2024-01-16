@@ -19,7 +19,7 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 
 *(Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from the* Blue Cliff Record*. When we join this talk, Katagiri Roshi is discussing the Verse, which refers to the Case.*
 
-The Case: 
+**Katagiri Roshi**: The Case: 
 
 > A monk asked Yun Men, “What is the Pure Body of Reality?”
 >

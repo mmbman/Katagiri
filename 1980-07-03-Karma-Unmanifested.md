@@ -18,7 +18,7 @@ Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *
 
 #### 0:00
 
-This morning I would like to talk about the [karma](glossary#karma) which is one’s individual karma and simultaneously is not individual, is completely beyond our individual control. This is also [an aspect of] karma. 
+**Katagiri Roshi**: This morning I would like to talk about the [karma](glossary#karma) which is one’s individual karma and simultaneously is not individual, is completely beyond our individual control. This is also [an aspect of] karma. 
 
 Within karma we can realize a very contradictory situation. Karma is always within individual life: there is no other way that we [can] take responsibility for our actions or our individual life. On the other hand, karma is completely beyond individual control. Regardless of whether you like or dislike it, regardless of whether you control it or not, regardless of whether it is something created by somebody else, or whatever it is, anyway, it is completely beyond your control. But as long as it is within you, it is something we have to take responsibility for. So that is very contradictory! 
 

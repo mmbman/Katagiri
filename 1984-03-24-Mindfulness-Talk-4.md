@@ -17,7 +17,7 @@ title: "Mindfulness – Talk 4"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-33204502" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-... First let me read the next paragraph:
+**Katagiri Roshi**: ... First let me read the next paragraph:
 
 > Studying in such a manner, in the time of demons-becoming-buddhas we subdue demons and make buddha with demons. In the time of buddhas-becoming-buddhas we are mindful of buddhas and make buddhas with buddhas. In the time of people-becoming-buddhas, we bring harmony to people and make buddhas with people. We should study the truth that there is the approach to buddhas where we are taking advantage of.
 

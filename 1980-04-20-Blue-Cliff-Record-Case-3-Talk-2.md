@@ -18,7 +18,7 @@ Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Fac
 
 #### 0:00
 
-\[We will go through\] [Engo Zenji’s](glossary#engo-kokugon) notes [on this case].
+**Katagiri Roshi**: \[We will go through\] [Engo Zenji’s](glossary#engo-kokugon) notes [on this case].
 
 > Great Master Ma was unwell.
 

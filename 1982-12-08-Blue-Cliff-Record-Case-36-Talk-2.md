@@ -17,7 +17,7 @@ Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,�
 
 #### 0:00
 
-Tonight we will study Setchō Zenji’s verse on Case 36. Let me first read the case that we studied last week:
+**Katagiri Roshi**: Tonight we will study Setchō Zenji’s verse on Case 36. Let me first read the case that we studied last week:
 
 > One day Ch’ang Sha went wandering in the mountains. Upon returning, when he got to the gate, the head monk asked, “Where are you coming from, Master?”  
 > 

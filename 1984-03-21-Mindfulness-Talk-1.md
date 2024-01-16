@@ -19,7 +19,7 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the fi
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321a.mp3" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-There are four kinds of mindfulness as one of the traditional Buddhist practices. The four kinds of mindfulness are:
+**Katagiri Roshi**: There are four kinds of mindfulness as one of the traditional Buddhist practices. The four kinds of mindfulness are:
 
 - Contemplation of the body as impure.
 - Contemplation of feeling as suffering.

@@ -20,7 +20,7 @@ Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and 
 
 #### 0:00
 
-We will study Engo Zen Master’s notes [on the case].
+**Katagiri Roshi**: We will study Engo Zen Master’s notes [on the case].
 
 Even if you read the notes of the *Blue Cliff Record*, probably you don’t understand. It’s very complicated, because sometimes [the effect] *[unintelligible]*. [It depends on] the situation. Sometimes *[unintelligible]* is good, sometimes *[unintelligible]* is evil, so completely you don’t understand. But there is a very important point if you read the notes: the most important point you have to take into account is that Engo Zenji always is focusing on *process itself*. 
 

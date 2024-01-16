@@ -27,7 +27,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 #### 0:00
 
-... transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything moves and changes. That is the law of causation: cause and effect. 
+**Katagiri Roshi**: ... transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything moves and changes. That is the law of causation: cause and effect. 
 
 So you have to understand cause and effect. Simply speaking, cause and effect is... well, through cause and effect we have to understand human karmic life: *personal* karmic life and also *common*, *non-personal* karmic life – common retribution [and] personal retribution through the law of causation. Personal retribution is if you do something good, you can get something good as a result. But common retribution [is that] if you do something, your behavior really affects others, affects society. So through the teaching of the cause and effect we have to understand personal karmic life and also common, not-personal karmic life, [which is] influencing everybody, and also society, and nations, and birds and trees. That is a very important teaching.
 

@@ -18,7 +18,7 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 
 #### 0:00
 
-[Soon] my lectures on *Diamond Sutra* will be over. There are two more lectures: today and maybe next week. 
+**Katagiri Roshi**: [Soon] my lectures on *Diamond Sutra* will be over. There are two more lectures: today and maybe next week. 
 
 Chapter 32 is:
 

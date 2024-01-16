@@ -19,6 +19,8 @@ title: "Platform Sutra – Talk 1"
 
 #### 0:00
 
+**Katagiri Roshi**: 
+
 > Once a customer bought firewood and ordered it delivered to his shop. When the delivery had been made, and Hui Neng had received the money, he went outside the gate, where he noticed a customer reciting a Sutra. Upon once hearing the words of this Sutra: “One should produce that thought which is nowhere supported.” Hui Neng’s mind immediately opened to enlightenment.)
 >
 > (From https://www.thezensite.com/ZenTeachings/Translations/PlatformSutra_DharmaJewel.pdf)

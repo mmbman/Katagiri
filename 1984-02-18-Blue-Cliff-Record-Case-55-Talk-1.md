@@ -20,7 +20,7 @@ title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call – Talk 1"
 
 #### 0:00
 
-Case 55: 
+**Katagiri Roshi**: Case 55: 
 
 > Tao Wu and Chien Yuan went to a house to make a condolence call. Yuan hit the coffin and said, “Alive or dead?” Wu said, “I won’t say alive, and I won’t say dead.” Yuan said, “Why won’t you say?” Wu said, “I won’t say.” Halfway back, as they were returning, Yuan said, “Tell me right away, Teacher; if you don’t tell me, I’ll hit you.” Wu said, “You may hit me, but I won’t say,” Yuan then hit him.
 >

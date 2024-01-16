@@ -17,7 +17,7 @@ Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure
 
 #### 0:00
 
-The thirty-fifth case of the *Blue Cliff Record*: “The Dialogue of Manjusri and Wu Cho”. 
+**Katagiri Roshi**: The thirty-fifth case of the *Blue Cliff Record*: “The Dialogue of Manjusri and Wu Cho”. 
 
 The Pointer:
 

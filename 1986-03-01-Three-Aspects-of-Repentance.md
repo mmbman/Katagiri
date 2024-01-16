@@ -18,7 +18,7 @@ Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *for
 
 #### 0:00
 
-Last week, we studied the significance of lay ordination. Today, I would like to talk about *repentance*, because lay ordination begins with the ritual of repentance. Sometimes Buddhist repentance is translated as *formless repentance* *(transcriber’s note:* or *formless atonement)*. But anyway, let’s use the usual term *repentance*.
+**Katagiri Roshi**: Last week, we studied the significance of lay ordination. Today, I would like to talk about *repentance*, because lay ordination begins with the ritual of repentance. Sometimes Buddhist repentance is translated as *formless repentance* *(transcriber’s note:* or *formless atonement)*. But anyway, let’s use the usual term *repentance*.
 
 In Buddhism, repentance is not to apologize to someone for one’s errors or one’s mistakes; repentance is not a ritual of trying to get forgiveness from someone by making an apology for what one has done. Because if you understand repentance in this way, very naturally you fall into the trap of dualism. You cannot get real peace from dualism; real peace is beyond dualism. So if you understand repentance or make repentance in the dualistic sense, you are always seeing some confusion. So you cannot get out from human confusions [that way].
 

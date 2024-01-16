@@ -20,7 +20,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 
 #### 0:00
 
-Good morning. Today, I would like to talk about Buddhist faith, particularly in Zen Buddhism. 
+**Katagiri Roshi**: Good morning. Today, I would like to talk about Buddhist faith, particularly in Zen Buddhism. 
 
 It’s pretty difficult to understand Buddhist faith in the usual sense, because if you study Buddhism, generally, the central philosophy of Buddhism is emptiness. From beginning to end, Buddhist teaching clearly emphasizes the teaching of emptiness as the ultimate nature of existence. 
 

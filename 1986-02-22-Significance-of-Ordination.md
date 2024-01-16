@@ -18,7 +18,7 @@ Katagiri Roshi introduces a series of lectures on *Jukai*, lay ordination. In th
 
 #### 0:00
 
-We will have lay ordination at the end of March. So I would like to talk about the significance of lay ordination for a couple of weeks, every Saturday. Today I would like to talk about just the significance of lay ordination. Then after that, from next Saturday, I will explain the contents of the ceremony, one by one. 
+**Katagiri Roshi**: We will have lay ordination at the end of March. So I would like to talk about the significance of lay ordination for a couple of weeks, every Saturday. Today I would like to talk about just the significance of lay ordination. Then after that, from next Saturday, I will explain the contents of the ceremony, one by one. 
 
 Let me say simply the significance of lay ordination in Buddhism first. The achievement or the goal of lay ordination is signified by three points:
 

@@ -19,7 +19,7 @@ Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’
 
 #### 0:00
 
-Case 42: “Layman P’ang’s Good Snowflakes”. The pointer:
+**Katagiri Roshi**: Case 42: “Layman P’ang’s Good Snowflakes”. The pointer:
 
 > Bringing it out unique and alone (is still) dripping with water, dragging through mud. When knocking and resounding occur together (it’s still like) a silver mountain, an iron wall.
 >

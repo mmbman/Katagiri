@@ -16,8 +16,7 @@ title: "Blue Cliff Record Case 20: Lung Ya’s Meaning of the Coming from the We
 
 #### 0:00
 
-
-Case [Twenty] of *Blue Cliff Record*
+**Katagiri Roshi**: Case [Twenty] of *Blue Cliff Record*
 
 
 

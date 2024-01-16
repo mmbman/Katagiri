@@ -20,7 +20,7 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 
 (*Transcriber’s Note*: The recording of this talk is nearly inaudible. Transcription errors are likely.)
 
-Case 18 of *Blue Cliff Record*:
+**Katagiri Roshi**: Case 18 of *Blue Cliff Record*:
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 > 

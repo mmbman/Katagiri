@@ -21,7 +21,7 @@ Katagiri Roshi completely explains the Twelve-Linked Chain of Causation... presu
 
 #### start of audio
 
-… [naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? Just [with] words. Without words, we cannot get agreement. Don’t you think so?
+**Katagiri Roshi**: … [naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? Just [with] words. Without words, we cannot get agreement. Don’t you think so?
 
 So what is agreement? “Oh yes, it is the form of a circle” – this is nothing but the agreement consisting of the words. [Or,] “Katagiri, you’re bad boy.” “Yes.” How can you agree? This agreement is just words. 
 

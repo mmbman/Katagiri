@@ -18,7 +18,7 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 
 #### 0:00
 
-[At the end, there is a] famous verse in the *Diamond Sutra*. It says:
+**Katagiri Roshi**: [At the end, there is a] famous verse in the *Diamond Sutra*. It says:
 
 > As stars, a fault of vision, a lamp,  
 > A mock show, dew drops, or a bubble,  

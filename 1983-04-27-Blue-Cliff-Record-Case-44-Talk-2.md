@@ -18,7 +18,7 @@ title: "Blue Cliff Record Case 44 Talk 2: Ho Shan’s Knowing How to Beat the Dr
 
 #### 0:00
 
-The forty-fourth case. 
+**Katagiri Roshi**: The forty-fourth case. 
 
 *[A student reads:]*
 

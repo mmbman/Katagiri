@@ -17,7 +17,7 @@ title: "The Awakening of Faith: Two Kinds of Nowness"
 
 #### 0:00
 
-[...] Today we will start to study page 36 in this textbook (*The Awakening of Faith*, attributed to Aśvaghoṣa – the version translated by Yoshito Hakeda in 1967), [the chapter] “The Mind in Terms of Phenomena.” Before we go farther, I would like to say a few points which we have learned in study [previously]; we have to say something for the new people here.
+**Katagiri Roshi**: [...] Today we will start to study page 36 in this textbook (*The Awakening of Faith*, attributed to Aśvaghoṣa – the version translated by Yoshito Hakeda in 1967), [the chapter] “The Mind in Terms of Phenomena.” Before we go farther, I would like to say a few points which we have learned in study [previously]; we have to say something for the new people here.
 
 So far we have learned about the truth. In this textbook, when truth is seen in terms of all sentient beings, in other words human beings, truth can be found in everything – human life, and human life [is] in the table, in the mountains, in the skies, in the grasses, in the pebbles – in everything. That’s why the truth is called *the mind of all sentient beings* – in Japanese, *shujo shin*. Because the truth is found in everything. 
 

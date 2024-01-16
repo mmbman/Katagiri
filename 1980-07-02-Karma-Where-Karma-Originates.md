@@ -18,7 +18,7 @@ Katagiri Roshi explains how *karma* is the source of our lives. He reviews the T
 
 #### 0:00 
 
-I talked in the early morning [zazen](glossary#zazen), I said, “to deport oneself in [samādhi](glossary#samadhi).” I have to correct this term: to *disport*, not deport. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
+**Katagiri Roshi**: I talked in the early morning [zazen](glossary#zazen), I said, “to deport oneself in [samādhi](glossary#samadhi).” I have to correct this term: to *disport*, not deport. (*Disport* is defined as “to enjoy oneself unrestrainedly; to frolic.”) That’s why maybe I said after that, “playing freely.” That is to disport.
 
 Today, I would like to explain what part of one’s life does [karma](glossary#karma) occupy. This is pretty difficult to explain, but let’s return to the Twelve-Linked Chain of Causation. Let me [review this] again. Please remember: 
 

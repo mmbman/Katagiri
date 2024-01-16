@@ -18,7 +18,7 @@ What happens when we unexpectedly come face-to-face with real life, such as bein
 
 #### 0:00
 
-The twenty-fifth case of the Blue Cliff Record:
+**Katagiri Roshi**: The twenty-fifth case of the Blue Cliff Record:
 
 > The hermit of Lotus Flower Peak held up his staff and showed it to the assembly saying, “When the ancients got here, why didn’t they consent to stay here?”
 > 

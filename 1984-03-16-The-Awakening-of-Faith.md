@@ -16,7 +16,7 @@ title: "The Awakening of Faith"
 
 #### 0:00
 
-I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand, mainly I want to concentrate on the teaching of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also the teaching of the function of human psychology.
+**Katagiri Roshi**: I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand, mainly I want to concentrate on the teaching of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also the teaching of the function of human psychology.
 
 Mainly in Buddhist history, two lines of teaching. One is the teaching of emptiness mentioned by Nagarjuna. After that in Buddhist history, the Buddhist teaching based on Buddhist psychology. Buddhist psychology has been developed, that is Abhidharmakosha, and the mere consciousness. But this book is kind of overall picture of the teaching, including the teaching of emptiness, and also Buddha’s teaching in Buddhist psychology. So very interesting book. So very systematical. The title is *The Awakening of Faith*. But originally, I think I would like to say “The Treatise on Awakening Mahayana Faith”. 
 

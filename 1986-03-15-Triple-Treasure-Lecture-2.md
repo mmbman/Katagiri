@@ -18,7 +18,7 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 #### 0:00
 
-I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – buddha, dharma, and sangha – the Three Collective Pure Precepts, and Ten Prohibitory Precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
+**Katagiri Roshi**: I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – buddha, dharma, and sangha – the Three Collective Pure Precepts, and Ten Prohibitory Precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
 
 The ritual of lay ordination is based on the idea of repentance, which means perfect openness of your heart. Repentance is not to apologize to somebody or something. You should open yourself, completely. If you do it, then consciously or unconsciously you are ready to listen to the voiceless voice of the universe. This is our practice, okay? So that’s why repentance is called *formless repentance*. 
 

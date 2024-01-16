@@ -16,7 +16,7 @@ title: "Genjokoan: Talk 3 (Flow)"
 
 #### 0:00
 
-Yesterday I mentioned that the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who we are; such as tasting, realizing *manas*, psychologically speaking. At that time, the realization of manas guides you to touch karmic life, coming from past life. That is [*alayavijñāna*](glossary#alayavijñāna). 
+**Katagiri Roshi**: Yesterday I mentioned that the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who we are; such as tasting, realizing *manas*, psychologically speaking. At that time, the realization of manas guides you to touch karmic life, coming from past life. That is [*alayavijñāna*](glossary#alayavijñāna). 
 
 And then, I think it is not good enough for us to deeply or directly feel or to taste who you are by meditation. You have to reach alayavijñāna, so-called karmic consciousness, karmic life, but at that time there is still a problem: that we are stuck in the concept of karmic life. 
 

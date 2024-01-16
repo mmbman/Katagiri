@@ -17,7 +17,7 @@ title: "Blue Cliff Record Case 44 Talk 1: Ho Shan’s Knowing How to Beat the Dr
 
 #### 0:00
 
-Case 44: “Ho Shan’s Knowing How to Beat the Drum”
+**Katagiri Roshi**: Case 44: “Ho Shan’s Knowing How to Beat the Drum”
 
 The case:
 

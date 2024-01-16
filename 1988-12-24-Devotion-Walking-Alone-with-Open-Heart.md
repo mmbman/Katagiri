@@ -18,7 +18,7 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
 
 #### 0:00
 
-Good morning. It seems like we haven’t had a talk on a Saturday for a long time. For me, it seems to be for many years. *[He laughs.]* Anyway, I am very glad to have this opportunity today. 
+**Katagiri Roshi**: Good morning. It seems like we haven’t had a talk on a Saturday for a long time. For me, it seems to be for many years. *[He laughs.]* Anyway, I am very glad to have this opportunity today. 
 
 The other day one of the students asked me about devotion. He said we are often “duped” by devotion. I don’t know why, but he said so. I thought it was because he was too involved in his individual personality or individual world; his understanding was not over a wide range. Not only him, but for anyone, if your understanding is very narrow, you are duped by whatever it is: dharma, Buddhism, Christianity, or even the self – you are duped even by the idea of the self. So today I would like to talk about *devotion*.
 

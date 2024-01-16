@@ -19,7 +19,7 @@ title: "Review and Renew: Buddhism for the Twenty-First Century"
 
 #### 0:00
 
-Good morning. The topic I am speaking of today is “Review and Renew: Buddhism for the Twenty-First Century.” This is a really big subject. For me, it is too big a title, but as best as I can I will try to talk about it. 
+**Katagiri Roshi**: Good morning. The topic I am speaking of today is “Review and Renew: Buddhism for the Twenty-First Century.” This is a really big subject. For me, it is too big a title, but as best as I can I will try to talk about it. 
 
 I don’t want to get deeply into Buddhist history in order to review Buddhism. And also, as to *renewing* Buddhism, I think there is nothing to renew [in] Buddhism itself, but [we should] renew ourselves, human beings, for the 21st century. Because Buddhism is mainly very conservative, in order to maintain the essence of Buddha’s teaching century after century. If you forget the essence of the Buddha’s teaching, I think Buddhism doesn’t work. For a long time, in every country where Buddhism went, Buddhas and ancestors tried to transmit that essence of Buddha’s teaching; that’s why Buddhism flourished in every country it went to. To China, to Tibet, to Japan; Buddhism grows and helps the individual culture and individual people’s lives. So from this point, I think there is nothing to renew in Buddhism itself, but [we should] renew the human beings who take care of Buddhism. That is the most important point for us. 
 

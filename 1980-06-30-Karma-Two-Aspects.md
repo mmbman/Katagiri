@@ -17,7 +17,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 
 #### 0:00
 
-During this seminar I would like to study and learn about *karma* with you. I’m very happy to do that.
+**Katagiri Roshi**: During this seminar I would like to study and learn about *karma* with you. I’m very happy to do that.
 
 Not only human beings, but also trees and birds, animals [and plants], are born in this world and continually move, act, and die. All sentient beings always move, act, and finally we die. Why should it be that only human beings have to think about karma? If all sentient beings who are born in this world continually move, act, and then finally die, then that is our business; it is all we have to do in this whole world, in this whole life. If that is true, then why don’t we just be born in this world, act, move, and die? That’s enough. Why is it that human beings have to think about karma?
 

@@ -22,7 +22,7 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 
 #### 0:00
 
-Last time, I explained the Triple Treasure as one of the sixteen precepts. Today, I would like to talk about the Three Collective Pure Precepts. 
+**Katagiri Roshi**: Last time, I explained the Triple Treasure as one of the sixteen precepts. Today, I would like to talk about the Three Collective Pure Precepts. 
 
 I think the Triple Treasure is considered as the faith in Zen Buddhism. The Three Collective Pure Precepts are [the] indication of vow. So if you get into Buddha’s Way, it requires us to have faith, trusting totally in the existence of great depths, so-called *suchness* or *the truth*. We say *Buddha Nature*. And then, that’s why in the *Gakudō-yōjinshū* (“Advice on Studying the Way”) Dogen Zenji [says that] if you want to practice the Buddha Way, you should believe in the way which you are present right in the midst of suchness, with no confusion, no deluded thought, no misunderstanding, et cetera. So we have to trust absolutely in, through and through, this, the truth, or suchness. This is a gate of getting into [the] Buddha’s Way. And also, this is the beginning of getting into Buddha’s Way, and simultaneously it is whole situation of being one with the Buddha’s Way. So it is the end, and simultaneously it is the beginning. 
 

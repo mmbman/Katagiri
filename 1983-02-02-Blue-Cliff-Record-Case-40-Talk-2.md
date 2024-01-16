@@ -19,7 +19,7 @@ Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjo
 
 #### 0:00
 
-[I will discuss] the Verse of the fortieth case. I think you remember the case, but let me read it again:
+**Katagiri Roshi**: [I will discuss] the Verse of the fortieth case. I think you remember the case, but let me read it again:
 
 > As the officer Lu Hsuan was talking with Nan Ch’uan, he said, “Master of the Teachings Chao said, ‘Heaven, earth, and I have the same root; myriad things and I are one body.’ This is quite marvelous.”
 > 

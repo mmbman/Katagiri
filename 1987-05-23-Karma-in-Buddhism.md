@@ -20,7 +20,7 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-in-buddhism-part-1" target="_blank">*Listen to part 1 on mnzencenter.org*</a>
 </p>
 
-Are you familiar with the term *karma*? I think karma is a big subject; you have to consider it in your whole life. It’s a very important subject in order to find the solution of our problem of life and death: [the problem] related with whether the other world exists or not, [and] related with the present situation of human life, how we should live. So *karma* in Buddhism requires of us the very careful, serious research of human life for the long run. 
+**Katagiri Roshi**: Are you familiar with the term *karma*? I think karma is a big subject; you have to consider it in your whole life. It’s a very important subject in order to find the solution of our problem of life and death: [the problem] related with whether the other world exists or not, [and] related with the present situation of human life, how we should live. So *karma* in Buddhism requires of us the very careful, serious research of human life for the long run. 
 
 [Karma is] very complicated. We don’t understand *exactly* what it means. But Buddhist teaching gives us a certain hint, in order to know the overall picture of our life, related with the past, present, and future. So I don’t think it’s necessary to get a definite answer what karma means, but I think you should get a certain feeling – a *practical* feeling, through your body and mind, through your everyday life.
 

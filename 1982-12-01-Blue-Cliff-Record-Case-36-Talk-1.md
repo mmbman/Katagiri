@@ -17,7 +17,7 @@ Wandering in the mountains, life flowing freely: how very like the sense of spri
 
 #### 0:00
 
-Case 36:
+**Katagiri Roshi**: Case 36:
 
 > One day Ch’ang Sha went wandering in the mountains. Upon returning, when he got to the gate, the head monk asked, “Where are you coming from, Master?”  
 > 

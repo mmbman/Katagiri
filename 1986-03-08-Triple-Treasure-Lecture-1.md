@@ -18,7 +18,7 @@ Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the f
 
 #### 0:00
 
-[Today I would like to] talk about the Triple Treasure. What is the significance of the Triple Treasure: taking refuge in Buddha, dharma, sangha?
+**Katagiri Roshi**: [Today I would like to] talk about the Triple Treasure. What is the significance of the Triple Treasure: taking refuge in Buddha, dharma, sangha?
 
 I think the Triple Treasure in Zen Buddhism is the foundation of the Precepts. The Precepts in Zen Buddhism are not a kind of moral code which we believe forces us to not do something, not by our initiative will but by something else. In Zen, the Precepts are Buddha Nature, the spirit of the universe; this is the Precepts themselves. To receive the Precepts is to realize or to awaken [to] the universe, Buddha Nature.
 
