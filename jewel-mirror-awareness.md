@@ -41,7 +41,7 @@ So here we have a song which is also a very important sutra. You should recite i
 
 The *Song of Jewel Mirror Awareness* is a very simple sutra, consisting of 376 Chinese characters arranged into 94 phrases. It was written by the Zen Master Tozan, who lived from 807 to 865, and who is greatly respected as the founder of the Sōtō tradition of Zen Buddhism. He also systematized the philosophical background of Soto Zen teaching into the so-called “Five Ranks.”
 
-<p align="center">* * *</p>
+#### * * *
 
 Tozan practiced under the guidance of Ungan. One day he was to leave his teacher and set out on a pilgrimage to other Zen temples. Before he left, Tozan asked Ungan:
 
@@ -92,7 +92,7 @@ It is something alive.
 
 It is life itself, real life.
 
-<p align="center">* * *</p>
+#### * * *
 
 You don’t think consciously about your breath or the beating of our heart when you go to sleep. If you did, you would become very nervous; maybe even schizophrenic. Even though you sleep, your heart keeps on beating. But there is no guarantee that your heart will keep on beating. Because a beating heart is something that belongs to this limited world. There is uncertainty with each heartbeat, a kind of crisis. Because you don’t know whether or not your heart is going to stop. So your heart exists within the limits of its own life, and also in a state of crisis.
 
@@ -126,7 +126,7 @@ No one. Even if you tried, it would be impossible. So all I have to do is to jus
 
 Together with the whole world.
 
-<p align="center">* * *</p>
+#### * * *
 
 When a dying Buddhist comes to a Zen master and asks for some words of sympathy and relief, the Zen master will say, “please, go ahead, quietly.”
 
@@ -160,7 +160,7 @@ Wisdom lets you look with depth and penetration into the the core of human exist
 
 The practice of wisdom is the practice of samadhi. One-pointedness. And the simplest practice of samadhi is Zazen.
 
-<p align="center">* * *</p>
+#### * * *
 
 Buddhism, and particularly the *Prajna Paramita Sutra*, places great stress on the Wisdom of Emptiness. Wisdom of Emptiness is the realization that the human world has no substantiality of its own.
 
@@ -168,7 +168,7 @@ No substantiality of its own means that there is no single thing to pin down, to
 
 But you can be there. Just be; that is the Wisdom of Emptiness, emphasized so much in the *Prajna Paramita*.
 
-<p align="center">* * *</p>
+#### * * *
 
 There are three aspects to the Wisdom of Emptiness: Emptiness of the Conditioned, the Emptiness of the Unconditioned, and Ultimate Emptiness.
 
@@ -207,7 +207,7 @@ Ideas and thoughts are important, but they should come from this emptiness of li
 
 So that pensiveness or sadness we get from much of Japanese literature is normal. But don’t think that you can realize the impermanence of life by reading novels. Impermanence is something more serious than that. It is something you must taste directly, in your own life.
 
-<p align="center">* * *</p>
+#### * * *
 
 So that is the Emptiness of the Conditioned. The second aspect of the Wisdom of Emptiness is the Emptiness of the Unconditioned.
 
@@ -247,7 +247,7 @@ Let it be.
 
 If you touch it, it is no longer the Unconditioned. It’s something you have created. You have made the Unconditioned into the Conditioned. If you experience the Unconditioned, that’s fine. But let it be.
 
-<p align="center">* * *</p>
+#### * * *
 
 So that is the second aspect, the Wisdom of the Unconditioned. The third is the Ultimate Emptiness.
 
@@ -297,7 +297,7 @@ So I just said, “Why were you born an American?”
 
 Speaking is really very interesting. It is one of the ways I hope to avoid ignorance, by poking away into every nook and cranny, just like a cat.
 
-<p align="center">* * *</p>
+#### * * *
 
 So Ultimate Emptiness is exactly what you can do, in the simplest way, from moment to moment. At that time you can experience it. Beyond your idea of experience, it is the true experience.
 
@@ -526,14 +526,14 @@ Translation from *Timeless Spring* by Thomas Cleary.
 
 ### Part 1
 
-#### Text:
+##### Text:
 
 > The teaching of thusness  
 > has been intimately communicated by buddhas and patriarchs;  
 > Now you have it,  
 > so keep it well.  
 
-#### Commentary: 
+##### Commentary: 
 
 In Japanese we use the word *nyoze* for “thusness.” The word is made up of two syllables, *nyo* and *ze*. *Nyo* means thus, or like, or likeness; *ze* means this, or something affirmative or assenting. *Nyo* can be taken to stand for the ultimate principle, and *ze* for the phenomenal world: thusness and thisness. Taken together they mean principle and practice. In English we say “thusness” or “suchness,” but you should think of it as principle and practice, ultimate principle and phenomena.
 
@@ -575,7 +575,7 @@ So you need thusness and thisness, principle and practice, truth and the phenome
 
 This is dharma.
 
-<p align="center">* * *</p>
+#### * * *
 
 Dharma is the object of belief for Buddhists. It is not an object of analysis, or philosophical or psychological discussion; it is something to realize through your life. A person who makes the dharma real, manifests the dharma through their life, is called a buddha.
 
@@ -583,7 +583,7 @@ A patriarch is a descendant, one who has received the teachings of a buddha. So 
 
 If you are not a buddha, you cannot teach. If you receive the teaching of a buddha, then you are a patriarch. If you become able to transmit Buddha’s teaching to the next generation, then you become buddha. Such buddha-patriarchs are bestowed with the perfect harmony of truth and phenomenal world. Principle and practice. They understand the world very deeply, with more than just a scientific understanding. And they practice this understanding through their lives, so that principle and practice becomes one.
 
-<p align="center">* * *</p>
+#### * * *
 
 And then they intimately communicate.
 
@@ -641,7 +641,7 @@ I am told that in Japan, when thread is dyed in the traditional manner, the whit
 
 Same is true of buddha nature. It is like the color of the thread, or the gold of the golden Buddha statue. But you must mold it, or weave it into cloth before it is manifest. So you practice again and again, until you become exactly the same as your teacher, exactly the same as a buddha.
 
-<p align="center">* * *</p>
+#### * * *
 
 I went to Japan to visit Narasaki Roshi, who is the abbot of a monastery called Zuioji. His brother is also at that monastery. Both of them had practiced for many years under the famous Zen master Hashimoto Roshi, whom I knew very well.
 
@@ -649,7 +649,7 @@ After I had stayed at Zuioji for a little while I was surprised to notice that t
 
 But he is not Hashimoto Roshi, he is Narasaki Roshi. He is himself, but his way has become that of his teacher. Now his life is really blooming. And everybody respects him, because he has attained Hashimoto Roshi’s way. They are not respecting Hashimoto Roshi, they are respecting Narasaki Roshi.
 
-<p align="center">* * *</p>
+#### * * *
 
 If you want to learn the tea ceremony you have to practice again and again exactly as the teacher tells you; your behavior, your attitude, your understanding must be exactly the same as that of you teacher. Finally, the teacher knows the time or opportunity when he or she has to transmit the real teaching of the ceremony. At that time, the teacher transmits the secret key point of how to deal with the tea ceremony.
 
@@ -699,16 +699,16 @@ To achieve continuity of the Buddha’s wisdom means to achieve continuity of ke
 
 In any event, regardless of whether you know it or not, you have already been taught by Buddha. This is why we say you are buddha. You know, even if just intellectually, that you are buddha. This is why Tozan tells you that you have it at this very moment, and urges you to keep it well.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Filling a silver bowl with snow,  
 > hiding a heron in moonlight –  
 > When you array them, they’re not the same;  
 > when you mix them, you know where they are.  
 
-#### Commentary: 
+##### Commentary: 
 
 How can you keep it well?
 
@@ -753,14 +753,14 @@ You are you, Buddha bowl is Buddha bowl, silver is silver. There is a difference
 
 If we lose sight of this then very naturally we feel that practice means losing our own particular life-style and personality. It’s not like that at all. Buddhist training is not like Army training, or brainwashing. The heron still has its own figure.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text: 
+##### Text: 
 
 > The meaning is not in the words,  
 > yet it responds to the inquiring impulse.  
 
-#### Commentary: 
+##### Commentary: 
 
 “Meaning” here refers to the real dharma, something behind the song; the real meaning. So the dharma which has been transmitted is more than words. Yet it responds to the inquiring impulse – if you look for it you can find it. There is an interacting communication, a communion, between the snow and the silver bowl, the snowy heron and the snowy world. And that communion is completely beyond words and language.
 
@@ -802,14 +802,14 @@ Which is why Rinzai pushed the monk away and left.
 
 This is the great teaching given by Rinzai, a teaching completely beyond words. You can read it in the *Record of Lin Chi*, Number Three.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > If you’re excited, it becomes a pitfall;  
 > if you miss it you fall into retrospective hesitation.  
 
-#### Commentary: 
+##### Commentary: 
 
 If you say “I attained enlightenment,” then immediately you fall into the pitfall. Or if you say “I am a good boy, “ you fall into the pitfall. Because when you say “I” understand “it” you have fallen into the pitfall of dualism, and you lack understanding of the self. You ignore the unity of subject and object. And then, excited or not excited, you are in the pitfall.
 
@@ -821,14 +821,14 @@ But if you understand the most important point, and you treat it as something ou
 
 So if you truly realize this most important point, the perfect harmony of your life interconnected, interpenetrated with the lives of all sentient beings, then you can make it alive. Beyond words, beyond excitement or non-excitement, despair or negation or self-affirmation. You can make your life truly alive. And that is how you keep it well. Nothing but the achievement of continuity of just quiet practice. It is quiet, but it is active; very active.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text: 
+##### Text: 
 
 > Turning away and touching are both wrong,  
 > for it is like a mass of fire.  
 
-#### Commentary: 
+##### Commentary: 
 
 “It” is the teaching of thusness, the dharma of *nyoze* mentioned in the first line of the song: truth and phenomena and teaching, the perfect harmony of principle and practice. If you want to teach human life you have to teach the perfect harmony of truth and phenomena, theory and practice, equality and distinction. If you teach them separately it won’t work; you have to digest through and through theory and practice, equality and distinction. Then you can teach.
 
@@ -856,12 +856,12 @@ We use the technical term *dharma* to describe this energy, this perfect harmony
 
 ### Part 2
 
-#### Text:
+##### Text:
 
 > Just to depict it in literary form  
 > is to relegate it to defilement.  
 
-#### Commentary: 
+##### Commentary: 
 
 Let me explain this stanza very simply: If you describe the perfect harmony of theory and practice, distinction and equality, that description will be false. It will miss the bullseye. The bullseye is perfect harmony itself. You can come close in a description, but you will never hit the bullseye.
 
@@ -969,7 +969,7 @@ You cannot understand it rationally. It is completely unthinkable.
 
 But we must think of “bread is butter” because that is the way we use bread and butter. It is unthinkable but we use it that way, so we have to think it.
 
-<p align="center"> * * * </p>
+#### * * *
 
 Someone says, “Katagiri is a good fellow.” Now you don’t know Katagiri, so you say, “What do you mean?” If you don’t know me, then it’s unthinkable.
 
@@ -1074,7 +1074,7 @@ And then vegetable will come to you. But you cannot make it happen. Vegetable ha
 
 That is the interacting communion between you and the vegetable; between all things.
 
-<p align="center"> * * * </p>
+#### * * *
 
 The first rank is the relative within the absolute. Everything you see is not merely relative; it is something more. It has a very deep meaning. Even something as insignificant as toilet paper has a life full of deep meaning. So you should not use it carelessly. Because of the relative within the absolute; the toilet paper comes from something else. Your intellectual sense won’t let you think of it in that way, but that is the way it really is.
 
@@ -1092,13 +1092,13 @@ But I say, forget yourself; put yourself in the place of the toilet paper. You m
 
 And if you practice egolessness then very naturally the toilet paper moves toward you and helps your life. You move toward that deep life of the toilet paper and the toilet paper comes up to you and helps. That is the relative within the absolute.
 
-<p align="center"> * * * </p>
+#### * * *
 
 The second rank is the absolute within the relative. This means that you cannot deal with the absolute alone, separate from the relative. If you want to explain the absolute you must do so in terms of the relative, in terms of the human world.
 
 Now each thing in the relative has its own freedom. It can drop off its self-concept by itself. It can show very deep meaning.
 
-<p align="center"> * * * </p>
+#### * * *
 
 Then there is the third rank, the coming from within the absolute. Everything comes from the absolute. It is a huge world, one you cannot measure by any mental process. But you can experience it. Just move toward vegetable, or toilet paper with wholeheartedness. Wholeheartedness means to manifest your own fresh and vivid energies, which makes your life move toward your object in the pure sense.
 
@@ -1106,13 +1106,13 @@ So the first step is to jump into it, with true heart and sincerity. And then, i
 
 You have to learn about the real world. As a practical matter you must move toward the third rank. Because you have understood the first and the second, and you know how deep, how profound everything is. Then as a practical matter you should face everything with attentiveness, kindness, and compassion. That is the coming from within the absolute.
 
-<p align="center"> * * * </p>
+#### * * *
 
 And then there occurs the arrival within the relative. The toilet paper comes up to you and helps. So nothing is wasted. Even hatred and pain disappear and we learn the depth of human life. That is our arrival.
 
 So then you truly know how to take care of pen, and water, vegetable and toilet paper. You know how to take care of your life. That is the arrival within the relative.
 
-<p align="center"> * * * </p>
+#### * * *
 
 Finally, there is the fifth rank: the attained within the integration.
 
@@ -1180,7 +1180,7 @@ The more you practice like this the more difficult it becomes to separate yourse
 
 There is a huge interacting communion there, beyond specific babies or specific mothers. For it is really possible to take care of a baby as a wonderful buddha. That is the identity action, the fifth rank: the attained with integration.
 
-<p align="center"> * * * </p>
+#### * * *
 
 Intellectually we have to understand these Five Ranks, or five degrees of realization. But our practice is just sitting.
 
@@ -1206,14 +1206,14 @@ So very naturally there is a wonderful communication.
 
 Finally you cannot escape zazen; you really enjoy it, even though you feel pain. The more you do zazen the more you realize that zazen and the more deeply it penetrates your life. It is just like chewing brown rice. When you see brown rice it looks ugly and distasteful, but if you chew it for a long time a wonderful flavor comes up. Zazen is just like that.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > It is bright just at midnight;  
 > it doesn’t appear at dawn.  
 
-#### Commentary:
+##### Commentary:
 
 “Bright” in this case is a metaphor for the phenomenal world; when it is bright you can see everything clearly: book, table, and so forth. A world of distinction. And “at midnight” means darkness; but in Zen Buddhism darkness doesn’t mean dark. It means the truth, or ultimate principle. Because in darkness everything becomes equal. So midnight stands for ultimate truth, ultimate nature, or theory.
 
@@ -1244,12 +1244,12 @@ Then you can guide. Then you can educate. Then you can take care.
 
 ### Part 3
 
-#### Text: 
+##### Text: 
 
 > It acts as a guide for all beings –  
 > its use removes all pains.  
 
-#### Commentary: 
+##### Commentary: 
 
 According to the philosophical background of the Soto Zen tradition, truth does not exist by itself, separate from phenomena. And phenomena do not exist separate from the truth.
 
@@ -1289,14 +1289,14 @@ So all you have to do is deal with the relative. At that moment the absolute wil
 
 This teaching fits every aspect of human life: professional life, everyday life, whatever. It fits any situation, and lets you create a peaceful, harmonious world. That is why it acts as a guide for beings. If you understand the teaching and use it you can really remove human pain and suffering.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text: 
+##### Text: 
 
 > Although it is not fabricated,  
 > it is not without speech.  
 
-#### Commentary: 
+##### Commentary: 
 
 “Although it is not fabricated” is a reference to the unconditioned world, the absolute. “It is not without speech” means the phenomenal world.
 
@@ -1346,7 +1346,7 @@ So body, mind, ideas are always characterized by their own power to move towards
 
 So very naturally you cannot hold onto the absolute. But the absolute is always coming into the human form, always interconnected with it. Just like two feet, walking as one.
 
-<p align="center"> * * * </p>
+#### * * *
 
 In the *Bendowa* Dogen Zenji wrote: “The practice of the way makes myriad dharmas exist in realization.” In the huge world, Buddhist world, the practice of the way makes myriad forms exist: tables, our bodies, everything.
 
@@ -1380,7 +1380,7 @@ Just accept the instruction of how to gassho, and then do the gassho carefully, 
 
 At that time, the buddha body blooms. The next moment, a thought arises, and you are back in the human body. The moment after that, you keep quiet and then the buddha body arises.
 
-<p align="center"> * * * </p>
+#### * * *
 
 Usually we are chasing after our thoughts, and so we just see the human body do gassho. And we think about gassho. We read a book of Mudras and find many kinds of gassho. So we complain to our teacher and refuse to accept the one we have been taught. Or we ask, “What is the meaning of gassho?”
 
@@ -1402,7 +1402,7 @@ This is what we call liberation, or emancipation. Everything is liberated. This 
 
 That freedom really teaches people. If you are not emancipated, liberated in your actions and your practice, it is very difficult to teach or to help people. We must keep that in mind always in our practice.
 
-<p align="center"> * * * </p>
+#### * * *
 
 There was a very famous Zen teacher, Ishtano Zenji [?], who was Abbot of Eihei-ji monastery in Japan. He had a very wonderful practice, always manifesting that liberated human mind and human body, wherever he may have been.
 
@@ -1444,7 +1444,7 @@ How?
 
 You cannot escape having been born. And right in the middle of having been born you have to manifest the unconditioned world. This means your are right in the middle of life but you are not panicked. You are in the middle of panic but you are not panicked. That is what we call the practice of emancipation.
 
-<p align="center"> * * * </p>
+#### * * *
 
 Early in his life as a monk, Dogen Zenji asked the question: If everything is buddha nature, why is it that we have to practice?
 
@@ -1464,14 +1464,14 @@ When you do gassho, just gassho. Make that gassho the entire world. Don’t poke
 
 ### Part 4
 
-#### Text:
+##### Text:
 
 > It is like facing a jewel mirror;  
 > form and image behold each other –  
 > You are not it  
 > it actually is you.  
 
-#### Commentary:
+##### Commentary:
 
 The jewel mirror means to be free from the stage of the absolute and free from the stage of phenomena. Phenomena does not hold to a fixed position.
 
@@ -1516,9 +1516,9 @@ I just accept myself as a form living right in the middle of that interconnectio
 
 So from one point of view I am not the absolute when I practice gassho with my body. But on the other hand, “the absolute is exactly you” means that buddha nature is exactly Katagiri; so the entire world is exactly Katagiri’s human body. That is what is meant by interconnection and interpenetration. Always I depend on the absolute; but I cannot perceive how, because it is always exactly me.
  
- <p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > It is like a babe in the world,  
 > in five aspects complete;  
@@ -1529,7 +1529,7 @@ So from one point of view I am not the absolute when I practice gassho with my b
 > Ultimately it does not apprehend anything  
 > because its speech is not yet correct.  
 
-#### Commentary:
+##### Commentary:
 
 This metaphor is drawn from the Nirvana Sutra. There the Tathagata is likened to a baby in that he does not rise, stand, come, go, or speak.
 
@@ -1586,16 +1586,16 @@ For example, if he sees a stingy person he may ask him what is the purpose of ke
 
 So here “Baba Wawa” means words, lots of words. Whether you use words or do not use words, real reality is beyond explanation or no explanation.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > It is like the six lines of the double split hexagram;  
 > the relative and absolute integrate –  
 > Piled up, they make three;  
 > the complete transformation makes five.  
 
-#### Commentary:
+##### Commentary:
 
 The “double split hexagram” is a diagram from the *I Ching*, which Tozan used to illustrate the Five Ranks. This diagram was used to illustrate that one entity, so-called table, does not exist alone but is interconnected with all sentient beings.
 
@@ -1681,14 +1681,14 @@ You have to just proceed. Just practice, every day, like this.
 
 That is called Nirvana.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > It is like the taste of the five-flavored herb,  
 > like the diamond thunderbolt.  
 
-#### Commentary:
+##### Commentary:
 
 In Japanese the five-flavored herb is called *chiso*, or *gomisi*. Its fruit has five flavors: the peels and flesh are sweet and sour, the core is hot and bitter, and as a whole the fruit tastes salty. So within the one fruit there are the five kinds of tastes. In the *Saddharma Pundarika Sutra* the term used for the same in one taste is “equality.” For example, when the rains fall, all forms of beings receive the rain and grow naturally. So one rain is shared with all sentient beings. The taste of the five-flavored herb indicates of the same in one taste, or equality.
 
@@ -1746,12 +1746,12 @@ That is what is represented by the five-pointed Vajra. In this translation it sa
 
 ### Part 5
 
-#### Text:
+##### Text:
 
 > Subtly included within the true,  
 > inquiry and response come up together.  
 
-#### Commentary:
+##### Commentary:
 
 So far the perfect harmony of the absolute and the relative have been described by the five examples which show how the relative and the absolute are interconnected, interpenetrated. How very closely they communicate.
 
@@ -1781,14 +1781,14 @@ So it is through the human body, the human world, that the truth must be manifes
 
 There are no exceptions; everyone must live like this. Teacher cannot exist alone, separate from student; children cannot exist alone, separate from parents. Parents and children communicate, interpenetrate. And then you can build up a very peaceful world. But if there is even the slightest gap between them, any separation or deviation, then the cold air blows in. And that is the human trouble.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Communing with the source and communing with the process,  
 > it includes integration and includes the road;  
 
-#### Commentary:
+##### Commentary:
 
 We must commune with the source. And if there is an ultimate source of being, there must be a road, a process to manifest it. The source of being doesn’t exist alone. It exists within the process, because the source is always functioning. That’s why the source is nothing but energies, constantly burning flames. And when the source is functioning, working very dynamically, it creates form. These energies are always springing up, and when they do atoms and particles come together and we have what we call form. If the energy is not there then all the molecules and particles will separate, because they do not have their own power to come together.
 
@@ -1835,7 +1835,7 @@ And then if you practice in this way you can build up perfection of personality.
 
 *Enman* of personality is complete fullness of the energy, and very round. No corners. If you have a corner, even a slight one, it is what we call ego-consciousness; selfishness. If you are perfectly round, then when you bump into somebody else you just pass by and no one is hurt. But if you have a corner then when you bump into somebody you hurt. Very much. That corner is called the ego. *Enman*, perfection, is no ego; no corners, and full of energy.
 
-<p align="center"> * * * </p>
+#### * * *
 
 In this country people are always emphasizing positive living.
 Live positively, think positively, see positively. Because the world is always creating negative things. Killing, fighting, divorce, no communication, children running away from home. Through the mass communication you get all this very negative information, and very naturally you fall into pessimism. You may not be conscious of it, but you get caught by that information in the mass media.
@@ -1860,14 +1860,14 @@ No egoistic sense means you have to completely throw yourself into whatever you 
 
 That is why it says here that it includes integration and includes the road. The communion, interpenetration, perfect harmony of intercommunication between the relative and the absolute must be manifested on the road through which you pass. That is everyday life.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Merging is auspicious;  
 > do not violate it.  
 
-#### Commentary:
+##### Commentary:
 
 This translation says “merging;” in Japanese we say *saku nen*. This means two things: intermixture, and holding in reverence. So merging captures one meaning, intermixture; but there is the second, holding in awe and reverence.
 
@@ -1909,14 +1909,14 @@ Pay respect to your life, to your every activity. At that time you can interact,
 
 There are no exceptions.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Naturally real yet inconceivable,  
 > it is not within the realm of delusion or enlightenment.  
 
-#### Commentary:
+##### Commentary:
 
 In Japanese we say *chin shin*, which means natural reality, natural principles, the ultimate facts of nature, the ultimate rhythm of being.
 
@@ -1963,14 +1963,14 @@ So to trust is not to trust or believe blindly. Behind trust, behind the belief,
 
 Constantly you have to understand zazen. To understand the zazen constantly you must first throw yourself into zazen. That is trust. And then you can know, then you can understand.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > With causal conditions, time and season,  
 > quiescently it shines bright.  
 
-#### Commentary:
+##### Commentary:
 
 So to know and trust doesn’t mean to just believe or accept something blindly. In order to accept and believe you have to have a thoroughgoing practice of knowing understanding.
 
@@ -2074,14 +2074,14 @@ But we have to know the seed of buddha nature, which is each existence. As a pra
 
 So in Zen Buddhism we practice, instead of believe. Practice, every day, being fresh. This practice is very quiet, but simultaneously it is very bright. If you practice like this you can see all sentient beings very clearly, very intimately.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > In its fineness it fits into spacelessness;  
 > in its greatness it is utterly beyond location.  
 
-#### Commentary:
+##### Commentary:
 
 This practice of promoting the growth of the buddha seed is very quiet, but it is very stable, very thoroughgoing. Rooted on the ground. Without creating feelings of competition or comparisons.
 
@@ -2100,14 +2100,14 @@ What is this?
 
 Becoming fresh.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > A hairsbreadth deviation  
 > will fail to accord with the final attunement.  
 
-#### Commentary:
+##### Commentary:
 
 If you miss the beat even slightly you cannot fit into the rhythm of music. You slip off. So regardless of whether we understand or not, our practice is to try to tune into the rhythm of music.
 
@@ -2137,12 +2137,12 @@ So even though you don’t understand, practice naturally, according to the sugg
 
 ### Part 6
 
-#### Text:
+##### Text:
 
 > Now there are sudden and gradual  
 > in connection with which are set up basic approaches.  
 
-#### Commentary:
+##### Commentary:
 
 According to the history of Zen Buddhism there were two disciples of the Fifth Patriarch Hung-Jen (Daman Hongren). They were Shen-hsiu, who became the founder of the Northern School of Zen, and Hui-neng, who became the founder of the Southern School and the Sixth Patriarch.
 
@@ -2191,14 +2191,14 @@ Zen Buddhism. Because you must practice to gradually attain enlightenment, to pu
 
 Basic approaches means that we should understand the real meaning of the teachings given by Shen-hsiu, founder of the Northern School, and that we should understand through and through the teachings of the Sixth Patriarch, Hui-neng, founder of the Southern School.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Once basic approaches are distinguished,  
 > then there are guiding rules.  
 
-#### Commentary:
+##### Commentary:
 
 Set up basic approaches; if you understand some teaching then very naturally you can create a school or a denomination. If you create denominations then members of human culture naturally belong to one or another of them. Without belonging to some denomination you cannot live in this world as a human being.
 
@@ -2256,14 +2256,14 @@ I don’t think so.
 
 It is not the teaching’s fault; it is your fault. The Buddha just shows the way; you have to do the walking. But it is very common for people to criticize the teaching instead of looking at themselves. Very common, and perverted. So before you criticize others or the approach you should look first at yourself.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > But even though the basis is reached and the approach comprehended,  
 > true eternity still flows.  
 
-#### Commentary:
+##### Commentary:
 
 This means that if you practice hard, research and study, teach and practice for many years, then you can experience what we call the absolute, or enlightenment. Very slightly you can glance at true eternity, eternal life. You will never be able to explain it, but as a practical matter you will be able to see a little bit of it. That’s pretty good, for us.
 
@@ -2273,16 +2273,16 @@ But if you experience it very naturally the eternal life is in your heart. So ev
 
 If people look at someone who has experienced this, for example Shen-hsiu, the founder of the Northern School, they will respect him as a saint. As a pure being. “Even though the basis is reached and the approach comprehended” means that he can walk step by step according to the Buddha’s teaching. True eternity still flows; true eternity is always shown.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Outwardly still while inwardly moving,  
 > like a tethered colt, a trapped rat –  
 > The ancient saints pitied them,  
 > and bestowed upon them the teaching;  
 
-#### Commentary:
+##### Commentary:
 
 There are two Japanese ladies who meet with me every Sunday, when we talk about Buddhism. And one Sunday one of them made a very interesting point. She said that as she studied Zen Buddhism her life became calmer and more steady. For instance, she said, if I give something to somebody I don’t expect anything back as a reward.
 
@@ -2346,14 +2346,14 @@ That is the teaching.
 
 And you can feel how pitiful human beings are. This does not mean a critical feeling toward them; it means you can give them compassion. Sympathy to all sentient beings.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > According to their delusions,  
 > they saw black as white –  
 
-#### Commentary:
+##### Commentary:
 
 Sometimes the teaching says that white is black. This is very important: white is black. Because we always believe that white is white. And if I say that white is black you won’t trust me or believe me. Because we always stick to that common sense through which we can communicate with other people. So you never believe white is not white.
 
@@ -2385,14 +2385,14 @@ He would not teach her. Instead he told her to research and study it. Since then
 
 So Emptiness is fascinating, a kind of puzzle; but it is not a puzzle. It is very true. And you should keep your eyes open to it. Even though you don’t “understand” it.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > When erroneous imaginations cease,  
 > the acquiescent mind realizes itself.  
 
-#### Commentary:
+##### Commentary:
 
 Erroneous imaginations means perverted views. In Zen Buddhism there are five stages one goes through in order to deepen one’s life and cease perverted views.
 
@@ -2462,9 +2462,9 @@ And when we reach it, erroneous imaginations cease. Perverted views cease. When 
 
 So when the erroneous imaginations cease, the acquiescent mind realizes itself. Very naturally, there is peaceful mind, and it realizes itself. Simultaneously there is peaceful life. Just walk, just like this. That is peace. Real peace.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > If you want to conform to the ancient way  
 > please observe the ancients of former times;  
@@ -2473,7 +2473,7 @@ So when the erroneous imaginations cease, the acquiescent mind realizes itself. 
 > Like a tiger leaving part of its prey,  
 > a horse with a white left hind leg.  
 
-#### Commentary:
+##### Commentary:
 
 Buddha, Bodhidharma, many Patriarchs practiced for any number of years. Bodhidharma came to China and sat for nine years without doing anything else.
 
@@ -2615,12 +2615,12 @@ And then, very naturally, your life will become mature. You will be like the sca
 
 ### Part 7
 
-#### Text:
+##### Text:
 
 > Because there is the base, (there are)  
 > jewel pedestals, fine clothing;  
 
-#### Commentary:
+##### Commentary:
 
 This stanza refers to the Lotus Sutra. In it there appears the story of the son of a nobleman who had left home and been reduced to beggary for many years. Fifty years.
 
@@ -2775,14 +2775,14 @@ So, to be a Buddha we have to teach according to the individual personalities of
 
 That is what is meant by the jewel pedestals and fine clothing: you cannot give jewels and fine clothing to everyone; sometimes we have to give dirty clothes, and the job of cleaning the toilet.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Because there is the startlingly different, (there are)  
 > house cat and cow.  
 
-#### Commentary:
+##### Commentary:
 
 “Because there is the startlingly different”: if you try to give fine clothes to everyone without thinking carefully of who they are, they may be startled. And run away from it. And so even if you understand a teaching you have to polish your understanding. Not only teachings; your viewpoint on life. It is fine if you understand your life, but you cannot direct people to live the way you do. You have to completely digest your views; and then they will come out in a different way, in appropriate words. It is very important that we understand this.
 
@@ -2812,16 +2812,16 @@ A boss has strong power to control the members, and this leads to a concern with
 
 That is what is meant here by house cat and cow. Lead an independent life and be a cat; but also be a cow. Understand your own life and respect your own viewpoint, but give it to other people according to individual personalities and circumstances. Then you can really teach; then you can really live in peace.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Yi, with his archer’s skill  
 > could hit a target at a hundred paces.  
 > But when arrow-points meet head-on,  
 > what has this to do with the power of skill?  
 
-#### Commentary:
+##### Commentary:
 
 Yi was a famous archer, who could hit the target at a hundred paces, time after time. The only other archer who compete with him was his teacher, and so Yi schemed to arrange a duel with his teacher; whoever survived the duel would be the greatest archer in the world.
 
@@ -2859,16 +2859,16 @@ So you can reach the top of the mountain of enlightenment in Buddhism by study. 
 
 That is a very hard practice for every day. It is harder than reaching the top of the mountain. That is why the Bodhisattva practices for many years. For instance, if you are an artist or a doctor, you can attain a certain stage. But after that your practice becomes harder. Because you have to share your capability and forget your own peculiar flavor. You have to become completely human, with your actions always based on compassion. Otherwise it is very difficult to share your life with all sentient beings.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > When the wooden man begins to sing,  
 > the stone woman gets up to dance;  
 > It’s not within reach of feeling or discrimination –  
 > how could it admit of consideration in thought?  
 
-#### Commentary:
+##### Commentary:
 
 “Wooden man” and “stone woman” are technical terms in Zen; the meaning of this stanza is the same as the earlier “filling a Silver bowl with snow.” It means to be free of the particular flavor which you as an individual possess. After reaching the top of the mountain, you cannot stay. You have to come down and share your life with all sentient beings. To do this you must fill the silver bowl with snow; your body and mind must be silver bowl, and whatever you do, they must also be snow.
 
@@ -2896,16 +2896,16 @@ And then very naturally you will deepen your life. So practice is something quit
 
 So it’s not within the reach of feeling or discrimination. You sit down in front of a particular therapist and you feel relief. That is not your feeling. That is not your discrimination. Because before you can feel relief you must be relieved. That is the total picture of your personality, always working. You don’t know what it is; that is why it is like a wooden man or a stone woman. But it works every day. So it sings a song and gets up and dances.
  
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > A minister serves the lord,  
 > a son obeys the father;  
 > Not obeying is not filial  
 > and not serving is no help.  
 
-#### Commentary:
+##### Commentary:
 
 These four lines refer to the use of lord, or prince, and minister, or retainer, to illustrate the Five Ranks. So the minister serves the lord. But behind this line, the lord must also serve the minister. You cannot ever take a one-way trip; you must always take the round trip. You should help, and then your partner helps you.
 
@@ -2958,16 +2958,16 @@ When you achieve seventy percent then you can let the flow or the life force blo
 
 So that is what is meant by not serving is no help. We must serve, and then there is really help.
 
-<p align="center">* * *</p>
+#### * * *
 
-#### Text:
+##### Text:
 
 > Practice secretly, working within,  
 > as though a fool, like an idiot –  
 > If you can achieve continuity,  
 > this is called the host within the host.  
 
-#### Commentary:
+##### Commentary:
 
 But how can you serve, to help you and your position, professionally and otherwise? Practice secretly, working within.
 
@@ -3051,7 +3051,7 @@ Freedom and enlightenment is not as difficult as you may think.
 
 J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
-#### Notes on the Introduction:
+##### Notes on the Introduction:
 
 “...Manzan” (1635-1714) A reformer in the Soto tradition.
 
@@ -3070,7 +3070,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...Put those things” For a translation and commentary on the Tenzo Kyokun, see *Refining Your Life*, by Dogen and Uchiyama (Weatherhill, Tokyo and New York, 1983).
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > The teaching of thusness  
 > has been intimately communicated by buddhas and patriarchs.  
@@ -3083,7 +3083,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...keep it well” This means to preserve, by receiving and transmitting to future generations; it does mean to “keep” in a selfish or miserly way.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Filling a silver bowl with snow,  
 > hiding a heron in moonlight –  
@@ -3094,27 +3094,27 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...When you array them” The literal Chinese can be rendered “Sorting/classification not uniform," with the next line reading “jumbled up distinguished.” Snow and a silver bowl, heron and moonlight are distinct no matter what system of classification you use, as well as distinct when encountered randomly in nature.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > The meaning is not in the words,  
 > yet it responds to the inquiring impulse.  
 
 “...The meaning” A literal rendering of this is “More to it than words.”
 
-#### Notes on the Commentary:
+##### Notes on the Commentary:
 
 “...Rinzai” J.: Rinzai Gigen. Ch.: Linji Yixuan. W.: Lin-Chi I-Hsuan. (d. 867) Accounts of Rinzai appear in Chung-Yuan and Luk (op. cit.). Rinzai also appears in Cases 20 and 32 of the *Blue Cliff Record*.
 
 “...*Record of Lin Chi*” J.: *Rinzai-roku*. Ch.: *Linji Lu*. W.: *Lin-chi Lu*.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > If you're excited it becomes a pitfall;  
 > If you miss it you fall into retrospective hesitation.  
 
 “...If you're excited” The literal Chinese reads “Excitement trap/Miss it quandary.”
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Turning away and touching are both wrong,  
 > for it is like a mass of fire.  
@@ -3124,14 +3124,14 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 “...mass of fire” The original has “churning” associated with
 “fire.”
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Just to depict it in literary form  
 > is to relegate it to defilement.  
 
 "…literary form" This should be taken to mean pretentious or academic language.
 
-#### Notes on the Commentary:
+##### Notes on the Commentary:
 
 “...relative within the absolute” J.: *sho chu hen*. W.: *cheng chung p'ien*.
 
@@ -3150,7 +3150,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...peace is war.” The reader should note the fundamental difference between this usage and the similar slogan in George Orwell's *1984*. Katagiri Roshi is not re-defining the state of war as one of peace, but pointing out the essential unity of all states.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > It is bright just at midnight;  
 > it doesn't appear at dawn.  
@@ -3159,11 +3159,11 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “…dawn” Again, this should be taken to mean “light” and not the moment of sunrise.
 
-#### Notes on the Commentary
+##### Notes on the Commentary
 
 “...The Merging of Difference and Unity.” J.: Sandokai. C.: Can Tong Qi. W.: Ts'an T'ung Ch'i. Written by Shitou Xiqian (N.: Shih t'ou Hsi ch'ien. J.: Sekito Kisen.), lived 700-790. A translation appears in Cleary, *Timeless Spring* (op. cit.), PP 36-37.
 
-#### Notes on the Text: 
+##### Notes on the Text: 
 
 > It acts as a guide for all beings  
 > its use removes all pains.  
@@ -3172,7 +3172,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 He adds that it is like a boatman on a stream; the stream is the fundamental force, but the boatman must row and steer with care.
 This is the sense in which “use” should be understood, in distinction not “use” dualistically, like a tool or medicine.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Although it is not fabricated,  
 > it is not without speech.  
@@ -3181,13 +3181,13 @@ This is the sense in which “use” should be understood, in distinction not �
 
 “...not without speech.” Literally, “It is not saying nothing.” “Speech” should be taken as communication in general, not just words.
 
-#### Notes on the Commentary:
+##### Notes on the Commentary:
 
 “…Bendowa” “Discourse on the Practice of the Way.” A chapter of the *Shobogenzo*, written in 1231. A translation by Norman Waddell and Abe Masao appears in the *Eastern Buddhist*, Vol. 6, No. 1, (1976) pg. 128.
 
 “...Mudras” Gestures, generally with the hands, used to assist in achieving particular states of mind.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > It is like facing a jewel mirror;  
 > form and image behold each other  
@@ -3196,7 +3196,7 @@ This is the sense in which “use” should be understood, in distinction not �
 
 “...facing” A literal rendition of the original is “looking.”
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > It is like a babe in the world,  
 > in five aspects complete;  
@@ -3220,14 +3220,14 @@ A literal rendering by a modern Chinese speaker yields:
 
 Katagiri Roshi clarifies the use of the baby talk in this manner: Use words or do not use words, real reality is beyond explanation or no explanation.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > It is like the six lines of the double split hexagram;  
 > The relative and absolute integrate –  
 
 “It is like...” This phrase does not appear in the original. For a complete explanation of the use of the *I Ching* hexagrams as illustrations of the Five Ranks, see Luk (op. cit.) pg. 127 and pg. 151, n. 1 and 2.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Piled up, they make three;  
 > the complete transformation makes five.  
@@ -3236,7 +3236,7 @@ Katagiri Roshi clarifies the use of the baby talk in this manner: Use words or d
 
 “...The complete transformation” Luk renders this as “which transform themselves into five.”
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Subtly included within the true,  
 > inquiry and response come up together.
@@ -3245,7 +3245,7 @@ Katagiri Roshi clarifies the use of the baby talk in this manner: Use words or d
 > Merging is auspicious;  
 > do not violate it.  
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Naturally real yet inconcievable,  
 > it is not within the province of delusion or enlightenment.  
@@ -3254,7 +3254,7 @@ Katagiri Roshi clarifies the use of the baby talk in this manner: Use words or d
 
 The first line, to a speaker of modern Chinese, reads “wonderful purity,” where “purity” uses the same character as would be applied to a virgin.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > In its fineness it fits into spacelessness;  
 > in its greatness it is utterly beyond location.  
@@ -3264,12 +3264,12 @@ A more literal rendering of this is:
 > So minute that it penetrates any space.  
 > So enormous that it exceeds all bounds.  
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > A hairbreadth's deviation  
 > will fail to accord with the final harmony.  
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Now there are sudden and gradual  
 > in connection with which are set up basic approaches.  
@@ -3278,7 +3278,7 @@ A more literal rendering of this is:
 
 The first line is literally “Things can happen suddenly, things can happen gradually.” The last line uses a Chinese character that has the same purpose as “i.e.” in Western languages, that is, to introduce a subordinate clause.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > But even though the basis is reached and the approach comprehended,  
 > true eternity still flows.  
@@ -3303,7 +3303,7 @@ And the last four read
 > When inverted thinking extinguished  
 > Accepting mind aware itself  
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > If you want to conform to the ancient way  
 > please observe the ancients of former times;  
@@ -3314,7 +3314,7 @@ And the last four read
 
 “...like a tiger leaving part of its prey” The literal translation is "Like a tiger's incompleteness, " where the character for incompleteness is the same as the one used to describe the moon when it is not full.
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Because there is the base, (there are)  
 > jewel pedestals, fine clothing;  
@@ -3330,7 +3330,7 @@ A literal rendition of this is:
 
 (page is missing)
 
-#### Notes on the Text:
+##### Notes on the Text:
 
 > Practice secretly, working within,  
 > As though a fool, like an idiot –  
