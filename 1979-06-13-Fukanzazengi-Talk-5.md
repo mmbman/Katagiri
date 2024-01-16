@@ -3,10 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5"
 ---
 ## June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
-[Next](1979-06-14-Fukanzazengi-Talk-6)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-12-Fukanzazengi-Talk-4) \| [Next](1979-06-14-Fukanzazengi-Talk-6) \| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -501,9 +498,6 @@ Drop off means, become one with zazen. In other words, absorb into zazen. That i
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-06-12-Fukanzazengi-Talk-4) \| 
-[Next](1979-06-14-Fukanzazengi-Talk-6)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-12-Fukanzazengi-Talk-4) \| [Next](1979-06-14-Fukanzazengi-Talk-6) \| Series: [*Fukanzazengi*](fukanzazengi)

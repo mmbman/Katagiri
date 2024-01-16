@@ -221,7 +221,7 @@ Just like a music concert. Many beings exist in this world, but [as one], it mus
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1981) \| 
 [Previous](1981-07-18-Blue-Cliff-Record-Case-18) \| 

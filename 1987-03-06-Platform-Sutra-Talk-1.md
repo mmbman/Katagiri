@@ -63,7 +63,7 @@ So according to Dogen’s point, Buddha Nature, there are two points.
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 
 [Previous](1986-03-01-Three-Aspects-of-Repentance) \| 

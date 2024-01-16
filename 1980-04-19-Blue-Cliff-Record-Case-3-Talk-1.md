@@ -240,7 +240,7 @@ So if you say something, maybe you can say, “Sun Face Buddha, Moon Face Buddha
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 
 [Previous](1980-03-15-Save-All-Sentient-Beings) \| 

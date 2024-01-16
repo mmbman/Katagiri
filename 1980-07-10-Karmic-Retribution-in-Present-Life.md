@@ -197,7 +197,7 @@ That’s why Dogen Zenji also says it like this. Because all beings are benefiti
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1980) \| 
 [Previous](1980-07-04-Karma-Taking-Care-of-Karma) \| 

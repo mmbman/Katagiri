@@ -171,7 +171,7 @@ That is called *jumy≈ç* in Japanese: lifespan. If you use the word lifespan, it‚
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1988) \| 
 [Previous](1987-06-27-A-B-and-C-Worlds) \| 

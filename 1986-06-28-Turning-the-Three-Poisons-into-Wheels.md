@@ -123,7 +123,7 @@ So that is [what] “the threefold wheel is pure and clean” [means]. Naturally
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1986) 
 \| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) 

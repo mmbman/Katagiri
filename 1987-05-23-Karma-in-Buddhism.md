@@ -249,7 +249,7 @@ That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Bre
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1987) \| 
 [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| 

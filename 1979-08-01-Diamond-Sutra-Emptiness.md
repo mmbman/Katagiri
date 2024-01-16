@@ -266,7 +266,7 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1979) \| 
 [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| 

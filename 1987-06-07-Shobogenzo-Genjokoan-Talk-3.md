@@ -294,7 +294,7 @@ If you become a spiritual teacher, you must be like that. You cannot be a *front
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1987) \| 
 [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) \| 

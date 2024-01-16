@@ -153,7 +153,7 @@ That is “The moon’s brightness shines, revealing the night traveller.”
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1982) \| 
 [Previous](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2) \| 

@@ -246,7 +246,7 @@ So, you cannot be careless. But I don’t mean you should be nervous. No. You ca
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1983) \| 
 [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| 

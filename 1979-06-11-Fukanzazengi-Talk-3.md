@@ -3,10 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3"
 ---
 ## June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-06-10-Fukanzazengi-Talk-2) \| 
-[Next](1979-06-12-Fukanzazengi-Talk-4)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-10-Fukanzazengi-Talk-2) \| [Next](1979-06-12-Fukanzazengi-Talk-4) \| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -390,9 +387,6 @@ Such delusions come up, always. This is really flickering. But whatever you say,
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-06-10-Fukanzazengi-Talk-2) \| 
-[Next](1979-06-12-Fukanzazengi-Talk-4)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-10-Fukanzazengi-Talk-2) \| [Next](1979-06-12-Fukanzazengi-Talk-4) \| Series: [*Fukanzazengi*](fukanzazengi)

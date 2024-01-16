@@ -168,7 +168,7 @@ That is oneness, the-same-and-oneness. Heaven and earth and you are the-same-and
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1983) \| 
 [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| 

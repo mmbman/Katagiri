@@ -214,7 +214,7 @@ So if you see this bottom basis of human existence with your consciousness, cons
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 [List](list#1983) \| 
 [Previous](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2) \| 

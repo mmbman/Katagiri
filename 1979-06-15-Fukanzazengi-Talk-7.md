@@ -3,10 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7"
 ---
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
-[Next](1979-07-25-Diamond-Sutra-Provisional-Being)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-14-Fukanzazengi-Talk-6) \| [Next](1979-07-25-Diamond-Sutra-Provisional-Being) \| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -171,9 +168,6 @@ Remember that story. That’s a beautiful story, isn’t it?
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-06-14-Fukanzazengi-Talk-6) \| 
-[Next](1979-07-25-Diamond-Sutra-Provisional-Being)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-14-Fukanzazengi-Talk-6) \| [Next](1979-07-25-Diamond-Sutra-Provisional-Being) \| Series: [*Fukanzazengi*](fukanzazengi)

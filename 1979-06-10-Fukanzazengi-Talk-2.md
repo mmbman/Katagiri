@@ -3,10 +3,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2"
 ---
 ## June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-[List](list#1979) \| 
-[Previous](1979-06-09-Fukanzazengi-Talk-1) \| 
-[Next](1979-06-11-Fukanzazengi-Talk-3)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-09-Fukanzazengi-Talk-1) \| [Next](1979-06-11-Fukanzazengi-Talk-3) \| Series: [*Fukanzazengi*](fukanzazengi)
 
 ### Summary
 
@@ -473,9 +470,6 @@ That’s why that is number six: total personality. Let’s be there.
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-[Previous](1979-06-09-Fukanzazengi-Talk-1) \| 
-[Next](1979-06-11-Fukanzazengi-Talk-3)
-\| Series: [*Fukanzazengi*](fukanzazengi)
+#### [List](list#1979) \| [Previous](1979-06-09-Fukanzazengi-Talk-1) \| [Next](1979-06-11-Fukanzazengi-Talk-3) \| Series: [*Fukanzazengi*](fukanzazengi)
