@@ -14,6 +14,6 @@ Katagiri Roshi’s talks are a treasure trove of [dharma](glossary#dharma) teach
 
 Katagiri Roshi’s talks are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org). For more information, visit [The Katagiri Project Home Page](https://www.mnzencenter.org/katagiri-project.html).
 
-For updates, you can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
+You can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
 
 If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
