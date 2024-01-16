@@ -14,7 +14,9 @@ Katagiri Roshi discusses karma in terms of Dogen’s teaching, including three m
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-attribution-in-present-life" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-attribution-in-present-life" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 <a name="000"></a>
 #### 0:00 start of recording

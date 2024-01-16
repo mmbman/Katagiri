@@ -19,7 +19,9 @@ If you observe the body, the body observes you; there is no one-way traffic. And
 
 #### Part 1
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29220017" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29220017" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
+</p>
 
 Let me read the next part:
 
@@ -115,7 +117,9 @@ So that is the original nature of liberation [of] your actions. Constantly we ha
 
 #### Part 2
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-21101763" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-21101763" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
+</p>
 
 ... And then you have to see the human dualistic world from that standpoint. Seeing front and back; dealing with front and back. Basically, you have to stand up in the realm of the-same-and-one-nature. And you have to establish a stable mind which is like a wall. That means abiding firmly in the state of nondualism. Constantly we should do this. 
 

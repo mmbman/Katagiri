@@ -14,7 +14,9 @@ title: "Blue Cliff Record Case 43 Talk 1: Tung Shan’s No Cold or Heat"
 
 *(Archive Issue: The audio ends abruptly at 1:01:19.)*
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-1" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 #### 0:00 start of recording
 

@@ -19,7 +19,9 @@ The body is total dynamic working, and total dynamic working is like a maple lea
 
 #### Part 1
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-38923791" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-38923791" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
+</p>
 
 ... I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual; *as usual* means as [in the] moral sense. So yesterday I talked about Dogen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire world. The entire world is considered as, according to Dogen’s term, the total dynamic working. Generally speaking, it’s nothing but motion, function. So Dogen Zenji uses *the entire world*; that means your body is melted away into the total dynamic working. 
 
@@ -61,7 +63,9 @@ And then how can you know that? How can you do it? How can you experience that *
 
 #### Part 2
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-37838804" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-37838804" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
+</p>
 
 Failure is in the common sense something wrong, but broadly speaking, it is very good for us. Because in a spiritual sense, failure is simultaneously success. Failure is development and growth. Because failure and success all return to functioning [...] All are melted away into total working and creating new things. That is called *development*. 
 
@@ -261,7 +265,9 @@ According to the Diamond Sutra, we say, “Awaken the mind without abiding in an
 
 #### Part 3
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36775311" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36775311" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
+</p>
 
 ... so if you want to make your life very strong, you become very calm. Nothing to say. That is *shamata*. Zazen.
 

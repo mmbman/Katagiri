@@ -16,7 +16,9 @@ title: "Mindfulness – Talk 5"
 
 ### Part 1
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-21770977" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-21770977" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
+</p>
 
 The last sentence of the passage we studied yesterday should be explained a little more, because the translation is not so good. I said “we should study the truth that there is the approach to Buddha where we are taking advantage of.” I have to something about this. Maybe, I don’t know, maybe I can say “We should clarify the principle, or truth, that there is approach to Buddhas at the place where we are moving in the deep course of the practice.” We are practicing. 
 
@@ -59,7 +61,9 @@ So that is the practice of a dancer, practice of becoming a painter, practice of
 
 ### Part 2
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-23341842" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-23341842" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
+</p>
 
 
 

@@ -14,7 +14,9 @@ Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Reco
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-39-lecture-1" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-39-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 *(Archive Issue: This talk contains only twelve minutes of audio. The remainder is missing.)*
 

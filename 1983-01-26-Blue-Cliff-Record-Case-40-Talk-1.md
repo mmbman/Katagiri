@@ -16,7 +16,9 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 
 *(Archive Issue: Case 40 Talks 1 and 2 are transposed in the online archive. The link here is to the audio for “Lecture 2”, which is actually Lecture 1.)*
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-40-lecture-2" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-40-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 #### 0:00 start of recording
 

@@ -12,7 +12,9 @@ title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call – Talk 3"
 
 **This transcript is in rough draft stage.**
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-55-lecture-3" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-55-lecture-3" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 <a name="000"></a>
 #### 0:00 start of recording

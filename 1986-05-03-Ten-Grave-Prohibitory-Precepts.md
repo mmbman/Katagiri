@@ -12,7 +12,9 @@ title: "Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts"
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/ten-grave-prohibitory-precepts" target="_blank">*Listen to this talk on mnzencenter.org*</a>
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/ten-grave-prohibitory-precepts" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 ***This transcript is in rough draft stage.***
 

@@ -17,7 +17,9 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the fi
 
 #### Part 1
 
-<a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321a.mp3" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321a.mp3" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
+</p>
 
 There are four kinds of mindfulness as one of the traditional Buddhist practices. The four kinds of mindfulness are:
 
@@ -122,7 +124,9 @@ So whatever you say – sesshin, or human body, breath, your eyes, [your eye ner
 
 #### Part 2
 
-<a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321b.mp3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321b.mp3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
+</p>
 
 ... That’s why your body is the *true* human body. 
 
@@ -300,7 +304,9 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 #### Part 3
 
-<a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
+</p>
 
 **Same person**: You mean as a consequence of doing zazen ... ?
 

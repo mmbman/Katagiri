@@ -15,7 +15,9 @@ title: "Mindfulness – Talk 4"
 
 ### Part 1
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-33204502" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-33204502" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
+</p>
 
 ... First let me read the next paragraph:
 
@@ -78,14 +80,18 @@ And then, “and make Buddha with demons.” So when you stumble over in the rea
 
 ### Part 2
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/trak-2-of-3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/trak-2-of-3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
+</p>
 
 
 
 
 ### Part 3
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36302531" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36302531" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
+</p>
 
 
 

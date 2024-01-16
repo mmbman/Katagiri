@@ -12,7 +12,9 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/three-pure-collective-precepts" target="_blank">*Listen to this talk on mnzencenter.org*</a>
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/three-pure-collective-precepts" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 **This transcript is in rough draft stage.**
 

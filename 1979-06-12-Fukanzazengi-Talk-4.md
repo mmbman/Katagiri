@@ -14,7 +14,9 @@ What does it mean to die sitting in zazen? Katagiri Roshi discusses the meaning 
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-4" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 <a name="000"></a>
 #### 0:00 start of recording

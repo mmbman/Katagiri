@@ -19,7 +19,9 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 <a name="000"></a>
 #### Part 1
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-in-buddhism-part-1" target="_blank">*Listen to part 1 on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-in-buddhism-part-1" target="_blank">*Listen to part 1 on mnzencenter.org*</a>
+</p>
 
 Are you familiar with the term *karma*? I think karma is a big subject; you have to consider it in your whole life. It’s a very important subject in order to find the solution of our problem of life and death: [the problem] related with whether the other world exists or not, [and] related with the present situation of human life, how we should live. So *karma* in Buddhism requires of us the very careful, serious research of human life for the long run. 
 
@@ -121,7 +123,9 @@ So the second point is, even if you find a solution for the life and death probl
 
 #### Part 2
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-in-buddhism-part-2" target="_blank">*Listen to part 2 on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-in-buddhism-part-2" target="_blank">*Listen to part 2 on mnzencenter.org*</a>
+</p>
 
 ... whether the other world exists or not is not our final solution for the problem of life and death. 
 

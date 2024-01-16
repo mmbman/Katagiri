@@ -18,7 +18,9 @@ Katagiri Roshi completely explains the Twelve-Linked Chain of Causation... presu
 
 (*Transcriber’s Note:* In the following talks, Katagiri Roshi occasionally refers to “twelve-chain causation”. It seems most likely that he meant “twelve-*link* causation”, since there are twelve links but not twelve chains, so far as is mentioned in the talks. So where *twelve-chain causation* appears, I have replaced it with *twelve-link causation*, or the fuller version, *The Twelve-Linked Chain of Causation*. The original title of this talk, “Twelve Chains of Causation,” has also been changed, since it appears to be an error. Katagiri Roshi also interchangeably uses the terms *twelvefold chain of causation*, *twelvefold causation*, and *twelve causations*.)
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-twelve-chains-of-causation" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
 
 #### start of audio
 
