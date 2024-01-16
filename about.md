@@ -8,7 +8,7 @@ On close listening, it becomes apparent that Katagiri Roshi frequently backed up
 
 Words where I am unsure of the best transcription, or where I am adding words to make the meaning more clear, are usually presented in brackets, [like this]. Significant nonverbal sounds are noted *[in brackets with italics]*. Sections that are unintelligible are marked *[unintelligible]*, or sometimes [...], depending on what makes the text more readable. And transcriber comments adding additional information are placed in parentheses, *(like this)*. It is also worth noting that the timecodes embedded in the transcripts, in addition to helping match up the text to the audio recording, also serve as section breaks.
 
-Katagiri Roshi’s talks are a treasure trove of [dharma](glossary#dharma) teaching, most of which is not included in the excellent [books](resources#katagiri-books) that have been compiled from his lectures. They also convey his energy, his enthusiasm, and particularly, his sense of humor. I am transcribing these talks as a way of studying them myself. I've already found much here that is personally meaningful, even revolutionary. I hope you find something inspiring here as well.
+Katagiri Roshi’s talks are a treasure trove of [dharma](glossary#dharma) teaching, most of which is not included in the wonderful [books](resources#katagiri-books) that have been compiled from his lectures. They also convey his energy, his enthusiasm, and particularly, his sense of humor. I am transcribing these talks as a way of studying them myself. I've already found much here that is personally meaningful, even revolutionary. I hope you find something inspiring here as well.
 
   – Kikan Michael Howard
 
