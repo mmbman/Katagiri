@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 2 Talk 2: The Ultimate Path Is Without Difficulty, Part 2"
+title: "Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Talk 2"
 ---
 ## January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
