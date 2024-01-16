@@ -18,7 +18,7 @@ Katagiri Roshi expands on the six-component system for understanding zazen that 
 
 #### 0:00
 
-... Whatever kind of questions you have about the subject I mentioned yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
+**Katagiri Roshi**: ... Whatever kind of questions you have about the subject I mentioned yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
 
 Well, let’s think of what I said yesterday. If what I said yesterday is graphically shown – well, I will show it, okay?
 

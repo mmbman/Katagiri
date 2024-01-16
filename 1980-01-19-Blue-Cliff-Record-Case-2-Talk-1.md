@@ -18,7 +18,7 @@ Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Pat
 
 #### 0:00
 
-At this time, I would like to study with you the second case of the [*Blue Cliff Record*](glossary#blue-cliff-record). The title is “The Ultimate Path is Without Difficulty”. Let me first read the main case:
+**Katagiri Roshi**: At this time, I would like to study with you the second case of the [*Blue Cliff Record*](glossary#blue-cliff-record). The title is “The Ultimate Path is Without Difficulty”. Let me first read the main case:
 
 > [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >

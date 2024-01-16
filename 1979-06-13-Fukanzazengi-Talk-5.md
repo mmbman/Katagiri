@@ -18,7 +18,7 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 
 #### 0:00
 
-There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi), who lived from 835 to 908 (CE). He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [*Shobogenzo*](topics#shobogenzo) in the fascicle [“The One Bright Pearl”](topics#one-bright-pearl); you can find this story there.
+**Katagiri Roshi**: There was a famous [Zen Master](glossary#zen-master) named [Gensha Shibi](glossary#gensha-shibi), who lived from 835 to 908 (CE). He practiced under the guidance the famous Zen Master [Seppō](glossary#seppō-gison), who was twelve to fifteen years older than Gensha Shibi. This story occurs in [*Shobogenzo*](topics#shobogenzo) in the fascicle [“The One Bright Pearl”](topics#one-bright-pearl); you can find this story there.
 
 Gensha Shibi Zen Master used to be a fisherman. You may know the story: every day he went fishing with his father. One day, his father fell off the boat into the ocean, and Gensha Shibi tried to help, tried to save him, but he couldn’t, so his father died. At that time, Gensha Shibi attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that.
 

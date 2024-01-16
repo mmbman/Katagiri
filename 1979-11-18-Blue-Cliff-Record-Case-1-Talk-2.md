@@ -18,7 +18,7 @@ Why is there “no merit”? Katagiri Roshi covers one of the most famous storie
 
 #### 0:00
 
-I read the main subject of Case 1 already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism), so I think most of you know it pretty well. 
+**Katagiri Roshi**: I read the main subject of Case 1 already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism), so I think most of you know it pretty well. 
 
 > Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma), “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
 

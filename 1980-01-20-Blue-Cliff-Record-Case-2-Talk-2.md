@@ -18,6 +18,8 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 
 #### 0:00
 
+**Katagiri Roshi**: 
+
 > [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
 > At that time a certain monk asked, “Since you do not abide within clarity, what do you preserve?”

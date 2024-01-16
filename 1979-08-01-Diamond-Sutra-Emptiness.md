@@ -18,7 +18,7 @@ What is a Buddha, and what does a Buddha experience? Katagiri Roshi describes th
 
 #### 0:00 
 
-Chapter Seven:
+**Katagiri Roshi**: Chapter Seven:
 
 > The Lord asked: “What do you think, [Subhuti](glossary#subhuti), is there any [dharma](glossary#dharma) which the [Tathāgata](glossary#tathāgata) has fully known as ‘the utmost, right and perfect [enlightenment](glossary#enlightenment),’ or is there any dharma which the Tathāgata has demonstrated?”
 > 

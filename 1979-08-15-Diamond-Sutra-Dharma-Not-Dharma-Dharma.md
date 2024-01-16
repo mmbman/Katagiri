@@ -18,6 +18,8 @@ If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni 
 
 #### 0:00
 
+**Katagiri Roshi**: 
+
 > (Chapter 8)  
 >  
 > The Lord then asked: “What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”

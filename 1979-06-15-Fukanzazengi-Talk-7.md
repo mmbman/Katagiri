@@ -20,7 +20,7 @@ The conclusion to the series of talks on *Fukanzazengi* takes place during a dra
 
 *(Transcriber’s Note: A loud thunderstorm was going on during this talk. Katagiri Roshi’s words are occasionally punctuated by peals of thunder.)*
 
-When the [Buddha Shakyamuni](glossary#shakyamuni-buddha) sat meditation,  [zazen](glossary#zazen), under a tree – *[there is a sound of thunder]* – there was a tremendous sound of thunder, that was more than this. But, his zazen was not disturbed by the thunder. And after zazen, he stood from his seat and practiced kinhin, walking meditation. At that time, the thunder was completely gone; the surroundings were very quiet. Near him there was one of the Buddhist laymen, who had watched the Buddha’s meditation. 
+**Katagiri Roshi**: When the [Buddha Shakyamuni](glossary#shakyamuni-buddha) sat meditation,  [zazen](glossary#zazen), under a tree – *[there is a sound of thunder]* – there was a tremendous sound of thunder, that was more than this. But, his zazen was not disturbed by the thunder. And after zazen, he stood from his seat and practiced kinhin, walking meditation. At that time, the thunder was completely gone; the surroundings were very quiet. Near him there was one of the Buddhist laymen, who had watched the Buddha’s meditation. 
 
 The Buddha’s zazen – *[sound of thunder]* – was never disturbed by the thunder – *[loud sound of thunder continues]* – even though it was a really tremendous sound of thunder. So the layman asked the Buddha: “Four cows and two farmers were killed by electric shock of lightning a few minutes ago. Did you hear the sound of the thunder?”
 

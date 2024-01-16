@@ -18,7 +18,7 @@ Katagiri Roshi talks about *body and mind dropping off* from a psychological poi
 
 #### 0:00
 
-We talked about [zazen](glossary#zazen) based on body and mind dropping off, which means that from the first dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
+**Katagiri Roshi**: We talked about [zazen](glossary#zazen) based on body and mind dropping off, which means that from the first dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
 
 You know pretty well that in [primitive Buddhism](glossary#primitive-buddhism) there are the categories of existence which are called the [five skandhas](glossary#skandha). Among the five skandhas, there is a very interesting concept which is called [*samskara*](glossary#samskara). In the [*Prajnaparamita Sutra*](glossary#prajnaparamita-sutra), it is translated as [*impulses*](glossary#impulses). According to [Doctor Conze](https://en.wikipedia.org/wiki/Edward_Conze) it is regarded as *together-maker*. That concept of samskara is a very interesting teaching. 
 
