@@ -19,7 +19,7 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 
 *(Since the beginning of this talk and most of the previous talk are currently missing, here is the Case and the Verse from the* Blue Cliff Record*. When we join this talk, Katagiri Roshi is discussing the Verse, which refers to the Case.*
 
-**Katagiri Roshi**: The Case: 
+The Case: 
 
 > A monk asked Yun Men, “What is the Pure Body of Reality?”
 >
@@ -47,7 +47,7 @@ The Verse:
 
 #### 0:00
 
-... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
+**Katagiri Roshi**: ... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
 But the important point is that it seems there is no relation between question and answer. That is a really great point which we have to take into account. Nothing to pin down, no relation between them, so there is nothing there – but within the nothingness there is a great “clue” for figuring out the crucial point: what is the truth? So let me say a little bit.
 
