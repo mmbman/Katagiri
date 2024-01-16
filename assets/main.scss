@@ -79,8 +79,15 @@ hr {
 }
 
 .post-content h2 {
+    font-size:28px;
+    text-align: center
+}
+
+@media screen and (max-width: 800px) {
+.post-content h2 {
     font-size:26px;
     text-align: center
+}
 }
 
 .post-content h3 {
