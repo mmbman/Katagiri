@@ -18,7 +18,7 @@ Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the
 
 #### 0:00
 
-**Katagiri Roshi**: [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [*Diamond Sutra*](glossary#diamond-sutra). This is quite different from [*Vimalakirti Sutra*](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. 
+**Katagiri Roshi:** [We will look at] one of the [Mahayana](glossary#mahayana) scriptures: [*Diamond Sutra*](glossary#diamond-sutra). This is quite different from [*Vimalakirti Sutra*](glossary#vimalakirti-sutra) we studied, that was compiled almost in the same century. 
 
 Most of the Mahayana Buddhist scriptures were compiled during the first and the second centuries (CE). The completion of Mahayana *sutras* – Buddhist scriptures – is classified into three periods. The first period is the period in which a group of [Prajnaparamita sutras](glossary#prajnaparamita), or a group of [Saddharma Puṇḍarīka sutras](glossary#saddharma-puṇḍarīka-sutra), and a group of [Avatamsaka sutras](glossary#avatamsaka-sutra), or one more is a group of [Sukhāvatīvyūha sutras](glossary#sukhāvatīvyūha-sutra) – were all compiled during 150 to 270. The second is a period in which a group of [Nirvana sutras](glossary#nirvana-sutra), a group of [Śrīmālādevī Siṃhanāda](glossary#śrīmālādevī-siṃhanāda-sutra) sutras, and a group of [Sandhinirmocana](glossary#sandhinirmocana-sutra) sutras were all compiled, during 210 to 400. The third is the period in which a group of [Yogachara](glossary#yogachara) sutras and a group of esoteric sutras were all compiled, after 480. 
 
