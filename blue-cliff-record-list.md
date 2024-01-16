@@ -6,14 +6,14 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*
 
 [Talk Summaries](blue-cliff-record) \| Talk List
 
-- [Case 1 Talk 1: The Highest Meaning of the Holy Truths](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-- [Case 1 Talk 2: The Highest Meaning of the Holy Truths, Part 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-- [Case 2 Talk 1: The Ultimate Path Is Without Difficulty](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-- [Case 2 Talk 2: The Ultimate Path Is Without Difficulty, Part 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
-- [Case 3 Talk 1: Master Ma Is Unwell](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-- [Case 3 Talk 2: Master Ma Is Unwell, Part 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
-- [Case 4 Talk 1: Te Shan Carrying His Bundle](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
-- [Case 4 Talk 2: Te Shan Carrying His Bundle, Part 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
+- [Case 1: The Highest Meaning of the Holy Truths, Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
+- [Case 1: The Highest Meaning of the Holy Truths, Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
+- [Case 2: The Ultimate Path Is Without Difficulty, Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+- [Case 2: The Ultimate Path Is Without Difficulty, Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
+- [Case 3: Master Ma Is Unwell, Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
+- [Case 3: Master Ma Is Unwell, Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
+- [Case 4: Te Shan Carrying His Bundle, Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
+- [Case 4: Te Shan Carrying His Bundle, Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 - Case 5 Talk 1
 - Case 5 Talk 2
 - Case 7 Talk 1
