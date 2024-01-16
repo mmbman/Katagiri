@@ -11,7 +11,7 @@ Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the
 
 ### Transcript
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">*Listen to this talk on mnzencenter.org*</a> 
+<p align="center"><a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">*Listen to this talk on mnzencenter.org*</a></p>
 
 <a name="000"></a>
 #### 0:00 start of recording
@@ -192,9 +192,6 @@ That’s why we have to continue to sit. I don’t know why. *[He chuckles.]* Bu
 
 ---
 
-*This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-[List](list#1979) \| 
-Previous \| 
-[Next](1979-06-09-Fukanzazengi-Talk-1)
-\| Series: [*Diamond Sutra*](diamond-sutra)
+#### [List](list#1979) \| Previous \| [Next](1979-06-09-Fukanzazengi-Talk-1) \| Series: [*Diamond Sutra*](diamond-sutra)
