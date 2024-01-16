@@ -20,7 +20,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 
 #### 0:00
 
-**Katagiri Roshi**: Good morning. Today, I would like to talk about Buddhist faith, particularly in Zen Buddhism. 
+**Katagiri Roshi:** Good morning. Today, I would like to talk about Buddhist faith, particularly in Zen Buddhism. 
 
 It’s pretty difficult to understand Buddhist faith in the usual sense, because if you study Buddhism, generally, the central philosophy of Buddhism is emptiness. From beginning to end, Buddhist teaching clearly emphasizes the teaching of emptiness as the ultimate nature of existence. 
 
@@ -143,9 +143,9 @@ Do you have questions?
 
 #### 56:40
 
-**Question**: Roshi? Would you say a few words about zazen and this practice. *[Unintelligible.]*
+**Question:** Roshi? Would you say a few words about zazen and this practice. *[Unintelligible.]*
 
-**Katagiri**: That is zazen. I mentioned the meaning of zazen is exactly your life; I mentioned that here. Zazen is sitting, but your sitting is not your individual sitting. That “your sitting” is simultaneously that emptiness or the universe is with your practice of zazen. If you do zazen, always you think “you”, you always think of zazen *limited by* you. The zazen you do is “yours,” but simultaneously that is something more than you. That is one point. That is called Buddha’s samadhi. Buddha’s samadhi means manifestation of the Buddha, manifestation of the intimacy between your life and [emptiness] ...
+**Katagiri:** That is zazen. I mentioned the meaning of zazen is exactly your life; I mentioned that here. Zazen is sitting, but your sitting is not your individual sitting. That “your sitting” is simultaneously that emptiness or the universe is with your practice of zazen. If you do zazen, always you think “you”, you always think of zazen *limited by* you. The zazen you do is “yours,” but simultaneously that is something more than you. That is one point. That is called Buddha’s samadhi. Buddha’s samadhi means manifestation of the Buddha, manifestation of the intimacy between your life and [emptiness] ...
 
 *[Tape change.]*
 
@@ -157,9 +157,9 @@ For instance, if I have a flashlight at night and make a circle, simultaneously 
 
 #### 1:01:00
 
-**Question**: Is the trick in avoiding the gap to be living emptiness and living life at the same time?
+**Question:** Is the trick in avoiding the gap to be living emptiness and living life at the same time?
 
-**Katagiri**: Yes. Because the gap is something you can create in movement. In other words, it depends on the degree of your concentration, intention. Do you understand?
+**Katagiri:** Yes. Because the gap is something you can create in movement. In other words, it depends on the degree of your concentration, intention. Do you understand?
 
 For instance, if I drink this cup recklessly, I can talk with you and I can drink this cup of tea. But if I don’t want to create a gap between this cup and I, all I have to do is keep my mouth shut and drink the cup of tea. That’s pretty good. But in our daily life, do you do this kind of practice? No, you don’t. You always have breakfast reading the newspaper, listening to the radio, and watching TV, chatting with each other. That is a gap. 
 
@@ -167,21 +167,21 @@ That’s why if the people go to the Zen monastery and practice, or if you go to
 
 #### 1:03:20
 
-**Question**: Would you say why it is bad for there to be a gap?
+**Question:** Would you say why it is bad for there to be a gap?
 
-**Katagiri**: It’s not bad. It’s not bad. But it’s not good, anyway. *[Laughter.]* 
+**Katagiri:** It’s not bad. It’s not bad. But it’s not good, anyway. *[Laughter.]* 
 
 The gap is not bad because if you create a gap, you enjoy it very much, you know? *[He laughs.]* Don’t you think so? For instance, if I drink a cup of tea and am talking with this person, that’s pretty nice. You can have communication with people, and you can be friendly with people. I’m drinking a cup of tea and shaking hands. And reading a newspaper while eating breakfast; you can know the whole world. So you can do two things. *[He chuckles.]* Maybe not more. *[Everyone laughs.]* But that’s why it’s not bad. 
 
 But on the other hand, that is pretty confused, you know? Because while I am drinking a cup of tea and talking with him, sometimes my mind is completely blown away. *[Laughter.]* Because I don’t know what I am talking about! *[He laughs.]* Sometimes my daydreams come in: “Oh, this guy is a pretty nice guy.” Something like that. The daydreams come in, if I create something like that. So it’s not bad; but it’s confused. You don’t know what it is, what’s going on, because there is too [much enjoyment] to know who you are. *[He chuckles.]*
 
-**Someone**: Do you still have a question?
+**Someone:** Do you still have a question?
 
-**Same person**: If you’re drinking your cup and talking to me and you don’t think about it, you don’t create a gap. But once you are either thinking about me or drinking the cup, you have created a gap?
+**Same person:** If you’re drinking your cup and talking to me and you don’t think about it, you don’t create a gap. But once you are either thinking about me or drinking the cup, you have created a gap?
 
 *[Everyone laughs.]*
 
-**Katagiri**: Does everyone understand his question? Pretty good. That is the human intellect. *[He laughs.]* Human intellect is always going like that. So I think yes, it’s pretty clever. But I think in human life, sometimes you have to cut that string of human intellect, and keep your mouth shut – just do it. That is also pretty important. If you don’t, constantly you are going, and finally you don’t know in which direction you should go, because there are too many detours.
+**Katagiri:** Does everyone understand his question? Pretty good. That is the human intellect. *[He laughs.]* Human intellect is always going like that. So I think yes, it’s pretty clever. But I think in human life, sometimes you have to cut that string of human intellect, and keep your mouth shut – just do it. That is also pretty important. If you don’t, constantly you are going, and finally you don’t know in which direction you should go, because there are too many detours.
 
 When I was in Los Angeles, the first time I drove on the freeway I was not scared, because I did not know anything about the United States. *[Everyone laughs.]* So I was completely blind. I got the license, and I was very happy to drive on the freeway in Los Angeles. Can you imagine Los Angeles? I cannot do it now. *[Everyone laughs.]* But I did it, anyway. I really hesitated to get off, the moment when I tried to see the sign. I couldn’t get off, and then a big truck behind me honked it’s horn. *[Laughter.]* So I lost the chance to get off. And the next exit, I had the chance to get off at that time. But I didn’t know where I got off, and then simultaneously I saw the sign, “Detour.” So I detoured. But I didn’t know Los Angeles exactly – I had a map, but I didn’t know how to read the map. So I stopped at a gasoline station and asked which way should I go to get to certain freeways. And a gentleman kindly helped me in English, but I didn't understand English well. *[He laughs.]* So I asked twice, and a third time, but I couldn’t ask again a fourth time, fifth time. So the fourth time, I said, “Thank you.” But, nothing to get! *[He laughs.]* So all I had to do was to start once more to drive. So, detour, detour, detour, detour. Finally, I didn’t understand how to get there. That happened in the morning; and then I got to my temple in the evening. *[Laughter.]* I was completely scolded by the archbishop. *[Laughter.]*
 

@@ -18,7 +18,7 @@ What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feel
 
 #### 0:00
 
-**Katagiri Roshi**: *Blue Cliff Record*, Case 3, “Master Ma is Unwell”:
+**Katagiri Roshi:** *Blue Cliff Record*, Case 3, “Master Ma is Unwell”:
 
 > Great Master Ma was unwell. The temple superintendent asked him, “Teacher, how has your venerable health been in recent days?” The Great Master said, “Sun Face Buddha, Moon Face Buddha.”
 > 

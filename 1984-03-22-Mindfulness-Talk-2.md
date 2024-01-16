@@ -21,7 +21,7 @@ The body is total dynamic working, and total dynamic working is like a maple lea
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-38923791" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi**: ... I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual; *as usual* means as [in the] moral sense. So yesterday I talked about Dogen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire world. The entire world is considered as, according to Dogen’s term, the total dynamic working. Generally speaking, it’s nothing but motion, function. So Dogen Zenji uses *the entire world*; that means your body is melted away into the total dynamic working. 
+**Katagiri Roshi:** ... I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual; *as usual* means as [in the] moral sense. So yesterday I talked about Dogen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire world. The entire world is considered as, according to Dogen’s term, the total dynamic working. Generally speaking, it’s nothing but motion, function. So Dogen Zenji uses *the entire world*; that means your body is melted away into the total dynamic working. 
 
 For instance, if you are right in the middle of the function of the flower, you are sucked in, you disappear. Just like a black hole in the universe: everything is sucked in, we don’t know what’s going on in there. But this is nothing but motion and energy, and constantly working [...] This is, we say temporarily, the entire world. So your body is a bag of skin; when you see it from your naked eye, temporarily we say, “Oh, human body is here.” But strictly speaking, the next moment your body is sucked in by total dynamic working. So next moment you don’t know; your body has disappeared. That means total dynamic working; function. That is called *the entire world*. So we say, return home and sit in peace and harmony, return to this total dynamic working. Your body, your nose, each pore, your breath – return to this total dynamic working. So that’s why you don’t know what’s going on there. You don’t know. 
 
@@ -81,83 +81,83 @@ Do you have questions?
 
 #### 2 - 7:30
 
-**Question**: Roshi, what do you mean by the term *time*? 
+**Question:** Roshi, what do you mean by the term *time*? 
 
-**Katagiri**: Um... What do you want to know about time?
+**Katagiri:** Um... What do you want to know about time?
 
 *[Laughter.]*
 
-**Same person**: It seems like every time you use it, I have no sense of what it is, and especially when you talk about the intersection of time and space. You didn’t talk about that today, but you mentioned time, so it brought that up for me. I always have trouble figuring out what that means, because I don’t understand your use of the word time. 
+**Same person:** It seems like every time you use it, I have no sense of what it is, and especially when you talk about the intersection of time and space. You didn’t talk about that today, but you mentioned time, so it brought that up for me. I always have trouble figuring out what that means, because I don’t understand your use of the word time. 
 
-**Katagiri**: Oh, I see. But in the common sense, maybe you can see the twenty four hours, you know? This is also time. In the common sense, we believe that time is going from the past, to the present, to the future. This is our common sense [of] time. And also, that time is always alive within your life, physically and mentally. Your skin, your nose, and each pore is working within the time process. And also, your thoughts, your understanding, your feeling, your emotions, are always working in the process of time. Alright?
+**Katagiri:** Oh, I see. But in the common sense, maybe you can see the twenty four hours, you know? This is also time. In the common sense, we believe that time is going from the past, to the present, to the future. This is our common sense [of] time. And also, that time is always alive within your life, physically and mentally. Your skin, your nose, and each pore is working within the time process. And also, your thoughts, your understanding, your feeling, your emotions, are always working in the process of time. Alright?
 
-**Same person**: *Time* meaning past, present and future? 
+**Same person:** *Time* meaning past, present and future? 
 
-**Katagiri**: Yes: past, present, future. Conspicuously, we always live in time process. It’s very clear. As a teaching we say *cause and effect*: here’s a cause, and effect. Cause, and effect, like this. So we see human life in the time process; that is called the teaching of causation. Alright? 
+**Katagiri:** Yes: past, present, future. Conspicuously, we always live in time process. It’s very clear. As a teaching we say *cause and effect*: here’s a cause, and effect. Cause, and effect, like this. So we see human life in the time process; that is called the teaching of causation. Alright? 
 
 But still there is something more than the teaching of causation: that is so-called *space*. *Space* means the point you occupy, right now, right here. You have *right-now-right-here*, tape recorder has *right-now-right-here*, which [exists]. Everyone has *right-now-right-here*. Right now a myriad *right-now-right-here* exist, in space. Do you understand? *[He chuckles.]* 
 
 And then, if you see that *right-now-right-here* in terms of the time process, all are connected to each other, in one straight line from the past, to the present, to the future. But in terms of space, it’s scattered [all over]. Do you understand? *Right-now-right-here*, *right-now-right-here*... *[Everyone laughs.]* 
 
-**Same person**: This is where I start to get lost. *[Laughter.]*
+**Same person:** This is where I start to get lost. *[Laughter.]*
 
-**Katagiri**: That is space. *[He laughs.]* So trees, and birds, all are separate, you know? Separate, and simultaneously we are connected, in space.
+**Katagiri:** That is space. *[He laughs.]* So trees, and birds, all are separate, you know? Separate, and simultaneously we are connected, in space.
 
 That’s why time is twenty-four hours in the common sense, and is going from the past through the present to the future. And also, if you see time more clearly, in more detail, that time is called *moment*. So your life, your skin, is going metabolically, that is [where] you can see your life, your skin in the time process. So every moment, your skin is working. The moment is the shortest period of time, and the time process consists of many, many, myriad of moments. So in a second we can see there are many moments. That is completely beyond the concept of past, present, and future. That moment is always moving in all directions – not only a certain process, from the past to the present to the future, no. This is [another] understanding of time. 
 
-**Same person**: When you say many moments, you mean like Bonnie’s moment, and Roger’s moment, and your moment, and my moment? 
+**Same person:** When you say many moments, you mean like Bonnie’s moment, and Roger’s moment, and your moment, and my moment? 
 
-**Katagiri**: Sure. Moments.
+**Katagiri:** Sure. Moments.
 
-**Same person**: Is that what you mean by many moments? Everybody’s present [moment]? 
+**Same person:** Is that what you mean by many moments? Everybody’s present [moment]? 
 
-**Katagiri**: Everybody is present in the moment. The microphone exists... the presence of the microphone is based on the moment. We can understand it. But still there are lots of moments we *don’t* understand, within the single moment you can understand. Still [there are things] you don’t know. So one moment consists of 60 or 70 instants. If you hear this sound – *[finger snap]* – the so-called moment, you’ve already missed lots of moments. This is also *moment*. 
+**Katagiri:** Everybody is present in the moment. The microphone exists... the presence of the microphone is based on the moment. We can understand it. But still there are lots of moments we *don’t* understand, within the single moment you can understand. Still [there are things] you don’t know. So one moment consists of 60 or 70 instants. If you hear this sound – *[finger snap]* – the so-called moment, you’ve already missed lots of moments. This is also *moment*. 
 
-**Same person**: You mean you missed lots of moments because you’re paying attention to that [sound]?
+**Same person:** You mean you missed lots of moments because you’re paying attention to that [sound]?
 
-**Katagiri**: Yeah, yeah. Consciousness pays attention to – *[finger snap]* – this sound. And then we say, “moment.” But that moment has a big length and width, because this sound has to reach to your [nose], like this. *[He laughs.]* We say “moment,” but I don’t know, it is not the shortest moment, the shortest time. The shortest time is what? Sixty moments you have missed. *[He laughs.]* The moment when you listen to this moment – *[finger snap]* – you have already missed sixty instants within it.
+**Katagiri:** Yeah, yeah. Consciousness pays attention to – *[finger snap]* – this sound. And then we say, “moment.” But that moment has a big length and width, because this sound has to reach to your [nose], like this. *[He laughs.]* We say “moment,” but I don’t know, it is not the shortest moment, the shortest time. The shortest time is what? Sixty moments you have missed. *[He laughs.]* The moment when you listen to this moment – *[finger snap]* – you have already missed sixty instants within it.
 
-**Same person**: ... Could you describe space again?
+**Same person:** ... Could you describe space again?
 
 *[Laughter]*
 
-**Katagiri**: The place [where] you sit there, that is a space. 
+**Katagiri:** The place [where] you sit there, that is a space. 
 
-**Same person**: So are you saying that that’s a form of time?
+**Same person:** So are you saying that that’s a form of time?
 
-**Katagiri**: Yes. This is time. That space you are thinking [about] – that is time. Your thinking and analyzing, synthesizing, and you see me, and you judge it, et cetera – that is time. 
+**Katagiri:** Yes. This is time. That space you are thinking [about] – that is time. Your thinking and analyzing, synthesizing, and you see me, and you judge it, et cetera – that is time. 
 
-**Same person**: So what is the intersection of time and space?
+**Same person:** So what is the intersection of time and space?
 
-**Katagiri**: The intersection of time and space is the reality you live in. You cannot separate *this is time* and *this is space*. In other words, you exist there, that place. Simultaneously, you cannot see it. You exist there, but you cannot exist there, because time is going. According to space you exist there – that’s clear. But in the time process, you don’t exist, because you have to go! So always there is something there, but something not there. That is the intersection; that always happens. 
+**Katagiri:** The intersection of time and space is the reality you live in. You cannot separate *this is time* and *this is space*. In other words, you exist there, that place. Simultaneously, you cannot see it. You exist there, but you cannot exist there, because time is going. According to space you exist there – that’s clear. But in the time process, you don’t exist, because you have to go! So always there is something there, but something not there. That is the intersection; that always happens. 
 
 That’s why life has a beginning and an end, but there is no beginning and end. That is eternal life. That is space. But that eternal life is where? Is there something special, beyond the place where you sit? No. It’s there. That is time. 
 
 So you are there, but you are not there, at the intersection of time and space. That’s why all gets sucked in, melted away into *something*. And then, [something grows]. So if everything becomes zero, it doesn’t matter, just live there, without any rules, et cetera. But next moment it appears. Something has been melted away into something, and then simultaneously it’s [happening]. In the beginning, I mentioned the *terminal station*.
 
-**Same person**: So what happens when we try to become conscious of the moment?
+**Same person:** So what happens when we try to become conscious of the moment?
 
-**Katagiri**: When you focus on the moment, very naturally you awaken the bodhi mind, the way-seeking mind. Because you have to live there; so the question comes up, how we should live in the moment.
+**Katagiri:** When you focus on the moment, very naturally you awaken the bodhi mind, the way-seeking mind. Because you have to live there; so the question comes up, how we should live in the moment.
 
-**Same person**: But total dynamic working happens without inserting consciousness, right? 
+**Same person:** But total dynamic working happens without inserting consciousness, right? 
 
-**Katagiri**: [It happens] beyond consciousness. Total dynamic working is there, but it’s very difficult to see the total dynamic working; that’s why total dynamic working appears as consciousness. That’s it. 
+**Katagiri:** [It happens] beyond consciousness. Total dynamic working is there, but it’s very difficult to see the total dynamic working; that’s why total dynamic working appears as consciousness. That’s it. 
 
-**Same person**: But that’s after.
+**Same person:** But that’s after.
 
-**Katagiri**: No, not *after*; *[he laughs]* *simultaneously* consciousness appears. If you say *after*, I think that is that you [are already thinking of] the relationship between total dynamic working and consciousness in [terms of] the time process. But it’s not the time process, it’s *simultaneously* there. 
+**Katagiri:** No, not *after*; *[he laughs]* *simultaneously* consciousness appears. If you say *after*, I think that is that you [are already thinking of] the relationship between total dynamic working and consciousness in [terms of] the time process. But it’s not the time process, it’s *simultaneously* there. 
 
 *[He laughs.]* Total dynamic working is functioning with all beings, okay? That’s why Dogen Zenji mentions “the entire universe.”
 
-**Same person**: But what I’m saying is that when you’re thinking about it, it’s already happened. 
+**Same person:** But what I’m saying is that when you’re thinking about it, it’s already happened. 
 
-**Katagiri**: Yeah, it already happened, because *the entire universe* in so-called total dynamic working means that which myriad beings exist in peace and harmony, that’s it. And then at that time the myriad beings must relate with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist; that is *the entire universe*. “Entire universe” means all beings exist. But that is still an idea, so next moment, how does the entire universe exist? That why we say *total dynamic working*. 
+**Katagiri:** Yeah, it already happened, because *the entire universe* in so-called total dynamic working means that which myriad beings exist in peace and harmony, that’s it. And then at that time the myriad beings must relate with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist; that is *the entire universe*. “Entire universe” means all beings exist. But that is still an idea, so next moment, how does the entire universe exist? That why we say *total dynamic working*. 
 
 So total dynamic working as the whole entire universe means each individual must relate with *I*. Otherwise, function doesn’t come into existence. 
 
-**Same person**: And then what happens? Is it [in balance]?
+**Same person:** And then what happens? Is it [in balance]?
 
-**Katagiri**: *[Laughs.]* And then that is called *consciousness*, mind. We have to contact with the other, and then that is called the dualistic world coming up. That is called *mind*, we say mind. Very basically, we have a mind, or all sentient beings are mind – we say *mind only*. That means, basically, all sentient beings exist in the entire universe – how? They are connected with each other, in order to know what each individual is. That is basic. 
+**Katagiri:** *[Laughs.]* And then that is called *consciousness*, mind. We have to contact with the other, and then that is called the dualistic world coming up. That is called *mind*, we say mind. Very basically, we have a mind, or all sentient beings are mind – we say *mind only*. That means, basically, all sentient beings exist in the entire universe – how? They are connected with each other, in order to know what each individual is. That is basic. 
 
 So that is temporarily called mind; we say *mind only*. So the idea of mind only means basically, everything is connected. So the other teaching is dependent co-origination; something like that. Conditions produce something. Anyway, that is basic. That’s why everything is connected. 
 
@@ -165,67 +165,67 @@ That’s very difficult to understand, the basic relationship among each individ
 
 #### 2 - 26:00
 
-**Question**: Does the practice help one become aware of the ten directions? The ten directions, I’m curious, is that different in space and time?
+**Question:** Does the practice help one become aware of the ten directions? The ten directions, I’m curious, is that different in space and time?
 
-**Katagiri**: Space and time.
+**Katagiri:** Space and time.
 
-**Same person**: But are we mostly aware of only a couple of those directions? 
+**Same person:** But are we mostly aware of only a couple of those directions? 
 
-**Katagiri**: No. All directions. 
+**Katagiri:** No. All directions. 
 
-**Same person**: Like linear time, would that be one direction? 
+**Same person:** Like linear time, would that be one direction? 
 
-**Katagiri**: The ten directions means if you have north, west, south, east, and up, down, and ... I forgot. Anyway, in Buddhism we say ten. I forgot [which are the ten]... *(There is some discussion of the ten directions, and some laughter.)* [And northwest, northeast, et cetera.]
+**Katagiri:** The ten directions means if you have north, west, south, east, and up, down, and ... I forgot. Anyway, in Buddhism we say ten. I forgot [which are the ten]... *(There is some discussion of the ten directions, and some laughter.)* [And northwest, northeast, et cetera.]
 
 The ten directions means myriad directions, okay? 
 
 #### 2 - 27:34
 
-**Question**: What of those space and time ... In physics, they teach that ... time and space and you are one point, and the next moment, here and now, so like each event, .... occupies each point. And a person who is looking at those coordinates, but usually are just a point, and sometimes you can draw the line of yourself...  *[unintelligible.]*
+**Question:** What of those space and time ... In physics, they teach that ... time and space and you are one point, and the next moment, here and now, so like each event, .... occupies each point. And a person who is looking at those coordinates, but usually are just a point, and sometimes you can draw the line of yourself...  *[unintelligible.]*
 
-**Katagiri**: Yes, that’s true. So life at the intersection means a kind of event, you know? Life is kind of events which happen at the intersection. Do you understand events? Not the kind of result, event. Event is always something alive, something always happens. It appears and disappears. That is something which happens at the intersection, not only in the time process only. 
+**Katagiri:** Yes, that’s true. So life at the intersection means a kind of event, you know? Life is kind of events which happen at the intersection. Do you understand events? Not the kind of result, event. Event is always something alive, something always happens. It appears and disappears. That is something which happens at the intersection, not only in the time process only. 
 
-**Question**: Is that part of cause and effect?
+**Question:** Is that part of cause and effect?
 
-**Katagiri**: Yes, including cause and effect. And beyond cause and effect, too. Because it’s events. In the time process there is an event, based on time and causation, cause and effect. That is an event. But simultaneously, event appears and next moment disappears. We don’t know where it goes. 
+**Katagiri:** Yes, including cause and effect. And beyond cause and effect, too. Because it’s events. In the time process there is an event, based on time and causation, cause and effect. That is an event. But simultaneously, event appears and next moment disappears. We don’t know where it goes. 
 
-**Same person**: Well it creates a new effect, right? So it becomes a cause.
+**Same person:** Well it creates a new effect, right? So it becomes a cause.
 
-**Katagiri**: So cause and create an effect, and effect becomes new cause, and new cause creates new effect. Like this. So, constantly going.
+**Katagiri:** So cause and create an effect, and effect becomes new cause, and new cause creates new effect. Like this. So, constantly going.
 
-**Same person**: So, I sort of don’t get these questions that ask about being separate from cause and effect. Like, what’s the story about [...] the fox? 
+**Same person:** So, I sort of don’t get these questions that ask about being separate from cause and effect. Like, what’s the story about [...] the fox? 
 
-**Katagiri**: That’s a big question. That’s a long story. *[Laughter.]* That’s very good, yes, you should think about that. *[Laughter.]* 
+**Katagiri:** That’s a big question. That’s a long story. *[Laughter.]* That’s very good, yes, you should think about that. *[Laughter.]* 
 
 If you’re interested in that story, that’s pretty good, so you should study that for your life. It’s a very interesting koan.
 
 #### 2 - 31:05
 
-**Question**: A quick question about mindfulness: is there something called mindfulness in thinking? Not only action and doing something?
+**Question:** A quick question about mindfulness: is there something called mindfulness in thinking? Not only action and doing something?
 
-**Katagiri**: Yes. Including thinking means also action. 
+**Katagiri:** Yes. Including thinking means also action. 
 
 So the definition of mindfulness is not to forget dharma. That is the definition of mindfulness. And the definition of *shamata*, *samadhi*, is to dwell in dharma. Do you understand the difference between shamata, djana, samadhi, and also mindfulness? Idealistically, okay? Idealistically, if you want to know the definition of mindfulness, it is not to forget the dharma. So you have to move toward dharma, constantly, in many ways. But very often you are backsliding. So that’s when we need that practice of mindfulness. But dyana, samadhi, is to dwell in, to be present constantly there. That is samadhi. We say shamata. 
 
 #### 2 - 33:00
 
-**Question**: Roshi? There’s something you said this morning, and I don’t even know if I understand it well enough to ask the question. The word might have been shamata, I don’t know, but you used one japanese word and then you said that was right on the edge of human life. You said we’re one ... right on that edge, this other one ... the beginning. I didn’t understand how you were using human life, and I don’t understand the other word you used. 
+**Question:** Roshi? There’s something you said this morning, and I don’t even know if I understand it well enough to ask the question. The word might have been shamata, I don’t know, but you used one japanese word and then you said that was right on the edge of human life. You said we’re one ... right on that edge, this other one ... the beginning. I didn’t understand how you were using human life, and I don’t understand the other word you used. 
 
-**Katagiri**: Because we don’t understand how we connect between the universe and the human world. That’s why temporarily I say so. But actually there is no partition between the universe and the phenomenal world. 
+**Katagiri:** Because we don’t understand how we connect between the universe and the human world. That’s why temporarily I say so. But actually there is no partition between the universe and the phenomenal world. 
 
-**Same person**: You didn’t mean death? 
+**Same person:** You didn’t mean death? 
 
-**Katagiri**: No. It’s all [...] According to common sense there is death, a beginning and end; life always has a beginning and an end. But simultaneously, within the beginning and end of human life, still there is no beginning and no end of human life. Do you understand? 
+**Katagiri:** No. It’s all [...] According to common sense there is death, a beginning and end; life always has a beginning and an end. But simultaneously, within the beginning and end of human life, still there is no beginning and no end of human life. Do you understand? 
 
 Even though you don’t experience [this], we hope. We cannot ignore that eternal life. 
 
-**Same person**: I guess I was thinking that something about every moment, there is human world, and then right on the edge of that is some other way of being in every moment. But that isn’t what you mean? 
+**Same person:** I guess I was thinking that something about every moment, there is human world, and then right on the edge of that is some other way of being in every moment. But that isn’t what you mean? 
 
-**Katagiri**: Every moment in the moment there is a beginning and end, but simultaneously moment expands to everyday actions. So no beginning and end. 
+**Katagiri:** Every moment in the moment there is a beginning and end, but simultaneously moment expands to everyday actions. So no beginning and end. 
 
-**Same person**: So is that the same as life and death? 
+**Same person:** So is that the same as life and death? 
 
-**Katagiri**: [...] Life and death. That is time and space. In the time process, time always has a beginning and end. And simultaneously it’s not an end. 
+**Katagiri:** [...] Life and death. That is time and space. In the time process, time always has a beginning and end. And simultaneously it’s not an end. 
 
 So strictly speaking, there is no end and no beginning, because the real moment has no sense of its width and length. If you see the moment which has it’s own width and length, that is the idea of the moment. That is just like a dot. But you cannot draw the real moment as a dot. So moment appears, next moment it doesn’t appear, it disappears. Appears, disappears. That simultaneously happens. And then disappears [means] it is gone? No. New things appear. 
 
@@ -235,25 +235,25 @@ But anyway, moment is appear and disappear, from this point moment has its begin
 
 #### 2 - 38:10
 
-**Question**: I have a question regarding free will. If what you do depends on the previous efforts you made, then where does the freedom come in to make and effort that will determine your future? 
+**Question:** I have a question regarding free will. If what you do depends on the previous efforts you made, then where does the freedom come in to make and effort that will determine your future? 
 
-**Katagiri**: Where does freedom come from? 
+**Katagiri:** Where does freedom come from? 
 
-**Same person**: Mmm-hmm. 
+**Same person:** Mmm-hmm. 
 
-**Katagiri**: Freedom comes from your actions. 
+**Katagiri:** Freedom comes from your actions. 
 
-**Same person**: But are your actions determined by previous actions?
+**Same person:** But are your actions determined by previous actions?
 
-**Katagiri**: Including previous and future? Or [...]? Because you can act without your past. So your action, your doing, related with your past. Don’t you think so? 
+**Katagiri:** Including previous and future? Or [...]? Because you can act without your past. So your action, your doing, related with your past. Don’t you think so? 
 
-**Same person**: Whether or not I make the effort to do zazen depends on my karma. 
+**Same person:** Whether or not I make the effort to do zazen depends on my karma. 
 
-**Katagiri**: No...
+**Katagiri:** No...
 
-**Same person**: So you could say that you have no choice to make an effort, that either you will or you won’t, you have no control over that.
+**Same person:** So you could say that you have no choice to make an effort, that either you will or you won’t, you have no control over that.
 
-**Katagiri**: In a sense, no control. But that’s why you can control. When it’s no control, that’s where you can control, you can be ..., you can make a choice. Basically, no control. Basically, if your life is controlled by something, you cannot control, because it’s already fixed. The basis is completely no control, freedom. That is total dynamic working. That’s why we can make an effort to do something. That is your actions. 
+**Katagiri:** In a sense, no control. But that’s why you can control. When it’s no control, that’s where you can control, you can be ..., you can make a choice. Basically, no control. Basically, if your life is controlled by something, you cannot control, because it’s already fixed. The basis is completely no control, freedom. That is total dynamic working. That’s why we can make an effort to do something. That is your actions. 
 
 So within your actions, you can control, you can make effort, but you should understand action beyond your control. That is called the entire world, we say. Or in other words, if you use the negative sense, that is no effort. You can make effort, but no effort. 
 
@@ -269,37 +269,37 @@ According to the Diamond Sutra, we say, “Awaken the mind without abiding in an
 
 ... so if you want to make your life very strong, you become very calm. Nothing to say. That is *shamata*. Zazen.
 
-**Same person**: So the freedom is not in the choice of the actions, but in the choice of the mindfulness in the action? So not so much good zazen or bad zazen, or do it or don’t do it, but mindfulness in the total working? No matter what?
+**Same person:** So the freedom is not in the choice of the actions, but in the choice of the mindfulness in the action? So not so much good zazen or bad zazen, or do it or don’t do it, but mindfulness in the total working? No matter what?
 
-**Katagiri**: Mm-hm. I think so. That means not the idea of mindfulness, okay? Do you understand? 
+**Katagiri:** Mm-hm. I think so. That means not the idea of mindfulness, okay? Do you understand? 
 
-**Same person**: Not mindful of anything, but mindful *in* everything. 
+**Same person:** Not mindful of anything, but mindful *in* everything. 
 
-**Katagiri**: No, not in. If you say *in* mindfulness, already you see the mindful objective. No.
+**Katagiri:** No, not in. If you say *in* mindfulness, already you see the mindful objective. No.
 
-**Same person**: So just...
+**Same person:** So just...
 
-**Katagiri**: You must be mindfulness itself. That is action, activity. 
+**Katagiri:** You must be mindfulness itself. That is action, activity. 
 
-**Same person**: So no object.
+**Same person:** So no object.
 
-**Katagiri**: No object. But still there is an object, okay? You shouldn’t forget this. If you are always emphasizing “no object, no subject,” that makes your life very messy. No. That’s why life has a beginning and end, based on causation. Because there is a teaching of causation there, principle of existence based on causation. No one escapes from this. So it has a beginning and end. From this point, you cannot be the blind. Do you understand? And then, within the beginning, within the middle, within the end, and then you have to have to create life based on no end, no beginning. What is this? That’s a really big koan for you, don’t you think? For everyone. 
+**Katagiri:** No object. But still there is an object, okay? You shouldn’t forget this. If you are always emphasizing “no object, no subject,” that makes your life very messy. No. That’s why life has a beginning and end, based on causation. Because there is a teaching of causation there, principle of existence based on causation. No one escapes from this. So it has a beginning and end. From this point, you cannot be the blind. Do you understand? And then, within the beginning, within the middle, within the end, and then you have to have to create life based on no end, no beginning. What is this? That’s a really big koan for you, don’t you think? For everyone. 
 
 But we are very easily caught by ideas; always ideas. Even though you understand what I said, actions and activity, still your life doesn’t actually follow it, because your life is always ... by ideas. That’s why practice is very important. Bodhisattvas suffer from their life. How to be one with the principle and action. 
 
-**Same person**: So just doing life, in the presence of the ideas, anyway the ideas are there, coming and going, but just doing, but raking the leaves. Anyway, the ideas will be there. Why not? 
+**Same person:** So just doing life, in the presence of the ideas, anyway the ideas are there, coming and going, but just doing, but raking the leaves. Anyway, the ideas will be there. Why not? 
 
-**Katagiri**: So [...] life is very normal, nothing special. So when death comes, please die; that’s it. *[He laughs.]* That’s very terrible for us, don’t you think so? *[Laughter.]* Life comes, please live. Death comes, please die. That’s pretty hard for us, because we always want something.
+**Katagiri:** So [...] life is very normal, nothing special. So when death comes, please die; that’s it. *[He laughs.]* That’s very terrible for us, don’t you think so? *[Laughter.]* Life comes, please live. Death comes, please die. That’s pretty hard for us, because we always want something.
 
 So that is really peace, religious security. That is *mountain is mountain*, that’s it. But that *mountain is mountain* has passed through a filter myriad times. A thousand million times, you have to pass through this filter. 
 
-**Same person**: Conceptions, conceptions, conceptions, and then, just the mountain. 
+**Same person:** Conceptions, conceptions, conceptions, and then, just the mountain. 
 
-**Katagiri**: What do you mean, conceptions?
+**Katagiri:** What do you mean, conceptions?
 
-**Same person**: Ideas, and ideas, and then finally, just filtered. 
+**Same person:** Ideas, and ideas, and then finally, just filtered. 
 
-**Katagiri**: Well, ideas, ideas, but ideas are simultaneously no idea, because you have to pass through this filter. That means you hold it, but you have to be free from that. Do you understand that? That means don’t hang on to your ideas. That means you polish [it]; your eyes must be sharp and your eyes must be bright. For this, how can I get it? For this, practically, we have to pass through that filter. That is practice. It’s pretty hard, pretty hard to pass through this filter, it’s very hard; but if you don’t, it’s very hard to live in peace and harmony. The world doesn’t operate as a whole. Just like the engine of a car. 
+**Katagiri:** Well, ideas, ideas, but ideas are simultaneously no idea, because you have to pass through this filter. That means you hold it, but you have to be free from that. Do you understand that? That means don’t hang on to your ideas. That means you polish [it]; your eyes must be sharp and your eyes must be bright. For this, how can I get it? For this, practically, we have to pass through that filter. That is practice. It’s pretty hard, pretty hard to pass through this filter, it’s very hard; but if you don’t, it’s very hard to live in peace and harmony. The world doesn’t operate as a whole. Just like the engine of a car. 
 
 So always you have to pay attention aspect, always moving very positively, but simultaneously you have to withdraw – that doesn’t mean going back, but reflect upon. Reflect upon, and move. That means holding experience, and let it go. Experience, let it go. In order to experience something, you have to consider very carefully what to do, because that is human action. You have to be very careful what to do. And then, do it. But there is a very strong reflection, and then, whatever it is, if you have to do it, you have to do it. Just do it, moving towards it. But on the other hand, we have to be very humble. Humble, or majestic, and also very modest. Not arrogant. 
 

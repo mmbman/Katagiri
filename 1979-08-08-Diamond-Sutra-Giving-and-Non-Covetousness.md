@@ -18,7 +18,7 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 
 #### 0:00
 
-**Katagiri Roshi**: 
+**Katagiri Roshi:** 
 
 *(The recording begins toward the end of Katagiri Roshi quoting the passage below. He then repeats it.)*
 

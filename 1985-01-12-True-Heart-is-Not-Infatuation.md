@@ -18,7 +18,7 @@ title: "True Heart is Not Infatuation"
 
 #### 0:00
 
-**Katagiri Roshi**: In the *Lotus Sutra*, Chapter 25, it says:
+**Katagiri Roshi:** In the *Lotus Sutra*, Chapter 25, it says:
 
 > If there by countless hundred thousand million ... of living beings suffering from pain and distress who hear of this Bodhisattva Regarder of the Cries of the World, and with all their mind call upon his name, the Bodhisattva Regarder of the Cries of the World will instantly regard their cries, and of them will be delivered. 
 

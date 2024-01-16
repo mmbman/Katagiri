@@ -27,7 +27,7 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 
 #### 2:40
 
-**Katagiri Roshi**: In the commentary [on the] Zen Precepts, it says, 
+**Katagiri Roshi:** In the commentary [on the] Zen Precepts, it says, 
 
 > *Precepts* refers to restraint and extermination. Shakyamuni Buddha, who started sitting in zazen under a bodhi tree, ended in attainment of enlightenment and establishment of the precepts; this is named restraint. It means to put on a brake, to stop in the realm of the truth that I and all beings on the great earth both simultaneously attain enlightenment together. That is why it is called Buddha’s precepts.
 >
@@ -131,13 +131,13 @@ Do you have questions?
 
 #### 57:14
 
-**Question**: At Hokyoji last summer, Narasaki Roshi ... we had a full moon ceremony, taking the Precepts, which maybe they do every month [...] in Japan?
+**Question:** At Hokyoji last summer, Narasaki Roshi ... we had a full moon ceremony, taking the Precepts, which maybe they do every month [...] in Japan?
 
-**Katagiri**: Twice a month. 
+**Katagiri:** Twice a month. 
 
-**Question**: Could you say a little bit about that, and say if we’ll ever do that here? 
+**Question:** Could you say a little bit about that, and say if we’ll ever do that here? 
 
-**Katagiri**: Yeah, I am thinking of practicing that one in Hokyoji. Someday.
+**Katagiri:** Yeah, I am thinking of practicing that one in Hokyoji. Someday.
 
 #### 57:56 end of recording
 

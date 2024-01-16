@@ -18,7 +18,7 @@ title: "Genjokoan: A, B, and C Worlds"
 
 #### 0:00
 
-**Katagiri Roshi**: \[At the beginning of] [*Shobogenzo*](topics#shobogenzo) [*Genjokoan*](topics#genjokoan) [it says]:
+**Katagiri Roshi:** \[At the beginning of] [*Shobogenzo*](topics#shobogenzo) [*Genjokoan*](topics#genjokoan) [it says]:
 
 > When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are [Buddhas](glossary#buddha), there are sentient beings.
 

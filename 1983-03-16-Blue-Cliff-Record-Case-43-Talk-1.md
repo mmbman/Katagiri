@@ -17,7 +17,7 @@ title: "Blue Cliff Record Case 43: Tung Shan’s No Cold or Heat, Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi**: Case 43: “Tung Shan’s No Cold or Heat”
+**Katagiri Roshi:** Case 43: “Tung Shan’s No Cold or Heat”
 
 The pointer:
 

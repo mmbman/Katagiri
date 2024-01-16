@@ -27,7 +27,7 @@ title: "Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts"
 
 #### 2:10
 
-**Katagiri Roshi**: Today, I would like to explain, one by one, the Ten Prohibitory Precepts. (*Transcriber’s Note:* The first Prohibitory Precept is discussed in this talk. The second was discussed in a talk that followed this one, which is lost. The third is discussed in [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
+**Katagiri Roshi:** Today, I would like to explain, one by one, the Ten Prohibitory Precepts. (*Transcriber’s Note:* The first Prohibitory Precept is discussed in this talk. The second was discussed in a talk that followed this one, which is lost. The third is discussed in [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
 
 I think the Ten Great Prohibitory Precepts mean to actualize the embodiment of living in vow which corresponds to the Three Collective Precepts: the precepts of “all Buddha’s laws and rules,” “collective wholesome dharma,” and “collective inconceivable activity for all beings.” 
 
@@ -77,9 +77,9 @@ But, I want to ask you – do you understand the *real* reality [in] which life 
 
 For instance, when you awaken from sleep, can you understand the real reality that awakening is awakening? Do you? You say, “I understand awakening” – [what does that mean]? [Let’s imagine that] there is a very thin partition. The left side is *A*, and the right side is *B*. And then *A* is the sleeping world, the sphere of sleeping; and then the sleeping goes through this partition and I enter the *B* world, so-called awakening. So you say, “I awake from sleep.” Then, what do you mean “awakening”? Which kind of awakening do you understand? Which is *A* and *B*; what kind of awakening do you understand? Please tell me.
 
-**Question**: The transition from one to the other?
+**Question:** The transition from one to the other?
 
-**Katagiri**: Yes. The transition – but what do you mean by *transition*? Transition is questionable too. *[He laughs.]* (*Transcriber’s Note:* This section is difficult to transcribe.) [I may still think] awakening [as the transition] is the result or effect of awakening. In other words, the idea of awakening you understand is just an idea, so-called *A* and *B*, before or after real awakening itself; you don’t know real awakening, because real awakening is [that you have to pass through this partition]. Temporarily I say “partition”, but this partition means awakening is awakening. This partition is a world [in] which awakening is awakening constantly. This is called *moment*. 
+**Katagiri:** Yes. The transition – but what do you mean by *transition*? Transition is questionable too. *[He laughs.]* (*Transcriber’s Note:* This section is difficult to transcribe.) [I may still think] awakening [as the transition] is the result or effect of awakening. In other words, the idea of awakening you understand is just an idea, so-called *A* and *B*, before or after real awakening itself; you don’t know real awakening, because real awakening is [that you have to pass through this partition]. Temporarily I say “partition”, but this partition means awakening is awakening. This partition is a world [in] which awakening is awakening constantly. This is called *moment*. 
 
 [...] You say this moment – *[finger snap]* – is still the idea of moment, idea of time, [that] you can catch. But 2500 years ago, already the *Abhidharma* talked about the very shortest period of time, so-called 1/75th of a moment, or 1/60th of a moment. 
 
@@ -103,9 +103,9 @@ That is the Buddha’s world; now let’s [look at] *facilitate the growth*.
 
 Where is the real facilitation of growth? In the conceptual world? What is the source of energy which helps grow, or what is the source of the sphere where everything is facilitating the growth? Where is it? In the conceptual world? Or *A* world, or *B* world? Where is it? Tell me. Tomorrow, or yesterday? Where is it?
 
-**Student**: It’s wherever it is. 
+**Student:** It’s wherever it is. 
 
-**Katagiri**: Yes it is. *Before* you put the name on where we are. Because “where we are” is *where-ing we are*. *[He laughs.]* It’s just [that] we are going, so there is no room to say something. It is constantly dynamic working; that’s why Dogen Zenji says that life is the full manifestation of total dynamic working. So [there is] no room to conceptualize; just working. And then, if you want to taste this, it is practice. We have to be *right on*, be right there, [exactly] present there. We have to be right in harmony with. At that time, what is this? It’s not discussion; [it’s] practice in motion. Just you have to do it.
+**Katagiri:** Yes it is. *Before* you put the name on where we are. Because “where we are” is *where-ing we are*. *[He laughs.]* It’s just [that] we are going, so there is no room to say something. It is constantly dynamic working; that’s why Dogen Zenji says that life is the full manifestation of total dynamic working. So [there is] no room to conceptualize; just working. And then, if you want to taste this, it is practice. We have to be *right on*, be right there, [exactly] present there. We have to be right in harmony with. At that time, what is this? It’s not discussion; [it’s] practice in motion. Just you have to do it.
 
 So that is the source of facilitation of the growth. And also, from that source of facilitation of the growth, then there is a Buddha seed. Because that source of helping the growth, facilitating the growth, is [the] seed of Buddha, the source of your energy, so-called *life*. So there is a seed. If you are there, very naturally [the] seed grows. 
 
@@ -151,85 +151,85 @@ Do you have questions?
 
 #### 50:10 
 
-**Question**: I’ve always understood what we’re doing here, in that we’re trying to get beyond this compulsive choice making that is being encapsulated by dualism...
+**Question:** I’ve always understood what we’re doing here, in that we’re trying to get beyond this compulsive choice making that is being encapsulated by dualism...
 
-**Katagiri**: Mmm.
+**Katagiri:** Mmm.
 
-**Question**: ... But you seem to say more than that, and that is that we’re not even aware of the stream of events or the context in which things are occurring. And it strikes me that the mind inevitably must deal with each individual event or object within a context, ... 
+**Question:** ... But you seem to say more than that, and that is that we’re not even aware of the stream of events or the context in which things are occurring. And it strikes me that the mind inevitably must deal with each individual event or object within a context, ... 
 
-**Katagiri**: Yes. 
+**Katagiri:** Yes. 
 
-**Question**: ... that is, nothing has meaning unless it’s seen in a stream of events, or as a set of a larger group of objects. It’d be like watching a television program frame by frame, without seeing where things came from and where they’re going. And so it seems to me that unless we deal with individual things within a larger context that we just become ignorant. And then we have to have somebody tell us what to do. 
+**Question:** ... that is, nothing has meaning unless it’s seen in a stream of events, or as a set of a larger group of objects. It’d be like watching a television program frame by frame, without seeing where things came from and where they’re going. And so it seems to me that unless we deal with individual things within a larger context that we just become ignorant. And then we have to have somebody tell us what to do. 
 
 So I guess for me I don’t quite understand the distinction between dualism and what you seem to be saying, not being aware of the context of events.
 
-**Katagiri**: That’s why I mentioned as an example the *A* and *B*. *A* and *B* are dualistic world. But if you want to know *A* and *B*, *A* and *B* both go through *this*, the world of the 1/75th of a moment. So you cannot ignore the *A* and *B*. The point is, you have to understand where you are, from *where* you understand *A* and *B*. 
+**Katagiri:** That’s why I mentioned as an example the *A* and *B*. *A* and *B* are dualistic world. But if you want to know *A* and *B*, *A* and *B* both go through *this*, the world of the 1/75th of a moment. So you cannot ignore the *A* and *B*. The point is, you have to understand where you are, from *where* you understand *A* and *B*. 
 
-**Question**: Well, is it then seeing *A* and *B* as part of a set?
+**Question:** Well, is it then seeing *A* and *B* as part of a set?
 
-**Katagiri**: *A* and *B* is kind of a flower, and branches, and leaves. But without the stem, without the root, it’s impossible to grow. What you have to do is, [see] where you are standing. We have to stand up [in] this partition, this world, and see clearly as best as we can where we are standing, and then we can see the *A* and *B* in the universal perspective, and we can deal with it. But usually, people stand up [in] *A* world, or *B* world, and then understand or deal with only *B* world. And then *A* world tries to join into the *B* world, and then people are fighting and struggling, et cetera. Because they don’t stand up here, [in the partition]. This is the source of your energies, so-called *moment*. Moment means you have to go through [it]. In order to understand sleep and awakening from sleep, you have passed through this moment. That moment is, I said, *awakening is awakening*. 
+**Katagiri:** *A* and *B* is kind of a flower, and branches, and leaves. But without the stem, without the root, it’s impossible to grow. What you have to do is, [see] where you are standing. We have to stand up [in] this partition, this world, and see clearly as best as we can where we are standing, and then we can see the *A* and *B* in the universal perspective, and we can deal with it. But usually, people stand up [in] *A* world, or *B* world, and then understand or deal with only *B* world. And then *A* world tries to join into the *B* world, and then people are fighting and struggling, et cetera. Because they don’t stand up here, [in the partition]. This is the source of your energies, so-called *moment*. Moment means you have to go through [it]. In order to understand sleep and awakening from sleep, you have passed through this moment. That moment is, I said, *awakening is awakening*. 
 
-**Question**: Can you fully experience the present moment and still be aware of the context in which it exists?
+**Question:** Can you fully experience the present moment and still be aware of the context in which it exists?
 
-**Katagiri**: Yes [you can].
+**Katagiri:** Yes [you can].
 
-**Question**: Okay. 
+**Question:** Okay. 
 
-**Katagiri**: That is the zazen we do. That’s why in zazen, we say “throw away all worldly affairs, good and bad, right and wrong.” *[He laughs.]* We say so, because if you are involved in the [conceptual] world, you already stand up [in] *A* and *B* world, dualistic world. So you never sit down here; you are always looking at zazen in terms of either *A* world or in terms of *B* world – before, or after. That’s why you don’t know zazen itself. 
+**Katagiri:** That is the zazen we do. That’s why in zazen, we say “throw away all worldly affairs, good and bad, right and wrong.” *[He laughs.]* We say so, because if you are involved in the [conceptual] world, you already stand up [in] *A* and *B* world, dualistic world. So you never sit down here; you are always looking at zazen in terms of either *A* world or in terms of *B* world – before, or after. That’s why you don’t know zazen itself. 
 
 [Zazen itself] is called *shikantaza*. *Shikan* – we say *wholeheartedness*. But even though you don’t understand it, if you practice following the suggestions, then you can exactly experience it, you can touch it. So that’s why all we have to do is continually to be *right on there*, *right on there*, *right on there*. This is the way of “facilitating the growth of the Buddha seed.” Naturally, it’s growth. But intellectually, we don’t understand it, consciousness doesn’t accept it easily. Because it’s far from it, but it’s too close to know. 
 
 #### 55:54
 
-**Question**: Hojo-san? I was just wondering about you using the word *moment*. [Maybe it’s a] small point here, but I was thinking maybe the word *instant* would be a better choice of words. 
+**Question:** Hojo-san? I was just wondering about you using the word *moment*. [Maybe it’s a] small point here, but I was thinking maybe the word *instant* would be a better choice of words. 
 
-**Katagiri**: Oh. Okay. 
+**Katagiri:** Oh. Okay. 
 
-**Question**: Because the moment sometimes can be like I say, “one moment, please,” and then you wait... *[Katagiri laughs]* [But you’re] talking about 1/75th of an instant. Because you mean something very brief, no duration.
+**Question:** Because the moment sometimes can be like I say, “one moment, please,” and then you wait... *[Katagiri laughs]* [But you’re] talking about 1/75th of an instant. Because you mean something very brief, no duration.
 
-**Katagiri**: I see. Okay.
+**Katagiri:** I see. Okay.
 
 #### 56:28
 
-**Question**: Hojo-san, when you say zazen, sometimes the image I get of zazen is a place where there is no awareness. But I remember Narasaki Roshi’s image of the transparent pyramid. I was thinking of this in terms of [the previous] question. 
+**Question:** Hojo-san, when you say zazen, sometimes the image I get of zazen is a place where there is no awareness. But I remember Narasaki Roshi’s image of the transparent pyramid. I was thinking of this in terms of [the previous] question. 
 
-**Katagiri**: Transparent?
+**Katagiri:** Transparent?
 
-**Question**: The transparent pyramid, in which we have thinking, non-thinking, and not thinking, are the three sides of the pyramid.
+**Question:** The transparent pyramid, in which we have thinking, non-thinking, and not thinking, are the three sides of the pyramid.
 
-**Katagiri**: Mmm-hmm. Yes.
+**Katagiri:** Mmm-hmm. Yes.
 
-**Question**: And each is seen through the transparency of the other. 
+**Question:** And each is seen through the transparency of the other. 
 
-**Katagiri**: Mmm-hmm.
+**Katagiri:** Mmm-hmm.
 
-**Question**: That’s how in the moment, we do not lose contact. 
+**Question:** That’s how in the moment, we do not lose contact. 
 
-**Katagiri**: Mmm-hmm. That means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetrating at superspeed. You can see that, if you stand up in this instant world, instant sphere. *Instant* doesn’t mean instant, okay? *[He chuckles.]* *Instant* means eternal world, the vastness of existence. But it is a source of your life. That’s why I say *instant* or *moment*. Let me say *instant*, do you think? *[He laughs.]* Instant: right there. 
+**Katagiri:** Mmm-hmm. That means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetrating at superspeed. You can see that, if you stand up in this instant world, instant sphere. *Instant* doesn’t mean instant, okay? *[He chuckles.]* *Instant* means eternal world, the vastness of existence. But it is a source of your life. That’s why I say *instant* or *moment*. Let me say *instant*, do you think? *[He laughs.]* Instant: right there. 
 
 And if you stand up there, there are two things and more than two, because around the *A* world many beings exist, around the *B* world many beings exist, and those are interdependent, interpenetrating at superspeed. So you can see the really beautiful panoramic pictures. 
 
 That is so-called “I use the twenty-four hours instead of being used by the twenty-four hours.” (*Transcriber’s Note:* This is probably a reference to a saying by Yunmen Wenyan; see [*The Awakening of Faith*: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness).) Usually a human being is *used by* A and B, they don’t know how to *use* A and B. So if you want to properly use [the] *A* and *B* dualistic world, you have to stand up there, as clear as you can. This is awareness. But if you stand up there, awareness is simultaneously no awareness, [it] drops off. But simultaneously awareness is there. So awareness and no awareness are always interdependent. 
 
-**Question**: Then the important thing is how you respond to the awareness. If you’re at the partition and you know there’s *A* and *B*, the dualistic way is to say, “Oh, I have to be at *A*,” and get all upset, but the way that you’re talking about is to instead put your consciousness into the moment that you’re in, and accept both *A* and *B*.
+**Question:** Then the important thing is how you respond to the awareness. If you’re at the partition and you know there’s *A* and *B*, the dualistic way is to say, “Oh, I have to be at *A*,” and get all upset, but the way that you’re talking about is to instead put your consciousness into the moment that you’re in, and accept both *A* and *B*.
 
-**Katagiri**: Yes. But – you should accept, but you shouldn’t be excited too much, you shouldn’t be disappointed too much. Not too pessimistic, not too optimistic. [We call that] the Middle Way. You should accept *A* and *B* because immediately you can see beautiful pictures, but at that time, that is called *you can use it*, you can handle it. But don’t be excited too much. You cannot be optimistic, you cannot be pessimistic... you cannot be neutral. *[He laughs.]* Totally you have to be fully alive, every day, from moment to moment. That’s why [Yun Men] says “Every day is a good day.” (*Transcriber’s Note:* This is probably a reference to *Blue Cliff Record* Case 6.) “Every day is a good day” means from moment to moment you have to be alive, just like a leaping fish. But more or less, we feel pessimistic, and then we are bogged down with pessimism. We love the optimistic world, so next moment we are rushing to the other side, and then we’re excited. *[He laughs.]* So we are always missing this most important point: the Middle Way. 
+**Katagiri:** Yes. But – you should accept, but you shouldn’t be excited too much, you shouldn’t be disappointed too much. Not too pessimistic, not too optimistic. [We call that] the Middle Way. You should accept *A* and *B* because immediately you can see beautiful pictures, but at that time, that is called *you can use it*, you can handle it. But don’t be excited too much. You cannot be optimistic, you cannot be pessimistic... you cannot be neutral. *[He laughs.]* Totally you have to be fully alive, every day, from moment to moment. That’s why [Yun Men] says “Every day is a good day.” (*Transcriber’s Note:* This is probably a reference to *Blue Cliff Record* Case 6.) “Every day is a good day” means from moment to moment you have to be alive, just like a leaping fish. But more or less, we feel pessimistic, and then we are bogged down with pessimism. We love the optimistic world, so next moment we are rushing to the other side, and then we’re excited. *[He laughs.]* So we are always missing this most important point: the Middle Way. 
 
 I don’t mean you should always [be] “calm”. *[He laughs.]* Excitement is always coming up, but within the excitement, how much do you excite? This is a question. How much? I don’t know. *[He laughs.]* It’s natural for excitement to come up; I don’t mean you *shouldn’t* make excitement. You can see the excitement naturally, because it’s dualistic. But a question is, how do you accept excitement to the minimum – in other words simply, as simple as you can. 
 
 #### 1:02:22
 
-**Question**: Hojo-san? In what you’re saying about being with the moment rather than attaching with *A* or with *B*, how does it fit in with the sense of sometimes needing ideas to guide you, or ideals? Or imagining, say, a social situation in a different kind of way, and working toward that? Is that...
+**Question:** Hojo-san? In what you’re saying about being with the moment rather than attaching with *A* or with *B*, how does it fit in with the sense of sometimes needing ideas to guide you, or ideals? Or imagining, say, a social situation in a different kind of way, and working toward that? Is that...
 
-**Katagiri**: Ideal image? What do you mean?
+**Katagiri:** Ideal image? What do you mean?
 
-**Another person**: Kind of your problem solving.
+**Another person:** Kind of your problem solving.
 
-**Katagiri**: Oh, problem. Well, [there are] many problems, so it depends on the problem. Sometimes a small problem and sometimes a big problem, and sometimes you can find the solution by yourself, but sometimes you cannot. Maybe you have to find the solution together with people; sometimes it takes a long time. Lots of kinds of problems. But even though it takes a long time to solve, anyway from moment to moment, basically the base where you stand up is constantly that sphere I mentioned, that sphere where you are neither excited too much nor pessimistic too much.
+**Katagiri:** Oh, problem. Well, [there are] many problems, so it depends on the problem. Sometimes a small problem and sometimes a big problem, and sometimes you can find the solution by yourself, but sometimes you cannot. Maybe you have to find the solution together with people; sometimes it takes a long time. Lots of kinds of problems. But even though it takes a long time to solve, anyway from moment to moment, basically the base where you stand up is constantly that sphere I mentioned, that sphere where you are neither excited too much nor pessimistic too much.
 
-**Question**: But in that process is there a place for your imagination of an idea?
+**Question:** But in that process is there a place for your imagination of an idea?
 
-**Katagiri**: Sure, you can use lots of imagination. 
+**Katagiri:** Sure, you can use lots of imagination. 
 
 For instance, in my case, I have to [give a] talk in English, you know? And then if look at myself, this is *big* problem for me, still a problem. And then, how can I find a solution to this? But basically, I have to stand up always in that Middle Way, constantly stand up. And then, I can use lots of ideas. [A] beautiful image, so-called “eternal possibility.” *[He laughs.]* 
 

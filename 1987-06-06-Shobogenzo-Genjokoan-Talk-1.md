@@ -16,7 +16,7 @@ title: "Genjokoan: Talk 1 (Egolessness)"
 
 #### 0:00
 
-**Katagiri Roshi**: At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan). You have the textbook; the title in English is “The Issue At Hand.” *(Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)*
+**Katagiri Roshi:** At this time, I would like to study [egolessness](glossary#egolessness) through [Dogen](glossary#dogen)’s teaching, particularly [*Genjokoan*](topics#genjokoan). You have the textbook; the title in English is “The Issue At Hand.” *(Transcriber’s Note: The translation is Thomas Cleary’s; it is available on [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)*
 
 There are two crucial points in practicing and studying [Buddhism](glossary#buddhism) in general. The first one is the practice of egolessness. I don’t know how I can say it; you don’t understand “the practice of egolessness”... or excuse me, [I should say,] probably you have questions how you should practice egolessness. But anyway, temporarily I’ll use [the term] *the practice of egolessness*. 
 
@@ -46,69 +46,69 @@ And also, *compassion* is not merely kindness or friendliness; compassion is *sa
 
 Are you familiar with salvation? What do you understand [from the word] salvation? If I use the term salvation, how do you feel?
 
-**Person**: Being saved.
+**Person:** Being saved.
 
-**Katagiri**: Being saved. What do you mean, being saved?
+**Katagiri:** Being saved. What do you mean, being saved?
 
-**Person**: Something will come from outside and save you. 
+**Person:** Something will come from outside and save you. 
 
-**Katagiri**: Oh, I see. *[Laughter.]* Alright, okay... that's fine. That is one way. Any other?
+**Katagiri:** Oh, I see. *[Laughter.]* Alright, okay... that's fine. That is one way. Any other?
 
-**Person**: To be separated from something undesirable.
+**Person:** To be separated from something undesirable.
 
-**Katagiri**: Oh. Do you understand that one?
+**Katagiri:** Oh. Do you understand that one?
 
-**Person**: To be saved from what you don't like.
+**Person:** To be saved from what you don't like.
 
-**Katagiri**: Oh, what you don't like... I see. That's what she said. Okay, another one?
+**Katagiri:** Oh, what you don't like... I see. That's what she said. Okay, another one?
 
-**Person**: I see salvation as more positive. Expressing gratitude and joyfulness...
+**Person:** I see salvation as more positive. Expressing gratitude and joyfulness...
  
-**Katagiri**: Great. That's an interesting point. More positive. Positive life is including the undesirable world or desirable world. Including all, otherwise you cannot express or manifest a positive, productive life. So that's one way. Any other?
+**Katagiri:** Great. That's an interesting point. More positive. Positive life is including the undesirable world or desirable world. Including all, otherwise you cannot express or manifest a positive, productive life. So that's one way. Any other?
 
 Speak up, that's alright. Anything? How do you understand it? 
 
-**Person**: Traditionally it means redemption. It means being bought back from slavery. That's the traditional meaning in the West.
+**Person:** Traditionally it means redemption. It means being bought back from slavery. That's the traditional meaning in the West.
 
-**Person**: Being brought back from the slavery of sin.
+**Person:** Being brought back from the slavery of sin.
 
-**Person**: *Bought* back. Somebody *bought* you back; you were in slavery and someone paid your price, and bought you back to freedom. 
+**Person:** *Bought* back. Somebody *bought* you back; you were in slavery and someone paid your price, and bought you back to freedom. 
 
-**Katagiri**: Oh... That's in Christianity...
+**Katagiri:** Oh... That's in Christianity...
 
-**Person**: Redemption.
+**Person:** Redemption.
 
-**Person**: Like a pawn shop.
+**Person:** Like a pawn shop.
 
 *[Everyone laughs.]*
 
-**Person**: No, literally, that's the image!
+**Person:** No, literally, that's the image!
 
-**Katagiri**: Redemption. Is that okay? Do you understand that? Oh, all of you understand already. *[Laughter.]* 
+**Katagiri:** Redemption. Is that okay? Do you understand that? Oh, all of you understand already. *[Laughter.]* 
 
 Okay, any other person?
 
-**Person**: It could also be positively being included.
+**Person:** It could also be positively being included.
 
-**Katagiri**: Being included ...?
+**Katagiri:** Being included ...?
 
-**Person 3**: Something desirable.
+**Person 3:** Something desirable.
 
-**Katagiri**: Oh, I see. 
+**Katagiri:** Oh, I see. 
 
-**Person**: Salvation would imply the meaning of helping all sentient beings escape [suffering](glossary#suffering), avoid suffering. 
+**Person:** Salvation would imply the meaning of helping all sentient beings escape [suffering](glossary#suffering), avoid suffering. 
 
-**Katagiri**: Would you say that once more? Salvation is what?
+**Katagiri:** Would you say that once more? Salvation is what?
 
-**Person**: The saving or the rescuing of sentient beings from suffering.
+**Person:** The saving or the rescuing of sentient beings from suffering.
 
-**Katagiri**: Oh, I see. 
+**Katagiri:** Oh, I see. 
 
 But, at that time, how do you feel, directly, from that? That is the point. I’m not talking about ideal salvation, but salvation which you can feel directly, you can touch directly. Salvation. When you understand salvation as saving all sentient beings from suffering, at that time, how do you feel or touch yourself and all sentient beings, directly? How? This is what I want to say to you. Is that okay? It’s not an idea of salvation. That’s what I want to ask you.
 
-**Person**: Peace.
+**Person:** Peace.
 
-**Katagiri**: Peace! That’s it. If you use the usual term: peace. 
+**Katagiri:** Peace! That’s it. If you use the usual term: peace. 
 
 But peace is very popular. The more something is popular, the more people misunderstand it. If something is not popular, then people are more careful to understand it. This is the human world. *[He chuckles.]* 
 
@@ -118,13 +118,13 @@ Buddhism is not popular now; that’s why you really struggle, paying attention 
 
 Of course, strictly speaking, the term *peace* is different from *salvation*, terminologically. But I think the spirit of peace, the spirit of salvation, or the spirit of harmony... I always use two terms, peace and harmony. Peace is where there’s stillness. Harmony is really including all, and then, a little bit dynamical. That’s my feel. So, salvation... Is that alright?
  
-**Person**: It seems to me that the word *liberation* or *free* is part of it. 
+**Person:** It seems to me that the word *liberation* or *free* is part of it. 
 
-**Katagiri**: Yes. Yes, that's right.
+**Katagiri:** Yes. Yes, that's right.
 
-**Person**: And that includes the idea of salvation, in all the senses, too.
+**Person:** And that includes the idea of salvation, in all the senses, too.
 
-**Katagiri**: Right. Let me say it like this. [With wisdom,] salvation means that the overall picture of your life must be liberated from... *anything*. This is one point.
+**Katagiri:** Right. Let me say it like this. [With wisdom,] salvation means that the overall picture of your life must be liberated from... *anything*. This is one point.
 
 The second point is that such a salvation is not something limited by any idea, any sciences, anything, but it is something alive – peacefully, harmoniously – from which you can take a deep, slow, long breath. In other words, *relief*. Very deep relief there. 
 
@@ -134,15 +134,15 @@ So, salvation is [that] you must be... not *must be*, you *are* liberated. Not i
 
 In other words, salvation is – what? Finally salvation is what? How can you manifest salvation? How can you practice salvation? 
 
-**Person**: Celebration.
+**Person:** Celebration.
 
-**Katagiri**: Celebration? I know the term but still I don’t understand.
+**Katagiri:** Celebration? I know the term but still I don’t understand.
 
-**Person**: To celebrate your life, to live it. 
+**Person:** To celebrate your life, to live it. 
 
-**Person**: To have joy and appreciation. 
+**Person:** To have joy and appreciation. 
 
-**Katagiri**: Gratitude. That is a *part* of salvation. *[He chuckles.]*
+**Katagiri:** Gratitude. That is a *part* of salvation. *[He chuckles.]*
 
 From salvation, you can feel this deep gratitude, and celebrating your life, with joy, et cetera. And you can share your life with all sentient beings, something like that, when salvation is really alive in your everyday life. 
 
@@ -152,9 +152,9 @@ So two crucial points I mentioned, alright? Wisdom and compassion; in other word
 
 For instance: You’re sitting there. Where is the salvation? Where is the salvation, when you sit down there? I want to ask, where is the salvation? If you understand salvation, next, where is the salvation? 
 
-**Person**: Everywhere.
+**Person:** Everywhere.
 
-**Katagiri**: Everywhere; yes. Only everywhere is very *vague*. *[Laughter.]* Everywhere... Where can you see that everywhere from? *[Laughter.]* When you say *everywhere*, who’s talking about everywhere? *You* are talking about everywhere. *[He laughs.]* 
+**Katagiri:** Everywhere; yes. Only everywhere is very *vague*. *[Laughter.]* Everywhere... Where can you see that everywhere from? *[Laughter.]* When you say *everywhere*, who’s talking about everywhere? *You* are talking about everywhere. *[He laughs.]* 
 
 So everywhere comes from here; but if you are not there, you cannot say everywhere. Do you understand? When you say *everywhere*, at that time, you are [a] really important pivot, [the] pivotal position of existence. And then with that pivotal position of your life, it is very peaceful and harmonious. At that time, you can see everywhere. But when you are very confused, you cannot see the everywhere. You are limited; that’s why you are very confused. Is that clear?
 
@@ -240,9 +240,9 @@ Do you have a question?
 
 #### 55:32
 
-**Question**: It seems to me that what you're saying is that wisdom and compassion, or enlightenment and salvation, are aspects of the same thing. You cannot have wisdom without having compassion; you can't have compassion without experience of ... Is that correct?
+**Question:** It seems to me that what you're saying is that wisdom and compassion, or enlightenment and salvation, are aspects of the same thing. You cannot have wisdom without having compassion; you can't have compassion without experience of ... Is that correct?
 
-**Katagiri**: No. It's the same, working together. Compassion is understood usually whereby people are living with kindness, sharing our life with people. That's fine. Because, there is nothing else for us to do; that's why [it is to] be kind, be compassionate to everyone, sharing your life with all sentient beings. It is true; but it is not *all*. Compassion is that you must be saved. In other words, you must be based on deep relief. Do you understand? That is compassion: *relief*. Total relief. 
+**Katagiri:** No. It's the same, working together. Compassion is understood usually whereby people are living with kindness, sharing our life with people. That's fine. Because, there is nothing else for us to do; that's why [it is to] be kind, be compassionate to everyone, sharing your life with all sentient beings. It is true; but it is not *all*. Compassion is that you must be saved. In other words, you must be based on deep relief. Do you understand? That is compassion: *relief*. Total relief. 
 
 That is compassion. So, where is the compassion? Something more than the idea of kindness et cetera. So how can you experience salvation, that is seeing very deeply into the human world with wisdom? How? This is a practice. You know, meditation, and the six paramitas, like that. 
 

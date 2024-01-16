@@ -22,7 +22,7 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 
 #### 0:00
 
-**Katagiri Roshi**: Last time, I explained the Triple Treasure as one of the sixteen precepts. Today, I would like to talk about the Three Collective Pure Precepts. 
+**Katagiri Roshi:** Last time, I explained the Triple Treasure as one of the sixteen precepts. Today, I would like to talk about the Three Collective Pure Precepts. 
 
 I think the Triple Treasure is considered as the faith in Zen Buddhism. The Three Collective Pure Precepts are [the] indication of vow. So if you get into Buddha’s Way, it requires us to have faith, trusting totally in the existence of great depths, so-called *suchness* or *the truth*. We say *Buddha Nature*. And then, that’s why in the *Gakudō-yōjinshū* (“Advice on Studying the Way”) Dogen Zenji [says that] if you want to practice the Buddha Way, you should believe in the way which you are present right in the midst of suchness, with no confusion, no deluded thought, no misunderstanding, et cetera. So we have to trust absolutely in, through and through, this, the truth, or suchness. This is a gate of getting into [the] Buddha’s Way. And also, this is the beginning of getting into Buddha’s Way, and simultaneously it is whole situation of being one with the Buddha’s Way. So it is the end, and simultaneously it is the beginning. 
 
@@ -58,9 +58,9 @@ So let’s [look at] the Three Collective Pure Precepts from this point [of view
 
 The first one [is] “collective all Buddha’s laws and rules.” The commentary says, “This is the abode of the Buddha’s laws, and the source of the Buddha’s laws.” So *collective all Buddha’s laws and rules* means not only human beings, but also all sentient beings, all beings are ...
 
-**Question**: Hojo-san? Is that “collective” or “corrective?”
+**Question:** Hojo-san? Is that “collective” or “corrective?”
 
-**Katagiri Roshi**: *Collective*. So, collecting all Buddhas’ rules and laws.
+**Katagiri Roshi:** *Collective*. So, collecting all Buddhas’ rules and laws.
 
 ... That means all beings are structured by Buddha, or the truth. The essence of existence is suchness. So not only human beings, [but] tables, and trees, birds, air, all beings are structured by the suchness or the essence of existence. Then according to *The Awakening of Faith* it is called *tathāgatagarbha*. In other words, the essence of your existence is Buddha Nature. So microphone, the cushions and tables, all are Buddha, all are suchness. That’s why here the commentary says, “This is the abode of the Buddha’s laws and the source of the Buddha’s laws.” 
 
@@ -92,29 +92,29 @@ Do you have some questions?
 
 #### 37:17
 
-**Question**: Hojo-san? Recently, you gave the name for this temple, Living in Vow Temple, *Ganshoji*. Is that that same notion of *precept* that you say there? 
+**Question:** Hojo-san? Recently, you gave the name for this temple, Living in Vow Temple, *Ganshoji*. Is that that same notion of *precept* that you say there? 
 
-**Katagiri**: Yes. That’s my hope. 
+**Katagiri:** Yes. That’s my hope. 
 
 Vow is a big hope, huge hope. 
 
-**Question**: Your hope meaning that kind of continuity. 
+**Question:** Your hope meaning that kind of continuity. 
 
-**Katagiri**: Continuity.
+**Katagiri:** Continuity.
 
 #### 38:17
 
-**Question**: I didn’t understand “aspiring to the vow.” What ... ?
+**Question:** I didn’t understand “aspiring to the vow.” What ... ?
 
-**Katagiri**: Uh, I used [the word] aspiration, but that is not usual aspiration, [it is] profound aspiration. It’s exactly the same as vow; I [just] used a different term.
+**Katagiri:** Uh, I used [the word] aspiration, but that is not usual aspiration, [it is] profound aspiration. It’s exactly the same as vow; I [just] used a different term.
 
-**Question**: Would you explain that point again? You said that most people don’t understand vow and that’s fine. But you said that the problem was that most people didn’t – what you said was, have an aspiration for the vow. 
+**Question:** Would you explain that point again? You said that most people don’t understand vow and that’s fine. But you said that the problem was that most people didn’t – what you said was, have an aspiration for the vow. 
 
-**Katagiri**: Mmm-hmm.
+**Katagiri:** Mmm-hmm.
 
-**Question**: So, how does that work? 
+**Question:** So, how does that work? 
 
-**Katagiri**: I think... if you don’t understand the vow, most people ignore the vow. “It’s not my business,” you know? Something like that. In other words, you don’t want to do it because you don’t understand it. And also you don’t understand what to do, how to practice it, so you don’t have any intention to aspire for it under the guidance of a teacher; you don’t seek for it. That’s a problem. In other words, such a person has a very narrow point of view, always seeing the world which he can see, he can understand, that’s all. But he doesn’t see what he cannot see [in] the world. Is that clear? Because you cannot judge the world and your life in terms of what you have understood, or what you have seen. No. There is something which you don’t know; there are many beings ...
+**Katagiri:** I think... if you don’t understand the vow, most people ignore the vow. “It’s not my business,” you know? Something like that. In other words, you don’t want to do it because you don’t understand it. And also you don’t understand what to do, how to practice it, so you don’t have any intention to aspire for it under the guidance of a teacher; you don’t seek for it. That’s a problem. In other words, such a person has a very narrow point of view, always seeing the world which he can see, he can understand, that’s all. But he doesn’t see what he cannot see [in] the world. Is that clear? Because you cannot judge the world and your life in terms of what you have understood, or what you have seen. No. There is something which you don’t know; there are many beings ...
 
 **(Archive Issue: the audio ends unexpectedly at this point.)**
 

@@ -17,7 +17,7 @@ title: "The Awakening of Faith: Two Kinds of Nowness"
 
 #### 0:00
 
-**Katagiri Roshi**: [...] Today we will start to study page 36 in this textbook (*The Awakening of Faith*, attributed to Aśvaghoṣa – the version translated by Yoshito Hakeda in 1967), [the chapter] “The Mind in Terms of Phenomena.” Before we go farther, I would like to say a few points which we have learned in study [previously]; we have to say something for the new people here.
+**Katagiri Roshi:** [...] Today we will start to study page 36 in this textbook (*The Awakening of Faith*, attributed to Aśvaghoṣa – the version translated by Yoshito Hakeda in 1967), [the chapter] “The Mind in Terms of Phenomena.” Before we go farther, I would like to say a few points which we have learned in study [previously]; we have to say something for the new people here.
 
 So far we have learned about the truth. In this textbook, when truth is seen in terms of all sentient beings, in other words human beings, truth can be found in everything – human life, and human life [is] in the table, in the mountains, in the skies, in the grasses, in the pebbles – in everything. That’s why the truth is called *the mind of all sentient beings* – in Japanese, *shujo shin*. Because the truth is found in everything. 
 
@@ -39,29 +39,29 @@ So *one-mind*: one-mind is another term for the truth. *The same and one ground*
 
 And then, we have learned [about] the truth itself. There are two kinds of truth. Do you remember? 
 
-**Person**: The truth in terms of words, and the truth in terms of no words.
+**Person:** The truth in terms of words, and the truth in terms of no words.
 
-**Katagiri**: Good. The truth independent from the words: this is the truth itself. So at that time truth is completely absolute: no confusion, no mind, no colors, no words – exactly. It is not many, it is not one, it is not all; it is not long, it is not short. It is not something you can add or you can take out, or you can put into something, or which you should believe in or you shouldn’t believe in, whatever you say. It is absolute. It is already there. So the truth as absolute is something [where] you cannot do anything. That is absolute: absolute, independent from the words. Exactly. 
+**Katagiri:** Good. The truth independent from the words: this is the truth itself. So at that time truth is completely absolute: no confusion, no mind, no colors, no words – exactly. It is not many, it is not one, it is not all; it is not long, it is not short. It is not something you can add or you can take out, or you can put into something, or which you should believe in or you shouldn’t believe in, whatever you say. It is absolute. It is already there. So the truth as absolute is something [where] you cannot do anything. That is absolute: absolute, independent from the words. Exactly. 
 
 Another [aspect] is that if the truth is something like that, it’s very difficult to teach the truth, it’s very difficult to transmit the truth to others. That’s why we need the explanation of the truth, the explanation of the experience of the truth. So that is the truth with no words, in terms of words. At that time, the truth is manifested as *emptiness*. But that emptiness doesn’t mean to destroy or to deny the truth itself. This emptiness is to deny the delusion. 
 
 What is delusion? You know delusion? From this book? 
 
-**Person**: You talked about stain?
+**Person:** You talked about stain?
 
-**Katagiri**: Yes: defilement, stain. Delusion is, simply speaking, coming from consciousness. What kind of consciousness? Consciousness, but what does consciousness do? 
+**Katagiri:** Yes: defilement, stain. Delusion is, simply speaking, coming from consciousness. What kind of consciousness? Consciousness, but what does consciousness do? 
 
-**Person**: Discriminate?
+**Person:** Discriminate?
 
-**Katagiri**: Discriminate, yes. So delusion comes from what? Discriminating mind, yes. Delusion comes from discriminating mind – to do what?
+**Katagiri:** Discriminate, yes. So delusion comes from what? Discriminating mind, yes. Delusion comes from discriminating mind – to do what?
 
-**Person**: Picking and choosing.
+**Person:** Picking and choosing.
 
-**Katagiri**: Picking and choosing. What do you mean? 
+**Katagiri:** Picking and choosing. What do you mean? 
 
-**Person**: Making a dichotomy?
+**Person:** Making a dichotomy?
 
-**Katagiri**: That’s right, making a dichotomy. So that is what is called *mo-nen* in this book. In Japanese *mo* is very cloudy, confused. And *nen* means thinking, thought. So we say *delusion* in English. 
+**Katagiri:** That’s right, making a dichotomy. So that is what is called *mo-nen* in this book. In Japanese *mo* is very cloudy, confused. And *nen* means thinking, thought. So we say *delusion* in English. 
 
 So, by discriminating mind we create dichotomy of the world, and then dichotomy of the world makes your life complicated. So it’s very difficult to understand as simply as we can; it’s very complicated. If you cannot handle something as simply as you can, very naturally you attach to it. So attachment comes up; through discriminating mind you can create attachment. So that is [how] very naturally we create the samsaric world. That is the dualistic world. 
 
@@ -69,35 +69,35 @@ So in the truth depending on words, the truth is manifested as emptiness. But th
 
 What do you mean [by] the delusion of the truth? The truth in words denies not-truth, delusion. So what are delusions? What is the delusion of the truth? What do you mean by delusion in relation with the truth? Because [it is] to deny delusion.
 
-**Person**: I think it’s objectify the truth.
+**Person:** I think it’s objectify the truth.
 
-**Katagiri**: Objectifying. The experience of the truth is already something objectified. Do you understand that one? Individual truth, that is already objective. That is alright, but it is already your own experience, your own vision of the truth. That’s why it is deluded. Because truth is already in front of you, objectified, and that object is reflected in the mirror of the [sense] six organs. And then the six consciousnesses join that operation of the six organs, the object of the truth, and then you get it. That is the truth. 
+**Katagiri:** Objectifying. The experience of the truth is already something objectified. Do you understand that one? Individual truth, that is already objective. That is alright, but it is already your own experience, your own vision of the truth. That’s why it is deluded. Because truth is already in front of you, objectified, and that object is reflected in the mirror of the [sense] six organs. And then the six consciousnesses join that operation of the six organs, the object of the truth, and then you get it. That is the truth. 
 
 So what did your consciousness judge? Does you consciousness judge the truth as it is? What is that? 
 
-**Person**: The truth as the consciousness perceives it. 
+**Person:** The truth as the consciousness perceives it. 
 
-**Katagiri**: Yeah, perceives it. But the truth is what? The real truth, or what? 
+**Katagiri:** Yeah, perceives it. But the truth is what? The real truth, or what? 
 
-**Person**: [...] truth from one’s perspective. 
+**Person:** [...] truth from one’s perspective. 
 
-**Person**: Relative truth.
+**Person:** Relative truth.
 
-**Person**: Reflected *[unintelligible]*.
+**Person:** Reflected *[unintelligible]*.
 
-**Katagiri**: The truth reflected in your mind, in your six sense organs, and [then] your consciousness judges it, thinks it, takes it. What is the truth in your six organs? 
+**Katagiri:** The truth reflected in your mind, in your six sense organs, and [then] your consciousness judges it, thinks it, takes it. What is the truth in your six organs? 
 
-**Person**: [Deluding.]
+**Person:** [Deluding.]
 
-**Katagiri**: Deluding? Why? Why is it deluding?
+**Katagiri:** Deluding? Why? Why is it deluding?
 
-**Person**: The perfect truth is reflected in an imperfect mirror?
+**Person:** The perfect truth is reflected in an imperfect mirror?
 
-**Katagiri**: Sure, reflect, yes. If so, truth is... what? Real truth? 
+**Katagiri:** Sure, reflect, yes. If so, truth is... what? Real truth? 
 
-**Person**: It’s a reflection. 
+**Person:** It’s a reflection. 
 
-**Katagiri**: Reflection, yes. Reflection of the truth. That’s why it’s delusion.
+**Katagiri:** Reflection, yes. Reflection of the truth. That’s why it’s delusion.
 
 Everything we do is always like that. Everything. That’s why the truth in words denies this delusion. But it doesn’t deny truth itself. The truth itself is called *nonempty*; *nonemptiness*. It means the truth itself has virtuous quality to help all sentient beings. That is truth itself – regardless of whether you are conscious of it or not. Completely beyond human speculation, beyond a sense of discrimination, of everything. Anyway, the truth has great, wonderful virtuous quality to help to grow – human beings, grasses, seasons, anything. That’s why it says nonemptiness itself. 
 
@@ -141,37 +141,37 @@ So let’s go to the new chapter, *The Mind in Terms of Phenomena*.
 
 First of all, I want to ask you: what is the phenomena like? Can you say it simply? What is the characteristic of phenomena? What’s going on in the phenomenal world? 
 
-**Person**: It’s always changing.
+**Person:** It’s always changing.
 
-**Katagiri**: Changing. Good. Yes. That is really characteristic of phenomena.
+**Katagiri:** Changing. Good. Yes. That is really characteristic of phenomena.
 
 So the mind as phenomena means the mind as the world which is constantly changing, appearing and disappearing. This is the mind as phenomena. 
 
 So, why do many things change? What makes things change? 
 
-**Person**: Is it [insight]?
+**Person:** Is it [insight]?
 
-**Katagiri**: No... insight, that is later. It’s connected. But now, generally?
+**Katagiri:** No... insight, that is later. It’s connected. But now, generally?
 
-**Person**: Karma?
+**Person:** Karma?
 
-**Person**: Time. 
+**Person:** Time. 
 
-**Katagiri**: Time. Good. So change, appearance and disappearance, are time. Phenomena is the appearance and disappearance of the world, and the appearance and disappearance of the world is time. 
+**Katagiri:** Time. Good. So change, appearance and disappearance, are time. Phenomena is the appearance and disappearance of the world, and the appearance and disappearance of the world is time. 
 
 So, where are you there? Where do you live in this time? How can you say it? What kind of times are there? 
 
-**Person**: Past, present, future.
+**Person:** Past, present, future.
 
-**Katagiri**: *[Chuckles.]* Past, present, future. So, three kinds of time. Now where do you live? 
+**Katagiri:** *[Chuckles.]* Past, present, future. So, three kinds of time. Now where do you live? 
 
-**Person**: Present.
+**Person:** Present.
 
-**Katagiri**: Present! *[He laughs, and people laugh.]* We always live in the present. But present is, you can say, in other words – what? In other words [for] present, we can say...
+**Katagiri:** Present! *[He laughs, and people laugh.]* We always live in the present. But present is, you can say, in other words – what? In other words [for] present, we can say...
 
-**Person**: Here and now?
+**Person:** Here and now?
 
-**Katagiri**: Now. Here. Here and now. 
+**Katagiri:** Now. Here. Here and now. 
 
 So you are always living in nowness, constantly *now*. But you have to know a little bit what nowness is. 
 
@@ -185,13 +185,13 @@ The second, *nowness [where] you operate time*, means you should oar the boat. I
 
 So the first one, nowness following the stream of time, that is in terms of relation with the past and future. And also it is continuing with... Can you say what kind of nowness you are living in, in relation with the past and the future? 
 
-**Person**: Rocking the boat, or getting off the boat?
+**Person:** Rocking the boat, or getting off the boat?
 
-**Katagiri**: In relation with past and future, and then you live in nowness. This nowness, in terms of time, [is what]?
+**Katagiri:** In relation with past and future, and then you live in nowness. This nowness, in terms of time, [is what]?
 
-**Person**: A moment?
+**Person:** A moment?
 
-**Katagiri**: Right. A moment. Exactly a moment. 
+**Katagiri:** Right. A moment. Exactly a moment. 
 
 Because in the stream of time, you are just there, on the boat. So you are moving. When you move, exactly there is the time process, that means past, present, and future. Your boat and you, water, all sentient beings, are moving, from moment to moment. That nowness is the length of a moment. So it’s pretty short, the length of a moment. That is called nowness. You follow the stream of time.
 
@@ -211,11 +211,11 @@ So that is nowness. What happens in the nowness? What happens in the rhythm of t
 
 ... nowness following the stream of time?
 
-**Person**: No.
+**Person:** No.
 
-**Person**: You can’t control it.
+**Person:** You can’t control it.
 
-**Katagiri**: No. You cannot control [it]. You are just passengers on the boat, with all sentient beings. Grasses, crickets, and birds, all sentient beings are completely on the boat. And that boat, and all sentient beings, and the water, boat, everything is in the time process. So [there is] nothing to control. All you have to do is just be there, just go. But discriminating mind doesn’t agree. So this [means] attachment can be created. 
+**Katagiri:** No. You cannot control [it]. You are just passengers on the boat, with all sentient beings. Grasses, crickets, and birds, all sentient beings are completely on the boat. And that boat, and all sentient beings, and the water, boat, everything is in the time process. So [there is] nothing to control. All you have to do is just be there, just go. But discriminating mind doesn’t agree. So this [means] attachment can be created. 
 
 The second kind of nowness, *you operate time*, is, according to Unmon Zen Master (Yunmen Wenyan), “I am using the time and not dragged away by time.” So you are always following the twenty-four hours; at that time you are living in the nowness, just following the stream of time. But according to Unmon Zen Master, he said, “I am not dragged away by twenty-four hour time.” But he uses time. In other words, he can oar the boat. That is the *nowness [where] you can operate time*. 
 
@@ -227,157 +227,157 @@ Do you have questions about nowness?
 
 #### 47:37
 
-**Person**: I have a question. In the second one, you’re not carried away by time? 
+**Person:** I have a question. In the second one, you’re not carried away by time? 
 
-**Katagiri**: No.
+**Katagiri:** No.
 
-**Person**: What does that mean? Is that if you’re not carried away by time, that it’s not appropriate to really think about schedule?
+**Person:** What does that mean? Is that if you’re not carried away by time, that it’s not appropriate to really think about schedule?
 
-**Katagiri**: Yes, following the schedule. From the first nowness, you have to follow the schedule. All you have to do is just to follow the schedule. But you don’t follow the schedule; you want to do something else, and you hate the schedule, very naturally you don’t want to follow the schedule. So that is called “dragged away.” *[He chuckles.]* You create attachment. So very naturally you look at the next schedule, and then you are really irritated. Very naturally, you are dragged away by the schedule. You lose the subjective. Do understand that one? 
+**Katagiri:** Yes, following the schedule. From the first nowness, you have to follow the schedule. All you have to do is just to follow the schedule. But you don’t follow the schedule; you want to do something else, and you hate the schedule, very naturally you don’t want to follow the schedule. So that is called “dragged away.” *[He chuckles.]* You create attachment. So very naturally you look at the next schedule, and then you are really irritated. Very naturally, you are dragged away by the schedule. You lose the subjective. Do understand that one? 
 
 Can someone say something about this? If you understand, say something about this.
 
-**Person**: When time drags you away, instead of doing what you’re supposed to do right now, you feel anxious about finishing...
+**Person:** When time drags you away, instead of doing what you’re supposed to do right now, you feel anxious about finishing...
 
-**Katagiri**: Yes, always anxious. 
+**Katagiri:** Yes, always anxious. 
 
-**Person**: Well it seems to me like following the schedule isn’t really following the stream of time. 
+**Person:** Well it seems to me like following the schedule isn’t really following the stream of time. 
 
-**Katagiri**: It’s just the flow, just follow the schedule. Just like being on the boat. You have nothing to do, just to follow. But you don’t do it, actually. Don’t you think so? 
+**Katagiri:** It’s just the flow, just follow the schedule. Just like being on the boat. You have nothing to do, just to follow. But you don’t do it, actually. Don’t you think so? 
 
-**Person**: That’s a perfect description, though. As soon as you feel any disharmony – you can feel it inside, a slight little *something is off* – you already are not in that nowness. You can feel it, you feel a little grating, something is uneven or something... Do you know what I mean? 
+**Person:** That’s a perfect description, though. As soon as you feel any disharmony – you can feel it inside, a slight little *something is off* – you already are not in that nowness. You can feel it, you feel a little grating, something is uneven or something... Do you know what I mean? 
 
-**Person**: You mean in the schedule?
+**Person:** You mean in the schedule?
 
-**Person**: No, in your life! *[Laughter.]*
+**Person:** No, in your life! *[Laughter.]*
 
-**Person**: The schedule is there, if you’re fighting the schedule it’s being dragged away by... [the action of not wanting].
+**Person:** The schedule is there, if you’re fighting the schedule it’s being dragged away by... [the action of not wanting].
 
-**Person**: What about if you get compulsive about the schedule? That’s attachment.
+**Person:** What about if you get compulsive about the schedule? That’s attachment.
 
-**Katagiri**: Who follows the schedule? 
+**Katagiri:** Who follows the schedule? 
 
-**Person**: *[Laughing]* Everybody follows the schedule. Then I have to, too.
+**Person:** *[Laughing]* Everybody follows the schedule. Then I have to, too.
 
-**Katagiri**: But individually, who follows the schedule? 
+**Katagiri:** But individually, who follows the schedule? 
 
-**Person**: What do you mean, like I do?
+**Person:** What do you mean, like I do?
 
-**Katagiri**: Yes, you do. Subject. Without subject, schedule doesn’t make sense. So [usually you see] here is the object, so-called schedule, and then the schedule doesn’t care. Whether you follow it or you don’t follow it, schedule is schedule. But you should follow the schedule, then there is something that happens between the subject and the object. Who creates something between the subject and object? You. *[He laughs.]* 
+**Katagiri:** Yes, you do. Subject. Without subject, schedule doesn’t make sense. So [usually you see] here is the object, so-called schedule, and then the schedule doesn’t care. Whether you follow it or you don’t follow it, schedule is schedule. But you should follow the schedule, then there is something that happens between the subject and the object. Who creates something between the subject and object? You. *[He laughs.]* 
 
 So, object is very natural and something as it is. So you just follow the schedule. But you don’t want to follow the schedule sometimes, because we are thinking, we have lots of images, we have lots of ideas, excitement, and imagination, many things. So if you see the schedule, your mind goes away, thinking something. But the schedule is always in front of you, that’s why you have to come back. The schedule pulls you, catches you, takes you immediately. If you want to go somewhere, the schedule catches you, takes you back to the schedule. So there is no subjectivity there, always schedule. Do you understand? At that time, you’re really anxious about the schedule, so naturally you hate the schedule. Is that alright?
 
-**Person**: Well, it seems a little funny to me. I understand what you’re saying in general, but it seems like sometimes it just doesn’t work, sometimes it’s unnatural to follow the schedule. You can just sit sometimes. So that you’re rushing to zazen in order to get peace of mind? That doesn’t make sense to me. 
+**Person:** Well, it seems a little funny to me. I understand what you’re saying in general, but it seems like sometimes it just doesn’t work, sometimes it’s unnatural to follow the schedule. You can just sit sometimes. So that you’re rushing to zazen in order to get peace of mind? That doesn’t make sense to me. 
 
-**Katagiri**: Well, I think maybe time is not always a favorable thing for you, but regardless of whether you feel favorable or unfavorable, time is going. And all you have to do is just tune into that rhythm of time. Monastic life and religious life tries to guide people to tune into that rhythm of time. Sometimes you don’t like it, sometimes it is not reasonable. Sometimes it is reasonable. We have to experience both. And then, you have to understand the depth of human life, where you are. What is the stream of time? What is the change of human life?
+**Katagiri:** Well, I think maybe time is not always a favorable thing for you, but regardless of whether you feel favorable or unfavorable, time is going. And all you have to do is just tune into that rhythm of time. Monastic life and religious life tries to guide people to tune into that rhythm of time. Sometimes you don’t like it, sometimes it is not reasonable. Sometimes it is reasonable. We have to experience both. And then, you have to understand the depth of human life, where you are. What is the stream of time? What is the change of human life?
 
 I don’t think it is most important what you feel. The schedule is very reasonable or unreasonable – it is secondary. But whatever you feel through that, through the feelings and ideas you should understand where you are. This is monastic life. 
 
 So sometimes you’re pretty busy; the schedule is very “jammed,” very busy. That’s why this weekend we have to arrange the schedule. We do, don’t you think so? In a monastery in Japan, there is completely no excuse. Whoever you are, if you go to the monastery, you just follow. The busy and the not busy, everyone follows in that way. That’s it. 
 
-**Person**: That makes sense a little bit in terms of a Japanese monastery, because when you go in you’re a beginner. I’m talking about in a situation that’s a little bit irregular, you know. 
+**Person:** That makes sense a little bit in terms of a Japanese monastery, because when you go in you’re a beginner. I’m talking about in a situation that’s a little bit irregular, you know. 
 
-**Katagiri**: Mm-hmm; this is pretty irregular. But in the realm of irregular situation, we try to be regular. *[He laughs.]* We try to be regular, and we try to [be normal]. 
+**Katagiri:** Mm-hmm; this is pretty irregular. But in the realm of irregular situation, we try to be regular. *[He laughs.]* We try to be regular, and we try to [be normal]. 
 
-**Person**: I mean I’m not talking about just this situation, I’m talking about [all of it]
+**Person:** I mean I’m not talking about just this situation, I’m talking about [all of it]
 
-**Person**: Are you arguing for being slow, more like a simple existence, you know like you know the schedule well, so you don’t feel like [...]
+**Person:** Are you arguing for being slow, more like a simple existence, you know like you know the schedule well, so you don’t feel like [...]
 
-**Person**: No, not necessarily that, because that doesn’t work either. But it seems like, at what point are you being too rigid? It seems unnatural to me. I mean it’s not in the slow... So when you’re talking about the stream of time ... Well, what would be natural, I think, would be [to be conscious] on a personal level, being able to operate in the context of [what is happening].
+**Person:** No, not necessarily that, because that doesn’t work either. But it seems like, at what point are you being too rigid? It seems unnatural to me. I mean it’s not in the slow... So when you’re talking about the stream of time ... Well, what would be natural, I think, would be [to be conscious] on a personal level, being able to operate in the context of [what is happening].
 
-**Person**: What do you measure it against? 
+**Person:** What do you measure it against? 
 
-**Person**: You have the schedule, I mean I’m not saying you don’t have the schedule, but that you make very personal choices about the schedule. 
+**Person:** You have the schedule, I mean I’m not saying you don’t have the schedule, but that you make very personal choices about the schedule. 
 
-**Person**: Are you talking about like life in the Cities, and you try to go to zazen every night, but then something comes up in your life, and you have to make choice about [...]
+**Person:** Are you talking about like life in the Cities, and you try to go to zazen every night, but then something comes up in your life, and you have to make choice about [...]
 
-**Person**: That kind of thing.
+**Person:** That kind of thing.
 
-**Person**: I don’t think that’s what Roshi’s talking about.
+**Person:** I don’t think that’s what Roshi’s talking about.
 
-**Person**: Well that’s what I’m trying to figure out. 
+**Person:** Well that’s what I’m trying to figure out. 
 
-**Person**: *[Unintelligible.]*
+**Person:** *[Unintelligible.]*
 
-**Person**: No, it’s not what you *want* to do, it’s what you think is necessary. 
+**Person:** No, it’s not what you *want* to do, it’s what you think is necessary. 
 
-**Person**: *[Unintelligible.]*
+**Person:** *[Unintelligible.]*
 
-**Person**: *[Unintelligible.]*
+**Person:** *[Unintelligible.]*
 
-**Person**: [...] you know something happens ... trying to rush to zazen.. the attitude of rushing to zazen is not exactly your choice. [...] you know it’s not necessary to wait for zazen, not necessary to create this big dramatic trip about it, I can just [...] you can be late but ...
+**Person:** [...] you know something happens ... trying to rush to zazen.. the attitude of rushing to zazen is not exactly your choice. [...] you know it’s not necessary to wait for zazen, not necessary to create this big dramatic trip about it, I can just [...] you can be late but ...
 
-**Person**: Yeah, that’s what I meant. Did you understood what he said, Roshi? 
+**Person:** Yeah, that’s what I meant. Did you understood what he said, Roshi? 
 
-**Katagiri**: You mean mindfulness?
+**Katagiri:** You mean mindfulness?
 
-**Person**: [...]
+**Person:** [...]
 
-**Katagiri**: Well I didn’t pay attention to exactly what you said. What is the point?
+**Katagiri:** Well I didn’t pay attention to exactly what you said. What is the point?
 
-**Person**: Just that you create your attitude in the situation. You don’t have to have a flustered attitude because you’re late or it’s a chaotic situation; it’s not necessary to rush.
+**Person:** Just that you create your attitude in the situation. You don’t have to have a flustered attitude because you’re late or it’s a chaotic situation; it’s not necessary to rush.
 
-**Katagiri**: That is a mental affliction, if you’re worried about that. So [...] mindfulness of what?
+**Katagiri:** That is a mental affliction, if you’re worried about that. So [...] mindfulness of what?
 
-**Person**: If you practice mindfulness to see the situation and you have a chance to calm down and not to create agitated [...]
+**Person:** If you practice mindfulness to see the situation and you have a chance to calm down and not to create agitated [...]
 
-**Katagiri**: Mmm-hmm. Is that true? That’s what you want?
+**Katagiri:** Mmm-hmm. Is that true? That’s what you want?
 
-**Person**: That’s what I meant. 
+**Person:** That’s what I meant. 
 
-**Katagiri**: Is that alright? 
+**Katagiri:** Is that alright? 
 
-**Person**: I guess I don’t understand what you mean.
+**Person:** I guess I don’t understand what you mean.
 
-**Person**: That’s what he means.
+**Person:** That’s what he means.
 
-**Katagiri**: That’s following the stream of time. That’s what I [meant].
+**Katagiri:** That’s following the stream of time. That’s what I [meant].
 
-**Person**: But what I was talking about too, was, what does it mean “you operate time”?
+**Person:** But what I was talking about too, was, what does it mean “you operate time”?
 
-**Katagiri**: Oar the boat. 
+**Katagiri:** Oar the boat. 
 
-**Person**: That means when you’re late, like Mike said, you don’t create frustration on top of that. You just say, “Oh, I’m late,” and then mindfully you go to zazen. That’s oaring the boat. 
+**Person:** That means when you’re late, like Mike said, you don’t create frustration on top of that. You just say, “Oh, I’m late,” and then mindfully you go to zazen. That’s oaring the boat. 
 
-**Person**: Okay. But what if you rang the bell late? Do you do the same thing?
+**Person:** Okay. But what if you rang the bell late? Do you do the same thing?
 
-**Person**: Always, moment after moment. 
+**Person:** Always, moment after moment. 
 
-**Person**: Okay, so you rang the bell late. And then your teacher gets upset with you because you rang the bell late. That’s what doesn’t make sense to me. 
+**Person:** Okay, so you rang the bell late. And then your teacher gets upset with you because you rang the bell late. That’s what doesn’t make sense to me. 
 
-**Katagiri**: No. 
+**Katagiri:** No. 
 
-**Person**: *[Unintelligible.]*
+**Person:** *[Unintelligible.]*
 
 *[Laughter.]*
 
-**Person**: You know, I just can’t understand it in the context of those two different situations. 
+**Person:** You know, I just can’t understand it in the context of those two different situations. 
 
-**Person**: Oaring the boat means the next time you have to ring the bell you would try to create a situation where you would remember to ring the bell on time? 
+**Person:** Oaring the boat means the next time you have to ring the bell you would try to create a situation where you would remember to ring the bell on time? 
 
-**Person**: Yeah, that makes sense to me.
+**Person:** Yeah, that makes sense to me.
 
-**Katagiri**: So from moment to moment, you create. So if you see something wrong, you have to correct [it], and then next moment you have to follow the scheduled time, as best as you can, instead of creating mental affliction constantly. We always add mental affliction to each moment that you follow the stream of time, because we have to oar the boat. *Oar the boat* is you create the world. You have to use time constantly. That is your world. But your world is not exactly right, it’s not exactly wrong. You have to keep your eyes open to watch what’s going on, whether your life is exactly fitting into the rhythm of the stream of time. Because it is pretty easy for us to add mental affliction to just the rhythm of the stream. That’s why you have to oar the boat; simultaneously it is something wrong or it is something right. But it is not a “big deal,” anyway, whatever you see. So you have to live with all sentient beings in peace and harmony. Very naturally, you have to follow the stream of time. That is “nowness operating time.” That’s what *I* say. 
+**Katagiri:** So from moment to moment, you create. So if you see something wrong, you have to correct [it], and then next moment you have to follow the scheduled time, as best as you can, instead of creating mental affliction constantly. We always add mental affliction to each moment that you follow the stream of time, because we have to oar the boat. *Oar the boat* is you create the world. You have to use time constantly. That is your world. But your world is not exactly right, it’s not exactly wrong. You have to keep your eyes open to watch what’s going on, whether your life is exactly fitting into the rhythm of the stream of time. Because it is pretty easy for us to add mental affliction to just the rhythm of the stream. That’s why you have to oar the boat; simultaneously it is something wrong or it is something right. But it is not a “big deal,” anyway, whatever you see. So you have to live with all sentient beings in peace and harmony. Very naturally, you have to follow the stream of time. That is “nowness operating time.” That’s what *I* say. 
 
 Is that alright? Any other argument?
 
-**Person**: [...] setting up the schedule then we try to follow that schedule, then you have the opportunity to see yourself struggling against it, you have the opportunity to work on your mental afflictions. But if you always go with the mental afflictions, saying, “I’m agitated now, so I’m not going to go to zazen” [...]
+**Person:** [...] setting up the schedule then we try to follow that schedule, then you have the opportunity to see yourself struggling against it, you have the opportunity to work on your mental afflictions. But if you always go with the mental afflictions, saying, “I’m agitated now, so I’m not going to go to zazen” [...]
 
-**Person**: Well, that’s not what I meant. I mean what you’re talking about, but I guess the frustration comes in for me when everybody gets on my case for not getting something done on time. You know what I mean? But I guess I haven’t learned how to deal with people getting on my case. 
+**Person:** Well, that’s not what I meant. I mean what you’re talking about, but I guess the frustration comes in for me when everybody gets on my case for not getting something done on time. You know what I mean? But I guess I haven’t learned how to deal with people getting on my case. 
 
-**Person**: Well, if people were taking care of time, they wouldn’t get on anyone’s case. What I mean is, if an individual is not taking care of his own time, then it’s easier for them to blame someone else if they're not taking care of time. 
+**Person:** Well, if people were taking care of time, they wouldn’t get on anyone’s case. What I mean is, if an individual is not taking care of his own time, then it’s easier for them to blame someone else if they're not taking care of time. 
 
-**Katagiri**: Okay...
+**Katagiri:** Okay...
 
 #### 1:06:20
 
-**Person**: You said that in the second type of nowness, nowness is always there. And that’s the kind of nowness where you operate nowness. But it seems that if you’re going to operate nowness, you have to be thinking a lot about the past and the future, and kind of judging and deciding what to do. And while you’re doing that, it doesn’t seem like nowness is always there.
+**Person:** You said that in the second type of nowness, nowness is always there. And that’s the kind of nowness where you operate nowness. But it seems that if you’re going to operate nowness, you have to be thinking a lot about the past and the future, and kind of judging and deciding what to do. And while you’re doing that, it doesn’t seem like nowness is always there.
 
-**Katagiri**: You use subjectivity as subjectivity. “Use the time” is not the activity in relation with subject and object. The subject must be one with the object. That is to use time. 
+**Katagiri:** You use subjectivity as subjectivity. “Use the time” is not the activity in relation with subject and object. The subject must be one with the object. That is to use time. 
 
-**Person**: That seems to me to be in the stream of the [...]
+**Person:** That seems to me to be in the stream of the [...]
 
-**Katagiri**: The dream is still going in the time process, because that’s why you can see the dream in the dream. You say a dream in a dream, but a dream itself is sometimes beyond time. But it’s still going in the time process, that’s why you can realize the dream in the dream. 
+**Katagiri:** The dream is still going in the time process, because that’s why you can see the dream in the dream. You say a dream in a dream, but a dream itself is sometimes beyond time. But it’s still going in the time process, that’s why you can realize the dream in the dream. 
 
 “You must be initiative in the stream of time” means that you should be subjective always, you shouldn’t lose the subjectivity. But if you’re dragged away by time, you lose the subjectivity. Do you understand that one? Because always the object is there. 
 
@@ -385,15 +385,15 @@ If you work in a company, you are always concerned about the wages. *[He chuckle
 
 If you say, “I want to be rich, by making money,” that ambition is also [being] dragged away by money, the object. Or if you say, “I don’t care about the money,” that is also you are dragged away by the money. 
 
-**Person**: In order to not get dragged away, don’t you need some distance?
+**Person:** In order to not get dragged away, don’t you need some distance?
 
-**Katagiri**: If you are not dragged away, at that time you become one with the object. So you can always use the opportunity. You become you which you are, as [the subject]. 
+**Katagiri:** If you are not dragged away, at that time you become one with the object. So you can always use the opportunity. You become you which you are, as [the subject]. 
 
 What can I say [as an example]? For instance, when you do gassho, in terms of the first nowness we say we are always concerned about the form of the gassho, and the background of the gassho, and the custom of your life, always concerned about subject and object. And the very naturally that means your life is really [entranced] by the form of gassho, as an object. So there is no subjective; that means you are always dragged away by the form of the gassho, history of gassho, or the background of your life, et cetera, in relation with the gassho itself. So very naturally there is no subjectivity. But if you become subjective, using your object and time, at that time you become one with gassho. That is *nowness operating time*. Is that alright?
 
-**Person**: Subjective is the same as settling the self on the self.
+**Person:** Subjective is the same as settling the self on the self.
 
-**Katagiri**: Yes, that’s true. So this subject is not subject opposed to another. This subject is not secondary; there is no secondary being. If you become a subject, completely you are the subject, in your whole life, in the whole universe. That is called *nowness operating time*; that means you become always subjective. By that you as subjective, [you are] extending to the whole universe, because that’s why it’s helping everyone. Even though you don’t say anything in words, or in no words, anyway that activity [of life] helps people. That is nowness operating time. That’s why Unmon says, “I use the twenty-four hours, instead of being dragged away by the twenty-four hours.”
+**Katagiri:** Yes, that’s true. So this subject is not subject opposed to another. This subject is not secondary; there is no secondary being. If you become a subject, completely you are the subject, in your whole life, in the whole universe. That is called *nowness operating time*; that means you become always subjective. By that you as subjective, [you are] extending to the whole universe, because that’s why it’s helping everyone. Even though you don’t say anything in words, or in no words, anyway that activity [of life] helps people. That is nowness operating time. That’s why Unmon says, “I use the twenty-four hours, instead of being dragged away by the twenty-four hours.”
 
 That’s why I say that this nowness is that which is always in nowness. It’s very stable. You settle yourself in the self, exactly. In gassho. Because it is one mind. Because it is one falling leaf, showing back and front, back and front. It’s falling, constantly. That is the panoramic picture of the universe: one mind. 
 
@@ -423,19 +423,19 @@ Do you have some questions?
 
 #### 1:26:59
 
-**Person**: Hojo-san? I just wanted to say one point about the mental affliction we were talking about? It seems like that very strong thing that we all have around perfectionism, [to do things] right. So it’s like Buddhist detachment that teaches us to just let it go and stay with the moment and take care of the moment, versus that beating ourselves up.
+**Person:** Hojo-san? I just wanted to say one point about the mental affliction we were talking about? It seems like that very strong thing that we all have around perfectionism, [to do things] right. So it’s like Buddhist detachment that teaches us to just let it go and stay with the moment and take care of the moment, versus that beating ourselves up.
 
-**Katagiri**: Mmm-hmm. Sure. That’s why we have to understand human life, human consciousness, et cetera. Because human consciousness operates in a very complicated way. So that is called ignorance, in this book. If you read page fifty, you can see the technical term *[seventy] thoughts arise*. Those thoughts, in other words discriminating mind, is really working in a very complicated way. That’s why we pretty easily create mental afflictions. Through the mental afflictions we can create stress, conflict, and anxiety, fears, et cetera. And then finally people cannot escape from stress and conflict and fear, [so] very naturally we want to do something to express them. And then that expression is sometimes abusive, sometimes violent.
+**Katagiri:** Mmm-hmm. Sure. That’s why we have to understand human life, human consciousness, et cetera. Because human consciousness operates in a very complicated way. So that is called ignorance, in this book. If you read page fifty, you can see the technical term *[seventy] thoughts arise*. Those thoughts, in other words discriminating mind, is really working in a very complicated way. That’s why we pretty easily create mental afflictions. Through the mental afflictions we can create stress, conflict, and anxiety, fears, et cetera. And then finally people cannot escape from stress and conflict and fear, [so] very naturally we want to do something to express them. And then that expression is sometimes abusive, sometimes violent.
 
 [...]
 
-**Person**: In our efforts to try to exist, we come down on ourselves for not being perfect, not being [...] 
+**Person:** In our efforts to try to exist, we come down on ourselves for not being perfect, not being [...] 
 
-**Katagiri**: Sure.
+**Katagiri:** Sure.
 
-**Person**: So we just have to take care of that.
+**Person:** So we just have to take care of that.
 
-**Katagiri**: Mmm-hmm.
+**Katagiri:** Mmm-hmm.
 
 #### 1:30:13 end of recording
 

@@ -17,7 +17,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 
 #### 0:00
 
-**Katagiri Roshi**: During this seminar I would like to study and learn about *karma* with you. I’m very happy to do that.
+**Katagiri Roshi:** During this seminar I would like to study and learn about *karma* with you. I’m very happy to do that.
 
 Not only human beings, but also trees and birds, animals [and plants], are born in this world and continually move, act, and die. All sentient beings always move, act, and finally we die. Why should it be that only human beings have to think about karma? If all sentient beings who are born in this world continually move, act, and then finally die, then that is our business; it is all we have to do in this whole world, in this whole life. If that is true, then why don’t we just be born in this world, act, move, and die? That’s enough. Why is it that human beings have to think about karma?
 
@@ -135,23 +135,23 @@ That is [what I will have to explain] with my best effort. Do you have some ques
 
 #### 46:31
 
-**Question**: Roshi, it seems that when people use the word karma in popular talk, they mean either the collection of your good and bad deeds, which will give you a higher or lower life next time, or else they mean your past deeds that ordain what happens now. Is that your understanding?
+**Question:** Roshi, it seems that when people use the word karma in popular talk, they mean either the collection of your good and bad deeds, which will give you a higher or lower life next time, or else they mean your past deeds that ordain what happens now. Is that your understanding?
 
-**Katagiri**: That is one aspect of karma. I’m suggesting that is a misunderstanding. Well, it’s not exactly a misunderstanding; that is one aspect of karma. Karma continues from the past, through the present, to the future; this is karma.
+**Katagiri:** That is one aspect of karma. I’m suggesting that is a misunderstanding. Well, it’s not exactly a misunderstanding; that is one aspect of karma. Karma continues from the past, through the present, to the future; this is karma.
 
 #### 47:28
 
-**Question**: Roshi, are all things that happen to me [karma]? Say I go walk outside of this building and trip and fall down. Is that karma, or are there things that happen that are simply action?
+**Question:** Roshi, are all things that happen to me [karma]? Say I go walk outside of this building and trip and fall down. Is that karma, or are there things that happen that are simply action?
 
-**Katagiri**: Yes, it is also called karma. In the scripture [...] those things are included as karma. 
+**Katagiri:** Yes, it is also called karma. In the scripture [...] those things are included as karma. 
 
-**Same person**: Are they included as karma in that second sense, though? Remember, you mentioned first there was karma that was just action, and then the sense that we were talking about was retributive karma. 
+**Same person:** Are they included as karma in that second sense, though? Remember, you mentioned first there was karma that was just action, and then the sense that we were talking about was retributive karma. 
 
-**Katagiri**: Well, just action, and also natural disasters, where sometimes you have to die by natural events. Or if you walk on the street and someone hits you, or someone stabs you – those things happen. [...] Those events are also karma. 
+**Katagiri:** Well, just action, and also natural disasters, where sometimes you have to die by natural events. Or if you walk on the street and someone hits you, or someone stabs you – those things happen. [...] Those events are also karma. 
 
-**Same person**: Are they connected with your past, though?
+**Same person:** Are they connected with your past, though?
 
-**Katagiri**: Yes, I’d say so. For instance, [one] Buddhist scripture says karma is one of the mysterious things, okay? Another other Buddhist scripture says karma is very powerful, [you have] no control [over it]. This always happens, don’t you think so? 
+**Katagiri:** Yes, I’d say so. For instance, [one] Buddhist scripture says karma is one of the mysterious things, okay? Another other Buddhist scripture says karma is very powerful, [you have] no control [over it]. This always happens, don’t you think so? 
 
 For instance, [...] one of the Buddha’s famous disciples was noted for seeing the past, the present, and the future clearly; that was his wisdom. But he was killed by [someone]. That is the story. Even in the modern world, such things happen, don’t you think so? The other day, a bridge all of a sudden broke, and people died. But one person’s car stopped right on the edge of the bridge, so she survived. How can we explain this? No way.
 
@@ -159,9 +159,9 @@ When I was in college, I [studied] western novels and literature. A person in a 
 
 #### 51:43
 
-**Question**: Roshi? The second understanding of karma, where you have a place to experience, does that give you more control over the first aspect of it? [...] Does practice have an impact on the *no control*? Does the effort and practice of doing zazen, et cetera, does that have the power to influence whatever the karma is? 
+**Question:** Roshi? The second understanding of karma, where you have a place to experience, does that give you more control over the first aspect of it? [...] Does practice have an impact on the *no control*? Does the effort and practice of doing zazen, et cetera, does that have the power to influence whatever the karma is? 
 
-**Katagiri**: Yes. Sure. Right. I will talk about that point too. 
+**Katagiri:** Yes. Sure. Right. I will talk about that point too. 
 
 Broadly speaking, the purpose of Buddhist practice is that we should accumulate the power of good habits, in order to reach the beautiful, ideal image of human life. Anyway, continue to accumulate power of habit. And then, this is really what is called karma, and in the future it [shoots up]. When the time is right, conditions arranged, it grows. 
 
@@ -171,9 +171,9 @@ So if you say *karma*, broadly speaking karma is understood as *action*. Physica
 
 #### 56:50
 
-**Question**: Hojo-san? How does [aiming at the long range] exist with zazen as an end and not as a means, and not having any goals in zazen?
+**Question:** Hojo-san? How does [aiming at the long range] exist with zazen as an end and not as a means, and not having any goals in zazen?
 
-**Katagiri**: *No goal of zazen* is not no goal of zazen, okay? *No goal* means *samadhi*, exactly samadhi. You have to experience samadhi itself; that is what is called *no goal*. If you say “here is a goal,” it’s already an object. But the main purpose is, if you want to live in peace and harmony, or what is called freedom or happiness, we have to experience samadhi itself. In the samadhi there is no object. That is what we temporarily call *no goal* in practice, or *no merit*, whatever it is. If you do something, of course you experience *[unintelligible]*, but that experience is sort of *[unintelligible]* you can see.
+**Katagiri:** *No goal of zazen* is not no goal of zazen, okay? *No goal* means *samadhi*, exactly samadhi. You have to experience samadhi itself; that is what is called *no goal*. If you say “here is a goal,” it’s already an object. But the main purpose is, if you want to live in peace and harmony, or what is called freedom or happiness, we have to experience samadhi itself. In the samadhi there is no object. That is what we temporarily call *no goal* in practice, or *no merit*, whatever it is. If you do something, of course you experience *[unintelligible]*, but that experience is sort of *[unintelligible]* you can see.
 
 So *no goal* doesn’t mean to ignore the purpose of human action. Human action always has a certain purpose. *No goal* doesn’t mean [to ignore] that; of course, we act like this. But that is not the main purpose; the main purpose in Buddhism is to experience samadhi itself. In the samadhi, there is no object. 
 

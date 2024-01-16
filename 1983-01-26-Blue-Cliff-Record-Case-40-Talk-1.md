@@ -19,7 +19,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 
 #### 0:00
 
-**Katagiri Roshi**: Case 40: “Nan Ch’uan’s It’s Like a Dream”. 
+**Katagiri Roshi:** Case 40: “Nan Ch’uan’s It’s Like a Dream”. 
 
 The Pointer:
 

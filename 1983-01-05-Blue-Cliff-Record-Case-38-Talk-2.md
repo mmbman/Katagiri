@@ -19,7 +19,7 @@ The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, 
 
 #### 0:00
 
-**Katagiri Roshi**: Let me explain again, simply, the main case we studied last time, before making remarks about the Verse. In the main case, one day Feng Hsueh Zen Master, at the government headquarters in China, talked about some aspect of Buddha’s teaching. 
+**Katagiri Roshi:** Let me explain again, simply, the main case we studied last time, before making remarks about the Verse. In the main case, one day Feng Hsueh Zen Master, at the government headquarters in China, talked about some aspect of Buddha’s teaching. 
 
 Bodhidharma came to China to bring the Buddha’s teaching from India, for the sake of conveying Buddha Mind. Buddha Mind means you are great. Buddha Mind is characterized by three points. One is magnanimity: big mind. Second is very [attentive], compassionate, and kind. The other one is: very joyful. Joyful is not necessarily a sense of pleasure, but joy is spiritual joy coming from the bottom of your heart. Simultaneously it brings on physical joy; that means happiness in everyday life. So that is Buddha Mind. 
 

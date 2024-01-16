@@ -21,7 +21,7 @@ Katagiri Roshi completely explains the Twelve-Linked Chain of Causation... presu
 
 #### start of audio
 
-**Katagiri Roshi**: … [naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? Just [with] words. Without words, we cannot get agreement. Don’t you think so?
+**Katagiri Roshi:** … [naturally] the words come up. And then, can people look at this form of a circle? How do they agree with this existence of a form of a circle coming from a movement? Just [with] words. Without words, we cannot get agreement. Don’t you think so?
 
 So what is agreement? “Oh yes, it is the form of a circle” – this is nothing but the agreement consisting of the words. [Or,] “Katagiri, you’re bad boy.” “Yes.” How can you agree? This agreement is just words. 
 
@@ -29,9 +29,9 @@ But this agreement is also important for us, okay? Don’t misunderstand. I don�
 
 Your body and your mind is what? Just words. We accept through what words? The five [skandhas](glossary#skandha), and [karma](glossary#karma), and *cetanā*, mind. That is Buddhist psychology, which is called [*Abhidharma*](glossary#abhidharma)*. *[He chuckles]* It’s huge. It takes ten years to master it. If you don’t believe it, I will show it, I will explain it. *[He laughs.]* But if you want to study it, you should go to San Francisco Zen Center; they teach the Abhidharma. Huge. But interesting, very interesting.
 
-**Question**: Are there any stories in the Abhidharma about the beginning of time and space, and ignorance?
+**Question:** Are there any stories in the Abhidharma about the beginning of time and space, and ignorance?
 
-**Katagiri**: The beginning of time and space... *[He laughs.]* It’s already ignorance. *[Laughter.]* 
+**Katagiri:** The beginning of time and space... *[He laughs.]* It’s already ignorance. *[Laughter.]* 
 
 *The beginning of time and space* is already ignorance, coming from your consciousness, don’t you think so? If you say *before*, already there is *after*, don’t you think? So already you think something – “time and space” – in the [dualistic](glossary#dualistic) sense: before and after, separated. But what is *before*? What is *after*? That is a very interesting, huge, system: *[unintelligible]* and theology. 
 

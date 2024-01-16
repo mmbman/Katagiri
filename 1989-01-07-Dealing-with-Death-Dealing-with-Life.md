@@ -22,7 +22,7 @@ Katagiri Roshi discusses how we should practice with those who are ill or dying.
 
 (The recording begins with the community chanting the Verse of Opening the Sutras:)
 
-**Community**:
+**Community:**
 
 Mujō jin jin mi myō no hō wa  
 hyaku sen man go ni mo ai-o koto katashi  
@@ -34,7 +34,7 @@ Is rarely met with even in a hundred thousand million kalpas.
 Having it to see and listen to, remember and accept,  
 I vow to taste the truth of the Tathagata’s words.  
 
-**Katagiri Roshi**: Next week, I’m going to see a person who is going to die in prison. He’s one of the friends who practiced here for a couple of years. He is going to die from throat cancer. 
+**Katagiri Roshi:** Next week, I’m going to see a person who is going to die in prison. He’s one of the friends who practiced here for a couple of years. He is going to die from throat cancer. 
 
 I think not only I but also most of you have to face this kind of reality, and we have difficulties because we don’t know how to deal with that situation. And also you don’t know how to deal with yourself, as much as you don’t know how to deal with the person who is going to die. I think, unfortunately or fortunately, in Buddhism we don’t have a particular way or particular program for how to deal with this kind of situation. I think in Christianity they have a long history of how to deal with those people. So in the future, I think we will have to think about – I don’t know how to say – a way to deal with this person when you see him or her, whether you are a priest or not. Anyway, we have to think about this. Today I would like to say a few points. 
 
@@ -132,13 +132,13 @@ The opportunity to see a person who is senile or vegetative does not always occu
 
 If you have something to say, or if you want to send a card to him, I am willing to bring them with me and give them to him. 
 
-**Question**: When are you leaving?
+**Question:** When are you leaving?
 
-**Katagiri**: Next week. The twelfth.
+**Katagiri:** Next week. The twelfth.
 
-**Question**: Thank you.
+**Question:** Thank you.
 
-**Community**:
+**Community:**
 
 (Closing chant:)
 

@@ -16,7 +16,7 @@ title: "Turning the Three Poisons into Wheels"
 
 #### 0:00
 
-**Katagiri Roshi**: Today I would like to talk about the third of the Ten Prohibitory Precepts: abstaining from sexual greed. The comment [on this] by Dogen Zenji says:
+**Katagiri Roshi:** Today I would like to talk about the third of the Ten Prohibitory Precepts: abstaining from sexual greed. The comment [on this] by Dogen Zenji says:
 
 > The threefold wheel is pure and clean, nothing to be desired. They go along together with the Buddhas.
 

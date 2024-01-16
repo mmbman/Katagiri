@@ -18,7 +18,7 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s 
 
 #### 0:00
 
-**Katagiri Roshi**: The last sentence of the main subject of [*Fukanzazengi* – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
+**Katagiri Roshi:** The last sentence of the main subject of [*Fukanzazengi* – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
 
 > For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.
 

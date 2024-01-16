@@ -18,7 +18,7 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 
 #### 0:00
 
-**Katagiri Roshi**: This is my last talk on karma during this two week seminar. 
+**Katagiri Roshi:** This is my last talk on karma during this two week seminar. 
 
 The term *karma* is popular for people who start to study Buddhism, but usually karma is translated as *action*. But if you use the English term *action*, it is a little different from the word karma in Sanskrit. Karma is not exactly action. If you use the term karma, strictly speaking it emphasizes unmanifested karma, unmanifested action, which means the impression left by your doing. If you use the word *action* in English, that is manifested karma, which [is like something] appearing on the surface of the water. If you understand karma like this, your life becomes decadent – because manifested karma, action, always appears and disappears, appears and disappears. It doesn’t stay for long. 
 
@@ -108,9 +108,9 @@ Do you have any questions?
 
 #### 42:25
 
-**Question**: Hojo-san? Do you remember in Huston Smith’s Dogen lectures, I think it was the last one, he compared Saint John of the Cross and Dogen. And he talked about grace being always present; the general grace in Buddhism. It’s his idea that there were similarities between Saint John and Dogen in this way. I wonder if maybe that concept of the right conditions and time would be a way of staying in contact with that grace, or maybe not even wanting to use that term.
+**Question:** Hojo-san? Do you remember in Huston Smith’s Dogen lectures, I think it was the last one, he compared Saint John of the Cross and Dogen. And he talked about grace being always present; the general grace in Buddhism. It’s his idea that there were similarities between Saint John and Dogen in this way. I wonder if maybe that concept of the right conditions and time would be a way of staying in contact with that grace, or maybe not even wanting to use that term.
 
-**Katagiri**: Grace is not something coming from heaven, or from some other person, or from something else, okay? Grace in Buddhism is actual practice, process itself. 
+**Katagiri:** Grace is not something coming from heaven, or from some other person, or from something else, okay? Grace in Buddhism is actual practice, process itself. 
 
 When you do gassho, *[he probably does a gassho to demonstrate,]* gassho is human action. One point is [karma] as inheritance: maybe you did [something] in the past, as a Buddhist or not. Maybe you were one of the Indians related with Buddhism, and that’s why you can do this now – maybe you can understand it in that way. On the other hand, gassho is nothing but energy... 
 
@@ -126,9 +126,9 @@ For instance, my second teacher always was very strict about gassho, and walking
 
 So this grace doesn’t come from somebody, or from heaven, or from hell – nowhere, nobody. It really comes up from you. That *from you* is really grace: big self.
 
-**Same person**: Could you say that grace is interdependence?
+**Same person:** Could you say that grace is interdependence?
 
-**Katagiri**: Yes... or not. *[He laughs.]* Interdependent co-origination is ideas, okay? Grace is not ideas. Grace is your life, which is fully alive, vividly, don’t you think? This is grace. Even though you say, “I experience grace,” and then if your life is messy, “That’s not grace.” If you experience grace from heaven or somewhere, grace is supposed to be something to help your life – not messy, confused. Maybe a little bit messy, but not much.
+**Katagiri:** Yes... or not. *[He laughs.]* Interdependent co-origination is ideas, okay? Grace is not ideas. Grace is your life, which is fully alive, vividly, don’t you think? This is grace. Even though you say, “I experience grace,” and then if your life is messy, “That’s not grace.” If you experience grace from heaven or somewhere, grace is supposed to be something to help your life – not messy, confused. Maybe a little bit messy, but not much.
 
 Is that okay? *[He laughs.]* So of course I can say yes, grace is interdependent co-origination. But it’s *not*. You should be *right on* interdependent co-origination. Right on.
   

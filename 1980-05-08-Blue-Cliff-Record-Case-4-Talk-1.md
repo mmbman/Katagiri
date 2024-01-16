@@ -20,7 +20,7 @@ Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei 
 
 #### 0:00
 
-**Katagiri Roshi**: Case Four of *Blue Cliff Record*. The title is, “Te Shan Carrying His Bundle”. 
+**Katagiri Roshi:** Case Four of *Blue Cliff Record*. The title is, “Te Shan Carrying His Bundle”. 
 
 Let me first read the case:
 

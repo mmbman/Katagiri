@@ -17,7 +17,7 @@ title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 3"
 
 #### 0:00
 
-**Katagiri Roshi**: 
+**Katagiri Roshi:** 
 
 
 

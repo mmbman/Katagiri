@@ -18,7 +18,7 @@ What does it mean to die sitting in zazen? Katagiri Roshi discusses the meaning 
 
 #### 0:00
 
-**Katagiri Roshi**: Toward the end of [*Fukanzazengi*](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn this. [Dogen writes,]
+**Katagiri Roshi:** Toward the end of [*Fukanzazengi*](glossary#fukanzazengi), as a conclusion, [Dogen Zenji](glossary#dogen) explains how important [shikantaza](glossary#shikantaza) is from a different angle, from a various way. So, little by little, we try to learn this. [Dogen writes,]
 
 > In surveying the past, we find that transcendence of both unenlightenment and [enlightenment](glossary#enlightenment), and dying while either [sitting](glossary#sitting) or standing, have all depended entirely on the strength of [zazen](glossary#zazen).
 

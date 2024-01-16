@@ -19,7 +19,7 @@ Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Reco
 
 #### 0:00
 
-**Katagiri Roshi**: Case Thirty-Nine: “Yun Men’s Flowering Hedge”. The Pointer:
+**Katagiri Roshi:** Case Thirty-Nine: “Yun Men’s Flowering Hedge”. The Pointer:
 
 > One who can take action on the road is like a tiger in the mountains; one immersed in worldly understanding is like a monkey in a cage. If you want to know the meaning of Buddha-nature, you should observe times and seasons, causes and conditions. If you want to smelt pure gold which has been refined a hundred times, you need the forge and bellows of a master. Now tell me, when one’s great function appears, what can be used to test him?
 

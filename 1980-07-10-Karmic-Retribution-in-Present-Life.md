@@ -18,7 +18,7 @@ Katagiri Roshi discusses karma in terms of Dogen’s teaching, including three m
 
 #### 0:00
 
-**Katagiri Roshi**: First of all, I and all members of the sangha want to express appreciation to Doctor Huston Smith for his compassion in spending his valuable time with us, to guide us to Buddha’s Way. We really [benefit] from Doctor Smith, not only through his words, but behind the words. We deeply appreciate [your visit]. Thank you very much. 
+**Katagiri Roshi:** First of all, I and all members of the sangha want to express appreciation to Doctor Huston Smith for his compassion in spending his valuable time with us, to guide us to Buddha’s Way. We really [benefit] from Doctor Smith, not only through his words, but behind the words. We deeply appreciate [your visit]. Thank you very much. 
 
 I still have three lectures to give you in this seminar on karma, particularly on karma according to Dogen Zenji, the founder of Soto Zen. I pretty often emphasize Dogen Zenji’s way. If you use Dogen Zenji’s way, you immediately face the Soto tradition. 
 

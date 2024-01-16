@@ -15,7 +15,7 @@ title: "Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Tal
 
 #### 0:00
 
-**Katagiri Roshi**: Case 44: “Ho Shan’s Knowing How to Beat the Drum”
+**Katagiri Roshi:** Case 44: “Ho Shan’s Knowing How to Beat the Drum”
 
 The case:
 

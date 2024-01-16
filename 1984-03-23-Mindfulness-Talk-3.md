@@ -21,7 +21,7 @@ If you observe the body, the body observes you; there is no one-way traffic. And
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29220017" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi**: Let me read the next part:
+**Katagiri Roshi:** Let me read the next part:
 
 > Observing the body is body observing, that is not the observation of other things. The observation at the very moment is far and away the most excellent occurrence. When body observing is manifested, mind observing cannot be groped and found, nor manifested. Therefore it becomes *vajra samadhi* and *śūraṃgama samadhi*; both are observation of the body as not-pure. The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. It is beyond a matter of drawing comparison between purity and impurity. It is body-being-is-not-pure, or body-manifesting-is-not-pure. 
 
@@ -175,37 +175,37 @@ Do you have questions?
 
 #### 2 - 16:14
 
-**Question**: What was the name of the poet who wrote the poem about the maple leaf?
+**Question:** What was the name of the poet who wrote the poem about the maple leaf?
 
-**Katagiri**: Ryokan Zen Master. 
+**Katagiri:** Ryokan Zen Master. 
 
-**Question**: Is it a haiku?
+**Question:** Is it a haiku?
 
-**Katagiri**: [...] It’s not a haiku. I don’t know. 
+**Katagiri:** [...] It’s not a haiku. I don’t know. 
 
-**Question**: What is it?
+**Question:** What is it?
 
-**Katagiri**: It’s life. *[Laughter.]*
+**Katagiri:** It’s life. *[Laughter.]*
 
-**Question**: *[Unintelligible.]*
+**Question:** *[Unintelligible.]*
 
-**Question**: I wonder if it would help to understand that, when he wrote that poem, he was probably not thinking anything about purity or impurity. All he was thinking of was...
+**Question:** I wonder if it would help to understand that, when he wrote that poem, he was probably not thinking anything about purity or impurity. All he was thinking of was...
 
-**Katagiri**: Well, basically, he accepts life and death. Just functioning. 
+**Katagiri:** Well, basically, he accepts life and death. Just functioning. 
 
-**Same person**: But when he wrote the poem, all he was thinking about was the leaf.
+**Same person:** But when he wrote the poem, all he was thinking about was the leaf.
 
-**Katagiri**: Yeah, but if he thinks, immediately he can see the front and the back. So that’s why he says...
+**Katagiri:** Yeah, but if he thinks, immediately he can see the front and the back. So that’s why he says...
 
-**Same person**: But he didn’t think that meant anything. He didn’t think that the front meant purity and the back meant impurity.
+**Same person:** But he didn’t think that meant anything. He didn’t think that the front meant purity and the back meant impurity.
 
-**Katagiri**: But you can’t ignore the thinking, because you are already thinking. But the basic attitude – you have to stand up straight – is always functioning of life and death, as total dynamic working. Beyond front or back, front or back. Only the-same-and-one activities there. That is falling. Do you understand?
+**Katagiri:** But you can’t ignore the thinking, because you are already thinking. But the basic attitude – you have to stand up straight – is always functioning of life and death, as total dynamic working. Beyond front or back, front or back. Only the-same-and-one activities there. That is falling. Do you understand?
 
 That occurrence of the falling comes from where? [...] the universe. Interconnected, interpenetrated with all sentient beings. And then, falling appears. 
 
-**Same person**: It just seems that if you try to analyze the poem with that, it almost becomes more confusing. 
+**Same person:** It just seems that if you try to analyze the poem with that, it almost becomes more confusing. 
 
-**Katagiri**: Yeah, right. That is a poem. *[He laughs.]* A poem is always explaining. But Zen doesn’t explain. Just be present.
+**Katagiri:** Yeah, right. That is a poem. *[He laughs.]* A poem is always explaining. But Zen doesn’t explain. Just be present.
 
 But we are still confused. *[He laughs.]* Zen constantly puts you in the simplicity in life, you know? If you experience the source of existence, then immediately that’s so-called enlightenment. So don’t explain enlightenment. Be there. Practice there. Get a taste of your life. Teach there; teach that. That’s all. 
 
@@ -225,9 +225,9 @@ So, [Ryokan] also says, “My poem is not a poem, people say.” So his poem is 
 
 #### 2 - 29:16
 
-**Question**: Roshi? When you talk about emptiness and no-emptiness, and you say that how to attain or reach emptiness, you say practice. But how do we practice with no goal, and with nothing to attain, just being empty? So no purpose, no idea. Because I know practice is not a tool, to emptiness, but how to do practice with no purpose? 
+**Question:** Roshi? When you talk about emptiness and no-emptiness, and you say that how to attain or reach emptiness, you say practice. But how do we practice with no goal, and with nothing to attain, just being empty? So no purpose, no idea. Because I know practice is not a tool, to emptiness, but how to do practice with no purpose? 
 
-**Katagiri**: You have to understand the purpose based on purpose and not-purpose. [...] human action. Human action always has a purpose. Nevertheless, right in the middle of that purpose of a human action, you have to find something *more than* the idea of purpose or not-purpose. That is called no purpose, no goal. That’s pretty hard practice, but in other words, that is a very simple practice. And also simple human activities. But human activity is already complicated. So you have to find the simplicity of human activity, within the complication of human activity. Do you understand that one? *[He chuckles.]* That’s why your eyes, nose, ears, human body, human mind, you have to polish, again and again. It’s not “stinky”; your body and your mind are already Buddha Nature. Buddha Nature means already exists beyond your speculation, just like the trees, birds, et cetera. So that is called “let’s stand up in the realm of Buddha Nature”. That means your life activity is complicated, that doesn’t mean stinky. Alright? No. It already exists. Don’t deal with the complication of activity as stinky. No. You should deal with the complication of human activity as a Buddha. And then at that time, you can practice. You can listen to Buddha Nature, you can listen to Buddha’s teaching with your ears. And then simultaneously the teaching returns to you, if you always put yourself in the realm of Buddha. But if you have discrimination, when you see your body, the complication of human activity, so-called stinky, Buddha’s teaching doesn’t return to you, because you always confine yourself into your shell. Even though you listen to Buddha’s teaching, Buddha’s teaching doesn’t return to you. So first of all, you have to stand up there. Open. That is constantly listening to Buddha Nature; Buddha’s teaching, anyway. Beyond your mind is pure or impure. Anyway, listen, constantly listen. Dogen Zenji mentions later in this chapter, anyway, listen. Clean your room, listen, beyond clean or not clean. That’s our practice. And then that human activity is simultaneously to let you be in emptiness, and simultaneously that is practically speaking, shamata practice. That practicing of shamata leads you reach the clear observation of how the human world is going. Clear observation. 
+**Katagiri:** You have to understand the purpose based on purpose and not-purpose. [...] human action. Human action always has a purpose. Nevertheless, right in the middle of that purpose of a human action, you have to find something *more than* the idea of purpose or not-purpose. That is called no purpose, no goal. That’s pretty hard practice, but in other words, that is a very simple practice. And also simple human activities. But human activity is already complicated. So you have to find the simplicity of human activity, within the complication of human activity. Do you understand that one? *[He chuckles.]* That’s why your eyes, nose, ears, human body, human mind, you have to polish, again and again. It’s not “stinky”; your body and your mind are already Buddha Nature. Buddha Nature means already exists beyond your speculation, just like the trees, birds, et cetera. So that is called “let’s stand up in the realm of Buddha Nature”. That means your life activity is complicated, that doesn’t mean stinky. Alright? No. It already exists. Don’t deal with the complication of activity as stinky. No. You should deal with the complication of human activity as a Buddha. And then at that time, you can practice. You can listen to Buddha Nature, you can listen to Buddha’s teaching with your ears. And then simultaneously the teaching returns to you, if you always put yourself in the realm of Buddha. But if you have discrimination, when you see your body, the complication of human activity, so-called stinky, Buddha’s teaching doesn’t return to you, because you always confine yourself into your shell. Even though you listen to Buddha’s teaching, Buddha’s teaching doesn’t return to you. So first of all, you have to stand up there. Open. That is constantly listening to Buddha Nature; Buddha’s teaching, anyway. Beyond your mind is pure or impure. Anyway, listen, constantly listen. Dogen Zenji mentions later in this chapter, anyway, listen. Clean your room, listen, beyond clean or not clean. That’s our practice. And then that human activity is simultaneously to let you be in emptiness, and simultaneously that is practically speaking, shamata practice. That practicing of shamata leads you reach the clear observation of how the human world is going. Clear observation. 
 
 So shamata lets you be right in the middle of emptiness. Simultaneously, shamata leads you to clear observation of the world. So you can be emptiness, but can see the human world, what the human world is. So very naturally, the basic attitude toward human life occurs. 
 
@@ -235,39 +235,39 @@ So that is our practice, constantly. Well, traditionally there are many practice
 
 Is that alright? 
 
-**Same person**: And emptiness is like purity and no purity, no emptiness also. Not any thing, just emptiness and no emptiness, back and forth. 
+**Same person:** And emptiness is like purity and no purity, no emptiness also. Not any thing, just emptiness and no emptiness, back and forth. 
 
-**Katagiri**: What’s that?
+**Katagiri:** What’s that?
 
-**Same person**: Emptiness also, we must be empty also, no emptiness, to want or to have or to possess, or attain. 
+**Same person:** Emptiness also, we must be empty also, no emptiness, to want or to have or to possess, or attain. 
 
-**Katagiri**: Sure, but that’s why I ask, what is that? 
+**Katagiri:** Sure, but that’s why I ask, what is that? 
 
-**Same person**: Well, sometimes...
+**Same person:** Well, sometimes...
 
-**Katagiri**: “What is that” means how can you practice it? It’s not an explanation; you have to do something there. 
+**Katagiri:** “What is that” means how can you practice it? It’s not an explanation; you have to do something there. 
 
-**Same person**: Yes, you still have to just do without emptiness ... the practice must be then without emptiness as a goal...
+**Same person:** Yes, you still have to just do without emptiness ... the practice must be then without emptiness as a goal...
 
-**Katagiri**: Still you’re explaining. But how do you do it? 
+**Katagiri:** Still you’re explaining. But how do you do it? 
 
-**Same person**: How do I do it? Just doing. 
+**Same person:** How do I do it? Just doing. 
 
-**Katagiri**: You are still explaining. The point is, how do you do it? 
+**Katagiri:** You are still explaining. The point is, how do you do it? 
 
-**Same person**: *[He laughs.]* I don’t know. 
+**Same person:** *[He laughs.]* I don’t know. 
 
-**Katagiri**: That’s good. 
+**Katagiri:** That’s good. 
 
 *[Laughter.]*
 
-**Same person**: For myself, I think emptiness, I feel I must also no-emptiness. I want to be empty like the leaf, back and front, so empty, no empty, and empty, no empty, but not holding on to empty or no empty. That’s when I try, I try to be empty and no empty. No idea, maybe. So I don’t hold on to much to my desire to be empty. 
+**Same person:** For myself, I think emptiness, I feel I must also no-emptiness. I want to be empty like the leaf, back and front, so empty, no empty, and empty, no empty, but not holding on to empty or no empty. That’s when I try, I try to be empty and no empty. No idea, maybe. So I don’t hold on to much to my desire to be empty. 
 
-**Katagiri**: The question is, I understand what you said, you understand what you said, but you don’t understand *exactly* how do you do it. 
+**Katagiri:** The question is, I understand what you said, you understand what you said, but you don’t understand *exactly* how do you do it. 
 
-**Same person**: Yes, I don’t know.
+**Same person:** Yes, I don’t know.
 
-**Katagiri**: Sure, that’s great, you know? You have to always have a question: how do you do it? That is very important for us. Because always emptiness: what do you mean, emptiness? Emptiness is you always have to reflect upon yourself: what do you do? How do you do it? Constantly you have to keep your eyes open. *Keep your eyes open* is manifested as a question: how do I do it? But you cannot always say, “How do I do it,” no. You have to do it. 
+**Katagiri:** Sure, that’s great, you know? You have to always have a question: how do you do it? That is very important for us. Because always emptiness: what do you mean, emptiness? Emptiness is you always have to reflect upon yourself: what do you do? How do you do it? Constantly you have to keep your eyes open. *Keep your eyes open* is manifested as a question: how do I do it? But you cannot always say, “How do I do it,” no. You have to do it. 
 
 So always there is a sheer contradiction there. How do I do it? I don’t know. But you cannot stay “I don’t know” with I don’t know. So you have to do it, right in the middle of “I don’t know”. Okay? That is life. 
 
@@ -277,31 +277,31 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 #### 2 - 40:52
 
-**Question**: Zen practice, are you supposed to pick out a spot on the wall and stare at it, and you’re actually supposed to be looking at the wall? At one point on the wall, and maintaining [that]?
+**Question:** Zen practice, are you supposed to pick out a spot on the wall and stare at it, and you’re actually supposed to be looking at the wall? At one point on the wall, and maintaining [that]?
 
-**Katagiri**: No. You mean like sitting facing the wall? 
+**Katagiri:** No. You mean like sitting facing the wall? 
 
-**Same person**: Yeah. Is the wall just supposed to be there, or are you actually supposed to be looking at it?
+**Same person:** Yeah. Is the wall just supposed to be there, or are you actually supposed to be looking at it?
 
-**Katagiri**: No. Wall there, but the not wall there. If you say wall is there, at that time *you* observe the wall, don’t you think so? *[He laughs.]*
+**Katagiri:** No. Wall there, but the not wall there. If you say wall is there, at that time *you* observe the wall, don’t you think so? *[He laughs.]*
 
-**Same person**: But I just mean...
+**Same person:** But I just mean...
 
-**Katagiri**: Just sit down there, anyway! You know, without looking at the wall, without being obsessed with the wall. 
+**Katagiri:** Just sit down there, anyway! You know, without looking at the wall, without being obsessed with the wall. 
 
-**Same person**: Well, it was just a question about technique, you know? Are you supposed to keep your eyes...
+**Same person:** Well, it was just a question about technique, you know? Are you supposed to keep your eyes...
 
-**Katagiri**: Sure. And that’s why I always say to cast down your eyes on the floor. But if you face the wall, actually you should keep a certain distance. It’s too close to the wall. Actually we have more space between you and the wall. That’s pretty good for us. But we don’t have enough space, that’s why we sit pretty close to the wall. 
+**Katagiri:** Sure. And that’s why I always say to cast down your eyes on the floor. But if you face the wall, actually you should keep a certain distance. It’s too close to the wall. Actually we have more space between you and the wall. That’s pretty good for us. But we don’t have enough space, that’s why we sit pretty close to the wall. 
 
-**Same person**: You mean the zendo should be bigger?
+**Same person:** You mean the zendo should be bigger?
 
-**Katagiri**: Oh, I think so! *[He laughs.]* Idealistically. I would like to have a big zendo, but it’s impossible now, so I should practice patience. *[Laughter.]* So, facing the wall, that’s alright. But a certain area, not only one point, a certain area, a little bigger area. 
+**Katagiri:** Oh, I think so! *[He laughs.]* Idealistically. I would like to have a big zendo, but it’s impossible now, so I should practice patience. *[Laughter.]* So, facing the wall, that’s alright. But a certain area, not only one point, a certain area, a little bigger area. 
 
 #### 2 - 43:02
 
-**Question**: [...] When you said to practice Buddhism first you have to have a strong faith in the Buddha’s teaching and you have to keep listening to it, and when you’re doing those, I think it’s true in other religious groups we’re the same way, and well, to find out that you have to be careful to listen to both, but still for me we are doing something we don’t know yet. I mean, we know as a teaching, but we don’t know what kind of things we can base on to judge if we are doing the right thing or the wrong thing. What? 
+**Question:** [...] When you said to practice Buddhism first you have to have a strong faith in the Buddha’s teaching and you have to keep listening to it, and when you’re doing those, I think it’s true in other religious groups we’re the same way, and well, to find out that you have to be careful to listen to both, but still for me we are doing something we don’t know yet. I mean, we know as a teaching, but we don’t know what kind of things we can base on to judge if we are doing the right thing or the wrong thing. What? 
 
-**Katagiri**: I’m not selling a religious faith, okay? Because Buddhist faith is already based on the deep understand of the source of existence. So from this point, whether you don’t have faith or have faith, anyway your life is already right in the middle of faith. So from this point, it’s not necessary to think I should have faith or I shouldn’t have faith. Okay? Anyway, let’s have a white canvas of your life. Faith or not faith doesn’t matter: your life is a white canvas. Temporarily, it’s called faith, because that faith is supporting your life. That white canvas is open to you and to everyone. To your future. You can draw any kind of thing ...
+**Katagiri:** I’m not selling a religious faith, okay? Because Buddhist faith is already based on the deep understand of the source of existence. So from this point, whether you don’t have faith or have faith, anyway your life is already right in the middle of faith. So from this point, it’s not necessary to think I should have faith or I shouldn’t have faith. Okay? Anyway, let’s have a white canvas of your life. Faith or not faith doesn’t matter: your life is a white canvas. Temporarily, it’s called faith, because that faith is supporting your life. That white canvas is open to you and to everyone. To your future. You can draw any kind of thing ...
 
 #### 2 - 45:22 end of recording
 

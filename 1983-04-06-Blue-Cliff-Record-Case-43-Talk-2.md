@@ -13,7 +13,7 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 **This transcript is in rough draft stage.**
 
-**Archive Issue**: The audio ends abruptly at 1:18:54.
+**Archive Issue:** The audio ends abruptly at 1:18:54.
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
@@ -21,7 +21,7 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 #### 0:00
 
-**Katagiri Roshi**: Today I would like to explain the Five Ranks of Zen Buddhism. This is a kind of philosophical background for Soto Zen teaching.
+**Katagiri Roshi:** Today I would like to explain the Five Ranks of Zen Buddhism. This is a kind of philosophical background for Soto Zen teaching.
  
 The development of Chinese Buddhism might be divided into three periods. Perhaps the first period was between the first century and the fifth century, during which the Buddhist texts were translated. And the second period is maybe the sixth century to the [seventh] century, during which the teaching of Buddhism in China was established and systematized, after translating the texts. That is Chinese Buddhism: the T'ien-t'ai and Avatamsaka schools – school also means Buddhist psychology – and also the Nirvana school; several schools were established in those days. And the third period is from the seventh century to the thirteenth century: the Tang and Song dynasties.
 
@@ -84,7 +84,7 @@ First, let me read it. Or Cliff, will you read it?
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
-**Katagiri**: Okay, thank you. 
+**Katagiri:** Okay, thank you. 
 
 #### 24:05
 

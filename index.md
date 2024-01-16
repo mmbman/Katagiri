@@ -45,21 +45,21 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 ## Latest Updates
 
-**January 16, 2024**: Centered headings.
+**January 16, 2024:** Centered headings.
 
-**December 31, 2023**: Posted draft of [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts).
+**December 31, 2023:** Posted draft of [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts).
 
-**December 30, 2023**: Improved the summary for [Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
+**December 30, 2023:** Improved the summary for [Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
 
-**December 29, 2023**: Posted information on upcoming classes, and more.
+**December 29, 2023:** Posted information on upcoming classes, and more.
 
-**December 26, 2023**: Posted rough draft of [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts).
+**December 26, 2023:** Posted rough draft of [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts).
 
-**December 25, 2023**: Posted rough draft of [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts).
+**December 25, 2023:** Posted rough draft of [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts).
 
-**December 23, 2023**: More talk series pages. 
+**December 23, 2023:** More talk series pages. 
 
-**December 22, 2023**: Revised home page; added talk series pages. 
+**December 22, 2023:** Revised home page; added talk series pages. 
 
-**November 24, 2023**: Posted cleaned-up version of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18), with summary. 
+**November 24, 2023:** Posted cleaned-up version of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18), with summary. 
 

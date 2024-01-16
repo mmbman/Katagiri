@@ -15,7 +15,7 @@ title: "Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Tal
 
 #### 0:00
 
-**Katagiri Roshi**: The forty-fourth case. 
+**Katagiri Roshi:** The forty-fourth case. 
 
 *[A student reads:]*
 
@@ -46,7 +46,7 @@ The verse:
 
 #### 1:56
 
-**Katagiri Roshi**: Today, we will study the verse. 
+**Katagiri Roshi:** Today, we will study the verse. 
 
 > One hauls rock;  
 > A second moves earth.  
@@ -61,13 +61,13 @@ In Japanese we say *Ino* for where it says *Duty Distributor* here.
 
 This is a little bit questionable; I am not clear [about] “hauls rock”. In English it says “hauls rock”; I don’t know, do you understand how to haul rock? And then do you understand “Tsung said, ‘For now I’ll let you haul rock, but don’t move the tree in the middle’”? Do you understand the tree in the middle? What does it mean? How do you haul rock? 
 
-**Student**: Well, haul rock means to move from one place to another.
+**Student:** Well, haul rock means to move from one place to another.
 
-**Katagiri**: Yeah, I understand that. 
+**Katagiri:** Yeah, I understand that. 
 
-**Student**: “Don’t move the tree in the middle,” I don’t understand. *[Everyone laughs.]*
+**Student:** “Don’t move the tree in the middle,” I don’t understand. *[Everyone laughs.]*
 
-**Katagiri**: Well, I can’t imagine it from the English translation, but probably this is [like] when I was a child, or in ancient times, grinding wheat or raw soy beans into flour by rubbing between two pieces of very thick, round stone. Two pieces of rock, about this size, this thick, and the two surfaces coming together have a very rough surface, with grooves. *[There is some discussion to arrive at the word “grooves.” Katagiri laughs.]* And in the center of the bottom of the rock there is an axis of wood, and then the top rock is put [on] there, and when you turn the upper rock, [the bottom] doesn’t move. And the handle is on the side of the upper rock; you hold the handle and then you can turn just the upper rock. And then on the opposite side of the upper rock, there is a kind of hole, where you can put the wheat or any kind of grain while you turn, like this. Do you understand? Can you imagine this? *[He chuckles.]* When I was a child, we made flour like this. I think this is [the analogy]. (*Transcriber’s Note:* This is called a *rotating millstone*. You can find images online.)
+**Katagiri:** Well, I can’t imagine it from the English translation, but probably this is [like] when I was a child, or in ancient times, grinding wheat or raw soy beans into flour by rubbing between two pieces of very thick, round stone. Two pieces of rock, about this size, this thick, and the two surfaces coming together have a very rough surface, with grooves. *[There is some discussion to arrive at the word “grooves.” Katagiri laughs.]* And in the center of the bottom of the rock there is an axis of wood, and then the top rock is put [on] there, and when you turn the upper rock, [the bottom] doesn’t move. And the handle is on the side of the upper rock; you hold the handle and then you can turn just the upper rock. And then on the opposite side of the upper rock, there is a kind of hole, where you can put the wheat or any kind of grain while you turn, like this. Do you understand? Can you imagine this? *[He chuckles.]* When I was a child, we made flour like this. I think this is [the analogy]. (*Transcriber’s Note:* This is called a *rotating millstone*. You can find images online.)
 
 And then Zen Master Kuei Tsung says, “For now I will let you haul rock, but don’t move the tree in the middle.” “The tree in the middle” means the axis in the center of the rock. Don’t move it, because it is already fixed, it is already with the rock. If you move it, you cannot grind. And also, it’s already there, completely beyond your control, you have to just follow there. *[He chuckles.]* So it’s kind of order, or principle. If you want to grind wheat or roasted soy beans, that is the principle. You cannot ignore it. So that’s why he says, “Don’t move the tree in the middle.” That means whatever you do, there is a principle you have to focus on. If you slip off whatever you do, [then] you [still] do something, but sometimes it doesn’t make sense. 
 

@@ -158,23 +158,23 @@ Do you have any questions?
 
 #### 53:00
 
-**Question**: [Roshi](glossary#roshi)? When you gave the year when the sutras were written, do those years correspond with the Christian years that we use ... or are they Buddhist years? 
+**Question:** [Roshi](glossary#roshi)? When you gave the year when the sutras were written, do those years correspond with the Christian years that we use ... or are they Buddhist years? 
 
-**Another person**: Is it by the Western calendar?
+**Another person:** Is it by the Western calendar?
 
-**Katagiri**: Oh, yes – of course. I am talking about [the Western calendar], yes.
+**Katagiri:** Oh, yes – of course. I am talking about [the Western calendar], yes.
 
 #### 54:13
 
-**Question**: Roshi, two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. This came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
+**Question:** Roshi, two or three weeks ago in a lecture, you said that if we are sitting in order to help ourselves, that we should stop sitting. This came up while you were gone this week, and we talked about it a little bit. It seemed that, if we took your words literally, almost everybody in the room would have to stop sitting. Uh, can you... 
 
 *[Laughter.]*
 
-**Katagiri**: Uh... before that, what did I say? 
+**Katagiri:** Uh... before that, what did I say? 
 
-**Same person**: Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I’m not sure, I’d have to listen to be sure. But that sentence really struck me. 
+**Same person:** Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I’m not sure, I’d have to listen to be sure. But that sentence really struck me. 
 
-**Katagiri**: *[Quietly:]* Yeah. *[Laughter.]*
+**Katagiri:** *[Quietly:]* Yeah. *[Laughter.]*
 
 Maybe it’s connected with a previous statement ... 
 

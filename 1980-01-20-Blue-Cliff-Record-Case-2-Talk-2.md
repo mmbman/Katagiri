@@ -18,7 +18,7 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 
 #### 0:00
 
-**Katagiri Roshi**: 
+**Katagiri Roshi:** 
 
 > [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
@@ -238,17 +238,17 @@ Do you have some questions?
 
 #### 1:10:55
 
-**Question**: *[Unintelligible.]*
+**Question:** *[Unintelligible.]*
 
-**Katagiri**: Well that is that love and hate, for all those people, those are affective preferences, many emotional things. But we already have love and hate and many emotional things. We don’t ignore them. We cannot throw them away, okay? [So] where does that [phrase come from], “avoid love and hate”? Because we have them already. We have them already means that we have to take care. We shouldn’t obsess with them, and, well, we shouldn’t be confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
+**Katagiri:** Well that is that love and hate, for all those people, those are affective preferences, many emotional things. But we already have love and hate and many emotional things. We don’t ignore them. We cannot throw them away, okay? [So] where does that [phrase come from], “avoid love and hate”? Because we have them already. We have them already means that we have to take care. We shouldn’t obsess with them, and, well, we shouldn’t be confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
 
-**Same Person**: What I was wondering was do we have a choice, to hate or not to hate.
+**Same Person:** What I was wondering was do we have a choice, to hate or not to hate.
 
-**Katagiri**: Of course, we should choose. But you cannot always be hanging on. Sooner or later, you must be free. Even though love is good, you cannot always be hanging on.
+**Katagiri:** Of course, we should choose. But you cannot always be hanging on. Sooner or later, you must be free. Even though love is good, you cannot always be hanging on.
 
-**Same Person**: We get to choose not to love or not to hate?
+**Same Person:** We get to choose not to love or not to hate?
 
-**Katagiri**: First choose, but we must be free from it, finally. That means we should understand what real love is, real hate is. Do you understand? 
+**Katagiri:** First choose, but we must be free from it, finally. That means we should understand what real love is, real hate is. Do you understand? 
 
 Well anyway, you have to reach the third stage. *[He laughs.]* But you should choose. That’s why *you* have to choose, you have to pick. By what? By you. That’s why we have to be careful of choosing and picking, every day. 
 

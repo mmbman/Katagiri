@@ -18,7 +18,7 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 #### 0:00
 
-**Katagiri Roshi**: I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – buddha, dharma, and sangha – the Three Collective Pure Precepts, and Ten Prohibitory Precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
+**Katagiri Roshi:** I told you already, [the ceremony of lay ordination] consists of repentance, the Three Treasures – buddha, dharma, and sangha – the Three Collective Pure Precepts, and Ten Prohibitory Precepts. I already talked about repentance, and also a little bit about the Three Treasures. 
 
 The ritual of lay ordination is based on the idea of repentance, which means perfect openness of your heart. Repentance is not to apologize to somebody or something. You should open yourself, completely. If you do it, then consciously or unconsciously you are ready to listen to the voiceless voice of the universe. This is our practice, okay? So that’s why repentance is called *formless repentance*. 
 
@@ -128,13 +128,13 @@ Do you have questions?
 
 #### 54:23
 
-**Question**: Roshi? What do you see as the goal of American society? 
+**Question:** Roshi? What do you see as the goal of American society? 
 
-**Katagiri**: American society and Japanese society and Philippine society – wherever you may go, the most essential goals in life are the points I have mentioned. The goals in life I have mentioned are open to everywhere, anybody, not only a particular race. 
+**Katagiri:** American society and Japanese society and Philippine society – wherever you may go, the most essential goals in life are the points I have mentioned. The goals in life I have mentioned are open to everywhere, anybody, not only a particular race. 
 
-**Same person**: I’d say the society is very different ...
+**Same person:** I’d say the society is very different ...
 
-**Katagiri**: But it doesn’t matter. The surface is different, anyway. *[He laughs.]* Japanese society is different from American society. The customs, habits, and mores of the American people are different from the Japanese, of course. But it is not good enough to understand the different mores or lifestyles of human beings, but also you have to realize *the same and one ground* where different lifestyle of the beings exist. That is the most important thing. But usually we try to understand the different aspects, different styles, of race, human beings, and then we thing we can create peace. No. You have to find the same and one ground, where the many, many different lifestyles of existence exist in peace and harmony. That is the point I mentioned. That is the Triple Treasure. 
+**Katagiri:** But it doesn’t matter. The surface is different, anyway. *[He laughs.]* Japanese society is different from American society. The customs, habits, and mores of the American people are different from the Japanese, of course. But it is not good enough to understand the different mores or lifestyles of human beings, but also you have to realize *the same and one ground* where different lifestyle of the beings exist. That is the most important thing. But usually we try to understand the different aspects, different styles, of race, human beings, and then we thing we can create peace. No. You have to find the same and one ground, where the many, many different lifestyles of existence exist in peace and harmony. That is the point I mentioned. That is the Triple Treasure. 
 
 Of course, we should understand what is different. Japanese culture is different from American culture; Japanese are different from Americans. Yes, they are. But it’s not good enough. If you only understand the *different* lifestyles of beings, we’re always fighting. 
 
@@ -142,17 +142,17 @@ Even though I try to teach something universal, beyond American or Japanese, sti
 
 #### 57:48
 
-**Question**: Hojo-san? I heard you say toward the beginning something like, when human beings assert themselves, that’s egoistic. And I was wondering if you’re saying from your experience that being passive is egoless.
+**Question:** Hojo-san? I heard you say toward the beginning something like, when human beings assert themselves, that’s egoistic. And I was wondering if you’re saying from your experience that being passive is egoless.
 
-**Katagiri**: I’m not clear; would you say it again please?
+**Katagiri:** I’m not clear; would you say it again please?
 
-**Same person**: I thought you said that when we’re assertive, that’s egoistic, so I wondered if you’re implying that being passive is egoless. 
+**Same person:** I thought you said that when we’re assertive, that’s egoistic, so I wondered if you’re implying that being passive is egoless. 
 
-**Katagiri**: Do you think egoless is passive? 
+**Katagiri:** Do you think egoless is passive? 
 
-**Same person**: I wondered what you were thinking. *[Laughter.]*
+**Same person:** I wondered what you were thinking. *[Laughter.]*
 
-**Katagiri**: No, not passive. *[He chuckles.]* Egoless is passive and positive. For instance, you cannot ignore ego and [egolessness]; you have both. It’s not real practice whether you should accept a style of ego or a style of egolessness. No. It’s not important, alright? This is secondary. The important point is, first, how do you see humans – [for example] Katagiri – as a whole? From where? From ego-style, or egoless-style? 
+**Katagiri:** No, not passive. *[He chuckles.]* Egoless is passive and positive. For instance, you cannot ignore ego and [egolessness]; you have both. It’s not real practice whether you should accept a style of ego or a style of egolessness. No. It’s not important, alright? This is secondary. The important point is, first, how do you see humans – [for example] Katagiri – as a whole? From where? From ego-style, or egoless-style? 
 
 Let’s look at an example. For instance, if I get the flu, and then two people try to see me. One person, *A*, says, “I don’t want to catch the flu from you, so please, don’t give a lecture today. You should sleep.” *B* person says, “You’ve got the flu, so please take a rest. It’s not necessary to give a talk today, because you’re very tired; it’s not so good for you. So please take a rest.” And then what kind of world comes up between the two? Do you understand? 
 
@@ -160,13 +160,13 @@ The important point is not whether you should [choose] ego or egolessness; the p
 
 That is called egolessness. Egolessness is not the idea of egolessness opposed to ego, because you cannot discuss always about egolessness and ego, which of the two are important. We cannot say, you know? *[He chuckles.]* We cannot always be practicing egolessness, because if you try to practice egolessness, immediately ego comes up, and so you can always see both. 
 
-**Question**: On the same point, it seems like if someone is threatening violence, and *A* submits, that would be egoless, and B does not submit, or asserts some sort of defense, that might be ego coming up – but that being egoless doesn’t necessarily create peace and harmony. 
+**Question:** On the same point, it seems like if someone is threatening violence, and *A* submits, that would be egoless, and B does not submit, or asserts some sort of defense, that might be ego coming up – but that being egoless doesn’t necessarily create peace and harmony. 
 
-**Katagiri**: Sometimes. But egolessness can accept whatever situation happens.
+**Katagiri:** Sometimes. But egolessness can accept whatever situation happens.
 
-**Same person**: Egolessness is always acceptable?
+**Same person:** Egolessness is always acceptable?
 
-**Katagiri**: It’s [accepting]; all kinds of events which occur in the egolessness world can be acceptable. 
+**Katagiri:** It’s [accepting]; all kinds of events which occur in the egolessness world can be acceptable. 
 
 For instance, Gandhi. How did he deal with events and circumstances, human beings? Everyone’s really violent, et cetera, but he saw both: violent or nonviolent. But he doesn’t always discuss, “which should I accept, violent or nonviolent?” No. Because completely he stands up beyond the idea of violent or nonviolent. It means he is constantly standing in total nonviolence, beyond the idea of violent or nonviolent. 
 
@@ -182,9 +182,9 @@ Maybe I can accept my death. Emotionally, I cannot accept death. *[He laughs.]* 
 
 Do you have more questions? *[He laughs.]* 
 
-**Question**: [Sometime] I’ll have more questions.
+**Question:** [Sometime] I’ll have more questions.
 
-**Katagiri**: Yes. *[He laughs, and the group laughs.]* 
+**Katagiri:** Yes. *[He laughs, and the group laughs.]* 
 
 But Gandhi’s example is very good for you. You can think of it. If you are Gandhi, what do you do? You have to think of *that* person. 
 

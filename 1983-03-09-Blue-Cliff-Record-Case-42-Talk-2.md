@@ -27,7 +27,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 #### 0:00
 
-**Katagiri Roshi**: ... transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything moves and changes. That is the law of causation: cause and effect. 
+**Katagiri Roshi:** ... transiency and impermanence is moving and changing. Everything is moving and changing, but they don’t move at random. There is some reason why everything moves and changes. That is the law of causation: cause and effect. 
 
 So you have to understand cause and effect. Simply speaking, cause and effect is... well, through cause and effect we have to understand human karmic life: *personal* karmic life and also *common*, *non-personal* karmic life – common retribution [and] personal retribution through the law of causation. Personal retribution is if you do something good, you can get something good as a result. But common retribution [is that] if you do something, your behavior really affects others, affects society. So through the teaching of the cause and effect we have to understand personal karmic life and also common, not-personal karmic life, [which is] influencing everybody, and also society, and nations, and birds and trees. That is a very important teaching.
 
@@ -177,9 +177,9 @@ Do you have some questions?
 
 #### 53:10 
 
-**Question**: Could you give an example of falling into cause and effect? 
+**Question:** Could you give an example of falling into cause and effect? 
 
-**Katagiri**:  [...] You cannot fall into it, anyway. *[He chuckles.]* If you fall into causation, you don’t understand causation. So you *cannot* fall into it. 
+**Katagiri:**  [...] You cannot fall into it, anyway. *[He chuckles.]* If you fall into causation, you don’t understand causation. So you *cannot* fall into it. 
 
 On the other hand, *you cannot fall into it* doesn’t mean you should completely ignore causation. So you cannot ignore it; it doesn’t mean ignore. That is the real meaning of causation. 
 
@@ -207,27 +207,27 @@ From moment to moment, you have to take responsibility for your life like this, 
 
 #### 1:02:26
 
-**Question**: Hojo-san? In that example, you dropping your wallet, if you got mad and just dropped it and it was a problem to pick it up, or somebody else might pick it up instead, is that a form of falling into causality? 
+**Question:** Hojo-san? In that example, you dropping your wallet, if you got mad and just dropped it and it was a problem to pick it up, or somebody else might pick it up instead, is that a form of falling into causality? 
 
-**Katagiri**: Somebody [picks] it up. *[He laughs.]* *[Laughter.]*
+**Katagiri:** Somebody [picks] it up. *[He laughs.]* *[Laughter.]*
 
-**Question**: If you get angry because of the inconvenience?
+**Question:** If you get angry because of the inconvenience?
 
-**Katagiri**: If you’re angry with somebody?
+**Katagiri:** If you’re angry with somebody?
 
-**Question**: Angry at the wallet.
+**Question:** Angry at the wallet.
 
-**Katagiri**: Angry... at the wallet. *[Laughter.]* You’re angry?
+**Katagiri:** Angry... at the wallet. *[Laughter.]* You’re angry?
 
-**Question**: Yes, angry! *[Laughter]*
+**Question:** Yes, angry! *[Laughter]*
 
-**Katagiri**: *[Chuckles.]* Well, *angry* is not the angry you think. Angry is nothing but energy, because you cannot control it, don’t you think so? It just comes up. *[He laughs.]* Anger is energy. From this point, did you make the anger? No. You didn’t make it. You don’t know exactly from where it comes. But it comes because under the conditions, it comes up. So in terms of this function of the anger, only when the time is right, conditions arranged, very naturally there is cause and effect. Okay? Immediate cause and effect, because conditions are there, and anger comes up. That is the function of anger. 
+**Katagiri:** *[Chuckles.]* Well, *angry* is not the angry you think. Angry is nothing but energy, because you cannot control it, don’t you think so? It just comes up. *[He laughs.]* Anger is energy. From this point, did you make the anger? No. You didn’t make it. You don’t know exactly from where it comes. But it comes because under the conditions, it comes up. So in terms of this function of the anger, only when the time is right, conditions arranged, very naturally there is cause and effect. Okay? Immediate cause and effect, because conditions are there, and anger comes up. That is the function of anger. 
 
 So according to the function of that anger, that means anger becomes anger. What do I mean? Anger becomes anger means it’s beyond your control, and that means anger is nothing but energy. 
 
-**Question**: Yeah, I see that. I guess I was looking at it as maybe an indication of somebody falling into cause and effect... of losing... Maybe I’m not sure exactly what it means to fall into cause and effect. 
+**Question:** Yeah, I see that. I guess I was looking at it as maybe an indication of somebody falling into cause and effect... of losing... Maybe I’m not sure exactly what it means to fall into cause and effect. 
 
-**Katagiri**: *Fall into cause and effect* means you just see the one-sided idea of cause and effect. But cause and effect is not an idea or concept which your life can be molded into. No. So very naturally cause and effect becomes a kind of a symbol of a controller. Do you understand? That control is coming from you, but it’s not a controller. So if you see the cause and effect as a controller, you become sick: sick of cause and effect, sick of causation. 
+**Katagiri:** *Fall into cause and effect* means you just see the one-sided idea of cause and effect. But cause and effect is not an idea or concept which your life can be molded into. No. So very naturally cause and effect becomes a kind of a symbol of a controller. Do you understand? That control is coming from you, but it’s not a controller. So if you see the cause and effect as a controller, you become sick: sick of cause and effect, sick of causation. 
 
 For instance, zazen. Zen is *just do it*. And then you’re always saying, “Just do it. Just do it.” *Just do it* becomes *conceptualized*. *[He laughs.]* That is called *sick of zen* (or perhaps *Zen sickness*). So we have to show something else, a different one. If you fall into sick of Zen, sick of “just doing,” you have to show something. That is study. Keep your mouth shut, study. Use your head. That is called *ittengo*, which means *one turning word*. So that is not falling into, but not ignoring: add a turning word. 
 

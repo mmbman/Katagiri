@@ -18,7 +18,7 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
 
 #### 0:00
 
-**Katagiri Roshi**: Good morning. It seems like we haven’t had a talk on a Saturday for a long time. For me, it seems to be for many years. *[He laughs.]* Anyway, I am very glad to have this opportunity today. 
+**Katagiri Roshi:** Good morning. It seems like we haven’t had a talk on a Saturday for a long time. For me, it seems to be for many years. *[He laughs.]* Anyway, I am very glad to have this opportunity today. 
 
 The other day one of the students asked me about devotion. He said we are often “duped” by devotion. I don’t know why, but he said so. I thought it was because he was too involved in his individual personality or individual world; his understanding was not over a wide range. Not only him, but for anyone, if your understanding is very narrow, you are duped by whatever it is: dharma, Buddhism, Christianity, or even the self – you are duped even by the idea of the self. So today I would like to talk about *devotion*.
 
@@ -248,27 +248,27 @@ And then next, you have to think how to build up this sangha as a peaceful group
 
 Do you have some questions? Anything is fine.
 
-**Question**: The point of the community building working workshop is to try to build up our peaceful sangha.
+**Question:** The point of the community building working workshop is to try to build up our peaceful sangha.
 
-**Katagiri**: Right.
+**Katagiri:** Right.
 
-**Same person**: Most of what you said sounds very negative, but actually we don’t know what’s going to happen there.
+**Same person:** Most of what you said sounds very negative, but actually we don’t know what’s going to happen there.
 
-**Katagiri**: Yeah, we don’t know. “We don’t know” means there are negative and positive possibilities there. 
+**Katagiri:** Yeah, we don’t know. “We don’t know” means there are negative and positive possibilities there. 
 
-**Same person**: Yes, so you should not emphasize the negative possibilities only.
+**Same person:** Yes, so you should not emphasize the negative possibilities only.
 
-**Katagiri**: No. But actually, negative thoughts are coming up.
+**Katagiri:** No. But actually, negative thoughts are coming up.
 
-**Same person**: Maybe; we don’t know.
+**Same person:** Maybe; we don’t know.
 
-**Katagiri**: May be; but that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this “family workshop”, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this particular kind of workshop. Most of those who are asked see a little more the negative aspect of the sangha than the positive. That’s why we try to have the workshop. So if you have this workshop, I think the negative is coming up. But I don’t think we’re always negative; positive things come up. If positive things are always coming up, that’s lucky – real lucky. I hope for that.
+**Katagiri:** May be; but that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this “family workshop”, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this particular kind of workshop. Most of those who are asked see a little more the negative aspect of the sangha than the positive. That’s why we try to have the workshop. So if you have this workshop, I think the negative is coming up. But I don’t think we’re always negative; positive things come up. If positive things are always coming up, that’s lucky – real lucky. I hope for that.
 
 #### 1:12:11
 
-**Question**: You were talking about criticism earlier. How does one criticize without criticism leading to conflict? Because sometimes it’s probably necessary to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
+**Question:** You were talking about criticism earlier. How does one criticize without criticism leading to conflict? Because sometimes it’s probably necessary to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
 
-**Katagiri**: Criticism is not necessary, broadly speaking. No – we don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma; so there is no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetera. Then, what color is your life? You are black? Yes, sir. Then the black color sees the white; and then, white cannot be accepted as white; white is always accepted in terms of black. That is conflict coming up. 
+**Katagiri:** Criticism is not necessary, broadly speaking. No – we don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma; so there is no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetera. Then, what color is your life? You are black? Yes, sir. Then the black color sees the white; and then, white cannot be accepted as white; white is always accepted in terms of black. That is conflict coming up. 
 
 I think it is not necessary to criticize, basically. If it is necessary, I think you should walk with that person, sharing your good aspect, instead of criticizing. If you see something lacking, give them your hands. [...] Try to walk with him or her, and give a hand to them. 
 

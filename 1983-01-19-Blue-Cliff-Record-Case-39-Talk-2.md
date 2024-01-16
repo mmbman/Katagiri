@@ -47,7 +47,7 @@ The Verse:
 
 #### 0:00
 
-**Katagiri Roshi**: ... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
+**Katagiri Roshi:** ... [the answer] seems not to be related. Because [the monk asks], “What is the truth?” And then immediately the answer is just a flower. This is a very typical type of Zen question and answer; it’s always like this. It’s very difficult to understand. 
 
 But the important point is that it seems there is no relation between question and answer. That is a really great point which we have to take into account. Nothing to pin down, no relation between them, so there is nothing there – but within the nothingness there is a great “clue” for figuring out the crucial point: what is the truth? So let me say a little bit.
 

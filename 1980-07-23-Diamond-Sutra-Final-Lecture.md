@@ -18,7 +18,7 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 
 #### 0:00
 
-**Katagiri Roshi**: [At the end, there is a] famous verse in the *Diamond Sutra*. It says:
+**Katagiri Roshi:** [At the end, there is a] famous verse in the *Diamond Sutra*. It says:
 
 > As stars, a fault of vision, a lamp,  
 > A mock show, dew drops, or a bubble,  
@@ -59,7 +59,7 @@ Why is it that “the Tatagatha’s nirvana is neither the same as the condition
 
 > ... and partly because the characteristics of all conditioned beings are considered from the nine points of view, with their right knowledge.
 
-The **nine points of view**: those are “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” Those are nine. 
+The **nine points of view:** those are “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” Those are nine. 
 
 Asanga says “partly because the characteristic of all conditioned beings are considered from the nine points of view” because we live in the conditioned world, we cannot escape from this. If you cannot escape from the world, you have to understand the world, what it is, because you have to *be* there. If you don’t understand, if you ignore understanding the place we’re living in, that is really a cause of human trouble. So the place and time where human beings are present has to be understood as best as we can. That is awareness. That’s why “the characteristics of all conditioned beings are considered from the nine points of view.”
 

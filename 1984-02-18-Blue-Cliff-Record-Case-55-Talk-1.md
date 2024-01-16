@@ -20,7 +20,7 @@ title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi**: Case 55: 
+**Katagiri Roshi:** Case 55: 
 
 > Tao Wu and Chien Yuan went to a house to make a condolence call. Yuan hit the coffin and said, “Alive or dead?” Wu said, “I won’t say alive, and I won’t say dead.” Yuan said, “Why won’t you say?” Wu said, “I won’t say.” Halfway back, as they were returning, Yuan said, “Tell me right away, Teacher; if you don’t tell me, I’ll hit you.” Wu said, “You may hit me, but I won’t say,” Yuan then hit him.
 >
@@ -80,21 +80,21 @@ Anyway, the question is, why is it that we have to think of life and death like 
 
 Practically, if you see the trees, birds, and you want to believe all sentient beings as mind and consciousness, of course we can say so. The animals, birds, and trees, and pebbles and the skies all have mind, thinking and emotion, et cetera, but they think, they feel, they have their own consciousness just for themselves. So-called self-consciousness. So self-consciousness for them is very strong. Self-consciousness is functioning very strongly for them every day, instinctively. The same applies to human beings, but if a human being acts in that way, human beings become egoistic. If you attach to self-consciousness very strongly, you become egoistic. Just like an animal flies in order to survive lions eat other animals, without thinking, without reflection. But a human being, can you do this? Just kill and eat, whatever? Just for your survival? Well we can do, because we are animals, same family of the animals, so we can do, but we cannot do, we have a certain capability which prevents us from doing that. What is this? What’s the difference between animals and you? What is that? 
 
-**Person**: Consciousness prevents...
+**Person:** Consciousness prevents...
 
-**Katagiri**: Consciousness, yes...
+**Katagiri:** Consciousness, yes...
 
-**Person 2**: Compassion?
+**Person 2:** Compassion?
 
-**Katagiri**: Compassion, yes...
+**Katagiri:** Compassion, yes...
 
-**Person 3**: Reflection?
+**Person 3:** Reflection?
 
-**Katagiri**: Reflection – that’s true. 
+**Katagiri:** Reflection – that’s true. 
 
-**Person 4**: Heart-mind?
+**Person 4:** Heart-mind?
 
-**Katagiri**: Sure. 
+**Katagiri:** Sure. 
 
 Generally speaking, *reflection*. 
 
@@ -208,27 +208,27 @@ I said about the rakusu you are making, chanting the Triple Treasure in each sti
 
 *[Tape interruption.]*
 
-**Question**: .. ever stops? 
+**Question:** .. ever stops? 
 
-**Katagiri**: ... as long as you are breathing. Because there is energy. It’s going. 
+**Katagiri:** ... as long as you are breathing. Because there is energy. It’s going. 
 
 It’s not bad. It’s not something good. But maybe you should accept the thinking of X, first. This is your first attitude toward. And then think of it. How can you deal with thinking? Practically? 
 
 #### 1:14:06
 
-**Question**: Roshi? Did you say Tozan, when he was a boy, that he said that the sutra says “no nose” but I have a nose? Well I don’t exactly understand what’s so significant about that. 
+**Question:** Roshi? Did you say Tozan, when he was a boy, that he said that the sutra says “no nose” but I have a nose? Well I don’t exactly understand what’s so significant about that. 
 
-**Katagiri**: Well it’s very simple question and answer that Tozan as a little boy felt, practically, in a deep sense. For adults it’s very common, but for a little boy it’s very deep. A big shock for him. For an adult it’s not, don’t you think so? 
+**Katagiri:** Well it’s very simple question and answer that Tozan as a little boy felt, practically, in a deep sense. For adults it’s very common, but for a little boy it’s very deep. A big shock for him. For an adult it’s not, don’t you think so? 
 
-**Same person**: Well it seems to me like that’s what most kids would say.
+**Same person:** Well it seems to me like that’s what most kids would say.
 
-**Katagiri**: Sure, because just like trees, birds. Exactly. But adult is always very complicated; we cannot express our thinking directly. But trees and birds directly express. When winter comes, exactly they are standing there, just like a tree. That’s why that question is exactly he a little boy just standing straight right in the middle of X. He doesn’t know what. I have a nose, but the sutra says no nose – which is what? But he doesn’t know which is right. He’s right in the middle of X, standing there.
+**Katagiri:** Sure, because just like trees, birds. Exactly. But adult is always very complicated; we cannot express our thinking directly. But trees and birds directly express. When winter comes, exactly they are standing there, just like a tree. That’s why that question is exactly he a little boy just standing straight right in the middle of X. He doesn’t know what. I have a nose, but the sutra says no nose – which is what? But he doesn’t know which is right. He’s right in the middle of X, standing there.
 
 That’s why the teacher says, “I am not the teacher for you. I want to send you to somebody else.” Because teacher found how sharp he was. Great little boy. But in terms of adult sense, we have to explain why that question and answer is important for us. That’s why in terms of sutra’s “no nose, no eyes, no ears,” well can we we hold on to this nose, which exists always, so-called “my nose”. Don’t we? Yes... but in terms of no nose, sutra says it a question. Even though you don’t believe or you believe, sutra says like this, and then touching my nose like this. You cannot say always, “this is my nose” – yes, my nose exists, but sutra says no nose. What is this? So a question. In the other hand, in terms of my nose which exists exactly, what is the truth of the teachings, so-called no nose? So teaching of no-nose is also questionable. In terms of the presence of nose, the teaching of prajnaparamita is also questionable. Don’t you think so? Which is right? So the little body is exactly right in the middle of X. But adults are always thinking that way, this way, this way, that way. But little boy is exactly right in the middle of X.
 
-**Same person**: You mean like adults analyze it?
+**Same person:** You mean like adults analyze it?
 
-**Katagiri**: Analyze, yes. So I say, “hey let’s see Prajnaparamita Sutra, this way” and then everyone looks this way *[laughter]* – rushing into. And then, “Oh, no, no, no.. look *that* way.” *[Laughter.]* Zero. But a kid exactly looks like this. Don’t you think so? Just like the trees, birds. That’s why we say kids are beautiful, you know? 
+**Katagiri:** Analyze, yes. So I say, “hey let’s see Prajnaparamita Sutra, this way” and then everyone looks this way *[laughter]* – rushing into. And then, “Oh, no, no, no.. look *that* way.” *[Laughter.]* Zero. But a kid exactly looks like this. Don’t you think so? Just like the trees, birds. That’s why we say kids are beautiful, you know? 
 
 
 
