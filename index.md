@@ -9,7 +9,7 @@ The [**Talk Summaries**](summaries) page lists the talks that have been transcri
 
 The [**Talk List**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed. There are many talks that are not on this list because they are not yet in the online audio archive.
 
-## Talks Series
+## Talk Series
 
 Katagiri Roshi gave many series of talks on topics in Buddhism – some during a *sesshin* (meditation retreat), some during a practice period, and some that were ongoing for years. Some of these series are:
 
