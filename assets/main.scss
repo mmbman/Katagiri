@@ -69,6 +69,15 @@ hr {
     text-align: center
 }
 
+@media screen and (max-width: 800px) {
+.post-title {
+    font-size: 34px;
+    letter-spacing: -1px;
+    line-height: normal;
+    text-align: center
+}
+}
+
 .post-content h2 {
     font-size:26px;
     text-align: center
