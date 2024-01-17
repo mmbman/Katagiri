@@ -155,21 +155,25 @@ So if you can stop a baby crying, then after that, what is your teaching? That t
 
 So when you do gassho exactly in peace and harmony, this is the mind. [...] That peaceful mind is called buddha. So next moment you say, “What’s that? What is that peaceful mind?” Next moment, you are not peaceful; at that time it’s not buddha, it’s not-peaceful mind. 
 
-So finally you say, “Keep your mouth shut; do gassho in peace and harmony, right now, right here, according to the buddhas’ and ancestors’ suggestions, in front of the Buddha.” And then at that time, buddha appears, peaceful mind appears. So only when time is ripe, conditions arranged, always mind is there, buddha is there. But when you think “where is the mind,” mind is really [evasive], vast. Buddha is also vast. So you don’t know. So, “no mind.” Kind of no mind – but [is it really] no mind? Yes [there] is [mind]: when the time is ripe, conditions arranged, mind comes up! So mind is here. But is mind always with me? No: no mind; not-mind. Next moment, “not mind, not buddha.”
+So finally you say, “Keep your mouth shut; do gassho in peace and harmony, right now, right here, according to the buddhas’ and ancestors’ suggestions, in front of the Buddha.” And then at that time, buddha appears, peaceful mind appears. So only when time is ripe, conditions arranged, always mind is there, buddha is there. But when you think “where is the mind,” mind is really [evasive], vast. Buddha is also vast. So you don’t know. So, “no mind.” Kind of no mind – but [is it really] no mind? Yes [there] is [mind]: when the time is ripe, conditions arranged, mind comes up! So mind is here. But is mind always with me? No: no mind. Not-mind. Next moment, “not mind, not buddha.”
+
+#### 38:22
 
 And then the monk still didn’t understand, so the monk asked Baso Zen Master, “[I’m] not talking about teaching or philosophy: ‘Mind is buddha, or buddha is mind, or not-mind, or not-buddha.’” 
 
-In other words, from the first stage, “mind is buddha” means go to school and do your best, and then you can learn something. And then if you do it, school is you. If you do it, philosophy is with you, anyway. 
+In other words, from the first stage, “mind is buddha” means go to school and do your best, and then you can learn something. And then if you do it, school is you; if you do it, philosophy is with you. 
 
 *[Tape change.]*
 
-... And then at that time, the second stage is... well, if you go to school, how much knowledge does school give you? After graduation from the university, how much knowledge did you get which is useful when you share your life with people? You don’t know. The knowledge you have accumulated, that you have learned from school, is what? Nothing. You have to become a beginner, *[he chuckles,]* when you work with people. So you have to start to learn something new. 
+... And then at that time, the second stage is... well, if you go to school, how much knowledge does school give you? After graduation from the university, how much knowledge did you get which is useful when you share your life with people? You don’t know. The knowledge you have accumulated, that you have learned from school, is what? Nothing. You have to become a beginner when you work with people. *[He chuckles.]* Completely. So you have to start to learn something new. 
 
 So very naturally that is the second stage. School is you, you are school. Anyway, go to school. And then, if you finish school, how much did you learn? Where is the knowledge? You cannot [be] stuck in your title of Ph.D., or you cannot be stuck in your Batchelor’s Degree or Master’s Degree. Share your life with people. How? No knowledge, no school, no you: just jump into [it] and share. 
 
-That is the [second] stage, okay? Remember this.
+That is the first [and second] stage, okay? Remember this.
 
-And then the monk asked, “How should I deal with the person [who is] going beyond first and second?” He wanted to know the person who mastered completely the teaching of “the mind is buddha,” and also “not mind, not Buddha.” Free from the first and second. He’s not talking about *teaching*; he wants to know the reality [there]. When he sees somebody who is completely free from first and second, how can he deal with this kind of person? Baso Zen Master says, “not anything.” *[He chuckles.]*
+And then the monk asked, “How should I deal with the person [who is] going beyond first and second?” He wanted to know the person who mastered completely the teaching of “the mind is buddha,” and also “not mind, not Buddha.” Free from the first and second. He’s not talking about the *teaching*; he wants to know the reality [there]. When he sees somebody who is completely free from first and second, how can he deal with this kind of person? 
+
+Baso Zen Master says, “not anything.” *[He chuckles.]*
 
 “Not anything” means you have to just see him. How do you see him? When you have to do gassho, just do gassho, and then that is [that] you can see him. Why don’t you beat the drum, in the proper way? That’s enough. 
 
@@ -179,63 +183,91 @@ Anyway, that means in the first stage you can learn, [in the] second stage you c
 
 So finally you say, “Never mind; forget it.” You know? Why not do as I like? Because mind is buddha, but not-mind, not-buddha – so how can I live? Why not do as I like? Completely denying no mind and no buddha, and also completely denying mind and buddha: what’s left? What is there?
 
-Completely something is left: only the table is left, *[tap,]* as a material thing. This karmic body is left. Instinct is left. Your knowledge, your body is left. Because the spiritual aspect of your life is completely denied. Mind, or buddha, or not mind, and not buddha? If so, how do we live? Nothing there. You can really attach to nothing, so, if there is nothing to attach to, why don’t you live as you like? 
+Completely something is left: only the table is left, *[tap,]* as a material thing. This karmic body is left. Instinct is left. Your knowledge, your body is left. Because the spiritual aspect of your life is completely denied. Mind, or buddha, or not mind and not buddha? If so, how do we live? Nothing there. You can really attach to nothing, so, if there is nothing to attach to, why don’t you live as you like? 
 
-That is the point where most Zen students misunderstand: “Zen always lets you be free, so do as you like.” But [be] a little bit careful, because in Buddhism, negation implies a state of freedom – a state of freedom of human life – so your body and your mind must be free *in every aspect* of your life. If so, if you do as you like according to your desires, et cetera, at that time you are not free. Very naturally you are stuck in something. 
+That is a point most Zen students misunderstand: “Zen always lets you be free, so do as you like.” But [be] a little bit careful. Because in Buddhism, negation implies a state of freedom of human life – so your body and your mind must be free *in every aspect* of your life. If so, if you do as you like according to your desires, et cetera, at that time you are not free. Very naturally you are stuck in something. 
 
-Very naturally this freedom, real freedom, must be actualized in everyday life, in every aspect of your life. Getting up in the morning, and having breakfast – in the breakfast, freedom must be manifested there. When you do gassho, freedom must be actualized in the realm of gassho. That is freedom. 
+Very naturally this freedom, real freedom, must be actualized in everyday life, in every aspect of your life. Getting up in the morning, and having breakfast: in the breakfast, freedom must be manifested there. When you do gassho, freedom must be actualized in the realm of gassho. That is freedom. 
 
 So [you are] using your consciousness, and then, you shouldn’t be stuck in your consciousness, because this is freedom. The basic nature of your life is always using your consciousness, but you cannot stay with the consciousness which you have used, because this is the real state of your human existence. So go there, and then next, you become completely freedom. So next moment, you can go anyplace. If you like, you can stay; if you don’t like, you can go anyplace. 
 
-[This means] in terms of the truth, in terms of change or impermanence, you can use consciousness but you cannot stay with it. So just use consciousness, then, let it go. But on the other hand, in terms of human consciousness, there is [something very stinky] there. So you must be a little bit careful. 
+[This means] in terms of the truth, in terms of change or impermanence, you can use consciousness but you cannot stay with it. So just use consciousness, then, let it go. 
 
-So use consciousness and then participate in the microphone, but at that time, in terms of human consciousness, you shouldn’t create some gap between the microphone and you – in other words, “double mind”. You cannot create a gap; you cannot create a shadow of your mind. You should deal with the microphone as well as your life: exactly one. That is called *sincerity*; *true heart*. True heart is really human warmness, compassion. True heart is really you can be intimate with the life of the microphone. That means not leaving a shadow of your consciousness. So use your consciousness, jump into your object, but you should deal with the microphone with sincerity, true heart. 
+But on the other hand, in terms of human consciousness, there is [some] stinkiness there. So you must be a little bit careful. So use consciousness and then participate in the microphone, but at that time, in terms of human consciousness, you shouldn’t create some gap between the microphone and you – in other words, “double mind”. You cannot create a gap; you cannot create a shadow of your mind. You should deal with the microphone as well as your life: exactly one. That is called *sincerity*; *true heart*. 
 
-That’s why you cannot say, “Hey, let’s use this microphone as I like.” No, you cannot do it. That’s why Baso Zen Master says, “not anything.” How can I deal with the microphone, which is free from the first and second stage? Because this is enlightened being. If so, anyway, you cannot be stuck in the microphone as a material [entity], or you cannot be stuck in the microphone as a spiritual entity. You must be free from it – because you have to deal with it. So you should use your spiritual thing, and nevertheless, in terms of Buddha’s world, in terms of truth, you must be clear. So, nothing to leave, no trace of your [conscious] perception. And next, in terms of human beings, human desires, you should deal with the microphone with sincerity, true heart. No shadow of your consciousness. 
+*True heart* is really human warmness, compassion. True heart is really you can be intimate with the life of the microphone. That means not leaving a shadow of your consciousness. 
 
-That’s why Baso Zen Master says, “Not anything.” How can we deal with the person who is free from anything – first stage, second stage? At that time, how can we deal with? Don’t be stuck in a “thing” called “this guy” or “that guy” – or “this guy who has attained enlightenment,” or “this guy who has not attained enlightenment.” Don’t be stuck in [it]. Anyway, deal with [it]. How can we deal [with it]? When you have to beat the drum, you have to beat the drum – with sincerity, true heart. Using your consciousness.
+So use your consciousness, jump into your object, but you should deal with the microphone with sincerity, true heart. 
 
-So that’s why the monk asked, “‘Mind is buddha’—I am not asking about this.” Because this monk understands “mind is buddha.” So [he asks,] “What is not mind and not Buddha?”
+That’s why you cannot say, “Hey, let’s use this microphone as I like.” No, you cannot do it. That’s why Baso Zen Master says, “not anything.” 
 
-#### 52:12
+How can I deal with the microphone, which is free from the first and second stage? Because this is enlightened being. If so, you cannot be stuck in the microphone as a material [entity]. Or [also], you cannot be stuck in the microphone as a spiritual entity. You must be free from it – because you have to deal with it. So you should use your spiritual thing, and nevertheless, in terms of Buddha’s world, in terms of truth, you must be clear. So, nothing to leave, no trace of your [conscious] perception. And next, in terms of human desires, you should deal with the microphone with sincerity, true heart. No shadow of your consciousness. That’s why Baso Zen Master says, “Not anything.” 
+
+How can we deal with the person who is free from anything – first stage, second stage? At that time, how can we deal with? Don’t be stuck in a “thing” called “this guy” or “that guy” – or “this guy who has attained enlightenment,” or “this guy who has not attained enlightenment.” Don’t be stuck in [it]. Anyway, deal with [it]. How can we deal [with it]? When you have to beat the drum, you have to beat the drum – with sincerity, true heart. Using your consciousness.
+
+#### 51:48
+
+So that’s why the monk said, “‘Mind is buddha’—I am not asking about this.” Because this monk understands “mind is buddha.” So [he asks,] “What is not mind and not buddha?”
 
 And then Shan [again] said, 
 
 > “Knowing how to beat the drum.”
 
-If you see the person who is free from “not mind, not Buddha” – at that time, who is he? He is just a usual guy. A usual guy... but he’s not a usual guy. He’s still an unusual guy. But apparently, he is a usual guy.
+If you see the person who is free from “not mind, not Buddha” – at that time, who is he? He is just a usual guy. 
+
+A usual guy... but he’s not a usual guy. He’s still an unusual guy. But apparently, he is a usual guy.
 
 So how do we know he is not a usual guy? That means, when he has to beat the drum, just beat the drum. The difference is [one of] degree: how strong a determination you have, how much intention you have. In other words, how strongly you hit the drum with sincerity, with a true heart. How do you use your sincerity, how do you use your true heart, when you beat the drum? That’s all. 
 
-So through the hearing the sound of the drum, we can understand how much your practice is progressed. In Eiheiji monastery, we hit the gong. Each time, we bow; full bows. One hit of the gong, and bow. But every time, the sound depends on the individual personality. If you’re a really rough guy, even though you hit the bell softly, still the sound is very rough. Even though the sound is very soft, still there is a kind of an absence of mind, scattering of your mind. So it’s very interesting practice for us; that’s why every time, we bow. Because one hit of the gong, and then bow – at that time, your body and your mind [are] exactly peaceful and harmonious, tuning into the rhythm of the gong’s life. And then next moment, you can really face directly the life of the gong, right in front of you. And then hold, then [you are a] beginner. You start newly to hit the gong, with your wholeheartedness. 
+#### 53:45
 
-So one day the Zen Master [heard] the monk who hit the gong in the morning, and he asked the attendant who hit the gong. So [the attendant] said the monk’s name; and then the Zen Master said, “Ah, I understand.” He understands the sound of the gong this morning, because of who hit it. Because he knows his practice, the quality of his life. 
+Through the hearing the sound of the drum, we can understand how much your practice is progressed.
 
-So through the sound of the gong, you really understand how much your practice is progressed. And also this freedom is not something you can get immediately or you can get by practicing for one year or two years; no. Life after life, you have to practice. 
+In Eiheiji monastery, we hit the gong. Each time, we bow: full bows. One hit of the gong, and bow. 
 
-Most of you met Thich Nhat Hanh. Well, that’s peace. Everyone feels exactly peace from him. Whoever you are, everyone felt in that way. Real peaceful guy. But that peace is not something you can get by practicing for a couple of years. No. 
+But every time, the sound depends on the individual personality. If you’re a really rough guy, even though you hit the bell softly, still the sound is very rough. Even though the sound is very soft, still there is a kind of an absence of mind, a scattering of your mind. 
 
-And also, one more practice is, you should continue to practice not [in a] showy [way]. Very quiet practice. He talked about mindfulness; mindfulness is not a showy practice. When you walk on the street, just walk on the street, with your breath, with your mind, with your road, with your foot. And then finally, you can become one with the universe, with the rhythm of life. But this practice is not showy; you cannot show it to people. That’s why when you go to the bathroom, wash your face, and gassho to the water basin. This practice is very calm practice, but it’s really powerful. If you practice day by day like this, very naturally, freedom really blooms, the flower of freedom blooms, just like Thich Nhat Hanh. 
+So it’s very interesting practice for us; that’s why every time, we bow. Because one hit of the gong, and then bow – at that time, your body and your mind [are] exactly peaceful and harmonious, tuning into the rhythm of the gong’s life. And then next moment, you can really face directly the life of the gong, right in front of you. And then hold, then [you start anew] to hit the gong, with your wholeheartedness. 
+
+So one day the Zen Master [heard] the monk who hit the gong in the morning, and he asked the attendant who hit the gong. So [the attendant] said the monk’s name. And then the Zen Master said, “Ah, I understand.” He understands the sound of the gong this morning, because [he knows] who hit it. He knows his practice, the quality of his life. 
+
+#### 56:37
+
+So through the sound of the gong, you really understand how much your practice is progressed. And also, this freedom is not something you can get immediately, or you can get by practicing for one year, or two years. No. Life after life, you have to practice. 
+
+Most of you met Thich Nhat Hanh. Well, that’s peace. Everyone feels exactly peace from him. Whoever you are; everyone felt in that way. Real peaceful guy. But that peace is not something you can get by practicing for a couple of years. No. 
+
+And also, one more practice is, you should continue to practice not [in a] showy [way]. Very quiet practice.
+
+He talked about mindfulness: mindfulness is not a showy practice. When you walk on the street, just walk on the street, with your breath, with your mind, with your road, with your foot. And then finally, you can become one with the universe, with the rhythm of life. But this practice is not showy; you cannot show it to people. That’s why when you go to the bathroom, wash your face, and gassho to the water basin. This practice is very calm practice, but it’s really powerful. If you practice day by day like this, very naturally, freedom really blooms, the flower of freedom blooms. Just like Thich Nhat Hanh. 
 
 But if you are really greedy in spiritual life, you cannot continue to practice like this. Even though you practice spiritual life, very naturally you become greedy. If you become greedy, you want to follow the teaching tracks, seminars, and training periods. If you want to be a good student, you should attend the training period, you should take this class or that class; if you don’t, you are not a good student. That is really greedy. You cannot be a really peaceful person, or you cannot really share your life with all sentient beings. 
 
-How much does Thich Nhat Hanh teach people, [how much does he share,] how much does he influence all sentient beings [with his life]. He doesn’t say anything; but his influence is really enormous, vast. Wherever he may go: just standing. That’s really great; helpful, for everyone. Don’t you think so? Don’t you feel in that way? You cannot forget him. Thich Nhat Hanh is always in everybody’s heart. That freedom, or peace, or harmony, is not something you can get immediately, or for a couple of years’ practice. No; you cannot do it. So, that’s why bodhisattvas walk in the mist, from life after life... forever, anyway. 
+How much does Thich Nhat Hanh teach people, [how much does he share,] how much does he influence all sentient beings [with his life]. He doesn’t say anything; but his influence is really enormous, vast. Wherever he may go: just standing. That’s really great; helpful, for everyone. Don’t you think so? Don’t you feel in that way? You cannot forget him. Always in everybody’s heart, Thich Nhat Hanh is there. 
 
-So very naturally, “not mind, not Buddha.” That is just like a bodhisattva, who is free from the concept of “not mind, not Buddha.” What is it? He knows how to beat the drum. That is Thich Nhat Hanh. He knows how to walk on the street, with all sentient beings. We always say, “let’s walk on the street with all sentient beings,” [but] we don’t walk in that way. We always walk alone. Walking alone is a little bit bitter. But most people walk on the street with anger, hatred; [agonies]. But whatever happens in your life, anyway when you walk on the street, let’s walk on the street with all sentient beings. How can you practice this? This is not a teaching, this is something you have to do, every day. 
+That freedom, or peace, or harmony, is not something you can get immediately, or for a couple of years’ practice. No; you cannot do it. So that’s why bodhisattvas walk in the mist, from life after life. Forever, anyway. 
 
-During this training [period] I said, when you get up in the morning, let’s chant the verse, “I am getting up in the morning now, with all sentient beings,” and then realize everything without throwing away anything at all. Anyway get up in the morning, and then sit down on your bed, do a gassho, and chant a short verse. You don’t think this is an important practice, but this is a really great practice for us. If you can do it every day, life after life, [...] this is really [being a] bodhisattva. 
+So very naturally [...] that is just like a bodhisattva, who is free from the concept of “not mind, not Buddha.” What is it? He knows how to beat the drum. 
 
-So, a bodhisattva knows how to beat the drum, a bodhisattva knows how to get up in the morning with all sentient beings, a bodhisattva knows how to wash his face with all sentient beings.
+That is Thich Nhat Hanh. He knows how to walk on the street, with all sentient beings. 
 
-#### 1:04:07
+We always say, “let’s walk on the street with all sentient beings,” [but] we don’t walk in that way. We always walk alone. Walking alone is a little bit bitter. But most people walk on the street with anger, hatred; [agonies]. But whatever happens in your life, when you walk on the street, let’s walk on the street with all sentient beings. How can you practice this? 
+
+This is not a teaching. This is something you have to do, every day. 
+
+During this training [period] I said, when you get up in the morning, let’s chant the verse, “I am getting up in the morning now, with all sentient beings,” and then realize everything without throwing away anything at all. Anyway get up in the morning, and then sit down on your bed, do a gassho, and chant a short verse. You don’t think this is an important practice, but this is a really big, great practice for us. If you can do it every day, life after life, [...] this is really [being a] bodhisattva. 
+
+#### 1:03:47
+
+So, a bodhisattva knows how to beat the drum. A bodhisattva knows how to get up in the morning with all sentient beings. A bodhisattva knows how to wash his face with all sentient beings.
 
 > Again he asked, “When a transcendent man comes, how do you receive him?” Shan said, “Knowing how to beat the drum.”
 
 This is really true. How do we know we are bodhisattvas? We should know how to wash our face. How to get up in the morning. How to hit the bell. You believe this is a small little practice, but I don’t think this is small, a trifle. It is a *huge* practice. 
 
-Well, we should contemplate this koan again and again, in our whole life. That’s why everyday life and daily routine is very important for us. 
+Well, we should contemplate this koan again and again, in our whole life. That’s why everyday life and *daily routine* is very important for us. 
 
-[In the monastery,] my teacher taught me a very simple teaching: when the people get up in the morning, please get up in the morning. When the people have breakfast, please have breakfast together. And then after that, if you don’t feel good, [you can] go to sleep. These are very simple suggestions, but it’s really important practice for us, because we [miss] this important practice. That’s why in a Zen monastery, everyday it is *very* important for us. Walking, hitting the drum, and chanting, reading a book – we have to do it with our sincerity, true heart. 
+[In the monastery,] my teacher taught me a very simple teaching: when the people get up in the morning, please get up in the morning. When the people have breakfast, please have breakfast together. And then after that, if you don’t feel good, [you can] go to sleep. These are very simple suggestions, but it’s really important practice for us. Because we missed this important practice. That’s why in a Zen monastery, everyday it is *very* important for us. Walking, hitting the drum, and chanting, reading a book – we have to do it with our sincerity, true heart. 
 
 #### 1:06:30 end of recording
 
