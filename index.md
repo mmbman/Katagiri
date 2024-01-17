@@ -45,6 +45,8 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 ## Latest Updates
 
+**January 17, 2023:** Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
+
 **January 16, 2024:** Centered headings and style changes.
 
 **December 31, 2023:** Posted draft of [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts).
