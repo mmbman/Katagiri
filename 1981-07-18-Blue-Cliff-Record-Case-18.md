@@ -150,7 +150,9 @@ So your presence is not only your presence but simultaneously the presence of th
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip... [at least not at] first, not yet.
 
-Of course, you need a whip. Remember this. [Why do we need a whip?] Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is karmic consciousness – but whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being really stretches into the past, into the future. You have to understand human life for the long, long range. 
+Of course, you need a whip. Remember this. [Why do we need a whip?] 
+
+Buddha says even a cat or dog are Buddha. If dogs and cats are Buddha, why was the cat born with his skin, his muscles, as a cat? So a Zen master says that is karmic consciousness – but whatever you say, it doesn’t hit the mark. Anyway, you have to understand [yourself] as a human being, but that human being really stretches into the past, into the future. You have to understand human life for the long, long range. 
 
 If you understand your life for the long range, through the past, to the future, you cannot criticize the degree of stinkiness, *[he laughs,]* how stinky you are. Because this is karmic life. Karmic life is completely beyond your speculation, your understanding. Why am I Japanese? I don’t know. Completely, I don’t know. I know pretty well that I am Japanese because I know my parents and my grandparents; but I don’t know *why* I *am* Japanese. Why were you born as American? You don’t know either. You know why, you can explain, but that explanation or reason is really just a speck of dust, don’t you think so? You don’t know, exactly.
 
