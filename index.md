@@ -43,7 +43,7 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 ## Latest Updates
 
-**January 18, 2023:** More editing of [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1). Re-added timecode 43:34 to [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
+**January 18, 2023:** More editing of [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
 
 **January 17, 2023:** Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
 
