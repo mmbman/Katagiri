@@ -43,15 +43,15 @@ For both classes, a Zoom option is available for those who can only attend remot
 
 ## Latest Updates
 
-**January 18, 2023:** More editing of [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
+**January 18, 2023:** More editing of [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
 
-**January 17, 2023:** Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
+**January 17, 2023:** Updated [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
 
 **January 16, 2024:** Centered headings and style changes.
 
 **December 31, 2023:** Posted draft of [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts).
 
-**December 30, 2023:** Improved the summary for [Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
+**December 30, 2023:** Improved the summary for [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1).
 
 **December 29, 2023:** Posted information on upcoming classes, and more.
 
