@@ -160,7 +160,11 @@ From this point, you need a whip. You need a whip. Shall I touch just a hair? Sh
 
 So if you really understand this karmic life, karmic life turns into Buddha's life. You can really accept. To accept is not just to accept at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip – or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
-That is really silence. There is a story (at the beginning of “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken, [I don’t ask about the unspoken]” ...
+That is really silence. 
+
+#### 43:34
+
+There is a story (at the beginning of “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken, [I don’t ask about the unspoken]” ...
 
 *[Tape change.]*
 
