@@ -70,7 +70,7 @@ This is a very common question to a person who is about to die: “What do you w
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A *seamless monument* is a very common term in Buddhism. (*Transcriber’s Note:* He might mean *concept*, not *term*.)
+A *seamless monument* is a very common term in Buddhism. (*Transcriber’s Note:* He might mean a very common *concept*, not *term*.)
 
 If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there is a [huge] lantern by a small pond, where people let go of fish and turtles, whatever. So that is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. By this pond you have a big lantern. You know the lanterns in the temple? Not like this [metal] type of lantern; you can see them in pictures. (*Transcriber’s Note*: probably a stone lantern, [*tōrō*](glossary#tōrō).) This lantern is called a *seamless lantern*. That means the pond is called [*hōshō (unintelligible)*], which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of them. 
 
