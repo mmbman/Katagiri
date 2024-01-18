@@ -39,13 +39,17 @@ Ho Shan (Hoshan Wuyin) was the seventh patriarch from Seigen Gyōshi (Qingyuan X
 
 Originally (in Japanese) it says *hearing*, but this translator says *learning*. 
 
-So *cultivating study* means usually we learn [by studying] something step by step, one by one. We say *shugaku* in Japanese. *Shu* means just like a baby bird trying to learn how to fly in the sky. Every day, every moment, a baby bird has to practice moving his wings. That is the meaning of *shu*; we say *learn* in English. *Gaku* is *study*. But this translator says “*cultivating* study.” 
+*Cultivating study* means usually we learn [by studying] something step by step, one by one. We say *shugaku* in Japanese. *Shu* means just like a baby bird trying to learn how to fly in the sky. Every day, every moment, a baby bird has to practice moving his wings. That is the meaning of *shu*; we say *learn* in English. *Gaku* is *study*. But this translator says “cultivating study.” 
 
-“Cultivating study is called ‘learning’” means that with your six consciousnesses you can hear Buddha’s teaching, and also you can hear what the human world is. The human world is really the samsaric world: nothing but the repetition of life and death, filled with suffering and pain, et cetera. In Buddhism, *suffering* means not only suffering but also pleasure, and pain, and neutral feeling. [That is] also suffering; we say *dukkha*. So whatever kind of [experience or] feeling you have – feeling good, or you don’t feel good, or you don’t feel anything, just neutral – all are called *dukkha*. It means suffering – because it doesn’t last for long. 
+“Cultivating study is called ‘learning’” means that with your six consciousnesses you can hear Buddha’s teaching, and also you can hear what the human world is. The human world is really the samsaric world: nothing but the repetition of life and death, filled with suffering and pain, et cetera. In Buddhism, *suffering* means not only suffering but also pleasure, and pain, and neutral feeling. [That is] also suffering; we say *dukkha*. So whatever kind of [experience or] feeling you have – feeling good, or you don’t feel good, or you don’t feel anything, just neutral – all are called *dukkha*. 
 
-Basically, human life always stands in the stream of impermanence. So if you realize this point, how the human world is structured, [then] “life is characterize by suffering” means how impermanent human life is – not only human beings, but also all sentient beings. So if you really see deeply into and touch the core of the impermanence of the world, at that time you can really awaken to the truth. That is the first step to [enter] into the Buddha’s world. So we say *stream-winner* – one of the *arhats*; a “saint”. *Stream-winner* means you can really tune into the rhythm of the stream of the river, the stream of impermanence. That [is the] stream-winner; that is the first stage of the sage. 
+[*Dukkha*] means suffering, because it doesn’t last for long. Basically, human life always stands in the stream of impermanence. So if you realize this point, how the human world is structured, [then] “life is characterize by suffering” means how impermanent human life is – not only human beings, but also all sentient beings. 
 
-So through the six consciousnesses we really see deeply how human life and the human world is going. And also we can really see nirvana, which means peace and harmony, through the Buddha’s teaching. So we really see this point through our six consciousnesses, and then we can hear the teaching, and then we really believe in the Buddha’s teaching with our mind, and then next we want to put it into practice with our body. We really want to experience nirvana through the teaching – through hearing the teaching, through believing [it], through practicing [it] with our body. That is called “cultivating study.” So that’s why [it says] “Cultivating study is called ‘hearing’.” 
+So if you really see deeply into and touch the core of the impermanence of the world, at that time you can really awaken to the truth. That is the first step to [enter] into the Buddha’s world. So we say *stream-winner* – one of the *arhats*; a “saint”. *Stream-winner* means you can really tune into the rhythm of the stream of the river, the stream of impermanence. That [is the] stream-winner; that is the first stage of the sage. 
+
+So through the six consciousnesses we really see deeply how human life and the human world is going. And also we can really see nirvana, which means peace and harmony, through the Buddha’s teaching. So we really see this point through our six consciousnesses, and then we can hear the teaching, and then we really believe in the Buddha’s teaching with our mind, and then next we want to put it into practice with our body. We really want to experience nirvana through the teaching – through hearing the teaching, through believing [it], through practicing [it] with our body. That is called “cultivating study.” 
+
+So that’s why [it says] “Cultivating study is called ‘hearing’.” 
 
 #### 9:17
 
@@ -53,9 +57,9 @@ So through the six consciousnesses we really see deeply how human life and the h
 
 So finally you can *cut off* – “cut off” means be free from – human suffering. [That] means you can really tune into the rhythm of the stream of impermanence. Not throw it away; you can really *tune in* to the rhythm of impermanence. That is called *cut off*, or we say [you are a] *stream-winner*, if you can really live right in the middle of impermanence but you are not carried away by impermanence or suffering so much. This is called “cutting off studying is called ‘nearness’.” 
 
-*Cutting off study* means you can study until there is nothing to study. That is called *mu-gaku* – *not-study*. That is *freedom*. 
+*Cutting off study* means you can study until there is nothing to study. That is called *mu-gaku*: *not-study*. That is *freedom*. 
 
-So this is freedom, but it is called *nearness*, [it is] not exactly perfect freedom. Still, [it’s] pretty close. [It’s not perfect] because we are still stuck in the freedom. Real freedom is [that] your body and mind must be free just like water [flowing] in your everyday life. That is real freedom. So you cannot pick up the freedom as an idea, because your body and mind are nothing but freedom itself. If you pick it up from your body, from your life, and see the freedom, it’s already not *real* freedom, it is a *concept* of freedom.
+So this is freedom, but it is called *nearness*. [It is] not exactly perfect freedom. Still, [it’s] pretty close. [It’s not perfect] because we are still stuck in the freedom. Real freedom is [that] your body and mind must be free just like water [flowing] in your everyday life. That is real freedom. You cannot pick up the freedom as an idea, because your body and mind are nothing but freedom itself. If you pick it up from your body, from your life, and see the freedom, it’s already not *real* freedom, it is a *concept* of freedom.
 
 #### 12:00
 
@@ -67,9 +71,11 @@ That means truth; real freedom.
 
 #### 12:17
 
-So these are three points which people can experience through the Buddha’s teaching, mentioned by the priest named Sōjō (Sengzhao or Seng-Chao) who wrote the book *Jewel Treasure Treatise*. In this book he mentions that there are three types of [experience]: hearing, nearness, and truth. (*Transcriber’s Note:* Katagiri Roshi says “types of people” here, but he probably doesn’t mean fixed types of people, so I have used “types of experience.”)
+So these are three points which people can experience through the Buddha’s teaching, mentioned by the priest named Sōjō (Sengzhao or Seng-Chao) who wrote the book *Jewel Treasure Treatise*. In this book he mentions that there are three types of [experience]: hearing, nearness, and truth. 
 
-*Shugaku*: that is learning, hearing. [In] the first step we really get into the Buddha’s teaching, being free from human *samsara*, through our six consciousnesses – hearing – and then we can learn something. And then, every day we have to learn, and then practice it again and again. Finally, you can really tune the dial in, you can really hit the underground stream, and then you get the water springing up through the pipe. That is *nearness*. And the third type of [people’s experience] is *truth*. Truth is perfect freedom.
+(*Transcriber’s Note:* Katagiri Roshi says “types of people” here, but he probably doesn’t mean fixed types of people, so I have used “types of experience.”)
+
+*Shugaku*: that is learning, hearing. [In] the first step we really get into the Buddha’s teaching – being free from human *samsara* – through our six consciousnesses – hearing – and then we can learn something. And then, every day we have to learn, and then practice it again and again. Finally, you can really tune the dial in, you can really hit the underground stream, and then you get the water springing up through the pipe. That is *nearness*. And the third type of [people’s experience] is *truth*. Truth is perfect freedom.
 
 [*Jewel Treasure Treatise*] says it just like this case: Cultivating study is called “learning.” Cutting off study is called “nearness.” Going beyond these two is to be considered as the truth.
 
@@ -79,9 +85,13 @@ So, Ho Shan extolled this point, the three types of [people’s experience], to 
 
 > A monk came forward and asked, “What is ‘real going beyond’?” 
 
-That means, what is the truth? What is the truth, being free from the first type or second type? The first type is always using your six consciousnesses, listening to the Buddha’s teaching, listening to the sound of the human world. And then the second type of [experience] is really to be free from this human samsaric suffering, and also acquiring the Buddha’s teaching. That is called *cutting off*, freedom. So very naturally you can step [into] freedom. But it is not good enough, because you still are stuck in freedom, happiness. You’re so proud of yourself at that time. That’s why [there is] the final goal which Buddhism emphasizes constantly, which is to be free from, to go beyond the first two types of [experience]. 
+That means, what is the truth? What is the truth, being free from the first type or second type? 
 
-Well, not only Buddha’s teaching, but whatever you do, you have to go through this process. When I was a monk, my teacher said, “You should learn calligraphy,” because my teacher was a pretty good calligrapher. But he didn’t say, “I will teach you how to write calligraphy.” So I watched his way of writing carefully every day, because he wrote calligraphy almost every day. So [I stayed] by him and watched his calligraphy, and also learned how to carry his brush. And then every day I took a brush and practiced. And also I had a particular textbook written by a famous calligrapher. So, listening to his rhythm, and also reading, and understanding, with my whole six consciousnesses – anyway, every day I practiced. 
+The first type is always using your six consciousnesses, listening to the Buddha’s teaching, listening to the sound of the human world. And then the second type of [experience] is really to be free from this human samsaric suffering, and also acquiring the Buddha’s teaching. That is called *cutting off*, freedom. So very naturally you can step [into] freedom. But it is not good enough, because you still are stuck in freedom, happiness. You’re so proud of yourself at that time. That’s why [there is] the final goal which Buddhism emphasizes constantly, which is to be free from, to go beyond the first two types of [experience]. 
+
+Well, not only Buddha’s teaching, but whatever you do, you have to go through this process.
+
+When I was a monk, my teacher said, “You should learn calligraphy,” because my teacher was a pretty good calligrapher. But he didn’t say, “I will teach you how to write calligraphy.” So I watched his way of writing carefully every day, because he wrote calligraphy almost every day. So [I stayed] by him and watched his calligraphy, and also learned how to carry his brush. And then every day I took a brush and practiced. And also I had a particular textbook written by a famous calligrapher. So, listening to his rhythm, and also reading, and understanding, with my whole six consciousnesses – anyway, every day I practiced. 
 
 So he said, “You should learn calligraphy under the guidance of a teacher first.” [...] The guidance of a teacher and guidance of a book; [this is a] good example. This is the first stage. 
 
@@ -103,15 +113,23 @@ That’s why, “A monk came forward and asked, “What is ‘real going beyond�
 
 This is a pretty interesting answer. 
 
-If you want to really learn the third stage, you always say, “Let’s go through the first and second stage, and then you can go beyond the first and second stage.” This is also pretty good. But he doesn’t say that. Immediately he says, “I know how to beat the drum” – that means everyday life. 
+If you want to really learn the third stage, you always say, “Let’s go through the first and second stage, and then you can go beyond the first and second stage.” This is also pretty good. But he doesn’t say that. Immediately he says, “I know how to beat the drum.” 
 
-So if you want to be a storyteller in Japan under the guidance of a teacher, and if you ask the teacher, “How do we become a great storyteller just like you?” Probably he would tell you: “Please get up in the morning when the time comes to get up, and clean the house, and make breakfast, and serve the teacher, and have breakfast. After breakfast, wash your bowl.” 
+That means everyday life. 
 
-But we don’t understand this point, because that’s just like usual life. How can we learn to be a master storyteller through this daily life? It’s pretty hard. But this is a pretty good point, because human beings are really greedy. If you become greedy, it’s pretty hard to learn something real. You can learn something conceptual, or philosophical, or psychological, but it’s very difficult to learn something *real*, penetrating your life, penetrating others’ lives, and share your life with people, helping. [If you’re greedy, that’s] pretty hard. So that’s why if you want to learn to be a master storyteller, why don’t you take care of the tape recorder, with your compassion? Take care of the tape recorder, as well as your life. 
+If you want to be a storyteller in Japan under the guidance of a teacher, and if you ask the teacher, “How do we become a great storyteller just like you?” Probably he would tell you: “Please get up in the morning when the time comes to get up, and clean the house, and make breakfast, and serve the teacher, and have breakfast. After breakfast, wash your bowl.” 
 
-This is the first step. That’s why he says, “I know how to beat the drum.” Because your life is really related, interconnected, with all sentient beings. [So you can] go to school and learn something step by step, but it doesn’t work in your daily life – because you can learn something intellectually so your head becomes big, but your life doesn’t work. Mastering something is not to stuff knowledge into your head. To master something is to share your life with the people through everyday life. 
+We don’t understand this point, because that’s just like usual life. How can we learn to be a master storyteller through this daily life? It’s pretty hard. 
 
-But it is a very slow-going story. *[He laughs slightly.]* You cannot stand up, you cannot be patient, because people really want to rush to the goal and then get the richness, happiness, and success, et cetera. So, very greedy. 
+But this is a pretty good point, because human beings are really greedy. If you become greedy, it’s pretty hard to learn something real. You can learn something conceptual, or philosophical, or psychological, but it’s very difficult to learn something *real*, penetrating your life, penetrating others’ lives, and share your life with people, helping. [If you’re greedy, that’s] pretty hard. 
+
+So that’s why if you want to learn to be a master storyteller, why don’t you take care of the tape recorder, with your compassion? Take care of the tape recorder, as well as your life. 
+
+This is the first step. That’s why he says, “I know how to beat the drum.” 
+
+Because your life is really related, interconnected, with all sentient beings. [So you can] go to school and learn something step by step, but it doesn’t work in your daily life. You can learn something intellectually so your head becomes big, but your life doesn’t work. Mastering something is not to stuff knowledge into your head. To master something is to share your life with the people through everyday life. 
+
+But it is a very slow-going story. *[He laughs slightly.]* People cannot stand up, people cannot be patient, because they really want to rush to the goal and get the richness, happiness, and success, et cetera. So, very greedy. 
 
 #### 27:27
 
@@ -133,7 +151,7 @@ So this is the truth.
 
 > Again he asked, “‘Mind is Buddha’—I am not asking about this. What is not mind and not Buddha?”
 
-In those days, around the eighth century, when Baso Zen Master (Mazu Daoyi) lived, Baso Zen Master emphasized his teaching based on “Mind is Buddha; Buddha is mind.” [In Japanese] we say, *sokushin zebutsu*. *Soko* means “identity.” *Shin* means “mind.” *Ze* means “this” or “the.” *Butsu* means buddha. So buddha is exactly identical with mind. Just like in the *Heart Sutra*, we say “form is emptiness, emptiness is form”; we use *is*. But anyway, mind *is* Buddha. So this was a big koan in those days, and in every monastery, monks really researched this. 
+In those days, around the eighth century, when Baso Zen Master (Mazu Daoyi) lived, Baso Zen Master emphasized his teaching based on “Mind is buddha; buddha is mind.” [In Japanese] we say, *sokushin zebutsu*. *Soko* means “identity.” *Shin* means “mind.” *Ze* means “this” or “the.” *Butsu* means buddha. So buddha is exactly identical with mind. Just like in the *Heart Sutra*, we say “form is emptiness, emptiness is form”; we use *is*. But anyway, mind *is* Buddha. So this was a big koan in those days, and in every monastery, monks really researched this. 
 
 One day a monk asked Baso Zen Master, “Why do you teach ‘mind is buddha’?” And Baso Zen Master said, “[To stop] a baby from crying.” 
 
@@ -145,17 +163,21 @@ So you can get the microphone. You get this microphone, but this microphone is n
 
 So always we have [it]. Something separate from you cannot be acquired by you. This is the Buddhist teaching, anyway. That’s why Baso Zen Master says [that] if buddha or real spiritual life is something separate from you, at that time, no matter how long you try to get it, you never get it; that’s why you become just like a baby, crying constantly. You want to get it, you want to get it! 
 
-And then Baso Zen Master really expresses his compassion like a mother: [he says,] “I want to stop the baby’s crying.” How does he stop the baby crying? Because “mind is buddha” is with you; so your mind is buddha, simultaneously. And then, maybe you can stop the baby crying. 
+And then Baso Zen Master really expresses his compassion like a mother: [he says,] “I want to stop the baby’s crying.” How does he stop the baby crying? [He says] “mind is buddha” is with you; so your mind is buddha, simultaneously. And then, maybe you can stop the baby crying. 
 
 And then the monk asked, “How is it when you have stopped the baby from crying?” In other words, after stopping the baby from crying, what is this? What is your teaching? 
 
-And then Baso says, “Not mind, not Buddha.” Because if Baso Zen Master says “your mind is buddha,” [then] you are really stuck in the mind, or you are stuck in the buddha. Where is the buddha? In my mind? Where is my mind? Inside or outside? Where is my buddha? So you are looking for [it], and then if you cannot find it, you start to cry again! 
+And then Baso says, “Not mind, not buddha.” 
 
-So if you can stop a baby crying, then after that, what is your teaching? That teaching is “not mind, not buddha.” Buddha is not something you try to find inside or outside or somewhere. Or mind also is not something you can find inside or outside. Mind or buddha are that which manifest under certain conditioned elements. When the time is ripe, conditions arranged, it comes up. 
+Because if Baso Zen Master says “your mind is buddha,” [then] you are really stuck in the mind, or you are stuck in the buddha. Where is the buddha? In my mind? Where is my mind? Inside or outside? Where is my buddha? So you are looking for [it], and then if you cannot find it, you start to cry again! 
 
-So when you do gassho exactly in peace and harmony, this is the mind. [...] That peaceful mind is called buddha. So next moment you say, “What’s that? What is that peaceful mind?” Next moment, you are not peaceful; at that time it’s not buddha, it’s not-peaceful mind. 
+So if you can stop a baby crying, then after that, what is your teaching? That teaching is “not mind, not buddha.” Buddha is not something you try to find inside or outside or somewhere. Mind also is not something you can find inside or outside. Mind or buddha are that which manifest under certain conditioned elements. When the time is ripe, conditions arranged, it comes up. 
 
-So finally you say, “Keep your mouth shut; do gassho in peace and harmony, right now, right here, according to the buddhas’ and ancestors’ suggestions, in front of the Buddha.” And then at that time, buddha appears, peaceful mind appears. So only when time is ripe, conditions arranged, always mind is there, buddha is there. But when you think “where is the mind,” mind is really [evasive], vast. Buddha is also vast. So you don’t know. So, “no mind.” Kind of no mind – but [is it really] no mind? Yes [there] is [mind]: when the time is ripe, conditions arranged, mind comes up! So mind is here. But is mind always with me? No: no mind. Not-mind. Next moment, “not mind, not buddha.”
+So when you do gassho exactly in peace and harmony, this is the mind. [...] That peaceful mind is called buddha. So next moment you say, “What’s that? What is that peaceful mind?” Next moment, you are not peaceful; at that time it’s not buddha. It’s not-peaceful mind. 
+
+So finally you say, “Keep your mouth shut; do gassho in peace and harmony, right now, right here, according to the buddhas’ and ancestors’ suggestions, in front of the Buddha.” And then at that time, buddha appears, peaceful mind appears. 
+
+So only when time is ripe, conditions arranged, always mind is there, buddha is there. But when you think “where is the mind,” mind is really [evasive], vast. Buddha is also vast. So you don’t know. So, “no mind.” Kind of no mind – but [is it really] no mind? Yes [there] is [mind]: when the time is ripe, conditions arranged, mind comes up! So mind is here. But is mind always with me? No: no mind. Not-mind. Next moment, “not mind, not buddha.”
 
 #### 38:22
 
@@ -181,7 +203,7 @@ Baso Zen Master says, “not anything.” *[He chuckles.]*
 
 Anyway, that means in the first stage you can learn, [in the] second stage you can be free from, and then [in the] third stage, you don’t know what it is, because we deny the first stage and second stage, so what is the real truth? 
 
-So finally you say, “Never mind; forget it.” You know? Why not do as I like? Because mind is buddha, but not-mind, not-buddha – so how can I live? Why not do as I like? Completely denying no mind and no buddha, and also completely denying mind and buddha: what’s left? What is there?
+So finally you say, “Never mind; forget it.” You know? Why not do as I like? Because “mind is buddha,” but “not-mind, not-buddha” – so how can I live? Why not do as I like? Completely denying no mind and no buddha, and also completely denying mind and buddha – what’s left? What is there?
 
 Completely something is left: only the table is left, *[tap,]* as a material thing. This karmic body is left. Instinct is left. Your knowledge, your body is left. Because the spiritual aspect of your life is completely denied. Mind, or buddha, or not mind and not buddha? If so, how do we live? Nothing there. You can really attach to nothing, so, if there is nothing to attach to, why don’t you live as you like? 
 
@@ -203,7 +225,9 @@ That’s why you cannot say, “Hey, let’s use this microphone as I like.” N
 
 How can I deal with the microphone, which is free from the first and second stage? Because this is enlightened being. If so, you cannot be stuck in the microphone as a material [entity]. Or [also], you cannot be stuck in the microphone as a spiritual entity. You must be free from it – because you have to deal with it. So you should use your spiritual thing, and nevertheless, in terms of Buddha’s world, in terms of truth, you must be clear. So, nothing to leave, no trace of your [conscious] perception. And next, in terms of human desires, you should deal with the microphone with sincerity, true heart. No shadow of your consciousness. That’s why Baso Zen Master says, “Not anything.” 
 
-How can we deal with the person who is free from anything – first stage, second stage? At that time, how can we deal with? Don’t be stuck in a “thing” called “this guy” or “that guy” – or “this guy who has attained enlightenment,” or “this guy who has not attained enlightenment.” Don’t be stuck in [it]. Anyway, deal with [it]. How can we deal [with it]? When you have to beat the drum, you have to beat the drum – with sincerity, true heart. Using your consciousness.
+How can we deal with the person who is free from anything – first stage, second stage? At that time, how can we deal with? Don’t be stuck in a “thing” called “this guy” or “that guy” – or “this guy who has attained enlightenment,” or “this guy who has not attained enlightenment.” Don’t be stuck in [it]. Anyway, deal with [it]. How can we deal [with it]? 
+
+When you have to beat the drum, you have to beat the drum – with sincerity, true heart. Using your consciousness.
 
 #### 51:48
 
@@ -223,13 +247,11 @@ So how do we know he is not a usual guy? That means, when he has to beat the dru
 
 Through the hearing the sound of the drum, we can understand how much your practice is progressed.
 
-In Eiheiji monastery, we hit the gong. Each time, we bow: full bows. One hit of the gong, and bow. 
-
-But every time, the sound depends on the individual personality. If you’re a really rough guy, even though you hit the bell softly, still the sound is very rough. Even though the sound is very soft, still there is a kind of an absence of mind, a scattering of your mind. 
+In Eiheiji monastery, we hit the gong. Each time, we bow: full bows. One hit of the gong, and bow. But every time, the sound depends on the individual personality. If you’re a really rough guy, even though you hit the bell softly, still the sound is very rough. Even though the sound is very soft, still there is a kind of an absence of mind, a scattering of your mind. 
 
 So it’s very interesting practice for us; that’s why every time, we bow. Because one hit of the gong, and then bow – at that time, your body and your mind [are] exactly peaceful and harmonious, tuning into the rhythm of the gong’s life. And then next moment, you can really face directly the life of the gong, right in front of you. And then hold, then [you start anew] to hit the gong, with your wholeheartedness. 
 
-So one day the Zen Master [heard] the monk who hit the gong in the morning, and he asked the attendant who hit the gong. So [the attendant] said the monk’s name. And then the Zen Master said, “Ah, I understand.” He understands the sound of the gong this morning, because [he knows] who hit it. He knows his practice, the quality of his life. 
+One day the Zen Master [heard] the monk who hit the gong in the morning, and he asked the attendant who hit the gong. So [the attendant] said the monk’s name. And then the Zen Master said, “Ah, I understand.” He understands the sound of the gong this morning, because [he knows] who hit it. He knows his practice, the quality of his life. 
 
 #### 56:37
 
