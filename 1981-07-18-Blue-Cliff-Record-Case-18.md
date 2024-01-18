@@ -64,17 +64,17 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 
 > Emperor Su Tsung asked National Teacher Hui Chung, “After you die, what will you need?”
 
-This is a very common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in [two] different ages, his disciples and many people expected something specific [for] him (or possibly *from* him), regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him even after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
+This is a very common question to a person who is about to die: “What do you want after your death?” Because National Teacher Hui Chung was one of the greatest Zen teachers of those days in China, respected by two emperors in [two] different ages, his disciples and many people expected something specific [for] him (or possibly *from* him), regardless of whether he was alive or passed away. Anyway, the people really wanted to respect him after his death. So [the Emperor] wanted [him] to have something; that's why he asked, “What do you need after your death?”
 
 #### 5:01
 
 > The National Teacher said, “Build a seamless monument for me.”
 
-A *seamless monument* is a very common term in Buddhism. (*Transcriber’s Note:* He might mean a very common *concept*, not *term*.)
+A *seamless monument* is a very common term in Buddhism. (*Transcriber’s Note:* He might mean a very common *concept*.)
 
 If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there is a [huge] lantern by a small pond, where people let go of fish and turtles, whatever. So that is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. By this pond you have a big lantern. You know the lanterns in the temple? Not like this [metal] type of lantern; you can see them in pictures. (*Transcriber’s Note*: Probably a stone lantern. In Japanese, [*tōrō*](glossary#tōrō).) [If] this lantern is called a *seamless lantern*, that means the pond is called *[unintelligible]*, which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of them. 
 
-[This means] *formless*. In [*Prajnaparamita \[Sutra\]*](glossary#prajnaparamita), we say *formless*: no eyes, no ears, [et cetera]. 
+[So it’s seamless; seamless] means *formless*. In [*Prajnaparamita \[Sutra\]*](glossary#prajnaparamita), we say *formless*, no form: no eyes, no ears, [et cetera]. 
 
 So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. [When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
