@@ -286,7 +286,7 @@ Prediction is fine, because in a sense it is true, teaching you who you are. In 
 
 So even if *I Ching* or a prediction tells you the truth of your life toward the future – fine, that truth is still the *name* of the truth. You have to know *behind* the truth. Don’t be cheated by the *name* of truth; you have to know the *real quality* of the truth. Take [up] the name of truth of your life in the future, in the past – that’s fine. But you have to know the real quality. For this, you have to take off the clothes of the name of the truth. That is really our [practice].
 
-That’s why Hsueh Tou said, “Within the crystal palace, there is no one who knows.”
+That’s why [Tan Yuan] said, “Within the crystal palace, there is no one who knows.”
 
 >> Hsueh Tou added the comment, “He has raised it up.”
 
