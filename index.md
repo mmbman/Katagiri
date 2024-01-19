@@ -39,8 +39,6 @@ I (Kikan) will be co-leading this class at Clouds in Water Zen Center. The focus
 
 Genpo Michael O’Neal will be leading the Buddhist Studies class at Compassionate Ocean Zen Center, with the primary reading being the [Karma](karma) series of talks. (I made a nice printed version that can only be obtained via the class.)
 
-For both classes, a Zoom option is available for those who can only attend remotely. Four of the class sessions overlap in time, but a highly motivated person could participate in both classes via some combination of in-person attendance, Zoom, and recordings. 
-
 ## Latest Updates
 
 **January 18, 2023:** More editing of [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
