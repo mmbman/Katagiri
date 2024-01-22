@@ -78,6 +78,8 @@ If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there 
 
 So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. 
 
+#### 8:07
+
 [When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
 Because in our life, what we can perceive is filled with pros and cons, successes and failures, pleasure and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#katagiri), and the trees; and suffering, life and death, old age and sickness, et cetera. Lots of stuff in human life. But this is [to take up] those names. [...] You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them [out]. What’s left? 
