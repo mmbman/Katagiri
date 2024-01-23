@@ -115,85 +115,87 @@ If you think [about the] next moment, you feel uneasy, restless. But you *have* 
 
 #### 22:13
 
-So you have to do [something], but that is not [an] order [from someone]. So very naturally, [we ask,] *who* has to do [something]? What is the obligation? For what [reason]? For me? For others? No. 
+So you have to do [something], but that is not [an] order [from someone]. So very naturally, [we ask,] *who* has to do [something]? What is the obligation? For what? For me? For others? No. 
 
-I want to practice zazen, I want to study Buddhism for [myself]; yes, it is true. For myself for what [reason]? For the sake of deepening my life. What do I mean, deepening my life? *[He chuckles.]* 
+I want to practice zazen, I want to study Buddhism for [myself] – yes, it is true. For myself for what [reason]? For the sake of deepening my life. What do I mean, deepening my life? *[He chuckles.]* 
 
-Yes, for a certain period of time I can learn lots of things, and then deepen lots of things, and then I can see a little more broad picture of the human world. In a certain period of time – for fifty, sixty years, anyway. And then at the end of sixty years, then what happens? It’s time to go ahead, *[he chuckles,]* to the other side. To death. 
+Yes, for a certain period of time I can learn lots of things, and then deepen lots of things, and then I can see a little more broad picture of the human world. For a certain period of time – for fifty, sixty years, anyway. And then what happens, at the end of the sixty years? It’s time to go ahead, *[he chuckles,]* to the other side. To death. 
 
 When I die: what is it that I have done? I have studied and deepened my life for the sake of myself, for the sake of making my life happy. And then when I die, where is the happiness? 
 
-Well *[he laughs]*, in the moment right before my death, [it’s] *all gone*, completely *all gone*. Happiness is no-happiness. Unhappiness is gone, happiness is gone, health is gone, un-health is gone; all gone. And then completely I have to fall into the abyss. Do you understand? Perfect unhappiness. Absolute unhappiness. *[He laughs.]* According to our sense, perfect unhappiness – completely beyond happiness and unhappiness. 
+Well *[he laughs]*, in the moment right before my death, [it’s] *all gone*, completely *all gone*. Happiness is no-happiness. Unhappiness is gone, happiness is gone, health is gone, un-health is gone. All gone. And then completely I have to fall into the abyss. Do you understand? Perfect unhappiness. Absolute unhappiness. *[He laughs.]* According to our sense, perfect unhappiness. Completely beyond happiness and unhappiness, what shall I do? I don’t want to die. I want to *know* what happens after death. [But] whatever I say, no matter how long I scream: “I’m sorry, Katagiri; please go ahead.” *[Some laughter.]* 
 
-What shall I do? I don’t want to die; I want to *know* what happens after death. [But] whatever I say, no matter how long I scream: “I’m sorry, Katagiri; please go ahead.” *[Some laughter.]* 
+I have to [be confounded] with that moment. Do you understand that?
 
-I have to [be confounded] with that moment. This moment is the real reality you are present in. It’s very evasive, because this moment is really interwoven by pros and cons, success and failure, life and death. Right in the middle of death, from moment to moment, is it exactly death? No. It’s not death, it’s life, because right in the middle of death, from moment to moment, you have to live. Do you understand? 
+This moment is the real reality you are present in. It’s very evasive, because this moment is really interwoven by pros and cons, success and failure, life and death. Right in the middle of death, from moment to moment, is it exactly death? No. It’s not death, it’s life, because right in the middle of death, from moment to moment, you have to live. Until *real* death comes. If real death comes, you don’t know what death is, because you become one, exactly death. At that time, how do you know death? 
 
-Until real death comes. If real death comes, you don’t know what death is, because you become one, exactly death. At that time, how do you know death? [There is] no way to know, because *knowing* is characterized by knowing something in the dualistic world. But if you become exactly oneness – you don’t know. There is *no way* to know. 
+[There is] no way to know, because *knowing* is characterized by knowing something in the dualistic world. But if you become exactly oneness, you don’t know. There is *no way* to know. 
 
-So, [it is] just like being killed by a gun: *boom*, that shock. Only shock, and no pain. When you die, [there is] no pain – right in the middle of death, you don’t know what’s pain, what’s pleasure. You don’t know. 
+[It is] just like being killed by a gun: *boom*, that shock. Only shock, and no pain. When you die, [there is] no pain – right in the middle of death, you don’t know what’s pain, what’s pleasure. You don’t know. 
 
-But before you die, death is coming into you, approaching you, crossing [over] to you: at that time, you know death. But that death is not real death, that death is something you can know. So it’s an object. [Subject], object. So death is subjective happening, life is subjective happening. 
+But before you die, death is coming into you, approaching you, crossing [over] to you: at that time, you know death. But that death is not real death; that death is something you can know. So it’s an object. [Subject], object. 
 
-So you don’t know. If you accept death or life exactly subjectively, there is no way to know. So all you have to do is just throw away “I want to do,” “I don’t want to do,” or “I have to do,” or “I haven’t to do,” or “I cannot help doing something.” Completely no words. All you have to do is, just do it. That’s [a] simple practice. 
+So death is subjective happening. Life is subjective happening. So you don’t know. If you accept death or life exactly subjectively, there is no way to know. All you have to do is – just throw away “I want to do,” “I don’t want to do,” or “I have to do,” or “I haven’t to do,” or “I cannot help doing something,” completely no words – all you have to do is, just do it. That’s [a] simple practice. 
 
 #### 27:50
 
 So that’s why in this case, in the beginning it says, “Ho Shan imparted some words saying, “Cultivating study is called ‘learning.’” In the dualistic world we can cultivate study, knowing something, and stuff lots of knowledge into our head. That is learning, through your six consciousnesses. But this is [only] one of the ways of living in this world. It’s important, but it’s not the final purpose or most important purpose of your life. 
 
-On the other hand, “Cutting off study is called ‘nearness.’” That means no matter how long you study, life is very realistic. If the morning comes, you have to get up and you have to go to work. So let’s do it! Forgetting the studying and putting knowledge into your head – let’s do it, let’s do it. Constantly. 
+On the other hand, “Cutting off study is called ‘nearness.’” That means no matter how long you study, life is very realistic. If the morning comes, you have to get up and you have to go to work. So let’s do it! Forgetting the studying and putting knowledge into your head – you know, “let’s do it, let’s do it!” Constantly. 
 
-Those are the two excessive ideas. [The first is,] “Let’s study human life step by step, through your knowledge.” The other side is, “let’s be realistic, let’s do something, let’s do something.” 
+Those are the two excessive ideas. [The first is,] “Let’s study human life step by step, through your knowledge.” The other side is, “Let’s be realistic, let’s do something, let’s do something!” 
 
 But both are pretty close. Every day, “just do it” – that’s pretty nice. So, it’s *nearness*.
 
-In other words, I told you, if you want to communicate with the TV set, at the minimum you should know how to handle the TV set. Practically, all you have to do is just push a button. And then the whole world comes into the screen. This is very practical: it’s not necessary to know how complicated are the [electronics] behind the tiny switch, or how many people work at the TV station, [...] or how many people [work on the show]. Even though you don’t know, all you have to do is just push a button, and then you can communicate with the TV set. 
+In other words, I told you, if you want to communicate with the TV set, at the minimum you should know how to handle the TV set. Practically, all you have to do is just push a button, and then the whole world comes into the screen. This is very practical: it’s not necessary to know how complicated are the electronics behind the tiny switch, or how many people work at the TV station, [...] or how many people [work on the show]. Even though you don’t know, all you have to do is just push a button, and then you can communicate with the TV set. 
 
 So very naturally, you can see a little bit the broad scale of the world. So you feel good. But it’s not *exactly*... *[He laughs.]* So that’s why here it says it’s *nearness*. It’s pretty near. It’s pretty near to the center of the universe, but it’s not *exactly* the center. [It’s] not *exactly* understanding the whole picture, which is working dynamically. 
 
 #### 31:15
 
-So that’s why next is, “Going beyond these two is to be considered real going beyond.” That means [going beyond the] two excessive ideas. 
+So that’s why next is, “Going *beyond* these two is to be considered real going beyond.” That means [going beyond the] two excessive ideas. 
 
 I told you, if you have too much suffering, you cannot stand up straight in this world, [and] if you are too happy, you cannot stand up straight either. That means to make your life straight up, you have to go *beyond* both: not suffering, not happy. Not unhappy, not happiness. So a little bit happy and a little bit unhappy. *[He chuckles.]* Don’t you think so? Check your life. Can’t you see your life exactly? 
 
-[You might say], “I am a happy guy.” Maybe Katagiri’s a happy guy. I don’t think Katagiri is a happy guy. Even though I don’t say anything – in my heart, still, [there is] some suffering. So a little suffering, a little happiness – it’s alright. It’s alright. But the important point is you cannot attach to either side of them. All you have to do is go *beyond* both. And then, let’s stand up straight. 
+[You might say], “I am a happy guy.” Maybe Katagiri’s a happy guy. I don’t think Katagiri is a happy guy. Even though I don’t say anything – in my heart, still, [there is] some suffering. A little suffering, a little happiness – it’s alright. It’s alright. But the important point is you cannot attach to either side of them. All you have to do is go *beyond* both. And then, let’s stand up straight. 
 
-“Let’s stand up straight” [is] very simple. I want to do [something], but I don’t know in the moment [what], but I have to do [it]. No one orders me to do [something], [but] I have to do this. Who orders it? *I* order? No. This “I” is very small. Somebody orders it? No. Who orders it? I don’t know. [Then] why do I have to say [that] I have to do [something]? I don’t know! But even though no one orders me, even though no one asks me to do something, [still] I cannot help doing something. Do you understand? 
+“Let’s stand up straight” [is] very simple. I want to do [something], but I don’t know in the moment [what it is], but I have to do [it]. No one orders me to do [something], [but] I have to do this. Who orders it? *I* order? No. This “I” is very small. Somebody orders it? No. Who orders it? I don’t know. [Then] why do I have to say [that] I have to do [something]? I don’t know! But even though no one orders me, even though no one asks me to do something, [still] I cannot help doing something. Do you understand? 
 
 Let’s [look at] your everyday life. Who orders you? Who makes you practice? Who makes you live for a certain period of time? No one orders [it]. Do you order [it]? No. Does God order [it]? No. God is very quiet. Buddha is very quiet. Nothing, no one. No one orders you, no one asks you to do something – but you are there, so you cannot help doing [something].
 
-So all you have to do is finally – what shall I do? I cannot help doing [something], so let’s do it. “Let’s do it” still means something in words; [but] “I cannot help doing” means I cannot stop it, [...] I cannot have any idea to do or not to do. Anyway, finally, just do it. 
+[...] Finally – what shall I do? I cannot help doing [something], so let’s do it. “Let’s do it” still means something in words; [but] “I cannot help doing” means I cannot stop it, [...] I cannot have any idea to do or not to do. Anyway, finally, just do it. 
 
 Finally, when death comes: “Please, go ahead.” 
 
-Who says, “Please go ahead?” Who gives me guarantees I will go to heaven? No one. Have I created my own guarantee to go to heaven? No way. *[He laughs.]* When I die, who dies? This guy dies. No one goes with me. Only I alone have to go. So how can I create a guarantee by myself? [Maybe] by spiritual life I have created a guarantee, but right in the moment of death: “I’m sorry.” This guarantee also goes [along] with my death. So, nothing. Nothing; but I have to go. But not “I have to go”: *I cannot help* going ahead. 
+Who says, “Please go ahead?” Who gives me guarantees I will go to heaven? No one. Have I created my own guarantee to go to heaven? No way. *[He laughs.]* When I die, who dies? This guy dies. No one goes with me. Only I alone have to go. So how can I create a guarantee by myself? [Maybe] by spiritual life I have created a guarantee, but right in the moment of death: “I’m sorry.” This guarantee also goes, [along] with my death. So, nothing. Nothing – but I have to go. But not “I have to go” – *I cannot help* going ahead. 
 
-So that’s why a Zen Master says, “Please, go ahead.” This is death. Death is exactly life.
+So that’s why a Zen Master says, “Please, go ahead.” 
+
+This is death. Death is life, exactly life.
 
 #### 36:12
 
-Everyday life is just like this. 
-
-But you are too happy [in] everyday life. Too many things: lots of materials, lots of choices there. If you’re too happy, you don’t know, you cannot have the opportunity to have the way-seeking mind. 
+Everyday life is just like this. But you are too happy [in] everyday life. Too many things: lots of materials, lots of choices there. If you’re too happy, you cannot have the opportunity to have the way-seeking mind. 
 
 For instance: if you fall in love with somebody, you feel really happy. At that time, you don’t care about religion. Don’t you think so? *[He laughs.]*
 
-And then, if you [crash], if you fail to fall in love, then you start to think something. “What happened? Am I a happy guy, or am I not a happy guy?” And then you start to cry. And then even though you cry [alone], you don’t know how to save [yourself] from your suffering, so you try to ask somebody, “Please help me.” And then that is the first gate to get into [the spiritual realm]. 
+And then, if you [crash], if you fail to fall in love, then you start to think something. “What happened? Am I a happy guy, or am I not a happy guy?” And then you start to cry. And then even though you cry by yourself, you don’t know how to save [yourself] from your suffering, so you try to ask somebody, “Please help me.” And then that is the first gate to get into [the spiritual realm]. 
 
 But at that time [there is] too much suffering, so you don’t have any space to get into the spiritual realm. *[He laughs.]* 
 
-So, too much suffering, and the other side is, too happy. *Too happy* means exactly the same as infatuation; over-excitement ... 
+So, too much suffering, and the other side is, too happy. 
+
+*Too happy* means exactly the same as infatuation; over-excitement ... 
 
 *[Tape change.]*
 
-... Well, everything is happy for you, so no need [for] help from anybody, [or] anything. That’s fine, but life is not like that.
+... well, everything is happy for you, so no need [for] help from anybody, [or] anything. That’s fine. But life is not like that.
 
 So that’s why Buddhism always says, “That’s fine, but make your mind calm, anyway.” *[He laughs.]* 
 
 That’s why Buddhism is not an interesting religion. Other religions always gives you lots of excitement: “You should believe this thing, and then you can go to heaven after death,” et cetera. So you’re really excited. If you are infatuated with that religion, well, you’re really happy, you [create] something. But Buddhism doesn’t do that; [it] always pours water [over] your head. *[He laughs, and a few people laugh.]* Pretty calm. So [it’s] not interesting, no excitement. That’s pretty hard. 
 
-So that’s why people ask me sometimes, “[Why does] Buddhism ignore human affection or feeling?” I don’t think Buddhism *ignores* human affection or feeling. Buddhism knows pretty well what affection or excitement is; that’s why [it says,] right in the middle of excitement, “Please take care of excitement in an appropriate way.” That’s all we have to do. That’s why Buddhism always says, “Don’t be blinded by excitement.” Because if you are exactly blinded by excitement, you don’t need anything, because your whole life is occupied by excitement. Do you understand? 
+So that’s why people ask me sometimes, “[Why does] Buddhism ignore human affection or feeling?” I don’t think Buddhism *ignores* human affection or feeling. Buddhism knows pretty well what affection or excitement is; that’s why [it says,] right in the middle of excitement, “Please take care of excitement in an appropriate way.” That’s all we have to do. That’s why Buddhism always says, “Don’t be blinded by excitement.” Because if you are exactly blinded by excitement, you don’t need anything, because your whole life is occupied by excitement. 
 
 So, Buddhism is not an interesting religion. I don’t want to recommend you to study it. 
 
@@ -205,7 +207,9 @@ And also, actually, the final goal you can reach is a very simple practice, beca
 
 That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your actions. 
 
-[Let’s say] the bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]; everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. Do you understand? 
+[Let’s say] the bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]. 
+
+Everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. Do you understand? 
 
 That’s why Dogen Zenji says, “Shikantaza: all you have to do is just sit down.” Doing zazen for the sake of doing zazen: everyone knows [this], intellectually. But if they start to do it, they don’t do it in that way. [It is] crooked, because we always do something by *our own* actions. Even though I do something exactly, still my stinkiness comes up.
 
