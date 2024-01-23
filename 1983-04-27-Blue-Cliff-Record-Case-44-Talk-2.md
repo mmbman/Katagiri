@@ -203,13 +203,13 @@ So, Buddhism is not an interesting religion. I don’t want to recommend you to 
 
 #### 40:30
 
-And also, actually, the final goal you can reach is a very simple practice, because [it’s] just like this. What is real, beyond those two, [happiness] or pain? What is this? The Zen Master says, “I know how to hit the bell.” That means a very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
+And also, actually, the final goal you can reach is a very simple practice, because [it’s] just like this. What is real, beyond those two, [happiness] or pain? What is this? The Zen Master says, “I know how to hit the bell.” That means very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
 
 That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your actions. 
 
 [Let’s say] the bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]. 
 
-Everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. Do you understand? 
+Everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. 
 
 That’s why Dogen Zenji says, “Shikantaza: all you have to do is just sit down.” Doing zazen for the sake of doing zazen: everyone knows [this], intellectually. But if they start to do it, they don’t do it in that way. [It is] crooked, because we always do something by *our own* actions. Even though I do something exactly, still my stinkiness comes up.
 
@@ -217,31 +217,33 @@ So, the bell, the stick, the bell tower, and your six consciousnesses and six [s
 
 This is a human problem. So all we have to do is: let’s refine, polish, these actions. By what? This is so-called compassion, or peace, or softness, or kindness, or magnanimous mind, or respect, appreciation; lots of terms there. 
 
-Well, those are nothing but the *lubricant*. By this lubricant, you can operate all the machines very smoothly. To operate all the machines very smoothly by [lubrication] means you come close to Buddha’s teaching, Buddha’s way: to live with all sentient beings, to think of others, and help others, very naturally. 
+Well, those are nothing but the *lubricant*. By this lubricant, you can operate all the machines very smoothly. 
+
+To operate all the machines very smoothly by [lubrication] means you come close to Buddha’s teaching, Buddha’s way: to live with all sentient beings, to think of others, and help others, very naturally. 
 
 But [as I said,] your action is characterized by satisfying individual desires: *my* own desires, so I don’t care [about] others. This is very stinky actions. Whether you know or don’t know – even if you know intellectually, actually you don’t act very elegantly or softly or magnanimously. You don’t. Selfishness comes up, very naturally. That’s why you hurt anyone, consciously or unconsciously. That’s why you have to pay attention to your actions every day. 
 
-So in the Zen monastery we don’t say your action is bad or wrong. [We say,] why don’t you practice? When you get up in the morning, please get up in the morning thinking of others, thinking of all sentient beings: “I am getting up, I am starting to live with all sentient beings.” So sit up on the bed, and let’s chant the verse: “I am getting up in the morning now with all sentient beings.” This is a simple practice. And then if you finish [that], let’s stand up and go to the bathroom. When you wash your face, let’s chant the verse: “I am washing my face with all sentient beings, in order to make my mind pure.” Like this. 
+So in a Zen monastery we don’t say your action is bad or wrong. [We say,] why don’t you practice? When you get up in the morning, please get up in the morning thinking of others, thinking of all sentient beings: “I am getting up, I am starting to live with all sentient beings.” So sit up on the bed, and let’s chant the verse: “I am getting up in the morning now with all sentient beings.” This is a simple practice. And then if you finish [that], let’s stand up and go to the bathroom. When you wash your face, let’s chant the verse: “I am washing my face with all sentient beings, in order to make my mind pure.” Like this. 
 
 This practice is pretty good. Even if you don’t know how this practice is helpful, through this practice you can polish or refine your actions, pretty deeply. So-called magnanimous, or compassionate, or softness, kindness. Thoughtful; something like this. 
 
 That’s why [you should do this] every day. If you do this practice every day, that is something *real*, going beyond suffering or pleasure. 
 
-This is the wood in the center. You can grind the wheat into the flour by rubbing between the two pieces of rock; by your action, you can do it. But “don’t move the tree in the center of the rock.” That means that “by your action” is fine, but what is the wood in the center? That wood in the center is exactly a kind of lubricant. Peace, respect, appreciation, patience... discipline, offerings, giving, effort, energy, zeal, calmness, tranquility... wisdom. This is the wood in the center; don’t move this. All you have to do is just follow [this]. Regardless of whether you like or you don’t like, you have to follow this, otherwise you cannot grind the wheat into flour. 
+This is the wood in the center. You can grind the wheat into flour by rubbing between the two pieces of rock; by your action, you can do it. But “don’t move the tree in the center of the rock.” That means that “by your action” is fine, but what is the wood in the center? That wood in the center is exactly a kind of lubricant. Peace, respect, appreciation, patience... discipline, offerings, giving, effort, energy, zeal, calmness, tranquility... wisdom. This is the wood in the center; don’t move this. All you have to do is just follow [this]. Regardless of whether you like or you don’t like, you have to follow this, otherwise you cannot grind the wheat into flour. 
 
 So practically, this is simple. What is this? That’s why the koan says, “I know how to hit the bell.” This is just practice. 
 
 #### 49:26
 
-Finally the monk asks, “When I meet a person who really experiences [reality] beyond two excessive ideas – suffering, pleasure, et cetera – how can I deal with him, how can I deal with him, how can I meet him?” 
+Finally the monk asks, “When I meet a person who really experiences [reality] beyond the two excessive ideas – suffering, pleasure, et cetera – how can I deal with him, how can I meet him?” 
 
 [Ho Shan] says, “I know how to hit the bell.” 
 
-Because if you hit the bell, you cannot hit the bell according to satisfying your desires. No. You have to hit the bell with the life of the bell, with the life of trees, life of birds, life of nature, life of spring, life of you, life of the bell tower – exactly becoming one. That means be mindful of all sentient beings around the bell, around you, and then let’s hit [the bell] together. At that time, how can you hit the bell by your desires? [You can’t.] Very naturally, *you* hit, and simultaneously all sentient beings join your actions. So you have to think of others: birds here, grasses here, let’s hit the bell together. Simultaneously, your action becomes very magnanimous, very tolerant, very modest, very kind, very compassionate. But very stable, *very* stable – because all sentient beings support your actions. 
+Because if you hit the bell, you cannot hit the bell according to satisfying your desires. No. You have to hit the bell with the life of the bell, with the life of trees, life of birds, life of nature, life of spring, life of you, life of the bell tower – exactly becoming one. That means be mindful of all sentient beings around the bell, around you, and then let’s hit [the bell] together. At that time, how can you hit the bell by your desires? [You can’t.] Very naturally, *you* hit, and simultaneously all sentient beings join your actions. So you have to think of others: birds here, grasses here, let’s hit the bell together. Simultaneously, your action becomes very magnanimous. Very tolerant. Very modest. Very kind. Very compassionate. But very stable, *very* stable – because all sentient beings support your actions. 
 
-So very stable, but very soft. Very *stand up straight*. But it’s *exactly* [to] hit. So very naturally sound comes up. Very smoothly, wonderful sound comes up from the bell. So people can know, who hit the bell. 
+So very stable, but very soft. Very *stand up straight*. But it’s *exactly* [to] hit [the bell]. So very naturally sound comes up. Very smoothly, wonderful sound comes up from the bell. So people can know, who hit the bell. 
 
-That’s why in Eiheiji or in [other] monasteries in Japan, each time we hit the bell, we bow. One full bow; and then hit again, and then one bow again. Even right in the middle of winter, in December. The tall bell is outside in the snow and cold. [You are] wearing the robes, and anyway, one hundred and eight hits. You have to bow one hundred and eight times, outside in the winter. It’s cold. But, no way to escape. So that is *really* good practice. *[He laughs.]* Even though you want to hit the bell by your desire, you can’t, because winter is there. So even though you want to hit immediately with vitality, your hand doesn’t work very well, because it’s *cold*. *[He rubs his hands.]* You warm your hands, and then, hit it. *[He laughs.]* So it’s pretty nice: always being mindful of you, being mindful of winter, snow, and the situation, quietness. It’s wonderful. It’s hard, but it’s pretty good, pretty good.
+That’s why in Eiheiji or in [other] monasteries in Japan, each time we hit the bell, we bow. One full bow; and then hit again, and one bow again. Even right in the middle of winter, in December. The tall bell is outside in the snow and cold. [You are] wearing the robes, and anyway, one hundred and eight hits. You have to bow one hundred and eight times, outside in the winter. It’s cold. But, no way to escape. So that is *really* good practice. *[He laughs.]* Even though you want to hit the bell by your desire, you can’t, because winter is there. So even though you want to hit immediately with vitality, your hand doesn’t work very well, because it’s *cold*. *[He rubs his hands.]* You warm your hands, and then, hit it. *[He laughs.]* So it’s pretty nice: always being mindful of you, being mindful of winter, snow, and the situation, quietness. It’s wonderful. It’s hard, but it’s pretty good, pretty good.
 
 So that’s why the koan says, “I know how to hit the bell.”
 
@@ -260,7 +262,7 @@ And,
 > &nbsp;&nbsp;&nbsp;&nbsp; *Alas, you’ve been traversing the roads so long,*  
 > &nbsp;&nbsp;&nbsp;&nbsp; *It’s so clear, but you don’t recognize it and instead get lost.*  
 
-“East Mountain Road is narrow, West Mountain is low” – that is various aspects of human life: suffering [and happiness], pros and cons, success and failure, falling in love or failing to love, et cetera. But those are nothing you can escape. So if you see suffering, you have to deal with suffering. You have to carry the loads of mud. If it is necessary. 
+“East Mountain Road is narrow, West Mountain is low” – that is various aspects of human life: suffering [and happiness], pros and cons, success and failure, falling in love or failing to love, et cetera. But those are nothing you can escape. So if you see suffering, you have to deal with suffering. You have to carry the loads of mud, if it is necessary. 
 
 “New comers must not refuse three loads of mud” because this is the reality you live in, woven by suffering, pain, good and bad, right and wrong, et cetera. So if you see the [West] mountain which is lower, you have to deal with this. 
 
@@ -268,23 +270,23 @@ So, no excuse. But if I say “no excuse,” you are mad, because [you think] I 
 
 This is “no excuse.” You have to do it. Very simple. That’s why, “I know how to hit the bell.” 
 
-This is the point: you have to learn how to hit the bell. If you hit the bell too much, you cannot seek for the truth. In other words, if you have too much suffering, you cannot seek for the truth, because [it’s] too much. If you are too happy, you cannot seek for the truth. “You cannot seek for the truth” means you cannot stand up straight every day. No. So how can you deal with [the bell], how do you know how to hit the bell? “How to hit the bell” means every moment. When you get up in the morning, you have to hit the bell. Just like pushing the button of the TV set. “Get up in the morning” means just hit the bell. But *how* do you hit the bell? You should know. 
+This is the point: you have to learn how to hit the bell. If you hit the bell too [hard], you cannot seek for the truth. In other words, if you have too much suffering, you cannot seek for the truth, because [it’s] too much. If you are too happy, you cannot seek for the truth. “You cannot seek for the truth” means you cannot stand up straight every day. No. So how can you deal with [the bell], how do you know how to hit the bell? “How to hit the bell” means every moment. When you get up in the morning, you have to hit the bell. Just like pushing the button of the TV set. “Get up in the morning” means just hit the bell. But *how* do you hit the bell? You should know. 
 
 But *you hit the bell* [is] really complicated. *[He laughs.]* A complicated sound comes up, you know? When you get up in the morning, how can you hit the bell? Do you know how to hit the bell? “Yes,” you say, “I know how to hit the bell” – but lots of complicated sounds come up! Sometimes I cannot hear it. Sometimes I’m really confused. Even myself, I can get up in the morning by my actions, but it’s very complicated. 
 
-So why don’t I get up in the morning, as simple as I can? Very magnanimous mind, very compassionate. It’s pretty hard. So every day, you have to learn how to hit the bell. The real way: not the idealistical way, the real way. 
+So why don’t you get up in the morning, as simple as you can? Very magnanimous mind, very compassionate. It’s pretty hard, so every day, you have to learn how to hit the bell. The real way: not the idealistical way, the real way. The real way is something you have to learn in the process of walking in the mist, constantly. And then you can learn what is the real way to hit the bell. 
 
-The real way is something you have to learn in the process of walking in the mist, constantly. And then you can learn what is the real way to hit the bell. Before doing that, even though you know the way, that way is idealistical, nothing but ideas, concepts. So sometimes it doesn’t work. The real way is something you have to learn right in the middle of process of hitting the bell, and then you should know how to hit the bell. So how to get up in the morning, how to wash your face. You should learn. 
+Before doing that, even though you know the way, that way is idealistical, nothing but ideas, concepts. So sometimes it doesn’t work. The real way is something you have to learn right in the middle of process of hitting the bell, and then you should know how to hit the bell. So how to get up in the morning, how to wash your face. You should learn. 
 
 What is love? Love is not discussion. You should learn what real love is, through the process of living, through your life. Helping each other; not always showing your desires first. Anyway, you should learn real love in the process of living with people, thinking of others, helping others. And then you can learn real love. 
 
 That real love is pretty hard to explain. But it makes your life stable. Wherever you may go, you can love somebody. Always. 
 
-“Alas, you’ve been traversing the roads so long”: We have been already right in the middle of the way so long, from the past. We are already there; that is [the] real reality you are present [in]. Whether you realize it or you don’t realize it, you are there. So no excuse; you have to just live there.
+“Alas, you’ve been traversing the roads so long”: We have been already right in the middle of the way so long, from the past. We are already there; that is [the] real reality you are present [in]. Whether you realize it or don’t realize it, you are there. So no excuse; you have to just live there.
 
-It’s *so* clear. It’s *very* clear. It’s too clear to know, anyway. *[He laughs.]* Because if you become one exactly, it’s very clear. For instance, if I, Katagiri, become one as Katagiri, it’s very clear: this is Katagiri. It’s pretty hard to say, [but] it’s pretty clear to know. Do you understand? This nose is *my* nose. So my nose is very clear [to] me. But how do I know? My nose is right in the middle of my face. And then I say, “touch it” – “oh yes, this is my nose.” It’s already [that] *I* know the nose in the dualistic world. So I create a gap. [When] *my nose* is exactly one with Katagiri, at that time it’s very clear, absolutely clear. But it’s pretty hard to know. 
+“It’s so clear”: It’s *so* clear. It’s *very* clear. It’s too clear to know, anyway. *[He laughs.]* Because if you become one exactly, it’s very clear. For instance, if I, Katagiri, become one as Katagiri, it’s very clear: this is Katagiri. It’s pretty hard to say, [but] it’s pretty clear to know. Do you understand? This nose is *my* nose. So my nose is very clear [to] me. But how do I know? My nose is right in the middle of my face. And then I say, “touch it” – “oh yes, this is my nose.” It’s already [that] *I* know the nose in the dualistic world. So I create a gap. [When] *my nose* is exactly one with Katagiri, at that time it’s very clear, absolutely clear. But it’s pretty hard to know. 
 
-But you don’t realize it, and instead get lost. If you don’t know this clearness, if you don’t realize this clearness, you get lost. That’s why Zen Master [Kuei Tsung] says, “I’ll let you grind the wheat into flour, but don’t move the tree in the center.” That is the center.
+“But you don’t realize it, and instead get lost”: If you don’t know this clearness, if you don’t realize this clearness, you get lost. That’s why Zen Master [Kuei Tsung] says, “I’ll let you grind the wheat into flour, but don’t move the tree in the center.” That is the center.
 
 #### 1:03:15
 
@@ -304,17 +306,17 @@ That’s why, very naturally, you should do it. Very naturally a Zen teacher “
 
 > “To shoot the bolt requires a ten-ton crossbow.” Hsueh Tou uses the ten-ton pull crossbow to explain this case: he wants you to see how Ho Shan helped people. If it’s a monstrous dragon or tiger or some other fierce beast, then you use this crossbow. If it’s a tiny bird or a creature of little consequence, of course you mustn’t use the crossbow lightly. 
 
-Well, this everyday practice, knowing how to hit the bell, is really using a heavy ten-ton crossbow. It means, very stable practice. No one asks you, no one orders you; but, it’s very stable. Just like using a ten-ton crossbow, it’s very stable, heavy. 
+Well, this everyday practice, knowing how to hit the bell, is really using a heavy, ten-ton crossbow. It means, very stable practice. No one asks you, no one orders you, but it’s very stable. Just like using a ten-ton crossbow, it’s very stable, heavy. 
 
-And then, what can you hit with this ten-ton crossbow? You have to hit enormous creatures, monstrous creatures. But what is it? It is kind. It is exactly the same as a little creature, like a rabbit. That means, when you get up, get up. When you wash your face, wash your face. That is a kind of little rabbit. But, don’t be careless. You cannot ignore this practice. 
+And then, what can you hit with this ten-ton crossbow? You have to hit the enormous creatures, monstrous creatures. But what is it? It is kind. It is exactly the same as a little creature, like a rabbit. It means, when you get up, get up. When you wash your face, wash your face. That is a kind of little rabbit. But, don’t be careless. You cannot ignore this practice. 
 
-So even though you hit the little rabbit, you have to use a ten-ton crossbow. At that time, your action becomes very magnanimous. Very tolerant. Very stable. Very straightforward. Very patient. Very compassionate. Very kind. Very intimate. Very friendly. Very directly intimate; directly become one. Very human warmness there. 
+So even though you hit a little rabbit, you have to use a ten-ton crossbow. At that time, your action becomes very magnanimous. Very tolerant. Very stable. Very straightforward. Very patient. Very compassionate. Very kind. Very intimate. Very friendly. Very directly intimate; directly become one. [Great] human warmness there. 
 
 #### 1:09:58
 
 > “The old master of Elephant Bone Cliff rolled balls.” 
 
-[The old master of] Elephant Bone Cliff means Zen Master Hsueh Feng. [He] always rolled balls when the new comer comes; that is the same way as this Ho Shan (or Mu P’ing?) did; exactly the same. 
+[The old master of] Elephant Bone Cliff means Zen Master Hsueh Feng. [He] always rolled balls when a newcomer came; that is the same way as this Ho Shan (or Mu P’ing?) did, exactly the same. 
 
 But if you read these Zen stories, then most Zen people try to imitate this way. Well, if you imitate, imitation is imitation, okay? *[He chuckles.]* Kind of [like] a koan. In order to solve the koan, sometimes Zen students imitate what a Zen Master did in the past. [...] Very dramatic: screaming, shouting, et cetera. Or sometimes throwing away books, or your hat, et cetera. But this is nothing but imitation. 
 
@@ -328,17 +330,17 @@ But there are lots of examples there, that’s why this Blue Cliff Record says i
 > Don’t be careless!  
 > The sweet is sweet, the bitter is bitter.
 
-Anyway, the mountain in the [west] is low; at that time, you have to take care of the mountain which is low. If you see the mountain which is higher than the other, you have to deal with mountain which is higher than the other. So when zazen comes, you should deal with zazen as it is. When the morning comes, you should deal with the morning. When you have to get up in the morning, you have to deal with getting up in the morning as simply as you can, as it really is. Sweet is sweet, bitter is bitter. 
+The mountain in the [west] is low; at that time, you have to take care of the mountain which is low. If you see the mountain which is higher than the other, you have to deal with mountain which is higher than the other. So when zazen comes, you should deal with zazen as it is. When the morning comes, you should deal with the morning. When you have to get up in the morning, you have to deal with getting up in the morning as simply as you can, as it really is. Sweet is sweet, bitter is bitter. 
 
-Bitter is not something wrong, it is one of the decorations of real reality, which makes your life work. Sweet is not always sweet; sweet turns into bitter. Bitter is not always bitter; bitter turns into sweet... someday. Only when you deal with bitter as it is [does] bitter turn into sweet. When you don’t do it, bitter is always bitter, giving you lots of suffering. Because you create bitter by your misusing bitter, misunderstanding bitterness. So you create more and more. 
+Bitter is not something wrong, bitter is one of the decorations of real reality, which makes your life work. Sweet is not always sweet; sweet turns into bitter. Bitter is not always bitter; bitter turns into sweet... someday. Only when you deal with bitter as it is [does] bitter turn into sweet. When you don’t [deal with bitter as it is], bitter is always bitter, giving you lots of suffering. Because you create bitter by your misusing bitter, misunderstanding bitterness. So you create more and more. 
 
-So that’s why [it says], “Don’t be careless.” Whatever it is, don’t be careless. When you see wash water in the basin [...] this is a spiritual opportunity. You can manifest your spirit, your human warmness, human compassion. And offer your body and mind into it: communicating with each-other, water and you. At that time, water supports your life. 
+So that’s why [it says], “Don’t be careless.” Whatever it is, don’t be careless. When you see wash water in the basin [...] this is a spiritual opportunity. You can manifest your spirit, your human warmness, human compassion, and offer your body and mind into it: communicating with each-other, the water and you. At that time, the water supports your life. 
 
 Dogen Zenji always talks about this kind of practice in *Eihei Shingi*: the regulation of monastic life. It’s a very interesting work. Most people don’t pay attention, because he’s always talking about how to wash your face, et cetera. In other words, it’s pretty usual daily routine. Everyone washes your face, so why does Dogen have to say how to wash your face, you know? *[He laughs.]* It’s ridiculous. Even three year old boys know pretty well how to wash their face. But – even an eighty-year-old man cannot wash his face in an *appropriate way*. So that’s why [Dogen] has to say it. 
 
-So that’s a very interesting work, but no one pays attention to it. Most people are interested in philosophy *[he chuckles]*, very complicated philosophy. They love it. But they don’t pay attention to very simple daily routine. But the real important practice is always in the daily routine. 
+So that’s a very interesting work, but no one pays attention to it. Most people are interested in philosophy *[he chuckles]*, very complicated philosophy. They love it. They don’t pay attention to very simple daily routine. But the real important practice is always in the daily routine. 
 
-So, you cannot be careless. But I don’t mean you should be nervous. No. You cannot be meticulous. [...] If I say, “Please be careful,” your behavior becomes meticulous. No, it’s not meticulous, okay? 
+So, you cannot be careless. But I don’t mean you should be nervous. No. You cannot be meticulous. [...] If I say, “Please be careful,” your action or behavior becomes meticulous. No, it’s not meticulous, okay? 
 
 #### 1:17:37 end of recording
 
