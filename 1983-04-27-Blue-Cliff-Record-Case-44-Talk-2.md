@@ -195,25 +195,25 @@ So, Buddhism is not an interesting religion. I don’t want to recommend you to 
 
 #### 40:30
 
-And also, actually, the final goal you can reach is a very simple practice, because [it’s] just like this. What is real, beyond those two, [happiness] or pain? What is this? The Zen Master says, “I know how to hit the bell.” That means a very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
+And also, actually, the final goal you can reach is a very simple practice, because [it’s] just like this. What is real, beyond those two, [happiness] or pain? What is this? 
 
-That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your action. The bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]. 
+The Zen Master says, “I know how to hit the bell.” That means a very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
+
+That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your action. [Let’s say] the bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]. 
 
 Everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. Do you understand? 
 
 That’s why Dogen Zenji says, “Shikantaza: all you have to do is just sit down.” Doing zazen for the sake of doing zazen: everyone knows [this], intellectually. But if they start to do it, they don’t do it in that way. [It is] crooked, because we always do something by *our own* actions. Even though I do something exactly, still my stinkiness comes up.
 
-So, you can operate all the machines – the bell, the stick, the bell tower, and your six consciousnesses and six [sense] organs – all are machines, just like a car, and then you can operate them – by what? By your actions. But that action is always characterized by trying to satisfy your own desire. That’s why if you don’t want to do it, you stop. That is your actions. Even though you don’t know or you know, completely that is your actions. 
+So, the bell, the stick, the bell tower, and your six consciousnesses and six [sense] organs – all are machines, just like a car, and then you can operate them by your actions. But that action is always characterized by trying to satisfy your own desire. That’s why if you don’t want to do it, you stop. That is your actions. Even though you don’t know or you know, completely that is your actions. 
 
 This is a human problem. So all we have to do is: let’s refine, polish, these actions. By what? This is so-called compassion, or peace, or softness, or kindness, or magnanimous mind, or respect, appreciation; lots of terms there. 
 
-Well, those are nothing but the *lubricant*. By this lubricant, you can operate all the machines very smoothly. 
-
-To operate all the machines very smoothly by [lubrication] means you come close to Buddha’s teaching, Buddha’s way: to live with all sentient beings, to think of others, and help others, very naturally. 
+Well, those are nothing but the *lubricant*. By this lubricant, you can operate all the machines very smoothly. To operate all the machines very smoothly by [lubrication] means you come close to Buddha’s teaching, Buddha’s way: to live with all sentient beings, to think of others, and help others, very naturally. 
 
 But [as I said,] your action is characterized by satisfying individual desires: *my* own desires, so I don’t care [about] others. This is very stinky actions. Whether you know or don’t know – even if you know intellectually, actually you don’t act very elegantly or softly or magnanimously. You don’t. Selfishness comes up, very naturally. That’s why you hurt anyone, consciously or unconsciously. That’s why you have to pay attention to your actions every day. 
 
-So in the Zen monastery we don’t say your action is bad or wrong. [We say,] why don’t you practice? When you get up in the morning, please get up in the morning thinking of others, thinking of all sentient beings: “I am getting up, I am starting to live with all sentient beings.” So sit down on the bed, and let’s chant the verse: “I am getting up in the morning now with all sentient beings.” This is a simple practice. And then if you finish [that], let’s stand up and let’s go to the bathroom. When you wash your face, let’s chant the verse: “I am washing my face with all sentient beings, in order to make my mind pure.” Like this. 
+So in the Zen monastery we don’t say your action is bad or wrong. [We say,] why don’t you practice? When you get up in the morning, please get up in the morning thinking of others, thinking of all sentient beings: “I am getting up, I am starting to live with all sentient beings.” So sit up on the bed, and let’s chant the verse: “I am getting up in the morning now with all sentient beings.” This is a simple practice. And then if you finish [that], let’s stand up and go to the bathroom. When you wash your face, let’s chant the verse: “I am washing my face with all sentient beings, in order to make my mind pure.” Like this. 
 
 This practice is pretty good. Even if you don’t know how this practice is helpful, through this practice you can polish or refine your actions, pretty deeply. So-called magnanimous, or compassionate, or softness, kindness. Thoughtful; something like this. 
 
