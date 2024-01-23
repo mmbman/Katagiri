@@ -91,29 +91,31 @@ So there is a principle; whatever you do, there is a center you have to follow. 
 
 #### 15:17
 
-In the human world, good and bad, right and wrong, suffering and pleasure, all are interwoven. If you suffer [too] much, you cannot arouse *bodhi mind*, the way-seeking mind or the aspiration for seeking for the truth. You cannot do it, because [you have] too much suffering. On the other hand, if you are too happy, it’s very difficult to seek for the truth.
+In the human world, good and bad, right and wrong, suffering and pleasure, all are interwoven. If you suffer [too] much, you cannot arouse *bodhi mind*, the way-seeking mind, the aspiration for seeking for the truth. You cannot do it, because [you have] too much suffering. On the other hand, if you are too happy, it’s [also] very difficult to seek for the truth.
 
-Well, actually, maybe some of you experience [this]. Is there anyone who experiences [being] very happy, perfectly happy? No one? [I hope.] *[Laughter.]* If you are too happy, [you can’t] maintain the spiritual aspiration for seeking for the truth. 
+Well, actually [...] maybe some of you experience [this]. Is there anyone who experiences [being] very happy, perfectly happy? No one? I hope. *[Laughter.]* But if you are too happy, [you can’t] maintain the spiritual aspiration for seeking for the truth. 
 
-This is the reality which you are present in: where good and bad, right and wrong, suffering and pleasure, all are interwoven, completely beyond your speculation. That’s why reality is very evasive. You don’t understand what the reality is. Sometimes you can know [it]; but if you touch it, it disappears, and next moment a new one comes up. So it’s very evasive and very vast. In other words, it’s very active, very dynamic. You can’t pin down what is the real reality where you are present. 
+Because this is the reality which you are present in: where good and bad, right and wrong, suffering and pleasure, all are interwoven, completely beyond your speculation. That’s why reality is very evasive. You don’t understand what the reality is. Sometimes you can know [it]; but if you touch it, it disappears, and next moment a new one comes up. So it’s very evasive and very vast. In other words, it’s very active, very dynamic. You can’t pin down what is the real reality where you are present. 
 
 So, from this point, all you have to do is to be present in the real reality, which is very evasive. [...] There is some reason, principle. What’s the principle? The principle is that reality is completely interwoven by pleasure and suffering, right and wrong, good or bad, loss and gain, pros and cons, and lots of things. So if you attach to one side too much, you cannot seek for the truth, you cannot live in this world. Anyway, it’s pretty hard. If you attach to the other side, it’s also very difficult. 
 
 The important point is, you [can’t] understand what [is the] reality you are present in. So finally, all you can do is [say], “I hope,” or “I want to do something” – and build up something. 
 
-But even though you *want* to do [something], maybe something you want to do will not just appear. So all you have to do is, right now, you can have a hope that “I want to do,” right now. That’s all. Because next moment, you don’t know. But even though you don’t know, you cannot stop doing anything. 
+But even though you *want* to do [something], maybe [that] something you want to do will not just appear. So all you have to do is, you can have a hope that [you] want to do [it], right now. That’s all. Because next moment, you don’t know. But even though you don’t know, you cannot stop doing [something]. 
 
-So [if you see the present life in terms of the next moment], it’s very dispiriting, hopeless, because next moment we don’t know what happens. So we ask: if we don’t know next moment what will happen, why do we have to make every possible effort to live? Why don’t we sleep? But you cannot sleep; you cannot take a nap in the human world. So even though you don’t understand the next moment, you cannot help *doing* something, alright? 
+So [if you see the present life in terms of the next moment], it’s very dispiriting, hopeless, because next moment we *don’t know* what happens. So we ask, “If we don’t know next moment what will happen, why do we have to make every possible effort to live? Why don’t we sleep?”
 
-So you want to do something right now. You can hope. You can hope [...]; I want to do something. But you cannot expect a different result [...]. Nevertheless, you will have to do [something], and also you cannot help [doing something]. 
+But you cannot sleep. You cannot take a nap in the human world. 
 
-[You may think] “you have to do” means somebody orders you to do [something]. At that time, you’re mad at [them]. But it’s not [that]. Principle is not somebody ordering you. Principle is something [where] you have to be just present there and do something. That’s all we have to do. Because reality is very evasive; completely interwoven by pros and cons, success and failure, and nothing to pin down. If so, all you have to do is [...] do *something*, directing yourself toward a better way. That is your effort. 
+So even though you don’t understand the next moment, you cannot help doing something. So you want to do something right now. Anyway, you can hope. You can [...] want to do something. You cannot expect a [certain] result. Nevertheless, you will have to do [something], and also you cannot help [but do something].
 
-So let’s do something *now*. But if you think [about the] next moment, well, you feel uneasy, restless. But you *have* to do [something]. Even though you are not able to see result which you expect now, [still] you have to do. 
+[You may think] “you have to do” means somebody orders you to do [something]. At that time, you’re mad at [them]. But it’s not [that]. [The] principle is not somebody ordering you. Principle is something [where] you have to be just present there, and do something. That’s all we have to do. Because reality is very evasive; completely interwoven by pros and cons, success and failure, and nothing to pin down. If so, all you have to do is [...] do *something*, directing yourself toward a better way. That is your effort. So let’s do something *now*. 
+
+If you think [about the] next moment, you feel uneasy, restless. But you *have* to do [something]. Even though you will not be able to see result which you expect now, [still] you have to do [it]. 
 
 #### 22:13
 
-So you have to do [something], but that is not [an] order. So very naturally, [we ask,] *who* has to do? What is the obligation? For what [reason]? For me? For others? No. 
+So you have to do [something], but that is not [an] order [from someone]. So very naturally, [we ask,] *who* has to do [something]? What is the obligation? For what [reason]? For me? For others? No. 
 
 I want to practice zazen, I want to study Buddhism for [myself]; yes, it is true. For myself for what [reason]? For the sake of deepening my life. What do I mean, deepening my life? *[He chuckles.]* 
 
