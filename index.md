@@ -43,7 +43,7 @@ Genpo Michael O’Neal will be leading the Buddhist Studies class at Compassiona
 
 ## Latest Updates
 
-**January 23, 2023:**: More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
+**January 23, 2023:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
 
 **January 22, 2023:**: Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
 
