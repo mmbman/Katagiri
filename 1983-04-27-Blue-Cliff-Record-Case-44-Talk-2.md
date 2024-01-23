@@ -61,7 +61,7 @@ First, “one hauls rock”: that comes from the story of Kuei Tsung. In the com
 
 In Japanese, we say *Ino* for where it says *Duty Distributor* here.
 
-This is a little bit questionable; I am not clear [about] “hauls rock”. In English it says “hauls rock”; I don’t know, do you understand how to “haul rock”? And then, “Tsung said, ‘For now I’ll let you haul rock, but don’t move the tree in the middle’” – do you understand the tree in the middle? What does it mean? How do you haul rock? 
+This is a little bit questionable; I am not clear [about] “hauls rock”. In English it says “hauls rock”; I don’t know, do you understand how to “haul rock”? And then, “Tsung said, ‘For now I’ll let you haul rock, but don’t move the tree in the middle’” – do you understand “the tree in the middle”? What does it mean? How do you haul rock? 
 
 **Student:** Well, haul rock means to move from one place to another.
 
