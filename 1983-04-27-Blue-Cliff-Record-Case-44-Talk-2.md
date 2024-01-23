@@ -199,13 +199,13 @@ And also, actually, the final goal you can reach is a very simple practice, beca
 
 The Zen Master says, “I know how to hit the bell.” That means a very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
 
-That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your action. 
+That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your actions. 
 
-[Let’s say] the bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]. Everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. Do you understand? 
+[Let’s say] the bell, and the stick, and your six consciousnesses, and your body, and also circumstances, the bell tower, et cetera – each of them are devices, machines. And then you can operate all [the] machines by what? Your actions. So “let’s hit [the bell],” you know? *[He chuckles.]* But your action is very “stinky,” because that action is characterized by your karmic life coming from your past. So you don’t know what your action is. Action is completely different [for everyone]; everyone has a different action. Katagiri acts in a different way, [his] gassho is different. If you do gassho, even though I teach you one gassho, everyone does gassho in a completely different way. They understand what I [taught], but if they do it, a different gassho appears. Do you understand? 
 
 That’s why Dogen Zenji says, “Shikantaza: all you have to do is just sit down.” Doing zazen for the sake of doing zazen: everyone knows [this], intellectually. But if they start to do it, they don’t do it in that way. [It is] crooked, because we always do something by *our own* actions. Even though I do something exactly, still my stinkiness comes up.
 
-So, the bell, the stick, the bell tower, and your six consciousnesses and six [sense] organs – all are machines, just like a car, and then you can operate them by your actions. But that action is always characterized by trying to satisfy your own desire. That’s why if you don’t want to do it, you stop. That is your actions. Even though you don’t know or you know, completely that is your actions. 
+So, the bell, the stick, the bell tower, and your six consciousnesses and six [sense] organs – all are machines, just like a car, and then you can operate them by your actions. But that action is always characterized by trying to satisfy your own desire. That’s why if you don’t want to do it, you stop. That is your actions. [Whether you know it or not], completely that is your actions. 
 
 This is a human problem. So all we have to do is: let’s refine, polish, these actions. By what? This is so-called compassion, or peace, or softness, or kindness, or magnanimous mind, or respect, appreciation; lots of terms there. 
 
@@ -219,11 +219,11 @@ This practice is pretty good. Even if you don’t know how this practice is help
 
 That’s why [you should do this] every day. If you do this practice every day, that is something *real*, going beyond suffering or pleasure. 
 
-This is the wood in the center. You can grind the wheat into the flour by rubbing between the two pieces of rock. By your action, you can do it. But “don’t move the tree in the center of the rock.” That means that “by your action” is fine, but what is the wood in the center? That wood in the center is exactly a kind of lubricant. Peace, respect, appreciation, patience... discipline, offerings, giving, effort, energy, zeal, calmness, tranquility... wisdom. This is the wood in the center; don’t move this. All you have to do is just follow [this]. Regardless of whether you like or you don’t like, you have to follow this, otherwise you cannot grind the wheat into flour. 
-
-#### 49:11
+This is the wood in the center. You can grind the wheat into the flour by rubbing between the two pieces of rock; by your action, you can do it. But “don’t move the tree in the center of the rock.” That means that “by your action” is fine, but what is the wood in the center? That wood in the center is exactly a kind of lubricant. Peace, respect, appreciation, patience... discipline, offerings, giving, effort, energy, zeal, calmness, tranquility... wisdom. This is the wood in the center; don’t move this. All you have to do is just follow [this]. Regardless of whether you like or you don’t like, you have to follow this, otherwise you cannot grind the wheat into flour. 
 
 So practically, this is simple. What is this? That’s why the koan says, “I know how to hit the bell.” This is just practice. 
+
+#### 49:26
 
 Finally the monk asks, “When I meet a person who really experiences [reality] beyond two excessive ideas – suffering, pleasure, et cetera – how can I deal with him, how can I deal with him, how can I meet him?” 
 
