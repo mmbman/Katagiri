@@ -195,9 +195,7 @@ So, Buddhism is not an interesting religion. I don’t want to recommend you to 
 
 #### 40:30
 
-And also, actually, the final goal you can reach is a very simple practice, because [it’s] just like this. What is real, beyond those two, [happiness] or pain? What is this? 
-
-The Zen Master says, “I know how to hit the bell.” That means a very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
+And also, actually, the final goal you can reach is a very simple practice, because [it’s] just like this. What is real, beyond those two, [happiness] or pain? What is this? The Zen Master says, “I know how to hit the bell.” That means a very simple practice. Knowing how to hit the bell is simultaneously real beyond pain or not pain. 
 
 That is a little bit difficult to understand, because that process of hitting the bell is not hitting the bell according to your actions. 
 
