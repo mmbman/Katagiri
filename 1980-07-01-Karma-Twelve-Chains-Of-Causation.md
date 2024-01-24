@@ -11,7 +11,7 @@ Katagiri Roshi completely explains the Twelve-Linked Chain of Causation... presu
 
 ### Transcript
 
-**(Archive Issue: The online audio is only about five minutes long, and appears to be from the end of the talk. Apparently the first side of the tape may have been blank, or some processing error occurred.)**
+**(Archive Issue: The online audio is only about five minutes long, and appears to be from the end of the talk. Apparently the first side of the tape was blank.)**
 
 (*Transcriber’s Note:* In the following talks, Katagiri Roshi occasionally refers to “twelve-chain causation”. It seems most likely that he meant “twelve-*link* causation”, since there are twelve links but not twelve chains, so far as is mentioned in the talks. So where *twelve-chain causation* appears, I have replaced it with *twelve-link causation*, or the fuller version, *The Twelve-Linked Chain of Causation*. The original title of this talk, “Twelve Chains of Causation,” has also been changed, since it appears to be an error. Katagiri Roshi also interchangeably uses the terms *twelvefold chain of causation*, *twelvefold causation*, and *twelve causations*.)
 
