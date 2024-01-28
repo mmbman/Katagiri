@@ -37,7 +37,7 @@ Ho Shan (Hoshan Wuyin) was the seventh patriarch from Seigen Gyōshi (Qingyuan X
 
 > Ho Shan imparted some words saying,  “Cultivating study is called ‘learning.’ ...”
 
-Originally (in Japanese) it says *hearing*, but this translator says *learning*. 
+Originally (in either Chinese or Japanese) it says *hearing*, but this translator says *learning*. 
 
 *Cultivating study* means usually we learn [by studying] something step by step, one by one. We say *shugaku* in Japanese. *Shu* means just like a baby bird trying to learn how to fly in the sky. Every day, every moment, a baby bird has to practice moving his wings. That is the meaning of *shu*; we say *learn* in English. *Gaku* is *study*. But this translator says “cultivating study.” 
 
