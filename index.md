@@ -25,22 +25,6 @@ These lists will be updated as talks are transcribed.
 
 Readers should be aware that these topics are discussed in many places within Katagiri Roshi’s talks, not just within these series. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere.
 
-## Upcoming Classes
-
-##### [Realizing Full Aliveness: Katagiri Roshi’s Teachings on Karma and Being Human](https://cloudsinwater.org/2023/12/28/realizing-full-aliveness-katagiri-roshis-teachings-on-karma-and-being-human-jan-21/)
-###### Every other Wednesday, January 31 – April 10, 2024 (6 sessions)
-
-I (Kikan) will be co-leading this class at Clouds in Water Zen Center. The focus of the class will be [Katagiri Roshi’s commentary on *Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](https://katagiritranscripts.net/1981-07-18-Blue-Cliff-Record-Case-18).
-
-#### * * * *
-
-##### [When Conditions are Arranged: Katagiri Roshi's Lectures on Karma](https://www.oceanzen.org/buddhist-studies)
-###### Every Wednesday, January 24 – March 13, 2023 (8 sessions)
-
-Genpo Michael O’Neal will be leading the Buddhist Studies class at Compassionate Ocean Zen Center, with the primary reading being the [Karma](karma) series of talks.
-
-#### * * * *
-
 ## Latest Updates
 
 **January 23, 2023:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
