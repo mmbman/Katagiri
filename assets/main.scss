@@ -16,12 +16,12 @@ body {
 }
 
 .wrapper {
-    max-width: -webkit-calc(800px -(20px * 2));
-    max-width: calc(800px -(20px * 2));
+    max-width: -webkit-calc(800px -(40px * 2));
+    max-width: calc(800px -(40px * 2));
     margin-right: auto;
     margin-left: auto;
-    padding-right: 20px;
-    padding-left: 20px
+    padding-right: 40px;
+    padding-left: 40px
 }
 
 @media screen and (max-width: 800px) {
@@ -34,21 +34,21 @@ body {
 }
 
 .page-heading {
-    font-size: 38px;
+    font-size: 36px;
     letter-spacing: 0px;
     line-height: normal;
     text-align: center
 }
 
 .page-content {
-    font-size: 18px;
+    font-size: 16px;
 }
 
 blockquote {
     color: #585858;
     border-left: 4px solid #ccc;
     padding-left: 15px;
-    font-size: 18px;
+    font-size: 16px;
     letter-spacing: 0px;
     font-style: normal
 }
@@ -63,7 +63,7 @@ hr {
 }
 
 .post-title {
-    font-size: 38px;
+    font-size: 36px;
     letter-spacing: -1px;
     line-height: normal;
     text-align: center
@@ -71,7 +71,7 @@ hr {
 
 @media screen and (max-width: 800px) {
 .post-title {
-    font-size: 34px;
+    font-size: 32px;
     letter-spacing: -1px;
     line-height: normal;
     text-align: center
@@ -79,47 +79,47 @@ hr {
 }
 
 .post-content h2 {
-    font-size:26px;
+    font-size:24px;
     text-align: center
 }
 
 .post-content h3 {
-    font-size:24px;
+    font-size:22px;
 	text-align: center
 }
 
 .post-content h4 {
-    font-size:18px;
+    font-size:16px;
 	text-align: center
 }
 
 .post-content h5 {
-    font-size:24px
+    font-size:22px
 }
 
 .post-content h6 {
-    font-size:20px
+    font-size:18px
 }
 
 // duplicates for page-content; this is a kludge.
 
 .page-content h2 {
-    font-size:26px;
-    text-align: center
-}
-
-.page-content h3 {
     font-size:24px;
     text-align: center
 }
 
+.page-content h3 {
+    font-size:22px;
+    text-align: center
+}
+
 .page-content h4 {
-    font-size:18px;
+    font-size:16px;
     text-align: center
 }
 
 .page-content h5 {
-    font-size:24px
+    font-size:22px
 }
 
 .page-content h6 {
