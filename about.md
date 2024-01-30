@@ -1,5 +1,5 @@
 ---
-title: About This Website
+title: Introduction
 ---
 
 Dainin Katagiri Roshi was one of the prominent Zen masters who brought Soto Zen Buddhism from Japan to the United States. (*Roshi* is an honorific meaning *distinguished elder teacher*.) Audio recordings of many of his talks are made available online by [Minnesota Zen Meditation Center](https://www.mnzencenter.org/audio-archive-project.html). But since Katagiri Roshi was a non-native English speaker, and the audio files vary in quality, he can be difficult to understand. On this website, I carefully transcribe these talks, as an aid to understanding them. You can read these transcripts on their own, or, ideally, follow along while listening to the recordings, which are referenced at the top of each talk. 
