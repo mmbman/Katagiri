@@ -6,7 +6,7 @@
 
 body {
 //     font: 400 16px/1.5 -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, Helvetica, Arial, sans-serif, "Apple Color Emoji", "Segoe UI Emoji", "Segoe UI Symbol";
-    font: 400 18px/1.5 Palatino, "Palatino Linotype", "Palatino LT STD", "Book Antiqua", Georgia, serif;
+    font: 400 16px/1.5 Palatino, "Palatino Linotype", "Palatino LT STD", "Book Antiqua", Georgia, serif;
     color: #111;
     background-color: #fffff8
 }
@@ -34,21 +34,21 @@ body {
 }
 
 .page-heading {
-    font-size: 34px;
+    font-size: 38px;
     letter-spacing: 0px;
     line-height: normal;
     text-align: center
 }
 
 .page-content {
-    font-size: 14px;
+    font-size: 18px;
 }
 
 blockquote {
     color: #585858;
     border-left: 4px solid #ccc;
     padding-left: 15px;
-    font-size: 14px;
+    font-size: 18px;
     letter-spacing: 0px;
     font-style: normal
 }
@@ -63,7 +63,7 @@ hr {
 }
 
 .post-title {
-    font-size: 34px;
+    font-size: 38px;
     letter-spacing: -1px;
     line-height: normal;
     text-align: center
@@ -71,7 +71,7 @@ hr {
 
 @media screen and (max-width: 800px) {
 .post-title {
-    font-size: 30px;
+    font-size: 34px;
     letter-spacing: -1px;
     line-height: normal;
     text-align: center
@@ -79,49 +79,49 @@ hr {
 }
 
 .post-content h2 {
-    font-size:22px;
+    font-size:26px;
     text-align: center
 }
 
 .post-content h3 {
-    font-size:20px;
+    font-size:24px;
 	text-align: center
 }
 
 .post-content h4 {
-    font-size:14px;
+    font-size:18px;
 	text-align: center
 }
 
 .post-content h5 {
-    font-size:20px
+    font-size:24px
 }
 
 .post-content h6 {
-    font-size:16px
+    font-size:20px
 }
 
 // duplicates for page-content; this is a kludge.
 
 .page-content h2 {
-    font-size:22px;
+    font-size:26px;
     text-align: center
 }
 
 .page-content h3 {
-    font-size:20px;
+    font-size:24px;
     text-align: center
 }
 
 .page-content h4 {
-    font-size:14px;
+    font-size:18px;
     text-align: center
 }
 
 .page-content h5 {
-    font-size:20px
+    font-size:24px
 }
 
 .page-content h6 {
-    font-size:16px
+    font-size:20px
 }
