@@ -27,6 +27,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**January 30, 2023:** Adjusted page margins.
+
 **January 23, 2023:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
 
 **January 22, 2023:**: Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
