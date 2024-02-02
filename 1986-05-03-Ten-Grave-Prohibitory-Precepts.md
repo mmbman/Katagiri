@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts"
 ---
 ## May 3, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-04-26-Three-Collective-Pure-Precepts) \| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-04-26-Three-Collective-Pure-Precepts) \| [Next](1986-05-31-Goldenness-of-the-Earth) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -243,4 +243,4 @@ So I can think. I can think of a beautiful, ideal image of my life. I don’t th
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-04-26-Three-Collective-Pure-Precepts) \| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-04-26-Three-Collective-Pure-Precepts) \| [Next](1986-05-31-Goldenness-of-the-Earth) \| Series: [Lay Ordination](lay-ordination)

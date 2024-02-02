@@ -27,17 +27,19 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
-**January 30, 2023:** Adjusted page margins.
+**February 1, 2024:** Posted rough draft of [The Goldenness of the Earth, the Sweet Milk of the Long River](1986-05-31-Goldenness-of-the-Earth).
 
-**January 23, 2023:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
+**January 30, 2024:** Adjusted page margins.
 
-**January 22, 2023:**: Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
+**January 23, 2024:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
 
-**January 21, 2023:** Even more cleanup of the first part of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18). Finally figured out *hosho-ike*.
+**January 22, 2024:**: Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
 
-**January 18, 2023:** More editing of [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
+**January 21, 2024:** Even more cleanup of the first part of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18). Finally figured out *hosho-ike*.
 
-**January 17, 2023:** Updated [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
+**January 18, 2024:** More editing of [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
+
+**January 17, 2024:** Updated [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
 
 **January 16, 2024:** Centered headings and style changes.
 
