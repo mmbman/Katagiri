@@ -183,17 +183,19 @@ In the case,
 
 This is an interesting point. 
 
-You know pretty well, “the myriad things return to one.” In the phenomenal world, countless myriad beings exist. But when you research, when you deduce, when you trace back to source... it’s one. There is only one. 
+You know pretty well, “the myriad things return to one.” In the phenomenal world, countless myriad beings exist. But when you research, [...] when you trace back to the source... it’s one. There is only one. 
 
-Maybe, according to scientists, maybe it is so-called energy. Maybe it is called very original elements of ...
+According to scientists, maybe it is so-called energy. Maybe it is called very original elements of chemical stuff...
 
 *[Tape change.]*
 
-... That is the origin of life, according to [the] sciences. Chemical stuff. Chemical stuff is not chemical stuff; it’s energy. 
+... That is the origin of life, according to scientists: chemical stuff. Chemical stuff is not chemical stuff; it’s energy. 
 
-According to Christianity, I told you, it’s called God. According to Confucianism it is called *taikyoku*, the first cause. In Buddhism it is called dharma nature, or dharma. But we know that, we know that. Not only Buddhists; everyone knows that. 
+According to Christianity, I told you, it’s called God. According to Confucianism it is called *taikyoku*, the first cause. In Buddhism it is called dharma nature, or dharma. 
 
-But the next point is pretty difficult to know: where does [the] one return to? That is a very interesting question. In other words, every knows the human world, all the universe is created by God: fine. Created by first cause: fine. Created by dharma nature: fine. But who creates dharma nature? Who creates God? Who creates Buddha? Et cetera. Who creates the first cause? 
+But we know that, we know that. Not only Buddhists; everyone knows that. But the next point is pretty difficult to know: where does [the] one return to? That is a very interesting question. 
+
+In other words, every knows the human world, all the universe, is created by God: fine. Created by first cause: fine. Created by dharma nature: fine. But *who* creates dharma nature? Who creates God? Who creates Buddha? Et cetera. Who creates the first cause? 
 
 At that time, most people are very confused. 
 
@@ -201,15 +203,15 @@ So, this monk is a very sharp guy. That’s why in the comment, it says,
 
 > He’s pressing this old fellow. 
 
-That means Joshu, Chao Chou. You are pretty good, to drive Chao Chou into the corner where he can’t move an inch. *[He laughs.]* So pretty good, monk; you are pretty good. That is the comment here. 
+[“Old fellow”] means Joshu, Chao Chou. You are pretty good, to drive Chao Chou into the corner where he can’t move an inch. *[He laughs.]* So pretty good, monk; you are pretty good. That is the comment here. 
 
-But anyway, where does the one return to? That is, constantly if you see where does one return to intellectually, you never get the place where one returns to. Because intellectual understanding lets you go in parallel, always; [it] never comes together. Probably intellectual two things come together very close, but always parallel. That’s why this guy is going fast, this guy slow, but very close, .... The other one goes fast, the other one is slow. The world is going very quickly, but you try to catch up with this, but you cannot catch up, so you’re always making noise, so-called despair. You’re disappointed. So that intellectual understanding lets you go always in parallel with the world, people, everything. Friends. So, always making noise. 
+But anyway, where does the one return to? That is, constantly if you seek *where does the one return to* intellectually, you never get the place where the one returns to. Because intellectual understanding lets you go in parallel, always; [it] never comes together. Intellectually probably two things come together very close, but always parallel. That’s why this guy is going fast, this guy slow, but very close, that’s why [they make] noise. The other one goes fast, the other one is slow. The world is going very quickly, [and] you try to catch up with this, but you cannot catch up, so you’re always making noise, so-called *despair*. You’re disappointed. So that intellectual understanding lets you go always in parallel with the world, people, friends, everything. So, always making noise. 
 
-So finally, anyway, coming back to ... the question is, from where does this question come? Okay? This question means where does [the] one return to: from where does this question come? Do you understand? This is your koan, anyway. From where? 
+So finally [...] the question is, from where does this question come? Okay? *This question* means where does [the] one return to: from where does this question come? Do you understand? This is your koan, anyway. From where? 
 
-It’s very simple. It’s very simple. If I say “from where does one return to” – who talks, who makes the question. This guy? This guy is who? Katagiri? This Katagiri is? Well, Katagiri, but totally speaking, Katagiri is something alive, so-called being. So this Katagiri is really alive – ... So where does the one return to? Where does one come from? One comes from here? One returns to this silence. It’s very close. It’s too close to understand. So if you try to know what is the beginning of the world, and where is the end of the world, intellectually, you really go outwardly, and never end, never begin. No beginning, no end. Always parallel. That’s why finally you are confused. Confusion means something which makes you unstable, irritated, restless. 
+It’s very simple. It’s very simple. If I say “where does [the] one return to” – who talks, who makes the question? This guy? This guy is who? Katagiri? This Katagiri is? Well, Katagiri, but totally speaking, Katagiri is something alive, so-called *being*. So this Katagiri is really alive – and then the question comes up. So where does the one return to? Where does the one come from? One comes from here? One returns to this silence. It’s very close. It’s too close to understand. So if you try to know intellectually what is the beginning of the world, and where is the end of the world, you really go outwardly, and never end, never begin. No beginning, no end. Always parallel. That’s why finally you are confused. Confusion means something which makes you unstable, irritated, restless. 
 
-So, exactly, finally you come back here. One comes from here. 
+So, exactly, finally you come back here. The one comes from here. 
 
 #### 49:45
 
