@@ -180,7 +180,7 @@ In other words, I believe one, truth. I understand. If you understand, you shoul
 
 So Zen Master directly he did in the past, in the history of Zen. That’s why don’t understand this. But it’s really good practice for us. That’s why, “all sentient beings return to one” – that’s fine. But still it’s not good enough. You become *tanpankan*, anyway. 
 
-If you become *tanpankan*, life is simple, okay? Because you just walk [down] the one way street. *[He laughs.]* And never return. That’s simple. But you cannot do it in that way. Most people do it that way, that’s why creating always problems. You have to go two-way street. Anyway, go, come back, go comeback. Get it, let it go; get it, let it go. That is important practice for us. 
+If you become *tanpankan*, life is simple, okay? Because you just walk [down] the one way street. *[He laughs.]* And never return. That’s simple. But you cannot do it in that way. Most people do it that way, that’s why creating always problems. You have to go two-way street. Anyway, go, come back, go come back. Get it, let it go; get it, let it go. That is important practice for us. 
 
 So Zen practice is not “no merit.” “No merit” is get it; because you get it, that’s why Zen has to say “no merit.” “No merit” means you get already merit. That means next moment, Zen has to say “no merit,” which means, “let it go.” Anyway, “I’m sorry; let it go.” If you let it go, you can get it. Something different; so-called seven pound shirt. You can get it. 
 
