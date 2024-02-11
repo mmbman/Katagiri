@@ -79,99 +79,99 @@ That’s why we have to talk like this. But whoever you are, we are very egoisti
 
 To anyone, [or] to [anything]. 
 
-For instance, when[ever] we had morning service at Eiheiji monastery, I was very impressed by one thing. First, the monks sit down exactly... all monks, sitting straight. That was very impressive. Because, before I became a monk, I was always sitting like *this* (presumably, sitting casually), you know? But at Eiheiji monastery, everyone is sitting up just like a stick. And then we hold the sutra like this, but everyone holds exactly the same position. I was very impressed. 
+For instance, when[ever] we had morning service at Eiheiji monastery, I was very impressed first by one thing. All the monks sit down, exactly sitting straight. That was very impressive [for me]. Because, before I became a monk, I was always sitting like *this* (presumably, sitting casually), you know? But at Eiheiji monastery, everyone is sit up just like a stick. And then we hold the sutra [card] like this, but everyone holds [it in] exactly the same position. I was very impressed. 
 
-That is a formality. But behind this formality, there is something. I don’t know what it is. But I was very impressed. Do you understand what I mean? 
+That is formality. But behind this formality, there is something. I don’t know what it is. But I was very impressed. Do you understand what I mean? 
 
 Don’t ignore the formality. Formality is form. It is very important for you. 
 
-And then, at Eiheiji monastery, all monks always pick up the posture. “Don’t hold the sutra card like this, hold it like this.” So always *[whap]*, hitting the hand like this. Or if you’re holding it high, like this... without saying anything. Sometimes the older monks become very mad. *[He laughs.]*
+And then, at Eiheiji monastery, all the monks always pick up the posture. “Don’t hold the sutra card like this, hold it like this.” So always *[whap]*, hitting the hand like this. Or if you’re holding it high, like this... without saying anything. 
 
-And sometimes when I was there... you know the *kyusaku*? You know, the hitting stick? During the morning service, we went around behind the monks, sitting, and ... with the kyosaku. If you ... *[whap]*. And also, lots of visitors there, watching, listening, participating. And then the old monks ... *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because all the monks sit down, for three years, four years, living at Eiheiji monastery. And when you’re a [new] monk hitting the three years monk, the three years monk is really mad! *[He laughs, and people laugh.]*
+Sometimes the older monks become very mad. *[He laughs.]* And sometimes when I was there... you know the *kyusaku*? The hitting stick? During the morning service, [they go] around behind the monks, sitting [...] with the kyosaku. If you [...] *[whap]*. And also, lots of visitors are there, watching, listening, participating. And then the old monks [...] *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if one year monk hits the three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
 
-One day I saw a situation. Before they hit, the monk just taps your shoulder. A one-year monk tried [to tap an old monk]. Tap. Then immediately the old monk held the stick: “Stop it.” *[Laughter.]*
+Actually one day I saw a situation. Before they hit, the monk just taps your shoulder. A one-year monk tried [to tap an old monk]. *[Tap.]* Then immediately the old monk held the stick: “Stop it.” *[Laughter.]*
 
 That expression was not good. Don’t act in that way. *[He laughs.]*
 
-So anyway, act is, whatever you do, holding the sutra card like this, or *kinhin*, and sitting up straight, that is really expressing the universe. That’s why behind the form, there is something, anyway. 
+So anyway, whatever [action] you do, holding the sutra card like this, or *kinhin*, or sitting up straight, that is really expressing the universe. That’s why behind the posture, behind the form, there is something. 
 
-Read *Refining Your Life*, a cooking book by Uchiyama Roshi recently, a new book. Do you know it? This book is very nice for you. 
+Read *Refining Your Life*, a cooking book written by Uchiyama Roshi recently, a new book. Do you know it? This book is very nice for you. 
 
-In this book, you know the koan of Issan’s cow? Do you remember? Issan says, “A hundred years from now, I [will be] born in a village as a cow. And then you should go there to check that cow under the arm or belly, and then you can find the name Issan. And then if you say, “Oh, this is Issan,” it’s wrong – because it’s a cow. But if you say, “Oh, it’s not Issan, it’s a cow,” your answer is wrong, because it says Issan. How do you call it?” *[He chuckles.]* This is the koan, okay? 
+In this book, you know the koan of Isan’s cow? Do you remember? Isan says, “A hundred years from now, I [will be] born in a village as a cow. And then you should go there to check that cow under the arm or belly, and you can find the name Isan [there]. And then if you say, “Oh, this is Isan” – it’s wrong – because it’s a cow. But if you say, “Oh, it’s not Isan, it’s a cow” – your answer is wrong, because it says Isan. How do you call [it]? *[He chuckles.]* This is the koan. How do you call [it]? 
 
-While your body is you do, at least practice zazen is cow practice zazen. That is really human body practice zazen. But on the other hand, if I say, “Oh [Issan] does that,” it’s wrong, because I told you before, this presence is already based on, supported by, vastness of existence, the horse pasture. So ... sitting is ... so-called cow. But it’s not cow. Through the cow mean physical/mental body. But simultaneously, through this physical body and mind, ... presence manifests, which is called Issan. That means buddha. The universe. 
+While your body is *you* do, [Isan] practicing zazen is cow practicing zazen. That is really the human body practicing zazen. But on the other hand, if I say, “Oh, [Isan] does zazen,” it’s wrong. Because, I told you before, this presence is already based on – supported by – vastness of existence, the horse pasture. So [...] sitting is [...], so-called cow. But it’s not cow. *Cow* means the physical/mental body. But simultaneously, through this physical body and mind, [...] presence manifest, which is called Isan. That means buddha. The universe. 
 
-Holding the sutra card like this, this is *I do*. And then if you see that, that is the formality. It’s ridiculous. Whatever I hold the sutra card, this way or that way, it doesn’t matter – you think like that. But no way. If you think so, every day you take care of your life exactly in that way. So at that time you can express yourself, but nothing else, nothing more than that. So that’s why your [life] is very unstable. 
+Holding the sutra card like this: this is *I do*. And then if you see that, that is formality. It’s ridiculous. However I hold the sutra card, this way or that way, it doesn’t matter – you think like that. But no way. If you think so, every day you take care of your life exactly in that way. So at that time you can express yourself, but nothing else, nothing *more* than that. So that’s why your life is very unstable. 
 
-But anyway, when you practice, practice is to educate you, simultaneously to educate the universe. You have to educate you with the universe, with all sentient beings. So, take care of your zazen, but simultaneously take care there is universal zazen... that means best care of your zazen. And then, that is simultaneously express the universe.
+But anyway, when you practice, practice is to educate you, simultaneously to educate the universe. You have to educate you with the universe, with all sentient beings. So, [to] take care of zazen is [to] take care of *your* zazen, but simultaneously there is universal zazen, that means best care of your zazen. And then, that is simultaneously [to] express the universe.
 
-But if you say, “Oh this is formality” – it is. you cannot express the universal. 
+But if you say, “Oh this is formality” – it is. You cannot express the universal. 
 
-So the teacher says, “hold this [sutra card].” “Yes sir” – that’s enough. Because the teacher saying “hold this sutra card like this” doesn’t mean formality. The teacher always emphasizing holding this book or sutra card like this means, “Please hold this sutra card and the universe, like this. Together.” This sutra card is not the sutra card you think. Sutra card is the universe, exactly the same as your life. So anyway, hold this like this. 
+So the teacher says, “Hold this [sutra card].” “Yes sir” – that’s enough. Because the teacher saying “hold this sutra card like this” doesn’t mean formality. The teacher always emphasizing holding this book or sutra card like this means, “Please hold this sutra card *and* the universe, like this.” Together. This sutra card is not the sutra card you think. The sutra card is the universe, exactly the same as your life. 
 
-Then, how can you hold this sutra card? With wholeheartedness. Wholeheartedness means pure faith or pure mind, purity. Purity means no gap between the sutra card and you. That is called purity. So very natural communication there. That is called expression of the universe. [But] the moment when you express the universe, consciousness starts to pick [that] up, so you don’t know what is the real universe. 
+So anyway, hold it like this. And then [...] how can you hold this sutra card? With wholeheartedness. Wholeheartedness means pure faith or pure mind. Purity. Purity means no gap between the sutra card and you. That is called purity. So [there is] very natural communication there. That is called expression of the universe. [But] the moment when you express the universe, consciousness starts to work, [picking] up that one, so you don’t know what is the *real* universe. 
 
-But the real universe is something which makes your presence, makes your action, makes your talk, makes your speech, makes your thinking very stable, ... in a moment of time only. Remember this: in a moment of time only. So next moment, if you think it, it’s not. 
+But the real universe is something which makes your presence, makes your action, makes your talk, makes your speech, makes your thinking very stable, [confident,] in a moment of time *only*. Remember this: in a moment of time only. So next moment, if you think it – it’s not. 
 
-So in the moment of time only means what? No space to think it. No space to impart your feeling into. All you have to do is, just do. You have to spin just like a top. 
+So *in a moment of time only* means what? No space to think it. No space to impart your feeling into [it]. All you have to do is, just do. You have to spin just like a top. 
 
-So this is actions. This ...
+So this is actions. This is Zen practice, anyway. 
 
-So it says “his whole capacity doesn’t defer (to anyone).” That’s why holding this book, and putting the book on this table, and carrying this table. Or gassho, or walking, or chanting, or bowing... whatever you do, your action is really universal action. Universal action means you express yourself, but within expressing yourself, there is the universe manifested. The universe manifested within you means confidence. [Great] confidence. Spiritual confidence. Or, purity. Or, magnanimity – we say so, sometimes. When it works, we can say magnanimity, or security, or faith. 
+So it says “his whole capacity doesn’t defer (to anyone).” That’s why holding this book, and putting the book on this table, and carrying the table – or gassho, or walking, or chanting, or bowing – whatever you do, your action is really universal action. Universal action means you express yourself, but within expressing yourself, there is the universe manifested. The universe manifested within you means confidence. [Great] confidence. Spiritual confidence. Or, purity. Or, magnanimity – we say so, sometimes. When it works, we can say magnanimity, or security, or faith. 
 
-But faith, security, confidence is not something you can [just] talk [about]. Every day, you have to do it. Whatever you do – your action, your gassho is your gassho, but your gassho must be supported by confidence, spiritual security. It means, imperturbability and dynamism. It’s working – so-called liberation, freedom. That gassho is really impressive. 
+But faith, security, confidence is not something you can [just] talk [about]. Every day, you have to do it. Whatever you do, your action [is your action], your gassho is your gassho, but your gassho must be supported by confidence, spiritual security. It means, imperturbability and dynamism. It’s working – so-called liberation, freedom. That gassho is really impressive. 
 
 #### 30:00
 
-> He is like sparks struck from stone, like the brilliance of a flash of lightning...
+> He is like sparks struck from stone, like the brilliance of a flash of lightning, ...
 
-Just like... There is no gap between you and universal expression. Expression of the universe, there is no gap between. So that’s why it’s just a like a spark of lightning – immediate, simultaneous. When you do gassho, immediately there [it] is. 
+[It’s] just like there is no gap between you and universal expression, expression of the universe. That’s why it’s just a like a spark of lightning: immediate, simultaneous. When you do gassho, immediately there [it] is. 
 
 Zen history says Soto Zen is gradual enlightenment, Rinzai Zen is sudden enlightenment. It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much. *[He chuckles.]*
 
-So human life is exactly like ... living is like a leaping fish. Leaping fish is exactly just like a spark of lightning. 
+So human life is exactly like... I say, [living is like] a leaping fish. Leaping fish is exactly just like a spark of lightning. 
 
-Because you don’t know what it is. If you say fish, fish already becomes a concept, you know? But fish is not fish, fish is moving. So you say [it’s] movement? No. It’s not movement, it’s fish. But it’s not fish; it’s movement. How can you call this? Movement? No. Movement means energy, inherent in everything. So you can say energy? No. It’s fish. But you can say fish, but it’s not. So how can you say? The total leaping fish. [Naturally] leaping fish is something you can learn. You can learn, you can express yourself, right in the middle of ... what? Pure sincerity, pure heart. That is wholeheartedness. And then, you can express. That is called the universe. So that’s why the leaping fish is very beautiful, very active. Very impressive. 
+Because you don’t know what it is. If you say fish, *fish* already becomes a concept, you know? But fish is not fish, fish is moving. So you say [it’s] movement? No. It’s not movement; it’s fish. But it’s not fish; it’s movement. How can you call this? Movement? No. Movement means energy, inherent to everything. So you can say energy? No. It’s fish. [So] you can say fish – but it’s not. So how can you say the total leaping fish? That total leaping fish is something you can *learn*. You can learn, you can express yourself, right in the middle of... what? Pure sincerity, pure heart. That is *wholeheartedness*. And then, you can express. That is called the universe. So that’s why the leaping fish is very beautiful, very active, very impressive. 
 
- > ... like a raging fire fanned by the wind, like a rushing torrent crossing a sword edge
+ > ... like a raging fire fanned by the wind, like a rushing torrent crossing a sword edge.
  
-This means it’s very quick, very quick. 
+This means it’s very quick, *very* quick. 
  
-You know a diamond is very hard, but it’s not hard. Hardest one is very soft. That means very flexible. Vacillation is going at superspeed. More than tofu! Anyway tofu is a solid lump. Solid lump, small lump of being. It’s still moving and flexible, but very slow. But inside of diamond is moving at superspeed. Interrelated, interpenetrated with each-other, and simultaneously it makes something hard, *very* hard. But inside of tofu is very soft, anyway. Moving a little bit slow. Do you understand? 
+You know a diamond is very hard – but it’s not hard. The hardest [thing] is the very softest. That means very flexible. Vacillation is going at superspeed. More than tofu! Anyway tofu is a solid lump. A small lump of being. It’s still moving and flexible, but very slow. But inside of diamond is moving at superspeed, interrelated, interpenetrated with each-other, and simultaneously it makes something hard, *very* hard. But inside of tofu is very soft, moving a little bit slow. Do you understand? 
  
-But diamond is very hard because it’s working at superspeed. At that time, diamond expresses itself as confidence, spiritual security. So very impressive. But inside of the diamond, working very hard at superspeed. This is your life. Life is exactly diamond. Life is very solid. Katagiri’s life, as long as I exist, anyway my life is very solid. Whatever I say about me, whatever you criticize me, anyway my existence is very solid. That means completely beyond my speculation, the inside of my life is really working at superspeed. Consciousness, simultaneously its not consciousness, consciousness is simultaneously the universe. Universe simultaneously consciousness. It’s very quick. So you don’t know. You know how can we separate, how can we synthesize. No. 
+Diamond is very hard because it’s working at superspeed. At that time, diamond expresses itself as confidence, spiritual security. So [it is] very impressive. [But] inside of the diamond working very hard at superspeed – this is your life. Life is exactly diamond. Life is very solid. Katagiri’s life: as long as I exist, my life is very solid. Whatever I say about me, however you criticize me, anyway my existence is very solid. That means completely beyond my speculation, [the] inside of my life is really working at superspeed. Consciousness, simultaneously it’s not consciousness, consciousness is simultaneously the universe. Universe simultaneously consciousness. It’s very quick. So you don’t know; you don’t know how we can separate, how can we synthesize. No. 
 
-That’s why it’s moving very quick. That is the relationship between the truth and phenomena. And consciousness and buddha nature. Your life and others’ life. Human life and nature. Simultaneously. There is no gap between. 
+That’s why it’s moving very quick. That is the relationship between the truth and phenomena. And [between] consciousness and buddha nature. Your life and others’ life. Human life and nature. Simultaneously; there is no gap between. 
 
-But we don’t know, because we have been tamed by the analyzing, synthesizing, and then try to, well, press everything together. If we do that, and if you believe human life like this, your like becomes just like tofu. It’s very slow. No [solidness], no confidence there. Because you analyze always, and synthesizing, *[he chuckles]*, and try to get good ideas, et cetera. Your life becomes tofu. It’s very breakable. Fragile. 
+But we don’t know [this], because we have been tamed by the analyzing, synthesizing, and *then* try to, well, [put] everything together. If we do that, and if you believe [in] human life like this, your like becomes just like tofu. It’s very slow. No [solidity], no confidence there. Because you always analyze, and synthesize, *[he chuckles]*, and try to get good ideas, et cetera. Your life becomes tofu. It’s very breakable. Fragile. 
 
-So at any cost... Originally our life is very solid, that’s why we have to awaken to it. That is called buddha nature, buddha. Greatness of existence, beyond your speculation and judgement. 
+So originally our life is very solid, that’s why [at any cost] we have to awaken to it. That is called buddha nature, buddha. Greatness of existence, beyond your speculation and judgement. 
 
-*[Tape break?]*
+*[Tape break.]*
 
-He says in a different way... what would you say... not poetic... literary expression. “Like sparks struck from stone, like the brilliance of a flash of lightning, like a raging fire fanned by the wind, like a rushing torrent crossing a sword edge.” When you cross the edge of a sword, there is no gap between, because... you have to be careful. If you lose the spirit, you body cuts in two. When you walk on the edge of a sword, you have to use your wholeheartedness. No gap. And also a rushing torrent... when you cross a river in a rushing torrent, there is no gap between torrent and you, because you have to use your wholeheartedness. 
+He says it in a different way... what would you say... not poetical... literary expression. “Like sparks struck from stone, like the brilliance of a flash of lightning, like a raging fire fanned by the wind, like a rushing torrent crossing a sword edge.” When you cross the edge of a sword, there is no gap between, because you have to be careful: if you lose spirit, you body [is] cut in two. When you walk on the edge of a sword, you have to use your wholeheartedness. No gap. 
+
+And also a rushing torrent: when you cross a river in a rushing torrent, there is no gap between the torrent and you, because you have to use your wholeheartedness. 
 
 #### 38:26
 
 > When he lifts up the hammer and tongs of transcendence, you won’t avoid losing your point and having your tongue tied.  
 
-“When he lifts up the hammer” means one of the devices when you use for refining copper, iron, or gold, et cetera. It means educating you, educating others, transmitting something important in human life to somebody. That is really using that hammer to refine copper or iron. That word, hammer, must be working just like a rushing torrent, coming from silence. So it’s really coming up. 
+“When he lifts up the hammer” means one of the devices you use for refining copper, iron, or gold, et cetera. It means educating you, educating others, transmitting something important in human life to somebody. That is really using the hammer to refine copper or iron. That word, [or] hammer, must be working just like a rushing torrent, coming from silence. So it’s really coming up. 
 
-Baso also gets that poem, coming from silence, but from the silence Baso gets the words. That’s look at this poem. Behind the poem there is dynamic working between Basho and nature. Just like a rushing torrent, just like crossing the sharp edge of a sword. Simultaneously there. So that’s why through the word, you can really see the vastness of existence. 
+[Baso] also gets that poem coming from silence, but from the silence [Baso] gets the words. [...] Look at this poem. Behind the poem there is dynamic working between [Baso] and nature. Just like a rushing torrent, just like crossing the sharp edge of a sword: simultaneously there. So that’s why through the words, you can really see the vastness of existence. 
 
-So at that time, when you lift up something, in other words words and actions et cetera, “you won’t avoid losing your point.” There is nothing to, what would you say, challenging somebody to, what would you say, argument, or discussion. Nothing. Because when you express yourself, within your expression there is you, simultaneously there is the universe, that you and the universe working together dynamically - how? I don’t know. But it’s there. It’s really there; if you do it, [it’s] exactly there. Somebody doesn’t see it, but somebody knows. 
+At that time, when you “lift up” something, in other words words and actions, et cetera, “you won’t avoid losing your point.” There is nothing to – what would you say – *challenge* somebody to – what would you say – argument, or discussion. Nothing. Because, when you express yourself, within your expression there is you, simultaneously there is the universe, that you and the universe working together dynamically – how? I don’t know. But it’s there. It’s really there. If you do it, [it’s] exactly there. Somebody doesn’t see it, but somebody knows. 
 
-So why? I don’t know. How they come together, how they interconnect with each other dynamically, we don’t know. But if you do it, exactly do it, we can express it. 
+So why? I don’t know how they come together, how they interconnect with each other dynamically. We don’t know. But if you do it, exactly do it, we can express it. 
 
-So nothing to argue. 
-
-So “you won’t avoid losing your point” – you cannot challenge somebody to discuss it. “And having your tongue tied” means you cannot help withdrawing, in other words going back to your room. 
+So nothing to argue. So “you won’t avoid losing your point” – you cannot challenge somebody to discuss it. “And having your tongue tied” means you cannot help withdrawing, in other words going back to [your room]. 
 
 #### 42:30
 
 > He lets out a single continuous road. 
 
-But it’s very difficult to explain that situation, oneness. Oneness of you and the universe is going from moment to moment, is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something. 
+But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something. 
 
 So that is this case. 
 
