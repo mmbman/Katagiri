@@ -15,7 +15,7 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1
 
 #### 0:00
 
-**Katagiri Roshi:**: Case forty-five: “Chao Chou’s Seven-Pound Cloth Shirt”.
+**Katagiri Roshi:** Case forty-five: “Chao Chou’s Seven-Pound Cloth Shirt”.
 
 The Pointer:
 
@@ -35,7 +35,7 @@ This koan is also pretty famous.
 
 So the pointer: “When he must speak, he speaks—in the whole world there is no match for him.” That means when he has to speak, he just speaks, but this speaking is really beyond human speculation. Nothing to compare, nothing to pin down, [no] object you want to criticize. Even a simple word, even though people don’t understand at that time or later – it’s going, it’s still influencing the human mind. So in the future, sometime, that word really comes up in your life. 
 
-Not only Zen teachers or Zen masters, but all of you, when you speak, speaking is really expression of your life in dynamism through the words. Within the words you can express what you feel, what you think, what you want to give. But simultaneously, behind this word, [there is] something there through the words. You can understand the words, but through the words, you can understand the huge world behind the words. 
+Not only Zen teachers or Zen masters, but all of you, when you speak, speaking is really expression of your life in dynamism through the words. Within the words you can express what you feel, what you think, what you want to give. But simultaneously, behind these words, [there is] something there through the words. You can understand the words, but through the words, you can understand the huge world behind the words. 
 
 Because – remember this point – you accept you, verbally, mentally, psychologically, or you always bring out yourself first. But this is [why you can do this]. If you bring up yourself first, so-called *I*, at that time you’re always emphasizing how important *you* are, ignoring others. This is perverted. But basically, the moment when you accept yourself, whatever reason, egoistically or whatever, if you bring out yourself first, at that time that means you accept totally. In other words, you live, you are alive. Total affirmation, self-affirmation. Without [total] self-affirmation, you cannot offer yourself, you cannot express. So “I alone, individual[ly] exist” means I exist in the same and one ground, where all sentient beings exist. 
 
@@ -171,9 +171,7 @@ So nothing to argue. So “you won’t avoid losing your point” – you cannot
 
 > He lets out a single continuous road. 
 
-But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something. 
-
-So that is this case. 
+But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something. So that is this case. 
 
 #### 43:03
 
@@ -219,85 +217,93 @@ And then,
  
 > Chao Chou said, “When I was in Ch’ing Chou I made a cloth shirt. It weighed seven pounds.”
 
-This is interesting. In the commentary, it says, 
+This is interesting. In the commentary, it says:
 
-> This case, though hard to see, is nevertheless easy to understand; though easy to understand, it’s still hard to see. Insofar as it’s hard, it’s a silver mountain, an iron wall. Insofar as it’s easy, you are directly aware. There’s no place for your calculations of right and wrong.
+> This case, though hard to see, is nevertheless easy to understand; though easy to understand, it’s still hard to see. Insofar as it is hard, it’s a silver mountain, an iron wall. Insofar as it’s easy, you are directly aware. There is no place for your calculation of right and wrong.
 
 That is the interconnection, interpenetration between the two, simultaneously. 
 
-So, that is universe there. 
+So, that is the universe there. 
 
-Chao Chou said, “When I was in Ch’ing Chou I made a cloth shirt.” That means everyday life. Anyway, come back to me ... everyday life. So I am there. I express myself every day. 
+Chao Chou said, “When I was in Ch’ing Chou I made a cloth shirt.” That means everyday life. Anyway, come back to *me*; everyday life. 
 
-But on the other hand, that shirt is not usual shirt. That is seven pounds. That means, I make a shirt, but it’s pretty light. If I make my shirt, it’s pretty limited, because it must fit me – size, et cetera. So it’s very light. You cannot wear a seven pound shirt. So if I make a shirt, it’s very light. In other words, I express myself. That is very stinky. Katagiri. Simultaneously there is a seven pound shirt. That means seven pound Katagiri expressed in small shirt I have made. 
+So I am there; I express myself every day. But on the other hand, that shirt is not a usual shirt. That is seven pounds. 
 
-So that is really so-called security. If you realize this point, that becomes spiritual security, confidence.
+That means, *I* make a shirt, but it’s pretty light. If I make *my* shirt, it’s very limited, because it must fit me in size, et cetera. So it’s very light. You cannot wear a seven pound shirt. So if I make a shirt, it’s very light; in other words, I express myself. That is very stinky; Katagiri. Simultaneously there is a seven pound shirt. That means [a] seven pound Katagiri expressed in the small shirt I have made. 
+
+So that is really so-called security. If you realize this point, that becomes spiritual security. Confidence.
 
 It is not a matter of discussion. We should do it, every day. 
 
-That’s why Zen very practically always points out, when you wash your dish, just wash your dish. Just wash your dish. That means you wash your dish, but washing the dishes is nothing but the expression of washing the universe. You don’t believe this, but it’s really so. 
+That’s why very practically Zen always points out, when you wash your dish, just wash your dish. Just wash your dish. That means you wash your dish, but washing the dishes is nothing but the expression of washing the universe. You don’t believe this, but it’s really so. 
 
-That means don’t think the universe in washing dishes, alright? *[He laughs.]* In order to see the universe in washing the dishes, your action of washing dishes must be stable. Very imperturbable. At that time, it *is* called ... the universe, within washing the dishes. 
+That means don’t think the universe in washing dishes, alright? *[He laughs.]* In order to see the universe in washing the dishes, your action of washing dishes must be stable. Very imperturbable. At that time, it *is* called seeing the universe within washing the dishes. 
 
-So Zen Master says, see the universe in the cup. You are drinking a cup of tea, and a Zen monk tries to see the universe in the cup. He cannot see the universe, so he throws it away. Zen Master says, Oh, poor tea. This is really poor tea. 
+So, you are drinking a cup of tea. A Zen master says, “See the universe in the cup.” A Zen monk tries to see the universe in the cup. He cannot see the universe, so he throws it away. The Zen Master says, “Oh, poor tea.” This is [really] poor tea. 
 
-Because you see the universe separately. Tea is tea. I can see, but tea is something more than I can see. So that is what? Tea is the universe. How can I know? Anyway, deal with the tea, with wholeheartedness, with compassion, with kindness. It’s not a matter of discussion, anyway deal with the tea like this. That’s why when the monk throws it away, the Zen master says, “Oh, poor tea.” It’s really poor tea, because you destroy the universe. 
+Because he sees the universe separately. Tea is tea; I can see [that]. But tea is something more than I can see. So that is what? Tea is the universe. How can I know? Deal with the tea with wholeheartedness, with compassion, with kindness. It’s not a matter of discussion: deal with the tea like this. That’s why when the monk throws it away, the Zen master says, “Oh, poor tea.” It’s really poor tea, because you destroy the universe. 
 
-So that is [...] seven pounds. 
+So that is seven pounds. 
 
-I told you before, whatever you do, consciously or unconsciously, everyone wants to be secure in each action. No one do without security, in each action, in each speech, in each thinking. 
+I told you before, whatever you do, consciously or unconsciously, everyone wants to be secure in each action. No one [wants to do anything] without security, in each action, in each speech, in each thinking. 
 
-How can you get this? If you try to get security or confidence, very secure imperturbable thinking or action, you never get it. So day by day, you have to do it like this. Gassho, you should do gassho. Anyway this is your gassho but that is universal gassho, [that] means do your gassho with your wholeheartedness. At that time this gassho becomes imperturbable, stable. Right now, there. There is no space, there is nothing to impart your feeling or criticism into it, because life is really dynamic. Life is moving, just like a flashing light. Just like a rushing torrent. Just like walking the edge of the sword. 
+How can you get this? If you try to get security or confidence, very secure imperturbable thinking or action, you never get it. So day by day, you have to do it like this. Gassho, you should do gassho. Anyway, this is your gassho but that is universal gassho, [that] means do your gassho with your wholeheartedness. At that time this gassho becomes imperturbable, stable. Right now, there. There is no space, there is nothing to impart your feeling or criticism into it, because life is really dynamic. Life is moving, just like a flashing light. Just like a rushing torrent. Just like walking the edge of the sword. 
 
 So all you have to do is, every day, you have to manifest it, you have to practice like this. And then, you can really see, sometime.
 
-That is called seven pounds. That weight is seven pound shirt. It’s very heavy. Katagiri is small, but it’s very heavy, Katagiri is here. That is universal [Katagiri]. That is called spiritual security or faith. In life, in death, in whatever – under certain circumstances, anyway, Katagiri is there. That Katagiri is very shaky. But on the other hand, Universal Katagiri is very heavy, just like a mountain. How can we know? Anyway it is just doing. Every moment, you act like this. Take care of you like this. 
+That is called seven pounds. That weight is a seven pound shirt. It’s very heavy. Katagiri is small, but it’s very heavy, Katagiri is here, that is universal Katagiri. And that is called spiritual security or faith. In life, in death, in whatever. Under certain circumstances, separately, Katagiri is there; that Katagiri is very shaky. But on the other hand, universal Katagiri is very heavy, just like a mountain. 
+
+How can we know? It is just doing. Every moment you act like this, take care of you like this. 
 
 #### 57:20
 
-This morning, one of the ladies called from Oklahoma. I tried to communicate with her through the telephone, but her talk was a little but funny, I didn’t understand it. *[Laughter.]* But I understood she was suffering and she wanted to get some security. She found some problem there, but I didn’t understand exactly what kind of problem. So something she said I tried to become a Christian, studying the Bible. So I said, “Oh, that’s good. Why don’t you read the Bible carefully, and see the ministry, and the talk about your Father.” Because it’s very hard to communicate through the telephone. You know through the telephone it’s very simple, but it’s very difficult to communicate person to person. Do you understand? Particularly about that human problem. Well, trying to get a date – tomorrow I want a date with you – that is simple, you know, through the telephone you can do it. But about human problems – how can I communicate? First of all I have to communicate with a person directly, person-to-person, and then something happens. That’s pretty important for us. But through the telephone it’s pretty hard. 
+This morning, one of the ladies called from Oklahoma. I tried to communicate with her through the telephone, but her [accent] was a little but funny, I didn’t understand it exactly. *[Laughter.]* But I understood she that was suffering and she wanted to get some security. She had some problem there, but I didn’t understand exactly what kind of problem. 
 
-But anyway I tried to tell her that point, anyway. She asked, “What is nirvana?” That’s a big problem. I said, “Peaceful and harmonious life.” “What is harmonious, peaceful life?” I told her, “In sickness, please be calm and peaceful in the sickness.” She said, “How can I do it?” Well, first, be present in the sickness. And next, keep your mind calm, and deal with the sickness. But she didn’t understand me. 
+So sometimes she said, “I tried to become a Christian, studying the Bible.” So I said, “Oh, that’s good. Why don’t you read the Bible carefully, and see the ministry, and talk [to] your father.” Because it’s very hard to communicate through the telephone, you know? *[He laughs.]* Through the telephone it’s very simple, but it’s very difficult to communicate person to person. Do you understand? Particularly about that human problem. Well, trying to get [an appointment] – “tomorrow I want [an appointment] with you” – that is simple, you know, through the telephone you can do it. But how can I communicate about human problems? First of all I have to communicate with the person directly, person-to-person, and then something happens. That’s pretty important for us. But through the telephone it’s very hard. 
 
-But that is everyday life, because the sickness you can see is the small sickness. But sickness is exactly sickness as the universe. Just like in your life. Sickness is nothing but life, anyway. 
+But anyway, I tried to tell her that point. And she asked me, “What is nirvana?” That’s a big problem. *[He laughs.]* I said, “Peaceful and harmonious life.” “What is harmonious, peaceful life?” I said, “In sickness, please be calm and peaceful in the sickness.” She said, “How can I do it?” “Well, first, be present in the sickness. And next, keep your mind calm, and deal with the sickness.” But she didn’t understand me. 
 
-So in the sickness, there is sickness you can see, but real sickness is beyond the sickness you can see. So, that is the universe. So you have to deal with sickness with the universe. How? Well, keep your mind calm, first. If you’re confused, you cannot deal with sickness. So first, keep your mind calm, and be present in the sickness. And then step by step, what should you do. Anyway, this is each moment, how can I do? This is Katagiri expressed in sickness, simultaneously Katagiri as the universe expressed in sickness. So, seven pound Katagiri there. Seven pound [...] there. More than seven pound; huge. No one can move it. That is called security. 
+But that is everyday life. Because the sickness you can see is the small sickness, but sickness is exactly sickness as the universe. Just like in your life. Sickness is nothing but life.
 
-So security is pretty hard to tell you, to give you. Security is really my security. My security is always in here. It’s always working. I can talk, but even though I can talk [about] security, it’s my security. So you could find *your* security, anyway. 
+So in the sickness, there is the sickness you can see, but real sickness is beyond the sickness you can see. That is the universe. So you have to deal with the sickness with the universe. How? Well, first, keep your mind calm. If you’re confused, you cannot deal with the sickness. So first, keep your mind calm, and be present in the sickness. 
 
-That’s why spiritual security is always just like a seven pound, huge mountain there. But it’s very difficult to tell you, to give you. Because... you should find it. 
+And then step by step, what should you do. This is each moment, how can I do? This is Katagiri expressed in sickness, simultaneously Katagiri as the universe expressed in sickness. So, [there is a] seven pound Katagiri there, seven pound [Jim] there. More than seven pounds; huge. No one can move it. That is called security. 
+
+So security is pretty hard to tell you, to give you. Security is really *my* security. My security is always in here. It’s always working. I can talk, but even though I can talk [about] security, it’s *my* security. So you could find *your* security. 
+
+That’s why spiritual security is always just like a seven pound [shirt], huge mountain there. But it’s very difficult to tell you, to give you. Because, *you* should find it. 
 
 #### 1:01:43
 
-So, read the commentary. This commentary is very interesting. Another koan, here. So it’s a very interesting comment. Next Wednesday we will read the verse, and also a little bit about this commentary to this verse.
+So, read the commentary. This commentary is very interesting. [There is] another koan [there], so it’s a very interesting commentary. Next Wednesday we will read the verse, and also a little bit about the commentary to this verse.
 
 Do you have some questions? 
 
 #### 1:02:40
 
-**Question:** Hojo-san? You spoke of speed and slowness. And I’m reminded of Thich Nhat Hanh’s visit, and his teaching of the practice of just talk slower than ...  ... And I was asked by someone in San Francisco to ask you, because it has been a serious consideration for many people: what is it in the Japanese tradition, in monasteries, what is the nature of the speed that monks are trained to use in the monastery. Is there a kind of mindfulness about that? I know Thich Nhat Hanh said that he goes very slowly, and when I asked him if it’s possible to be mindful when you’re going very fast, he said maybe it is, but it’s much harder. 
+**Question:** Hojo-san? You spoke of speed and slowness. And I’m reminded of Thich Nhat Hanh’s visit, and his teaching of the practice of just talk slower than [...]. I was asked by someone in San Francisco to ask you, because it has been a serious consideration for many people: what is it in the Japanese tradition, in monasteries, what is the nature of the speed that monks are trained to use in the monastery. Is there a kind of mindfulness about that? I know Thich Nhat Hanh said that he goes very slowly, and when I asked him if it’s possible to be mindful when you’re going very fast, he said maybe it is, but it’s much harder. 
 
-**Katagiri:** Yes, I’m not talking about this. That is already something expressed by him.
+**Katagiri:** Yeah, I’m not talking about this one. That is already something expressed by him.
 
 **Same person:** Ah. 
 
-**Katagiri:** Slow, for him, it is a kind of stability. Very stability. Do you understand what I mean? Slow action. Slow action is, in this case, kind of total security there. 
+**Katagiri:** Slow, for him, is a kind of stability. Very stable. Do you understand what I mean? Slow action. Slow action is, in this case, kind of total security there. 
 
-And then if I see that total security in terms of speed, or slow or fast, then we say slow-motion. So that is a name, concept. But completely beyond slow motion. Because his life is exactly fitting from moment to moment. So very quick. So his slowness is not slow; his slowness is very quick, hitting the point. So immediately if you see Thich Nhat Hanh, immediately you’re shocked, don’t you think so? I was shocked. I saw him at the airport, gassho. Immediately I was shocked. So that is very slow, but it’s not slow. Immediately, it’s just a lightning spark. 
+And then if we see that total security in terms of speed, or slow or fast, then we say *slow motion*. But that is a name, a concept. [It is] completely beyond slow motion, because his life is exactly fitting from moment to moment, so [it’s] very quick. So his slowness is not slow; his slowness is very quick, hitting the point. 
 
-That is the point, alright? I am talking about that [point]. So I said the diamond’s appearance is hard, hardest being. That means total security. Human security. But in order to have this security, apparently you have to... this inside of your life must be connected at superspeed. At superspeed means completely beyond fast or slow. That is superspeed. In other words, freedom. No particular pattern, so called slow or fast. Because it’s super-speed. So no particular pattern.
+Immediately if you see Thich Nhat Hanh, immediately you’re shocked, don’t you think so? I was shocked. I saw him gassho at the airport, immediately I was shocked. So that is very slow, but it’s not slow: [it’s] immediate, just a lightning spark. 
 
-So that’s why we don’t know if molecules have a certain type of speed, slow or fast. We can find [out] how A and B come together and make water. But we don’t. Some we can know, but some we don’t know. So finally the question is: why? Water exists just as it is. We don’t know why. So that means all molecules inside of the water, inside of the diamond, are working very quickly, interconnected. That movement makes something hard. That is security. ...
+That is the point, alright? I am talking about that [point]. So I say the diamond apparently is hard, the hardest being. That means total security, human security. But in order to have this security, [...] the inside of your life must be connected at superspeed. At superspeed means completely beyond fast or slow. That is superspeed. In other words, freedom. No particular pattern, so-called slow or fast. Because it’s super-speed. So no particular pattern.
 
-So according to Thich Nhat Hanh, security as a diamond, in this book, diamond-like. It says diamond-like. That’s the diamond-like state of existence is very slow, walking slow. But at that time, very speedy: fitting into every situation. When the person walks quickly, there is a very slow motion there. Simultaneously still in dynamism, dynamic in stillness. 
+So that’s why we don’t know if molecules have a certain type of speed, slow or fast. We can find [out] how A and B come together and create the water which exists. But we don’t [know]. Some we can know, but some we don’t know. So finally the question is: why? Water exists just as it is. We don’t know why. So that means all molecules inside of the water, inside of the diamond, are working very quickly, interconnected. That movement makes something hard. That is [the] security [I mean].
 
-So that is both, working together. And then that is really security. 
+So according to Thich Nhat Hanh, security is [...] diamond-like. That the diamond-like state of existence is very slow, walking slow, but at that time very speedy, fitting into every situation. When the person walks quickly, there is a very slow motion there, but simultaneously speedy, quick. Still in dynamism, dynamic in stillness. That is both, working together. And then that is really security. 
 
 So apparently he just expressed one type of action, slow-moving. But it is not the total picture of his life. 
 
-But mindfulness is really working at not creating a gap between, alright? Between you and your object. This is the practice of mindfulness. Thich Nhat Hanh also says this. That means you and your object working at super-speed, anyway. Interconnected, interpenetrated. So import point in mindfulness is you have to be one, exactly one. 
+Mindfulness is really working at not creating a gap between you and your object. This is the practice of mindfulness. Thich Nhat Hanh also says this. That means you and your object working at super-speed: Interconnected, interpenetrated. So the import point in mindfulness is that you have to be one, exactly one. 
 
-But in order to be one, we have to create certain circumstances, anyway. If you become an expert, maybe running, is also you can practice mindfulness. Don’t you think so? ... Experience through the [mile sign], you can really concentrate on [mile sign]. It’s really mindfulness. And also slow, step by step – this is also pretty good. But in the beginning or for his case, he just follows. Slow motion. That is one part. But basic teaching of mindfulness is your life be working at superspeed, interconnected with your object. Just like molecules of water, or molecules of diamond, the inside of a diamond. This is mindfulness. 
+But in order to be one, we have to create certain circumstances. If you become an expert, [say in] running, [this] is also [that] you can practice mindfulness. Don’t you think so? [...] You can really concentrate on [mile sign]. It’s really mindfulness. And also slow, step by step – this is also pretty good. But in the beginning or for his case, he just follows, slow motion. That is one part. But the basic teaching of mindfulness is really [that] your life must be working at superspeed, interconnected with your object. Just like molecules of water, or the molecules of diamond inside of a diamond. This is mindfulness. 
 
 #### 1:10:55
 
@@ -305,19 +311,17 @@ But in order to be one, we have to create certain circumstances, anyway. If you 
 
 **Katagiri:** Mindfulness is not forgetting the dharma. Concentration is sometimes not forgetting *you*. *[He laughs. The questioner laughs.]*
 
-But real concentrating is not forgetting you, but simultaneously not forgetting others. That is called mindfulness. 
+But real concentration is not forgetting you but simultaneously not forgetting others. That is called mindfulness. 
 
-So traditionally we understand mindfulness is constantly not to forget the dharma. And then, dhyana, meditation, or sometimes we say concentration. But I told the very usual concentration, alright? But dhyana means zazen. Let’s see zazen. Mindfulness is not forgetting the dharma, and in zazen, dhyana, you dwell in dharma. 
+So traditionally we understand mindfulness is constantly not to forget the dharma. And then, *dhyana*, meditation, or sometimes we say concentration. But I told the very usual [kind of] concentration, alright? But *dhyana* means zazen; let’s [look at] zazen. Mindfulness is not forgetting the dharma, and in zazen, *dhyana*, you *dwell in* dharma. Do you understand the difference? 
 
-Do you understand the difference? Mindfulness is not forgetting dharma. In other words, still you can see dharma objectively. So you try to approach to dharma. That is the practice of mindfulness. But dhyana, so-called zazen, is you’re always present in dharma. That means total security. You have to present in security there, exactly, from moment to moment. Not try to forget, okay. *[He laughs.]* Completely [...] Because you already do it. That’s why Thich Nhat Hanh’s way is always practice mindfulness; simultaneously his life is very secure. That means dhyana. So that’s why he can be present in dharma always. 
+Mindfulness is not forgetting dharma. In other words, still you can see dharma objectively, so you try to approach to dharma. That is the practice of mindfulness. But *dhyana*, so-called zazen, is [that] you’re always *present in* dharma. That means total security. You have to present in security there, exactly, from moment to moment. Not try to forget, okay? *[He laughs.]* Completely beyond. Because you already do it. That’s why Thich Nhat Hanh’s way is always practicing mindfulness, and simultaneously his life is very secure. That means *dhyana*. So that’s why he can be present in dharma always. So behind his life, there is huge security there. 
 
-So behind his life, there is huge security there. 
-
-That is called concentration. We say say concentration. That is really deep. But usually concentration means, not forgetting me. *[He chuckles.]* Always try to be aware of myself. That is the common sense of concentration. But real concentration is going through mindfulness perfectly, and then you can reach concentration. That is dhyana, zazen. Shikantaza.
+That is called concentration. We say say concentration. That is really deep. But usually concentration is not forgetting *me*. *[He chuckles.]* Always try to be aware of *myself*; that is the common sense of concentration. But *real* concentration is going through mindfulness perfectly, and then you can reach concentration. That is *dhyana*, zazen. *Shikantaza*.
 
 **Same person:** So mindfulness is like being aware of two things: what I’m doing, and dharma. As if there were two. 
 
-**Katagiri:** Through your actions, through your body, through your object. Because dharma is nothing your body and object. 
+**Katagiri:** Through your actions, through your body, through your object. Because dharma is nothing but your body and object. 
 
 **Same person:** Right. And concentration is even more complete oneness.
 
@@ -325,19 +329,19 @@ That is called concentration. We say say concentration. That is really deep. But
 
 #### 1:14:28
 
-**Question:** You say that dhyana is ... than mindfulness? Or ...
+**Question:** Do you say that *dhyana* is deeper than mindfulness? Or ...
 
-**Katagiri:** I don’t think it’s necessary to compare like that. But temporarily, if you look at the experience separately, so-called mindfulness and zazen, dhyana, maybe we can find a certain definition of the difference between. So that’s why mindfulness is “try not to forget the dharma.” Dharma is the universe. Truth. Anyway, we try to approach. Not forget. Whatever you do, you should do with the universe. But usually in our daily life, always *I* comes first. So we pretty easily forget the universe, others. So we should do ... anyway try not to forget the universe means try to do something with the universe. That means, keep your mind calm. Because your mind always brings yourself first, so-called ego. That’s why “make your mind calm” means taking care of your mind in proper way first. And then, how? That is simultaneously deal with the sutra card...
+**Katagiri:** Well, I don’t think it’s necessary to compare like that. But temporarily, if you look at the experience separately, so-called mindfulness and zazen, *dhyana*, maybe we can find a certain definition of the difference between. So that’s why mindfulness is “try not to forget the dharma.” Dharma means the universe; truth. Anyway, we try to approach. Not forget. Whatever you do, you should do with the universe. But usually in our daily life, always *I* comes first. So we pretty easily forget the universe, others. So [...] “try not to forget the universe” means try to do something with the universe. That means, keep your mind calm. Because your mind always brings yourself first, so-called ego. That’s why “make your mind calm” means taking care of your mind in proper way first. And then, how? That is simultaneously deal with the sutra card...
 
 *[Tape break.]*
 
-If you continue to do this, completely beyond your consciousness or unconsciousness, you are really present in dharma. That is called dhyana. 
+If you continue to do this, completely beyond your consciousness or unconsciousness, you are really present in dharma. That is called *dhyana*. 
 
 Is that alright? 
 
-For instance, if you practice karate, or something ... energy. Or doan. And first of all, you always try not to forget how to hit the bells, *[he chuckles,]* or how to master a certain form a karate, very carefully. But all you have to do is, you have to do, even though you don’t like or you like, you try to not forget the form taught by the teacher. You have to master it, constantly. If you do it, finally, you can be present in the form, [in the] proper way. Exactly there. So if you move, exactly the proper form comes up. So your body and form [are] exactly one. No gap between. That is called dhyana. 
+For instance, if you practice karate, or something with energy. Or [being] *doan*. First of all, you always try not to forget how to hit the bells, *[he chuckles,]* or how to master a certain form a karate, very carefully. But all you have to do is, you have to do it. [Whether] you don’t like or you like, you try not to forget the form taught by the teacher. You have to master it, constantly. If you do it, finally, you can be present in the form, [in the] proper way. Exactly there. So if you move, exactly the proper form comes up. So your body and your form [are] exactly one. No gap between. That is called *dhyana*. 
 
-So if you become a doan, very naturally, you can hit the bell in the proper way. But how can you do it? Every day, try not to forget how to hit the bell in the proper way. That is our practice.
+So if you become a *doan*, very naturally, you can hit the bell in the proper way. But how can you do it? Every day, try not to forget how to hit the bell in the proper way. That is our practice.
 
 #### 1:17:56 end of recording
 
