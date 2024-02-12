@@ -261,7 +261,7 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 ---
 
-##### [Case 45: Chao Chou’s Seven-Pound Cloth Shirt Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2)
+##### [Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2)
 ###### June 1, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*

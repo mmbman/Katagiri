@@ -27,7 +27,7 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
-**February 12, 2024:** Posted drafts of [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) and [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).
+**February 12, 2024:** Posted drafts of [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) and [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).
 
 **February 1, 2024:** Posted rough draft of [The Goldenness of the Earth, the Sweet Milk of the Long River](1986-05-31-Goldenness-of-the-Earth).
 
