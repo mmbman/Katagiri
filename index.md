@@ -33,7 +33,7 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 **January 23, 2024:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
 
-**January 22, 2024:**: Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
+**January 22, 2024:** Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
 
 **January 21, 2024:** Even more cleanup of the first part of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18). Finally figured out *hosho-ike*.
 
