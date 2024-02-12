@@ -154,9 +154,9 @@ So anyway, through this actual life, you have to see it. You have to see it. It�
 
 > Right now I throw it down into West Lake; ...
 
-That means “Yes, I understand. I made a shirt, and also that shirt is seven pounds” – that means you can create universal life, so-called tolerance or freedom, and peace and harmony, within the limitation of you life, so-called life and death. You understand this. But, if you really hang on – “I can do it” – you are stuck there. So, if you know this, if you realize “I can have a chance to create this universal creative life,” right in the middle of your life, limited by life and death – at that time, you should throw away your ideas. And then, every day, you have to make your life work. Just like this. Just like freely, anyway work. 
+“Yes, I understand. I made a shirt, and also that shirt is seven pounds” – that means you can create universal life, so-called tolerance or freedom, and peace and harmony, within the limitation of you life, so-called life and death. You understand this. But, if you really hang on – “I can do it” – you are stuck there. So, if you know this, if you realize “I can have a chance to create this universal creative life” right in the middle of your life, limited by life and death – at that time, you should throw away your ideas. And then, every day, you have to make your life work. Just like this. Just freely work. 
 
-So “Right now I throw it down into West Lake.” We have to throw it away. You can get it, then throw it away. You can get it, throw it away. Otherwise, it’s pretty easy to be stuck. But throw it away doesn’t mean to ignore your life and circumstances, or others’ life. Anyway pay careful attention to your and others’ circumstances, and use your head, use your mind, brains. But, if you get it, please, throw it away, let go of it. And then you think carefully, and get it, and throw it away. That’s always repeating, he have to do it. Just sit down – you can get it. But throw it away. Then sit again. Get it. Throw it away. That means sit down. ... get it. Throw it away. That is really returning to the one.
+So, “Right now I throw it down into West Lake.” We have to throw it away. You can get it, then throw it away. You can get it; throw it away. Otherwise, it’s pretty easy to be stuck. But *throw it away* doesn’t mean to ignore your life and circumstances, or others’ life. Pay careful attention to your and others’ circumstances, and use your head, use your mind, your brains. But, if you get it, please – throw it away, let go of it. And then you think carefully, and get it, and throw it away. That’s always repeating; we have to do it. “Just sit down”: you can get it. But throw it away. And then sit again. Get it. Throw it away. That means *sit down*. And so, get it. Throw it away. That is really returning to the one.
 
 And then, where does the one return to? That is, “Sit down, right now.” And then you can get it, and throw it away. This is return to one, and one returns to this present. 
 
@@ -164,27 +164,23 @@ This is actual practice, not a matter of philosophical discussion. You have to d
 
 #### 38:40
 
-(Returning to the commentary:)
+So (returning to the commentary):
 
-So, 
+> “Right now I throw it down into West Lake.” Myriad things return to one, but he doesn’t even need the one.  
 
-> “Right now I throw it down into West Lake.” Myriad things return to one, but he doesn’t even need the one.
+Even the one, you don’t need. Because if you understand the one, then should you hold [onto] it? No. Because one is pretty vast. Even though you try to obey it, try to follow it – you don’t know what it is. 
 
-Even the one, you don’t need. Because if you understand the one, then ... you should hold [onto] it? No. Because one is pretty vast. Even though you try to obey it, you try to follow it – you don’t know what it is. 
+Well, some religions say *truth*, or *God*, *divinity*, et cetera. “All sentient beings are made by God, [or] divinity” – it’s fine, it’s fine. And then we never think, “Where does the one return to?” Because it’s untouchable. It’s untouchable because your intellectual sense never reaches it. So, “if you don’t understand, just believe it.” This is fine. But if you think so – well, God, or whatever you say, truth, or divinity, are completely going far from you, because you can see them objectively. Always at a distance. It’s never alive in your life directly. That’s why next moment, anyway, where *is* [the] one? How is *one* alive? We have to think.
 
-Well, some religion says truth, or God, divinity, et cetera. “All sentient beings are made by god, divinity” – it’s fine. It’s fine. And then we never think, “Where does the one return to?” Because it’s untouchable. It’s untouchable because your intellectual sense never reaches it. So if you don’t understand, just believe it. This is fine. But if you think so, well, even God, whatever you say, truth, or divinity, are completely going far from you. Because you can see them objectively. Always at a distance. It’s never alive in your life directly. That’s why next moment, anyway, where is *one*? How is *one* alive? We have to think.
+Well, maybe naturally we can think of it. “How? Where is it? How does it work?” If you just think, “Well, all sentient beings are made by divinity, and only one divinity,” then we can appreciate it, yes, because we completely depend on this one. That is a particular way to project yourself into your object. That is a logical structure of human feeling, how [it projects] itself into your object. Do you understand?
 
-Maybe naturally we can think of it. How? Where is it? How does it work? Well, if you just think, “Well, all sentient beings are made by divinity, and only one divinity” then we can appreciate it, yes, because we completely depend on this one. That is a particular way to project yourself into your object. That is the logical structure of human feeling, how to project yourself into your object. Do you understand?
-
-I told you the other day, three ways. One way is to completely depend on the self; self-confidence. When you feel good, well you’re proud of yourself. If you don’t feel good, you really hate others. Because self-confidence means you bring up yourself first. Because you’re so proud of yourself. This is not only a particular person; everyone does this. 
+I told you the other day, [there are] three ways. One way is to completely depend on the self; self-confidence. When you feel good, you’re proud of yourself. If you don’t feel good, you really hate others. Because self-confidence means you bring up yourself first, because you’re so proud of yourself. This is not only a particular person; everyone does this. 
 
 *[Tape change.]*
 
-... that ... confidence within individual life. 
+... that [condition of] self-confidence within individual life. In other words, we are pretty weak, so we have a certain confidence within [an] object. And then at that time, when you don’t feel [good], you feel guilty. Then when you feel good, at that time your really appreciate that object, so-called divinity, that you can completely depend on. This is the second way we can do it. 
 
-In other words, we are pretty weak. So we have a certain confidence within object. And then at that time, when you don’t feel, you feel guilty. Then when you feel good, at that time your really appreciate that object, so-called divinity, that you can completely depend on. 
-
-But this is the second way we can do it. In Zen, if you follow this way, well, the first one or second one, if you follow your life just like this, projecting your feeling into object, finding the peace or harmony, at that time in Zen you are called *tanpankan*. That means “a guy who carries a board on the shoulder.” That means you can see always the front (of the board), but you never see the back. *Tan* means carry, *pan* means a board, *kan* means a guy. A guy carrying a board on his shoulder. He’s always looking at the front, never seeing the back. 
+But in Zen, if you follow the first way or second way, if you follow your life just like this – projecting your feeling into [the] object, finding the peace or harmony – at that time in Zen you are called *tanpankan*. That means “a guy who carries a board on the shoulder.” That means you can see always the front (of the board), but you never see the back. *Tan* means carry, *pan* means a board, *kan* means a guy. A guy carrying a board on his shoulder. He’s always looking at the front, never seeing the back. 
 
 I don’t think it is bad. Still you can live, in that way. But, it becomes a cause of human trouble. It’s pretty hard to live completely [in] peace and harmony. And also the functioning of your brain [is] getting simpler and simpler. That means, I don’t know, not so profound. *[He laughs.]* [Not] profound, very simple. In other words, your brain becomes very soft. Because it’s not necessary to think, to research, to deepen your life itself. But in Zen Buddhism or Buddhism generally, you cannot say, “Yes, sir, thank you. I appreciate it,” and then accept. It’s not all for human life. 
 
