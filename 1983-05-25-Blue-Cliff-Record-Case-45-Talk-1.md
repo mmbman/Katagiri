@@ -29,7 +29,7 @@ The Case:
 > 
 > Chou said, “When I was in Ch’ing Chou I made a cloth shirt. It weighed seven pounds.”
 
-Chao Chou was one of the most famous Zen Masters in China. Dogen Zenji really admired and respected this Zen master. He was a monk when he was sixty, and he attained enlightenment at the age of eighty. And he died at age 120. *[They laugh.]* Very amazing. I wish I could live to 120, but... Very amazing. For forty years, anyway, he taught Zen Buddhism in China. He is a really famous Zen Master in China. Lots of stories in koans, the *Blue Cliff Record*, and also Dogen Zenji mentions him in *Shobogenzo* very often. 
+Chao Chou (Zhaozhou Congshen, in Japanese Jōshū Jūshin, 778–897) was one of the most famous Zen Masters in China. Dogen Zenji really admired and respected this Zen master. He was a monk when he was sixty, and he attained enlightenment at the age of eighty. And he died at age 120. *[They laugh.]* Very amazing. I wish I could live to 120, but... Very amazing. For forty years, anyway, he taught Zen Buddhism in China. He is a really famous Zen Master in China. Lots of stories in koans, the *Blue Cliff Record*, and also Dogen Zenji mentions him in *Shobogenzo* very often. 
 
 This koan is also pretty famous. 
 
