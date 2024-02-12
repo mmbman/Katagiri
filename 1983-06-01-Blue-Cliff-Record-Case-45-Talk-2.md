@@ -216,21 +216,21 @@ So that’s why it says here, (returning to the commentary:)
 
 > “The pure wind of unburdening—to whom should it be imparted?” This refers to Chao Chou teaching his assembly, saying, “If you are coming north I will load up for you. If you are coming south I will unload for you. Even if you are coming from Hsueh Feng or Yun Chu, you are still a fellow carrying a board.
 
-So, I told you before, “the pure wind of unburdening” means freedom, freedom in one’s life. That is just a cool breeze passing through the horse pasture. And then the grasses shake a little bit, and when the wind has passed through, the grasses return to the normal way, refreshed. So constantly going and passing, giving a cool feeling to the grasses, to the insects, to the human beings. 
+So, I told you before, “the pure wind of unburdening” means freedom in one’s life. That is just like a cool breeze passing through the horse pasture. And [it lets] the grasses shake a little bit, and when the wind has passed through, the grasses return to the normal way, refreshed. So constantly going and passing, giving a cool feeling to the grasses, to the insects, to the human beings. 
 
 And then, there is no particular direction from where it comes. We don’t know from where. But, it’s there. It’s in your heart. In this teacher’s heart, anyway. So it’s coming up everywhere, whatever he does. 
 
-So that’s why this says, “Even if you’re coming from Hsueh Feng or Yun Chu...” If you say “I am coming,” and that freedom comes from the one, or truth, or from practice, or from the teaching – you are *tampankan*, you are a guy carrying the board. Because your brain becomes very soft. Not enough going to the depth of the ocean. [...] It’s pretty hard to [know] how to deepen, [how to] go to the depth of the ocean, because there is no particular direction. But it’s really fact. 
+So that’s why this says, “Even if you are coming from Hsueh Feng or Yun Chu...” If you say “I am coming; that freedom comes from the one” – or truth, or from practice, or from the teaching – you are *tampankan*, you are a guy carrying a board. Because your brain becomes very soft. Not enough going to the depth of the ocean. [...] It’s pretty hard to [know] how to deepen, [how to] go to the depth of the ocean, because there is no particular direction. But it’s really [a] fact. 
 
-So it’s very difficult to say Buddhism is mysticism. Mysticism [is] coming from understanding something with your sense, where all sentient beings return to, and then you can get it. At that time, you don’t know what it is, because your brain doesn’t reach it, a nd then all you have to do is just to believe. And then we say, “That is mysticism.” But it’s not mysticism. 
+So it’s very difficult to say Buddhism is mysticism. Mysticism [is] coming from understanding where all sentient beings return to with your sense, and then you can get it. At that time, you don’t know what it is, because your brain doesn’t reach it, and then all you have to do is just to believe. And then we say, “That is mysticism.” But it’s not mysticism...
 
-If you see this flower, the life of the flower is really mysticism, because you cannot see how to reach this *real* pink color. But the problem is, only *your* brain doesn’t [...], that’s all. But the life of pink color is exactly here. No problem; it’s here. So no mysticism, nothing. It’s very clear. And then through this life of pink color, you can understand the life of you, exactly the same as this life of pink color. So how can you create a gap between you and this flower? There is no gap; because you can learn from this flower. 
+If you see this flower, the life of the flower is really mysticism, because you cannot see how to reach this *real* pink color. But the problem is, only *your* brain doesn’t *[unintelligible]*, that’s all. But the life of pink color is exactly here. No problem: it’s here. So no mysticism, nothing. It’s very clear. And then through this life of pink color, you can understand the life of *you*, exactly the same as this life of this pink color. So how can you create a gap between you and this flower? There is no gap. Because you can learn from this flower. 
 
-So that’s why nothing to mysticism. In Buddhism, anyway, we understand mysticism. *[He laughs.]* But, we have to let it go. You can get mysticism. But it’s not good enough to understand human life deeply. So you have to go through *no sense of mysticism*. Then, you can really return to sentient beings. *One* can return to sentient beings, because within this... not within this; flower itself is really one. 
+So that’s why [there is] nothing to mysticism. In Buddhism, we understand mysticism. *[He laughs.]* But, we have to let it go. You can get mysticism – but it’s not good enough to understand human life deeply. So you have to go through *no sense of mysticism*. And then, you can really return to sentient beings. *One* can return to sentient beings. Because within this... not within this; flower itself is really one. 
 
-That’s why if you understand idealistically, [then] whatever you say, it doesn’t hit the mark. But your life become very simple. You don’t believe it; and then, you really appreciate. If you don’t feel good, or if your life is not going well, at that time you really feel guilty. But if you feel good, you really appreciate, but that thing, one, is really helping you. So completely you respect. 
+That’s why if you understand idealistically, [then] whatever you say, it doesn’t hit the mark. But your life becomes very simple. You [know,] believe it, and then, you really appreciate. If you don’t feel good, or if your life is not going well, at that time you really feel guilty. But if you feel good, you really appreciate, because that thing, the one, is really helping you. So completely you respect [it]. 
 
-So you tell everybody: “The world is created by *one*.” Of course it is. But, that is still you are *tanpankan*.
+So you tell everybody: “The world is created by *one*.” Of course it is. But – that is still you are *tanpankan*.
 
 #### 57:44
 
@@ -244,9 +244,9 @@ Well. *[He clears his throat.]* Do you have questions?
 
 **Question:** Hojo-san? How does one stop being *tanpankan*? ... I mean, [according to] Zen.
 
-**Katagiri:** Well, [there is] no particular way to stop tanpankan, because you are already tanpankan, anyway. So every day, you have to go beyond tanpankan. Because you are already. Every day, understand it, deepen, practice it, let it go. Anyway, get it, let it go... get it, let it go. That is tanpankan: lettting [go] of it. 
+**Katagiri:** Well, [there is] no particular way to stop *tanpankan*, because you are already *tanpankan*, anyway. So every day, you have to go beyond *tanpankan*. Because you are, already. But every day, understand it, and deepen, practice it, get it, let it go. Anyway, get it, let it go... get it, let it go. That is *tanpankan*: [getting rid] of it. 
 
-So you are screaming; that is already tanpankan. Then when you feel good, you’re really happy: that is also tanpankan. You feel good; well, get it. You can get it, in that way. But let it go. That means, practice. Practice living with all sentient beings. Understanding deeply, anyway. 
+So you are screaming, and that is already *tanpankan*. Then when you feel good, you’re really happy: that is also *tanpankan*. You feel good; well, get it. You can get it, in that way. But let it go. That means, practice. Practice living with all sentient beings. Understanding deeply, anyway. 
 
 Okay? 
 
