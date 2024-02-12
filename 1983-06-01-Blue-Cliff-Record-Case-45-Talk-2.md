@@ -112,7 +112,7 @@ So that is called *light*. Light comes from everywhere.
 
 > Hsueh Tou says, “How many people can there be who know the weight of this seven-pound shirt?”  
 
-[...] “I am Katagiri[’s] very small body, but Katagiri creates universal life” – it’s really true, but it’s very difficult to show you, to tell you. That’s why in Zen, particularly in the Soto tradition, you have to learn that point from life. From the living teacher, living together – anyway, learn from everyday. Because it’s very hard to explain. 
+[This part is because,] “I am Katagiri[’s] very small body, but Katagiri creates universal life” – it’s really true, but it’s very difficult to show you, to tell you. That’s why in Zen, particularly in the Soto tradition, you have to learn that point from life. From the living teacher, living together – anyway, learn from everyday. Because it’s very hard to explain. 
 
 An individual knows that point in a moment of time only. Even the teacher knows this point in the moment of time only. So that’s why *everyday* works very well, vividly. And then through this life you have to have your mature eyes to see it, to get it. [So] *zuishin* means following the body, [which] means following the teacher. [*Zuishin* is] that system of practice with the teacher – living and studying [with the teacher].
 
@@ -180,29 +180,27 @@ I told you the other day, [there are] three ways. One way is to completely depen
 
 ... that [condition of] self-confidence within individual life. In other words, we are pretty weak, so we have a certain confidence within [an] object. And then at that time, when you don’t feel [good], you feel guilty. Then when you feel good, at that time your really appreciate that object, so-called divinity, that you can completely depend on. This is the second way we can do it. 
 
-But in Zen, if you follow the first way or second way, if you follow your life just like this – projecting your feeling into [the] object, finding the peace or harmony – at that time in Zen you are called *tanpankan*. That means “a guy who carries a board on the shoulder.” That means you can see always the front (of the board), but you never see the back. *Tan* means carry, *pan* means a board, *kan* means a guy. A guy carrying a board on his shoulder. He’s always looking at the front, never seeing the back. 
+But in Zen, if you follow the first way or second way, if you follow your life just like this – projecting your feeling into [the] object, finding the peace or harmony – at that time in Zen you are called *tanpankan*. That means “a guy who carries a board on the shoulder.” That means you can see always the front (of the board), but you never see the back. *Tan* means “carry,” *pan* means “a board,” *kan* means “a guy.” A guy carrying a board on his shoulder. He’s always looking at the front, never seeing the back. 
 
-I don’t think it is bad. Still you can live, in that way. But, it becomes a cause of human trouble. It’s pretty hard to live completely [in] peace and harmony. And also the functioning of your brain [is] getting simpler and simpler. That means, I don’t know, not so profound. *[He laughs.]* [Not] profound, very simple. In other words, your brain becomes very soft. Because it’s not necessary to think, to research, to deepen your life itself. But in Zen Buddhism or Buddhism generally, you cannot say, “Yes, sir, thank you. I appreciate it,” and then accept. It’s not all for human life. 
+I don’t think it is bad. Still you can live, in that way. But, it becomes a cause of human trouble. It’s pretty hard to live completely [in] peace and harmony. And also the functioning of your brain [is] getting simpler and simpler. That means... I don’t know... not so profound. *[He laughs.]* [Not] profound, very simple. In other words, your brain becomes very soft, because it’s not necessary to think, to research, to deepen your life itself. But in Zen Buddhism or Buddhism generally, you cannot say, “Yes, sir, thank you. I appreciate it,” and then accept. That’s not all, for human life. “Can you accept smoothly?” – “Yes, sir!” Then the Zen master hits you. “Wake up!” Do you understand? It means [if] you accept in that way, it’s not good enough. So wake up. Why do you accept in that way, very smoothly? Do you understand it? “Yes, sir.” And then bow. Try to live. At that time, right before you live, *[noise]* there. That means, “Watch out! How much do you understand this?” 
 
-“Can you accept smoothly?” “Yes, sir.” Then, the Zen master hits you. “Wake up!” Do you understand? It means you accept in that way – it’s not good enough. So wake up. Why do you accept in that way, very smoothly? Do you understand it? “Yes, sir.” And then bow. Try to live. At that time, right before you live, *[noise]* there. That means, what out. How much do you understand this? 
+In other words, “I believe *one*, truth; I understand.” If you understand, you should appreciate. How? *[Unintelligible.]* And then bow, and leave. At that time, the teacher gives you a certain suggestion: how much do you understand? In other words, grasp his [collar] and shake it: “How much do you understand? Is that [the] goal you are seeking for, so-called peace and harmony?” So once again you have to check it. 
 
-In other words, I believe one, truth. I understand. If you understand, you should appreciate. How? Bow. Bow, then leave. At that time, the teacher gives you a certain suggestion – how much do you understand? In other words, grasp his [collar] and shake it. “How much do you understand? That goal you are seeking for, so-called peace and harmony.” So once again you have to check it. 
+So Zen masters [did this] directly in the past, in the history of Zen. That’s why you don’t understand this. But it’s very good practice for us. That’s why, “all sentient beings return to one” – that’s fine – but still it’s not good enough. You become *tanpankan*, anyway. 
 
-So Zen Master directly he did in the past, in the history of Zen. That’s why don’t understand this. But it’s really good practice for us. That’s why, “all sentient beings return to one” – that’s fine. But still it’s not good enough. You become *tanpankan*, anyway. 
+If you become *tanpankan*, life is simple, okay? Because you just walk on a one way street. You never return. *[He laughs.]* That’s simple. But you cannot do it in that way. Most people do it that way, that’s why [they’re] always creating problems. You have to go on the two-way street. Go, come back. Go, come back. Get it, let it go. Get it, let it go. That is important practice for us. 
 
-If you become *tanpankan*, life is simple, okay? Because you just walk [down] the one way street. *[He laughs.]* And never return. That’s simple. But you cannot do it in that way. Most people do it that way, that’s why creating always problems. You have to go two-way street. Anyway, go, come back, go come back. Get it, let it go; get it, let it go. That is important practice for us. 
+So Zen practice is not “no merit.” “No merit” is *get it*: because you get it, that’s why Zen has to say “no merit.” “No merit” means you already get merit; that’s why next moment, Zen has to say “no merit,” which means, “let it go.” Anyway – “I’m sorry; let it go.” If you let it go, you can get it – something different; so-called seven pound shirt. You can get it. 
 
-So Zen practice is not “no merit.” “No merit” is get it; because you get it, that’s why Zen has to say “no merit.” “No merit” means you get already merit. That means next moment, Zen has to say “no merit,” which means, “let it go.” Anyway, “I’m sorry; let it go.” If you let it go, you can get it. Something different; so-called seven pound shirt. You can get it. 
+If you jump into the ocean, [we’re thinking,] carrying the weight of some doubts and fears. Get [an idea] how to swim, how to jump, and jump in. *Jump in* means you should let go of your whole body and mind. To where? The ocean. And then does that mean to commit suicide? No. You can get the seven pound shirt, because the ocean helps you while swimming, simultaneously, even though you don’t know how to. Intellectually you know, but if you jump in, immediately it helps you. 
 
-If you jump into the ocean, well, with thinking, carrying some down stairs, anyway get ideas how to swim, how to jump, and jump in. Jump in means you should let go of your whole body and mind. To where? The ocean. And that that means commit suicide? No. You can get the seven pound shirt. Because the ocean helps you while swimming. Simultaneously, even though you don’t know how to. Intellectually you know, but if you jump in, immediately it helps you. 
-
-So your body and your swimming is really not three pounds, it’s really seven pounds – support by the ocean and sky, the rhythm of the ocean, and the rhythm of your life. 
+So your body and your swimming is really not three pounds, it’s really seven pounds – supported by the ocean and sky, the rhythm of the ocean, and the rhythm of your life. 
 
 That’s why here it says, “but he doesn’t even need the one.”
 
 > ... Since he doesn’t need the seven-pound cloth shirt either, all at once he throws it down into West Lake. When Hsueh Tou dwelt on Tung T’ing’s green peak, there was a West Lake (nearby).
 
-Hsueh Tou living on Mount Tung T’ing, so there was a green lake to the west. 
+Hsueh Tou lived on Mount Tung T’ing, so there was a green lake to the west. 
 
 #### 49:41
 
@@ -210,21 +208,21 @@ Hsueh Tou living on Mount Tung T’ing, so there was a green lake to the west.
 
 > ... The pure wind of unburdening—to whom should it be imparted?
 
-“The pure wind of unburdening” means the seven pound shirt is universal life, creative life. That is pretty difficult to teach you, to give you as something particular. It’s pretty difficult, but it’s really individual this teacher’s heart, this teacher’s daily life. So always that is just like a pure wind of unburdening. It’s really just like breathing, a cool breath in summer, always. 
+“The pure wind of unburdening”: The seven pound shirt is universal life, creative life. That is pretty difficult to teach you, to give you as something particular. It’s pretty difficult, but it’s really this teacher’s heart, this teacher’s daily life. So always that is just like a pure wind of unburdening. It’s really just like a cool [breeze] in summer. 
 
-“To whom should it be imparted”: To whom should I give it? How should I give it? Well, you should have eyes, to be ready to give it. At any time. It is [...] It is living there. That is his life. So if you have eyes to see, you can live, you can do it. So that’s why here it says, “the pure wind of unburdening.”
+“To whom should it be imparted”: To whom should I give it? How should I give it? Well, you should have eyes, to be ready to get it. At any time, show it. It is living there; that is his life. So if you have eyes to see, you can see it. 
 
-(Returning to the commentary:)
+So that’s why it says here, (returning to the commentary:)
 
-> “The pure wind of unburdening—to whom should it be imparted?” This refers to Chao Chou teaching his assembly, saying, “If you’re coming north I’ll load up for you. If you’re coming south I’ll unload for you. Even if you’re coming from Hsueh Feng or Yun Chu, you’re still a fellow carrying a board.
+> “The pure wind of unburdening—to whom should it be imparted?” This refers to Chao Chou teaching his assembly, saying, “If you are coming north I will load up for you. If you are coming south I will unload for you. Even if you are coming from Hsueh Feng or Yun Chu, you are still a fellow carrying a board.
 
-So, I told you before, “the pure wind of unburdening” means freedom. Freedom in one’s life. That is just a cool breeze passing through the horse pasture. And then let the grasses shake a little bit. And then when the wind has passed through, the grasses return to the normal way, refreshed. So constantly going, and passing, giving a cool feeling, to the grasses, to the insects, to the human beings. 
+So, I told you before, “the pure wind of unburdening” means freedom, freedom in one’s life. That is just a cool breeze passing through the horse pasture. And then the grasses shake a little bit, and when the wind has passed through, the grasses return to the normal way, refreshed. So constantly going and passing, giving a cool feeling to the grasses, to the insects, to the human beings. 
 
-And then, that is there is no direction from where it comes. We don’t know from where. But, it’s here. It’s in your heart; in this teacher’s heart, anyway. So it’s coming up everywhere, whatever he does. 
+And then, there is no particular direction from where it comes. We don’t know from where. But, it’s there. It’s in your heart. In this teacher’s heart, anyway. So it’s coming up everywhere, whatever he does. 
 
-So that’s why this says, “Even if you’re coming from Hsueh Feng or Yun Chu...” If you say “I am coming,” and that freedom comes from the one, or truth, or from practice, or from the teaching – you are *tampankan*. You are a guy carrying the one board. Because your brain becomes very soft. Not enough going to the depth of the ocean. Because there is no particular direction; that’s pretty hard to ... how to deepen, going to the depth of the ocean. Because no direction. But it’s really fact. 
+So that’s why this says, “Even if you’re coming from Hsueh Feng or Yun Chu...” If you say “I am coming,” and that freedom comes from the one, or truth, or from practice, or from the teaching – you are *tampankan*, you are a guy carrying the board. Because your brain becomes very soft. Not enough going to the depth of the ocean. [...] It’s pretty hard to [know] how to deepen, [how to] go to the depth of the ocean, because there is no particular direction. But it’s really fact. 
 
-So in Buddhism, it’s very difficult to say Buddhism is mysticism. Mysticism coming from understanding something with your sense, where all sentient beings return to, and then you can get it. At that time, you don’t know what it is, because your brain doesn’t reach it. And then all you have to do is, just to believe. And then we say, “That is mysticism.” But it’s not mysticism. 
+So it’s very difficult to say Buddhism is mysticism. Mysticism [is] coming from understanding something with your sense, where all sentient beings return to, and then you can get it. At that time, you don’t know what it is, because your brain doesn’t reach it, a nd then all you have to do is just to believe. And then we say, “That is mysticism.” But it’s not mysticism. 
 
 If you see this flower, the life of the flower is really mysticism, because you cannot see how to reach this *real* pink color. But the problem is, only *your* brain doesn’t [...], that’s all. But the life of pink color is exactly here. No problem; it’s here. So no mysticism, nothing. It’s very clear. And then through this life of pink color, you can understand the life of you, exactly the same as this life of pink color. So how can you create a gap between you and this flower? There is no gap; because you can learn from this flower. 
 
