@@ -1,0 +1,26 @@
+---
+title: "Verse of Closing the Sutra"
+---
+## July 26, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Lay Ordination](lay-ordination)
+
+### Transcript
+
+**This transcript is in rough draft stage.**
+
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/gatha-of-closing-the-sutra" target="_blank">Listen to this talk on mnzencenter.org</a>
+</p>
+
+#### 0:00
+
+**Katagiri Roshi:** 
+
+####  end of recording
+
+---
+
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+
+#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Lay Ordination](lay-ordination)

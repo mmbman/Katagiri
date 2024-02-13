@@ -324,12 +324,11 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 78 Talk 1
 1. *Blue Cliff Record* Case 78 Talk 2
 
-1. Gatha of Opening the Sutra
-1. Gatha of Closing the Sutra
+1. Verse of Opening the Sutra
+1. Verse of Closing the Sutra
 1. Settling in the Vast Openness of the Sky
 1. Taking Refuge in the Buddha
 1. Verse of Offering Incense
-1. Bowing
 
 1. *Shobogenzo Hossho*: Dharma Nature – Talk 5
 1. *Shobogenzo Hossho*: Dharma Nature – Talk 6
