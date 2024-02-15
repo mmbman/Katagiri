@@ -2,7 +2,7 @@
 title: "Talk Summaries"
 ---
 
-These are the talks that have been transcribed on this site, with brief summaries written by Kikan.
+These are the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
 
 ---
 

@@ -5,7 +5,7 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 Dainin Katagiri Roshi was one of the prominent Zen Masters who brought Zen Buddhism from Japan to the United States. This website carefully transcribes his dharma talks as a reference for the study of Soto Zen Buddhism. For more information, see the [**Introduction**](about).
 
-The [**Talk Summaries**](summaries) page lists the talks that have been transcribed on this site, with brief summaries written by Kikan.
+The [**Talk Summaries**](summaries) page lists the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
 
 The [**Talk List**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed. There are many talks that are not on this list because they are not yet in the online audio archive.
 
