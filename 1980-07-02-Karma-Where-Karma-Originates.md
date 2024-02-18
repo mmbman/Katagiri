@@ -28,7 +28,7 @@ And *samskara*: This is the first stage of movement, psychologically or physical
 
 Next, *consciousness* (*vijñāna*).
 
-And fourth, *name and form* (*nāmarūpa*) This is how all beings exist and we understand [them], through *name and form*.
+And fourth, *name and form* (*nāmarūpa*). This is how all beings exist and we understand [them], through *name and form*.
 
 Fifth is *six consciousnesses*, six senses. (In Sanskrit, *āyatana*.)
 
@@ -48,9 +48,11 @@ In this Twelve-Linked Chain of Causation, *karma* is the second one, *samskara*,
 
 #### 5:35
 
-The first one, *ignorance* – *mumyo* in Japanese – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that we are *doomed* not to understand. *Doomed* means fated. We are “doomed” not to understand what the truth is, as it is. We don’t understand intellectually. We are already there, but we don’t understand, we are doomed not to understand truth as it is. This is what is called *pain*; *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. Even though intellectually we don’t understand, still we feel, and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. 
+The first one, *ignorance* – *mumyo* in Japanese – and also *craving* and *grasping*, those three are *klesha* in Sanskrit: *delusion*. *Klesha* means *affliction*. 
 
-And *avidyā*, ignorance, and *craving* and *grasping*, this is what is called *klesha*, delusion. And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*, and also *reception*, *birth*, *old age and death*: those are called *suffering*. 
+This is because, yesterday I told you that *mumyo* – *ignorance*, *avidyā* – is that we are *doomed* not to understand. *Doomed* means fated. We are “doomed” not to understand what the truth is, as it is. We don’t understand intellectually. We are already there, but we don’t understand, we are doomed not to understand truth as it is. This is what is called *pain*; *affliction*. That’s why [Buddha](glossary#buddha) says life is characterized by [*suffering*](glossary#suffering). This is really suffering. But we cannot stop it – because we are already there. Even though intellectually we don’t understand, still we feel, and we want to know. We want to know but we cannot understand, that’s why that is *affliction*, *suffering*. This is the basic, basic nature of human being. That’s why first [there is] *avidyā*, ignorance. 
+
+*Avidyā*, ignorance, and *craving* and *grasping*, this is what is called *klesha*, delusion. And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*, and also *reception*, *birth*, *old age and death*: those are called *suffering*. 
 
 *Karmic result* – *karma-vipāka* – means the body and mind you have now. For instance, *name and form* is your body. [...] And also *six consciousnesses*. And also if you have *six consciousnesses*, if you have the six organs, immediately you have to face six objects. Always six organs face six objects. This is *tangibility*, *contact*. Without contact [we cannot accept.] \[This is the present life.]
 
@@ -114,9 +116,9 @@ From this point, [if] karma is a field or garden, and consciousness is a seed, t
 
 One of the famous [Zen Masters](glossary#zen-master), an abbot of Eiheiji monastery, died at 96 years old. He was a very wonderful person and Zen teacher. At the time he died, three famous Zen teachers died in the same month. The first person died; then the other person went to Eiheiji monastery to perform the funeral service, and then he came back to Tokyo and he died. It’s a very strange thing that happened at that time, almost three years ago. But this person was walking down the hallway with his attendants, on the way to perform the funeral service for the abbot of Eiheiji monastery, and he said, “Next life, I will be reborn as a human being again, to help all sentient beings.” And he smiled. [...] And then he returned to Tokyo, and he died. 
 
-That’s why consciousness is very important in the system of Twelve-Link Causation. By consciousness, you can get into the human world. The human world is not only this life, and next life, and also life after next life; life is continuous. So from this point, if you take a vow, “I will be reborn,” you can get in. That’s why consciousness is very important. And then, if consciousness is really growing in the garden, that garden is constant movement. Where does it come from? It’s really vitality, which is called *avidyā*, ignorance. We don’t know where we are, but we want to know, so that’s why [we say], “Let’s go, let’s go.” *[He laughs.]* We do this always, don’t you think so? This is human life. So if *mumyo* is ignorance, it’s really vitality.
+That’s why consciousness is very important in the system of Twelve-Link Causation. By consciousness, you can get into the human world. The human world is not only this life, and next life, and also life after next life; life is continuous. So from this point, if you take a vow, “I will be reborn,” you can get in. That’s why consciousness is very important. And then, if consciousness is really growing in the garden, that garden is constant movement. Where does it come from? It’s really vitality, which is called *avidyā*, ignorance. We don’t know where we are, but we want to know, so that’s why [we say], “Let’s go, let’s go.” *[He laughs.]* We do this always, don’t you think so? This is human life. So [this] *mumyo* [as] ignorance, is really vitality.
 
-So that’s why *karma* is a yard or garden, and *consciousness* is a seed. And the thirsty feeling of desire is [for] water. That is what is called *grasping*, *craving*, according to Twelvefold Causation; [it’s] always there. By what? By *reception*, *contact*. You cannot ignore [it] if you contact. This is an inevitable situation: you have to contact, and receive, and then next, you can get *feeling*, and lots of psychological functions come up. 
+So that’s why *karma* is a yard or garden, and *consciousness* is a seed. And the thirsty feeling of desire is water. That is what is called *grasping*, *craving*, according to Twelvefold Causation; [it’s] always there. By what? By *reception*, *contact*. You cannot ignore [it] if you contact. This is an inevitable situation: you have to contact, and receive, and then next, you can get *feeling*, and lots of psychological functions come up. 
 
 So very naturally, we can repeat life and death, constantly. This is the meaning of the teaching of the Twelve-Linked Chain of Causation. It’s very interesting.
 
