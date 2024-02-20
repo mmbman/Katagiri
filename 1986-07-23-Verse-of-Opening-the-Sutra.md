@@ -15,7 +15,9 @@ title: "Verse of Opening the Sutra"
 
 #### 0:00
 
-**Katagiri Roshi:** I want to study tonight the Verse of Opening [the] Sutra, [that] we chanted a few minutes ago. Would you get the sutra card, please? ... [It’s] the fourth [...] from the bottom, on the back. [Let’s] read it together. In English. *Hai.* Please.
+**Katagiri Roshi:** I want to study tonight the Verse of Opening [the] Sutra, [that] we chanted a few minutes ago. Would you get the sutra card, please? ... [It’s] the fourth [...] from the bottom, on the back. [Let’s] read it together. In English. 
+
+*Hai.* Please.
 
 **Group chanting:**
 
@@ -180,7 +182,7 @@ So “all things abide in their fixed, hence the world abides forever.”
 
 For instance, I have a certain type of character. And then, now I am peaceful. But if immediately a certain situation coming up... for instance, “Katagiri, you put the Katagiri on the top of a cliff, and let him see the bottom of the ocean, exactly.” I don’t like that high level. So immediately I create fear. So right now, I am very peaceful, but a certain situation, I create something. So Katagiri comes up in a different way. But I don’t know *why*, why that conditions *are* arranged and time is ripe. I don’t know. We can create a condition, we can create a time, but not always. There are lots of times, lots of conditions you cannot control. 
 
-For instance, you drive a car. That means you create time, you create wonderful conditions. But sometimes, somebody hits your car, you know? You dont expect. So that time and conditions – who creates them? We don’t know. At that time, Katagiri’s existence is completely different. 
+For instance, you drive a car. That means you create time, you create wonderful conditions. But sometimes, somebody hits your car, you know? You don’t expect. So that time and conditions – who creates them? We don’t know. At that time, Katagiri’s existence is completely different. 
 
 So, I am Katagiri in peace, now, is completely something produced by time which is ripe, conditions arranged, beyond human speculation. So that’s why *now* is very important. 
 
@@ -200,9 +202,9 @@ Okay. Do you have a question?
 
 #### 53:35
 
-**Question**: Roshi, when you talked about Katagiri and the universe being born, do you mean that’s continuously happening all the time, or do you mean that as a historic event, a one-time event?
+**Question:** Roshi, when you talked about Katagiri and the universe being born, do you mean that’s continuously happening all the time, or do you mean that as a historic event, a one-time event?
 
-**Katagiri**: I think the universe cannot be seen easily. Because it’s vast. What you can see is now, and moment, and present time. So through the present time, what you can do is to take care of the present time. But that present time is not the present only. It is exactly connected with the universe. In other words, it is backed by the whole universe. 
+**Katagiri:** I think the universe cannot be seen easily. Because it’s vast. What you can see is now, and moment, and present time. So through the present time, what you can do is to take care of the present time. But that present time is not the present only. It is exactly connected with the universe. In other words, it is backed by the whole universe. 
 
 So that’s why ... how can you see that universe? That’s why you have to penetrate the present time, with clear mind. So with your mind, you have to research deeply [the] microphone, Katagiri, in the present, and then see something behind me, above me, something more than to the right, to the left, something more than beneath my feet. So, the whole space, vast and open space around me. And then, very naturally, with your mind you have to research this. That is the teaching always mentions about this. 
 
@@ -214,9 +216,9 @@ Is that alright?
 
 #### 56:24
 
-**Question**: Roshi, when you talked the parent ... the child. Isn’t it also reversed, the child [seeing] the parent? 
+**Question:** Roshi, when you talked the parent ... the child. Isn’t it also reversed, the child [seeing] the parent? 
 
-**Katagiri**: Mm-hm. Sure. The child must be deal with the parents exactly as the messenger of the world we knew. 
+**Katagiri:** Mm-hm. Sure. The child must be deal with the parents exactly as the messenger of the world we knew. 
 
 Particularly the parents and children’s relationship are very deep, you know? 
 
