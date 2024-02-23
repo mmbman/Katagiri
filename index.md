@@ -27,6 +27,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**February 23, 2023:** Updated [Karma: Karmic Retribution in Present Life](https://katagiritranscripts.net/1980-07-10-Karmic-Retribution-in-Present-Life). (Important changes!)
+
 **February 13, 2024:** For class: [Excerpts on Bodhidharma](ExcerptsOnBodhidharma.pdf)
 
 **February 12, 2024:** Posted drafts of [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) and [Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).
