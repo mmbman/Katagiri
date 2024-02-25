@@ -27,7 +27,7 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
-**February 23, 2023:** Updated [Karma: Karmic Retribution in Present Life](https://katagiritranscripts.net/1980-07-10-Karmic-Retribution-in-Present-Life). (Important corrections!)
+**February 23 and 24, 2023:** Updated [Karma: Karmic Retribution in Present Life](https://katagiritranscripts.net/1980-07-10-Karmic-Retribution-in-Present-Life). (Important corrections!)
 
 **February 13, 2024:** For class: [Excerpts on Bodhidharma](ExcerptsOnBodhidharma.pdf)
 
