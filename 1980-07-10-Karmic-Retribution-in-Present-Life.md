@@ -64,7 +64,7 @@ So without the teaching, it’s very difficult to live, to act, to have actual p
 
 #### 17:05
 
-So for a certain period of time we can depend on [teaching], and then, also, realization comes from actual practice. 
+So for a certain period of time we can depend on [the teaching], and then, also, realization comes from actual practice. 
 
 Dogen Zenji says, “After becoming Buddha, enlightenment, nirvana exist.” Well, yes, it is [true]. Nirvana, enlightenment, doesn’t exist if you don’t do anything. No matter how long you discuss about nirvana, happiness, or enlightenment – well, it’s there, but it doesn’t penetrate your life. So regardless of whether you understand or not: *live*. *Live*, with your best [effort]. This is actual practice. And very naturally, realization comes up from actual practice. 
 
