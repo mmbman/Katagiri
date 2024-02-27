@@ -27,6 +27,9 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**February 26, 2024:** For class: [Interdependence / Karma / *Four Horses*
+– Additional Reading](Interdependence-Karma-FourHorses.pdf)
+
 **February 25, 2024:** Updated [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness).
 
 **February 23 and 24, 2024:** Updated [Karma: Karmic Retribution in Present Life](https://katagiritranscripts.net/1980-07-10-Karmic-Retribution-in-Present-Life). (Important corrections!)
