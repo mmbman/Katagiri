@@ -840,7 +840,7 @@ If you ignore the phenomenal world and attach to the truth, then you become spac
 
 Or you don’t know what to do about the truth and the phenomenal world, and you become very confused, and your head hurts, and you don’t know what to do. So you burn out. You say, “I can’t take all this complicated stuff, “ and you ignore the truth.
 
-At that time your life doesn’t work very well either. Oh, you can have a pretty good career in some specialized field, but I think you life will be very cold; your mind will be very cold, and finally you will be isolated from people and society and you will be very alone.
+At that time your life doesn’t work very well either. Oh, you can have a pretty good career in some specialized field, but I think your life will be very cold; your mind will be very cold, and finally you will be isolated from people and society and you will be very alone.
 
 So turning away and touching are both wrong.
 
@@ -2973,7 +2973,7 @@ But how can you serve, to help you and your position, professionally and otherwi
 
 As I have said before, this means to plant the root of your life. If you want something to grow, you have to plant the root. When you plan your life, maybe you plant a vegetable. This is good for a one-year plan. For a two-year plan you have to plant a tree or a fruit, something like that.
 
-But for you lifetime plan, or the life of your life plans, you have to plant the root of life. That is called the virtuous quality.
+But for your lifetime plan, or the life of your life plans, you have to plant the root of life. That is called the virtuous quality.
 
 But usually we don’t want to plant the root, because we are interested in the fancy, visible stuff: branches, leaves, and flowers. So it is very difficult to plant the root, but the root is very important.
 

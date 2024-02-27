@@ -142,7 +142,7 @@ So what is that? You should learn first. Individually, simultaneously, just take
 
 #### 45:45
 
-When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your dharmas, *all dharmas*. And next, well, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life, and Lake Calhoun’s waters helps you life. And immediately your body moves, simultaneously. And then you learn. “Oh, this is the point. I can swim.” This is how to swim. Yes it is.
+When you want to swim in Lake Calhoun, well, learn how to swim. It’s very important. At that time, Lake Calhoun is something observed and which is called in question. And then this is your dharmas, *all dharmas*. And next, well, all dharmas are not always something you can experience, you can observe individually. Forget it. Just jump into the ocean. The ocean helps your life, and Lake Calhoun’s waters helps your life. And immediately your body moves, simultaneously. And then you learn. “Oh, this is the point. I can swim.” This is how to swim. Yes it is.
 
 If you always think [of] all dharmas objectively, individually, it sometimes scares you. With your effort, you should learn it. But when the time comes, you just *dive*.
 
