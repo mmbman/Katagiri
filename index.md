@@ -27,8 +27,10 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**February 27, 2024:** Updated [Karma: Conclusion](1980-07-12-Karma-Conclusion).
+
 **February 26, 2024:** For class: [Interdependence / Karma / *Four Horses*
-– Additional Reading](Interdependence-Karma-FourHorses.pdf)
+– Additional Reading](Interdependence-Karma-FourHorses.pdf).
 
 **February 25, 2024:** Updated [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness).
 
