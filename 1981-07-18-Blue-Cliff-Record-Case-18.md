@@ -180,9 +180,9 @@ From this point, you need a whip. You need a whip. Shall I touch just a hair? Sh
 
 So if you really understand this karmic life, karmic life turns into Buddha's life. You can really accept. To accept is not just to accept at random; you have to accept, and next, you have to take care of your life in a *positive* way. That is the meaning of a whip – or practice, constant effort. Human effort is a sort of energy so that you can keep your life as a Buddha.
 
-That is really silence. 
+#### 43:30
 
-#### 43:34
+That is really silence. 
 
 There is a story (at the beginning of “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken, [I don’t ask about the unspoken]” ...
 
@@ -212,7 +212,9 @@ That is teaching coming from your back. This is teaching coming from a *powerles
 
 So keep silent. *Keep silent* is what? *Keep silent* is not just [stumbling toward], it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. 
 
-Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the function of the organs [in] your body? Of course, but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. [A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we have to give these children a whip until it touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect them – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
+Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the function of the organs [in] your body? Of course, but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
+
+[A single hair] is maybe sort of [like] a person who gets a Ph.D. Maybe so. But is he great if you compare him with a first grade child? No, [he is the] same. Well, maybe we want to give these children a whip until it touches the skin or the muscle. But this is your discrimination; touching the skin is exactly touching the hair and the whole body. So even though the first grade child is great – a wonderful person, human being, and we should totally accept and respect them – that is *what*? Nothing to say. But right in the middle of silence you have to say something, because this is a human life. 
 
 For instance, right in the middle of suffering or pain in zazen, can you say something about pain? You cannot say anything about the pain in zazen. But if you keep silent in pain, does that mean that you have to die with the pain? No; you have to be alive. So silence in pain is really aliveness, dynamically, in pain.
 
