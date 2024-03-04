@@ -38,7 +38,7 @@ Those two [kinds of] karma are produced by three kinds of activity: *body* or ph
 
 If you do something good, you will get a good result: this is a very natural and common understanding. But the [result] of causation is not so simple. [Sometimes] even though you do something good, you don’t get a good result. You may work hard to make money your whole life, but still be poor. [...] But on the other hand, you cannot ignore the characteristic of causation, so-called “good cause brings good result.” So very naturally, we consider three kinds of *karmic retribution* in Buddhism. One is that if you do something good, that good cause will bring a good result in *this* life. The next is, maybe not in *this* life, but maybe *next* life. And then the third is, maybe *not* next life; good cause will bring good result in the life after next life. In other words, life after life: life is constantly going, that’s why maybe the good cause will bring good result in the life after next life after next life – something like that. Very naturally Buddhism considers it in that way, because if you look at human action based on causation, it teaches us how complicated it is; it’s not so simple. Dogen Zenji also talks about these three kinds of retribution. 
 
-#### 1-11:50
+#### 1 11:50
 
 The question is: if you think of karma in Buddhism like this – where is this karma? [In] what part of your life does karma exist? 
 
@@ -62,15 +62,15 @@ After this, I think Buddhism developed [even] more, [for example with] the *Avat
 
 Anyway, karma is working in the realm of interdependent co-origination. [It is a little bit like] karma is not only belonging to human life or particular beings, but it belongs to the depths of general existence, cosmic existence. So in Mahayana Buddhism, the idea of karma is accepted in a broader perspective.
 
-#### 1-25:28
+#### 1 25:28
 
 So very naturally, I think if you study Buddhism in order to research what karma is, it’s still very vague. So I would like to say [something] paying attention to the human life which you are taking care of day to day. How do we accept karma [in day-to-day human life]? 
 
 But first, I think we should understand *personality*. [We always use this word, but] what is personality? 
 
-Personality is sort of a very simple entity [with a] multitudinous nature, such as [...] the intellect, emotion, and volition or will – not only intellect. Or, [it is] very *deep* feeling, profound feeling, where the intellect, emotion, and volition are working together. 
+Personality is sort of a very simple entity including [a] multitudinous nature, such as [...] the intellect, emotion, and volition or will – not only intellect. Or, [it is] very *deep* feeling, profound feeling, where the intellect, emotion, and volition are working together. 
 
-We [talk about] the five *skandhas* or *aggregates* of *form*, *feeling*, *perception*, *impulses*, *consciousness*. The second one, *feeling* (*vedanā*), is [the] very deep, profound first stage of human emotion. The very first [stage] – before you poke your head into it. The moment when you face or see your object, the image of your object is accepted by the first stage of your emotional/intellectual function. That is called *feeling*. So that is very deep. 
+We [talk about] the five *skandhas* or *aggregates* of *form*, *feeling*, *perception*, *impulses*, *consciousness*. That second one, *feeling* (*vedanā*), is [the] very deep, profound first stage of human emotion. The very first [stage] – before you poke your head into it. The moment when you face or see your object, the image of your object is accepted by the first stage of your emotional/intellectual function. That is called *feeling*. So that is very deep. 
 
 [Personality also includes] custom, habit, and also individual character. Or heredity. And also memories. 
 
@@ -78,49 +78,57 @@ So what is personality? We see personality simply, but personality is working in
 
 From this point, what is your everyday life? You always understand who you are [and] who they are. You evaluate yourself, and you are critical toward others, critical towards the present situation – by which you always create anger, hatred, fighting, and many things. What is your place in life? How do you understand it? 
 
-Even if you don’t evaluate, you don’t think, and you don’t criticize people, still you always give rise to a certain “smell” from your body and mind. Can’t you believe [that]? *[He laughs.]* Even though I sit down here without saying [anything], you can smell a certain [something] from me. So even though you don’t judge, you don’t criticize, or you are very nice, or not good, or whatever you say... if you just sit down here, then something speaks of *you*. What is it? This is called *personality* – *whole personality*. 
+Even if you don’t evaluate, you don’t think, and you don’t criticize people, still you always give rise to a certain “smell” from your body and mind. [Can] you believe [that]? *[He laughs.]* Even though I sit down here without saying [anything], you can smell a certain [something] from me. So even though you don’t judge, you don’t criticize, or you are very nice, or not good, or whatever you say... if you just sit down here, then something speaks of *you*. What is it? This is called *personality* – *whole personality*. 
 
-What is *whole personality*? What is it structured by? That’s why I mentioned those things: emotions, [intellect] and will, and also oneness of the emotions and intellect and volition; and also customs, habits, and characteristics; and also heredity, and memories. Memories come from your beginningless past; you have lots of memories. Some memories come up in the present; that is just a little bit of your memories. But if you sit down, what kind of memories come up? You are surprised to see that. 
+What is *whole personality*? What is it structured by? That’s why I mentioned those things: emotions, [intellect] and will, and also oneness of the emotions and intellect and volition; and also customs, habits, and [character]; and also heredity, and also memories. 
 
-So from this point, I can say [it] like this: First of all, by your intellect you feel your life and other’s life, and you judge yourself and others and the world, et cetera. But that intellectual understanding is just a speck of dust of your whole personality. It’s not perfect; but a problem is that the intellect fully *believes* that your understanding *is* perfect. That is a characteristic of your intellectual habits. That’s why we so much love the world which is clear and neat. We don’t want the “dark” aspect of the human world; we don’t want to have what we don’t understand; we try to understand *everything*. So we always ignore the back. *The back* is [what you] don’t understand. 
+Memories come from your beginningless past. You have lots of memories. Some memories come up in the present, but that is just a little bit of your memories. But if you sit down, what kind of memories come up? You are surprised to see that. 
 
-#### 1-34:13
+So from this point, I can say [it] like this: First of all, by your intellect you feel your life and other’s life, and you judge yourself and others and the world, et cetera. But that intellectual understanding is just a speck of dust of your whole personality. It’s not perfect. But a problem is that the intellect fully believes that your understanding *is* perfect. That is a characteristic of your intellectual habits. 
 
-*The back* [is part of] *space*. What is space? 
+That’s why we so much love the world which is clear and neat. We don’t want the “dark” aspect of the human world; we don’t want to have what we don’t understand; we try to understand *everything*. So we always ignore the back. *The back* is [what you] don’t understand. 
 
-The space *in front* is clear, understandable, reasonable. This is the intellectual world, alright? Created by science. 
+#### 1 34:13
 
-And *behind*, that space is very dark. You don’t understand it. But you cannot ignore it; you have to always carry it on your back! What is the past? What is heredity? We don’t know. What is religion, dealing with life and death, in the past, in the future? We don’t know what it is. That is the *space behind*. 
+*The back* means *space*. [...] What is space? 
 
-And the space to the *right* or to the *left* – this is human relation, okay? That space is really taken care of by human relation: working hand in hand, under all circumstances. 
+Space is also the *front*. [The space in front] is clear, understandable, reasonable. This is the intellectual world, alright? Created by science. 
 
-And also, there is *space underneath you*. This is everyday life, rooted in the earth. That is completely beyond *wise* or *not wise*: everyone has to be rooted in everyday life. 
+And *behind*, that space is very dark. You don’t understand it. But you cannot ignore it; you have to always carry it on your back! What is the past? What is heredity? We don’t know. What is religion – dealing with life and death, in the past, in the future? We don’t know what it is. That is the space *behind*. 
 
-One more space is *above the head*. *Above* is something mysterious, but it helps us so much, when we are confused. When we are confused, we always pray. To where? We say God, but where is God? We always look up to the sky, don’t you think so? *[He chuckles.]* So *space above* is wonderful – clear, vast openness. 
+And the space to the *right* and to the *left* – this is human relation. That space is really taken care of by human relation: working hand in hand, under all circumstances. This is taking care of space.
 
-So even though we say *space* – what is space? Not the philosophical term, but practically, what is space? Front, behind, to the right, to the left, beneath, and above. Those [aspects of] space should be understood, but intellectual understanding is very narrow. A problem is that intellectual understanding fully believes that it is perfect understanding, but it is just a speck of dust. You always love the front, [and] that’s it. You don’t reflect upon the relationship among human beings, you don’t accept the relationship among human beings with compassion. If you ignore this [relationship], you never exist in peace and harmony. So if you want to live in peace and harmony, you have to take [care of] many kinds of space: front, behind, to the right, to the left, above, beneath. 
+And also, there is space *underneath*. This is everyday life, rooted in the earth. That is completely beyond *wise* or *not wise*: everyone has to be rooted in everyday life. 
+
+One more space is *above the head*. *Above the head* is something mysterious. But it helps us so much, when we are confused. When we are confused, we always pray. To where? We say God, but where is God? We always look up to the sky, don’t you think so? *[He chuckles.]* So *space above* is wonderful – clear, vast openness. 
+
+So even though we say *space* – what is space? Not a philosophical term, but practically, what is space? Front, behind, to the right, to the left, beneath, and above. Those space[s] should be understood. 
+
+But intellectual understanding is very narrow. A problem is that intellectual understanding fully believes that it is perfect understanding, but it is just a speck of dust. You always love the front, [and] that’s it. You don’t reflect upon the relationship among human beings, you don’t accept the relationship among human beings with compassion. If you ignore this [relationship], you never exist in peace and harmony. So if you want to live in peace and harmony, you have to take [care of] many kinds of space: front, behind, to the right, to the left, above, beneath. 
 
 But it is a fact that we have intellectual understanding. So from now on, what we have to do is to *train* our intellectual patterns. In other words, change a little bit. *Change* means patting our head and [saying], *[he laughs,]* “Okay, you are good – but wait a minute. I will tell you something; a little more broad aspect of human life which you don’t know. I think you shouldn’t [hide] or throw away [these things]; no, you should take care of [them].” 
 
-That [is what change means]. So from now on, what you have to do is to practice a changing [of] the usual pattern of your intellectual system. Alright? 
+That [is what change means]. So from now on, what you have to do is to practice a changing of the usual pattern of your intellectual system. Alright? 
 
-#### 1-39:03
+#### 1 39:03
 
 Another thing is, intellectual understanding always fully believes that there is nothing [after] you die. Your skin, muscle, bones and marrow burn out [like a candle]. Including consciousness. *All gone*. So intellectual understanding always fully believes that death takes away everything; there is nothing left, including the other world. But – is that true? We have to think about it. 
 
-This is pretty good practice for us. The first thing is that you should train the usual pattern of the intellectual system which you have had. Second, I think intellectual understanding always believes there is nothing left after your death – but is it true, or not? 
+This is pretty good practice for us. The first thing is that you should train the usual pattern of the intellectual system which you have had. Second, I think intellectual understanding always believes that there is nothing left after your death – but is it true, or not? 
 
 If you try to believe in that way [of intellectual understanding], you aren’t satisfied. Even though intellectual understanding fully believes that there is nothing left behind [after] your death, still you aren’t satisfied. So finally what you do is chase after your own tail, just like a cat. That is the intellectual world. *[He laughs.]* Always playing a game... do you know the *see-saw*? Or playing with your own tail.
 
 But if you understand your whole personality, I think you should understand something more than the intellectual world – including many things, as I already said. So *how*? Let’s make our mind calm. Calm your body and mind, and then practically, touch the depth of your whole personality, something more than the intellectual world. 
 
-How do you touch something more than the intellectual world? By the experience of the practical feeling of your life, touched by deep meditation. Make your mind and body calm; and then you can go deeply into something more than the intellectual. Because you have to understand the whole personality – not only your life, but also others’ lives, and also trees, birds. You cannot understand trees separate from the sky and seasons, so you have to understand the whole personality of the trees, birds, mountains. That’s why Dogen Zenji says that the mountain is not only the mountain: mountains should be understood as mountains and also as Buddhas and ancestors. That means *cosmic* trees and birds. At that time, that understanding is touching the intellectual world and also something more than the intellectual world. 
+How do you touch something more than the intellectual world? That is the experience of the practical feeling of your life, touched by deep meditation. Make your mind and body calm; and then you can go deeply into something more than the intellectual. 
 
-But we don’t believe this. We always understand, “Oh, that is a tree. I understand it. *I* know that.” But we never know. 
+Because you have to understand the whole personality – not only your life, but also others’ lives, and also trees, birds. You cannot understand trees separate from the sky and seasons, so you have to understand the whole personality of the trees, birds, mountains. That’s why Dogen Zenji says that the mountain is not only the mountain: mountains should be understood as mountains and also as Buddhas and ancestors. That means *cosmic* trees and birds. At that time, that understanding is touching the intellectual world and also something more than the intellectual world. 
 
-#### 1-43:54
+But we don’t believe this. We always [understand,] “Oh, that is a tree. I understand it. *I* know that.” But we never know. 
 
-So the second point is, even if you find a solution for the life and death problem, saying that the other world exists – it’s not enough, it’s not a final solution. Because nobody proves whether the other world exists or not. Through a book, or through philosophy, through religions, or through the words of wise people, et cetera, we [may] believe in that way, but there is *no practical proof* ...
+#### 1 43:54
+
+So the second [point] is, even if you find a solution for the life and death problem, saying that there is the other world – it’s not enough. It’s not a final solution. Because nobody proves whether the other world exists or not. Through a book, or through philosophy, through religions, or through the words of wise people, et cetera, we [may] believe in that way, but there is *no practical proof* ...
 
 #### Part 2
 
@@ -130,57 +138,67 @@ So the second point is, even if you find a solution for the life and death probl
 
 ... whether the other world exists or not is not our final solution for the problem of life and death. 
 
-But, there is a certain fear of what will happen, on the assumption that the other world *may* exist. What will happen in my life after death? So Buddhism [talks about] ten categories of existence: Hell realm, hungry ghosts, fighting spirits, heavenly beings, human beings, [animals,] and bodhisattvas and buddhas, et cetera. And then, you will have to experience these ten categories [after death]. How do you know what kind of world you will have to experience after death? We don’t know. 
+But, there is a certain *fear* of what will happen, on the assumption that the other world *may* exist. What will happen in my life after death? So Buddhism [talks about] ten categories of existence: hell realm, hungry ghosts, fighting spirits, heavenly beings, human beings, [animals,] and bodhisattvas and buddhas, et cetera. And then, you will have to experience these ten categories [after death]. How do you know what kind of world you will have to experience after death? We don’t know. 
 
-Finally, I can tell you this: it cannot be helped. *[He laughs.]* You should leave your own life as it really is. That’s it. Because no matter how long you research about the other world, and this world, and what kind of world you should depend on – we don’t know, because it’s very complicated. Buddhism talks about ten categories of the world after death, but it’s not *after death* – this is the *present* world. [It is about] how complicated your present world is. Do you understand? Right now, [sitting here,] you are really bodhisattvas, you belong to the bodhisattva world, listening to the Buddha’s teaching and [being] very peaceful. Next moment, when you leave this zendo and go out of this house, then you fight, and cry, scream, et cetera – immediately you fall to the hell world. What is your life? It’s very complicated. 
+Finally, I can tell you this: it cannot be helped. *[He laughs.]* You should [live] your own life as it really is. That’s it. Because no matter how long you research about the other world, and this world, and what kind of world you should depend on – we don’t know, because it’s very complicated. Buddhism talks about ten categories of the world after death, but it’s not *after death* – this is the *present* world. [It is about] how complicated your present world is. Do you understand? Right now, [sitting here,] you are really bodhisattvas, you belong to the bodhisattva world, listening to the Buddha’s teaching and [being] very peaceful. Next moment, when you leave this zendo and go out of this house, then you fight, and cry, scream, et cetera – immediately you fall to the hell world. What is your life? It’s very complicated. 
 
-And then still the intellect compels you to understand what this world is, what the other world is, constantly. So you play with your own tail, and finally, you have to be in a mental hospital! *[Some laughter.]* That always happens in the human world. So I think there is nothing to know *clearly*, [no way] to find the perfect solution. So all you have to do is, you should entrust yourself to the life given to you now. That is the second point. 
+And then still the intellect compels you to understand what this world is, what the other world is, constantly. So you play with your own tail, and finally, you have to be in a mental hospital! *[Some laughter.]* That always happens in the human world. So I think there is nothing to know *clearly*, [no way] to find [a] perfect solution. So all you have to do is, you should entrust yourself to the life given to you now. That is the second point. 
 
-So the first point is how narrow the intellectual sense, your intellectual world, is – and that you should change a little bit, day by day, in order to understand the human world in the cosmic perspective. This is our practice. How? That is meditation. Second, [there is no way] to find a perfect solution about the problem of life and death, so all you have to do is entrust yourself to the life given to you, or [in other words, your life] as it really is. 
+So the first point is how narrow your intellectual world is, and that you should change a little bit, day by day, in order to understand the human world in the cosmic perspective. This is our practice. How? That is meditation. Second, [there is no way] to find a perfect solution about the problem of life and death, so all you have to do is entrust yourself to the life given to you, or [in other words,] as your life really is. 
 
-#### 2-04:38
+#### 2 04:38
 
-Another point is that to “entrust yourself to your life as it really is” doesn’t mean just to accept. No, [it means] to accept your life by the practice of faith, deep understanding. *Faith* means very profound belief; *belief* means profound understanding *and* also awareness. *Awareness* means that through everyday life you have to touch something practical. 
+Another [point] is that to “entrust yourself to your life as it really is” doesn’t mean just to accept. No, [it means] to accept your life by the practice of faith, deep understanding. *Faith* means very profound belief; *belief* means profound understanding *and* also awareness. 
 
-Awareness is not only the intellect or your “head trip”. And faith is also not your head trip, so-called belief. What is belief [beyond a] mental trip? [Belief is] not only your head trip, belief is to accept totally something greater than as usual – in other words, greater than the intellectual world. Anyway, accept, and take it, and then digest it, every day. Through your everyday life, digest it. *Digest* means you have to take care of your everyday life with total acceptance of something greater than the intellectual world. In other words, that is to go deeply into the human world. How? By making your body and mind calm. That is faith, and also awareness. Faith and awareness are not an intellectual or physical trip, but feeling, touching your life very deeply, practically, profoundly. 
+*Awareness* means that through everyday life you have to touch something practical. Awareness is not only the intellect or your “head trip”. And faith is also not your head trip, so-called belief. What is belief [beyond a] mental trip? Belief is to accept totally something greater than as usual – in other words, greater than the intellectual world. Accept, and take it, and then digest it, every day. Through your everyday life, digest it. 
 
-Let’s see it like this: you believe that there is nothing left behind after your death – this is one understanding. The other understanding is there must be something left after your death. But this is [just] another idea. Beyond those two ideas, when you die, what can you feel, practically, what can you touch? Something real, something profound, through your death, through your life. What is it? That something practical and realistic, and also pretty deep, profound, that you can touch through the life and death problem is: *all gone*. Beyond discussion whether the other world exists or not, when you die: *all gone*!
+*Digest* means you have to take care of your everyday life with total acceptance of something greater than the intellectual world. In other words, that is to go deeply into the human world. How? By making your body and mind calm. That is faith, and also awareness. Faith and awareness are not an intellectual or physical trip, but feeling, touching your life very deeply, practically, profoundly. 
 
-Through this real touching in your everyday life and death – if you have to believe, what is belief? If you have to be aware, if you have to awaken to something, what do you mean by awakening? Constantly you have to research this. What is belief? Is belief simple – to believe in deities, or someone who has authentic power controlling the human world? I don’t think so. *[He laughs slightly.]* Does it exist outside or inside? I don’t know! But anyway, when you die, *all gone*. This is a real practical feeling; you can touch it. 
+Because, let’s see it like this: you believe that there is nothing left behind after your death – this is one understanding. The other understanding is there must be something left after your death. But this is [just] another idea. Beyond those two ideas, when you die, what can you feel, practically? What can you touch? Something real, something profound – through your death, through your life. What is it? 
 
-I always feel this. I am talking about the Buddha’s teaching related with the past, present, and future – but when I die, my life is gone. [At that time,] what do you mean, Buddha’s teaching? What do you mean, awakening? What is belief? Not kind of trying to get the idea of a happy life or unhappy life – whatever I say, I don’t feel anything. But all I can do is [ask], “What do you mean, Buddha’s teaching?” Buddha’s teaching is supposed to make human life be happy, but what is the Buddha’s teaching? In terms of life and death, when you die, there is nothing left behind, and then, in *this* life, in this fact, this reality of *nothing left behind after death* – then what is belief, what is awareness?
+That something practical and realistic, and also pretty deep, profound, that you can touch through the life and death problem is: *all gone*. Beyond discussion of whether the other world exists or not, when you die: *all gone!* Through this real touching in your everyday life and death, if you have to believe – what is belief? If you have to be aware, if you have to awaken to something – what do you mean by awakening? 
+
+Constantly you have to research this. What is belief? Is belief simple – to believe in deities, or [someone who is the] authentic power controlling the human world? I don’t think so. *[He laughs slightly.]* Does it exist outside or inside? I don’t know! 
+
+But anyway, when you die, *all gone*. This is a real practical feeling; you can touch it. I always feel this. I am talking about the Buddha’s teaching – related with the past, present, and future – but when [I have to] die, my life is gone. [So,] what do you mean, *Buddha’s teaching*? What do you mean, *awakening*? What is *belief*? Not kind of [the idea] of trying to get a happy life or unhappy life – whatever I say, I don’t feel anything. But all I can do is [ask], “What do you mean, Buddha’s teaching?” [Buddha’s teaching] is supposed to make human life be happy. What is the Buddha’s teaching? In terms of life and death, when you die, there is nothing left behind – and then in *this* life, in this fact, this reality of *nothing left behind after death*: what is belief, what is awareness?
 
 It’s a big subject for us. 
 
-Zen Buddhism really focuses on that, okay? *[He laughs.]* The question is, how do you live, day by day. That’s it. Because no matter how long you are thinking about life and death, it’s always you playing with your own tail. But I don’t mean you should *ignore* intellectual understanding – this is why you have to *take care of* the intellectual world. But how? Patting the head of the intellectual world. How? Calming your body and mind, [which] lets you go deeply into the human world, something more than the intellectual world. This is always our practice.
+Zen Buddhism really focuses on that, okay? *[He laughs.]* That’s why the question is, how do you live, day by day, that’s it. Because no matter how long you are thinking about life and death, it’s always you playing with your own tail. But I don’t mean you should *ignore* intellectual understanding – this is why you have to *take care of* the intellectual world. But how? Patting the head of the intellectual world. How? Calming your body and mind, [which] lets you go deeply into the human world, something more than the intellectual world. This is always our practice.
 
-#### 2-12:35
+So whatever intellectual understanding brings to you as a conclusion, I think you should open your heart enough to digest [it], again and again, to deepen it, again and again. This is your life. Because life is really vast. You never get a definite solution in terms of whatever kind of “*ism*” of outlook on the world or human life, so Zen Buddhism really focuses on day-to-day life, *how do you live*. Not *how do I understand the human world*, in terms of outlook on the world or human life. *How do we live?* Even if you don’t understand the world, or [yourself], how do you live? Day to day – taking care of yourself, not only *your* life, but also your life *with* others’ lives. How do you live in peace? 
 
-So whatever intellectual understanding brings to you as a conclusion, I think you should open your heart enough to digest [it], again and again, to deepen it, again and again. This is your life. Because life is really vast. You never get a definite solution in terms of whatever kind of “*ism*” of outlook on the world or human life, so Zen Buddhism really focuses on day-to-day life, *how do you live*. Not *how do I understand the human world*, in terms of outlook on the world or human life – *how do we live?* Even though you don’t understand the world, or [yourself], how do you live? Day to day – taking care of yourself, not only *your* life, but also your life *with* others’ lives. How do you live in peace? 
+The conclusion is, [we live] *on the assumption* that there is something temporarily called *the other world*. In other words, life is going from the past to the present to the future. Because if you see your life, you can *feel* how deep your life is; you don’t understand your life only by your intellectual world. Can’t you feel [that]? This is a very realistic and practical feeling, touching your life. 
 
-The conclusion is, [we live] *on the assumption* that there is something temporarily called *the other world*. In other words, life is going from the past to the present to the future. Because if you see your life, you can *feel* how deep your life is; you don’t understand your life only by your intellectual world. Can you feel [that]? This is a very realistic and practical feeling, touching, your life. So life is something extending into the past, to the future. Alright? So even though we don’t [get] any perfect proof whether the other world exists or not, [we live] *on the assumption* that the other world may exist. This is a beautiful world, looking at the human world not only by intellectual understanding. By something more than intellectual understanding, let’s get [...] the other world. Is that clear?
+So life is something extending into the past, to the future. Alright? So even though we don’t give any perfect proof whether the other world exists or not, [we live] *on the assumption* that the other world may exist. This is a beautiful world, looking at the human world not only by intellectual understanding, but by something more than intellectual understanding. Let’s get [to] the other world.
 
 And then, should we always be crazy about the other world? *[He chuckles.]* Well, it is a beautiful world; it is a kind of target you can aim for. It is a destination you have to go toward. But you shouldn’t be crazy about it, because everyday life is exactly *right now*. That everyday life is very important; it gives you very vast *data* [about] what your life is, how vast your life is. So you can’t ignore day-to-day life. 
 
 So there are two ways: *destination*, and also *day-to-day life*. The [prow] of your boat should be directed toward that destination, but your boat should be stable and calm, and taking one step, one step, day to day – *with* the whole circumstances, which are very changeable. Is that clear? 
 
-That is called what? *Shikan*. Zazen. Day-to-day life. But taking care of day-to-day life is not *[unintelligible]*. Is that term okay? *[He laughs.]* It doesn’t mean that. Day-to-day life *is* day-to-day life, but day-to-day life directs you to the destination, through which you can see the vast expanse of human life. That is your destination. 
+That is called what? *Shikan*. Zazen. Day-to-day life. 
 
-#### 2-17:34
+But taking care of day-to-day life is not “what will be, will be.” It doesn’t mean that. Day-to-day life *is* day-to-day life, but day-to-day life directs you to the destination, through which you can see the vast expanse of human life. That is your destination. 
 
-From this way of life, you can really understand why you have to have a funeral service [when a person dies.] \[If a person dies and their ashes are just scattered wherever] – that’s fine. But are you satisfied, or not? It’s questionable. So finally, we want to do something for her or him, after his or her death, beyond the idea of *nothing left behind after death*. It doesn’t matter; just perform a funeral service. The content of a funeral service is a good lesson for you: [you] can always direct [yourself] to the beautiful destination, and take care of day-to-day [life]. That means just take care of the funeral service with wholeheartedness. At that time, the funeral service really helps everyone. And also, [it’s] for you. This is the meaning of Buddhist services. 
+#### 2 17:34
 
-Dogen Zenji always talks about this in detail, but simply speaking, [it is] a very simple practice: [just] sit down. So-called *shikan*: wholeheartedness. But that really gives you *lots* of information. Without the quality of this wholehearted way of life, you cannot take care of [...] everyday life, because everyday life is very complicated. Within the complicated and multitudinous aspects of everyday life, you have to manifest your *whole personality*, regarded as a simple entity including your very complicated life: heredity, karma, customs, many things. How do we know? That is very simple: *personality*. We can feel this from everyone. Even though you don’t say anything, you’re talking about your own life. 
+From this way of life, you can really understand why you have to have a funeral service [when a person dies.] \[If a person dies and their ashes are just scattered wherever] – that’s fine. But are you satisfied, or not? It’s questionable. So finally, we want to do something for her or him, after his or her death, *beyond* the idea of *nothing left behind after death*. It doesn’t matter; just perform a funeral service. 
+
+The content of that funeral service is a good lesson for you: [you] can always direct [yourself] to the beautiful destination *and* take care of day-to-day [life]. That means just take care of the funeral service with wholeheartedness. At that time, the funeral service really helps everyone, and also [it’s helpful] for you. This is the meaning of Buddhist services. 
+
+Dogen Zenji always talks about this in detail, but simply speaking, [it is] a very simple practice: *sit down*. So-called *shikan*: wholeheartedness. But that really gives you *lots* of information. Without the quality of this wholehearted way of life, you cannot take care of [...] everyday life, because everyday life is very complicated. Within the complicated and multitudinous aspect of everyday life, you have to manifest your *whole personality*, regarded as a simple entity including your very complicated life: heredity, karma, customs, many things. How do we know? That is very simple *personalities*. That’s why we can feel this from everyone. Even though you don’t say anything, you’re talking about your own life. 
 
 So this is our practice, and also this is our study. Day by day, we have to study. 
 
 So finally the conclusion is: karma is... *guess*. We don’t know. *[He laughs.]* I can say I don’t know what karma is. But I think I can give you some hint what karma is. Okay? 
 
-So don’t accept karma as kind of pessimistic. No. It’s not [just a] good aspect of human life, but it’s not fate or destiny, no. It’s *kind of* destiny or fate, but it includes dynamic energy to make your life productive. This is karma. Practically speaking, I don’t know [what it is], but everyone can feel it. That’s why you can use karma, even though you don’t understand it. *[He chuckles.]*
+So don’t accept karma as kind of pessimistic. No. It’s not [just a] good aspect of human life, but it’s not fate or destiny. It’s *kind of* destiny or fate, but it includes dynamic energy to make your life productive.
+
+This is karma. Practically speaking, I don’t know [what it is], but everyone can feel it. That’s why you can use karma, even though you don’t understand it. *[He chuckles.]*
 
 Do you have some questions? 
 
-#### 2-22:15
+#### 2 22:15
 
 **Question:** You said two things that I wanted to hear more about. I don’t remember them exactly. One of them was something like trusting your life. And the other one, you said when we die there is nothing left, and before we die, you were saying we can touch it, and I wanted to know if what you’re saying we can touch is *nothing left*. 
 
@@ -194,7 +212,7 @@ Because even if *I* actually experience enlightenment, *[he laughs,]* when I die
 
 Why is it necessary to be aware of [that]? What is that? Don’t you think this is questionable? So finally, what do you have to do? Research awareness? Yes! But [in] day-to-day life, what is it? What do you have to do? Should you believe in something? Yes, but what is the most important thing you have to do? Not only [what] you have to do in the realm of the intellectual world, but [what] you have to do in the vast expanse of the world, something more than the intellectual world. That’s what I want to say: what you have to do. 
 
-#### 2-27:14
+#### 2 27:14
 
 **Question:** Hojo-san, there are so many references in [traditional practice] to evil karma. And when you talk, you’re talking about something much more basic, about acts and deeds that just *are*, and it’s very much broader than [that]. But then at the very end, almost the last thing you said, when you came back to talk about karma, I thought you said maybe it’s not so good, or something like that. What do you mean? [...]
 
@@ -204,7 +222,7 @@ So what is karma? *[He laughs.]* Finally you don’t know. Karma is bad, or karm
 
 I don’t know what karma is. But I can feel it practically, deeply. [There is] something about karma extending into the past, present, future. 
 
-#### 2-29:23
+#### 2 29:23
 
 **Question:** I understand how there can be an individual karma and a non-individual karma, but I wondered if you could say any more about how non-individual karma can apply to a certain group, like a Japanese karma, or an American karma, or a Brazilian karma. I don’t understand how there can be a non-individual karma that applies to a group, rather than to all things. 
 
@@ -246,7 +264,7 @@ That’s why we have to be careful. For instance, we are creating nuclear weapon
 
 That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Breathing out, I smile with joy.” What is this practice? What does he mean? No discussion... but still, discussion there. But I think sooner or later we have to stop discussing, and then day-by-day we have to build up peace in the very complicated overall picture of global existence, so-called human being. This is our peace work, [religiously speaking.]
 
-#### 2-41:05 end of recording
+#### 2 41:05 end of recording
 
 ---
 
