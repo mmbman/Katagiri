@@ -27,6 +27,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**March 4, 2024:** Updated [Karma in Buddhism](1987-05-23-Karma-in-Buddhism).
+
 **February 29, 2024:** Updated [Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
 
 **February 27, 2024:** Updated [Karma: Conclusion](1980-07-12-Karma-Conclusion).
