@@ -584,7 +584,7 @@ External links:
 
 ## Karma
 
-- [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+- [Karma: Twelve Chains of Causation](1980-07-01-Karma-Twelve-Link-Causation)
 - [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 
 - [Fukanzazengi – Talk 3 (30:12-39:28)](1979-06-11-Fukanzazengi-Talk-3#3012)

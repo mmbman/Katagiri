@@ -17,7 +17,7 @@ Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it i
 
 ---
 
-##### [Twelve-Link Causation](1980-07-01-Karma-Twelve-Chains-Of-Causation)
+##### [Twelve-Link Causation](1980-07-01-Karma-Twelve-Link-Causation)
 ###### July 1, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi completely explains the The Twelve-Linked Chain of Causation... presumably, but the audio is lost. However, there is substantial review of the topic in the talks following this one.
