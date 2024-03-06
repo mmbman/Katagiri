@@ -20,11 +20,15 @@ Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *
 
 **Katagiri Roshi:** This morning I would like to talk about the [karma](glossary#karma) which is one’s individual karma and simultaneously is not individual, is completely beyond our individual control. This is also [an aspect of] karma. 
 
-Within karma we can realize a very contradictory situation. Karma is always within individual life: there is no other way that we [can] take responsibility for our actions or our individual life. On the other hand, karma is completely beyond individual control. Regardless of whether you like or dislike it, regardless of whether you control it or not, or regardless of whether it is something created by somebody else, or whatever it is, anyway, it is completely beyond your control. But as long as it is within you, it is something you have to take responsibility for. So that is very contradictory! 
+Within karma we can realize a very contradictory situation. Karma is always within individual life: there is no other way that we [can] take responsibility for our actions or our individual life. On the other hand, karma is completely beyond individual control. Regardless of whether you like or dislike it, regardless of whether you control it or not, or regardless of whether it is something created by somebody else, or whatever it is, it is completely beyond your control. But as long as it is within you, it is something you have to take responsibility for. So that is very contradictory! 
 
-That is also a very important point: we have to understand karma, and how we should be free from karma. But it takes time. It really takes time. But if you study [Buddhism](glossary#buddhism), you understand [this] very well. 
+That is also a very important point: we have to understand karma, and how we should be free from karma. But it takes time. It really takes time. But if you study [Buddhism](glossary#buddhism), you [will] understand [this] very well. 
 
-In Zen Buddhism we have a certain stages of *dhyāna*, meditation. Yesterday I told you [about] four stages of meditation. This is really Zen meditation, which everyone can experience in the realm of *form*, the world. There are... well, I don't know how to explain this. *[He laughs]*. I'll go a different way. *[Laughter.]*
+#### 2:09
+
+In Buddhism we have a certain stages of *dhyāna*, meditation. Yesterday I told you [about] four stages of meditation. This is really Zen meditation, which everyone can experience in the realm of *form*, the world. There are... well, I don't know how to explain this. *[He laughs.]* I'll go a different way. 
+
+(*Transcriber’s Note:* He covers this topic, *the triple world*, in the next talk.)
 
 #### 3:12
 
@@ -36,11 +40,13 @@ If I say, “I am Katagiri”: I know who I am; but how much do I know? Just a s
 
 That is really the basic nature of human life, which is called *avidyā*. *Avidyā* is not karma, but it is a *quality* of the karma. In other words, [it supports] karma, [preserves] karma. So it's really pain, *affliction*. In Sanskrit *avidyā* is *klesha*. *Klesha* is not exactly ignorance, but we say *klesha* is a pain or affliction. 
 
-So [*avidyā* is] the very basic nature of pain, or affliction, or [*suffering*](glossary#suffering). That's why [Buddha](glossary#buddha) says life is characterized by suffering. We are right in the middle of the truth, but we don't know. We are really doomed not to know. We’re not trying to ignore it, we want to know, but we don't know; we are “doomed”. That is really by *avidyā*, ignorance.
+So [*avidyā* is] the very basic nature of pain, or affliction, or [*suffering*](glossary#suffering). That's why [Buddha](glossary#buddha) says life is characterized by suffering. We are right in the middle of the truth, but we don't know. We are really doomed not to know. We’re not trying to ignore it, we want to know. But we don't know; we are “doomed.” That is really by *avidyā*, ignorance.
 
 So the quality of karma is *ignorance*. When you talk about karma as *samskara*, remember this point. 
 
-And also, karma as *bhava* (*existence*). Karma becomes the mainspring of one's present world because karma as *samskara* is the first movement. What movement? It's based on *affliction*, pain. We are there; this is the very first movement of human beings. And then, this movement is really the driving force of leading human beings to enter the human world, the dualistic world. That is *consciousness*, *name and form*, *six consciousnesses*, *contact*, *feeling*, *craving*, and *grasping*, and then *existence*. So, exactly this karma as *samskara* is really the mainspring of leading you to enter into the human world. That is what is called *existence*; karma as existence. 
+And also, karma as *bhava* (*existence*). 
+
+Karma becomes the mainspring of one's present world because karma as *samskara* is the first movement. What movement? It's based on *affliction*, pain. We are there; this is the very first movement of human beings. And then, this movement is really the driving force of leading human beings to enter the human world, the dualistic world. That is *consciousness*, *name and form*, *six consciousnesses*, *contact*, *feeling*, *craving*, and *grasping*, and then *existence*. So, exactly this karma as *samskara* is really the mainspring of leading you to enter into the human world. That is what is called *existence*; karma as existence. 
 
 So from this point, you know pretty well, karma as existence is what? Already pain, affliction. We don't know what the truth is, but we want to know, but we cannot know. So finally, we don't know what to do, but that is already the first movement. That's why the quality of the first movement is affliction. And then, already this movement guides you in how to create the human world. That is *consciousness*. 
 
@@ -88,35 +94,51 @@ So that is what is called *unmanifested karma*. [It is] piled up in your life in
 
 #### 27:09
 
-But this unmanifested karma is not something “weak” or “strong.” It’s not [some kind of] “sin.” It’s not original sin; it’s not some original weakness or some original strength. This unmanifested karma is characterized by what in Buddhism is called *neutral nature*. Perfectly neutral nature: [there is no way] to put a certain label on this unmanifested karma, which is called good or bad, right or wrong. [It is] completely beyond the moral sense. 
+But this unmanifested karma is not something “weak” or “strong.” It’s not [some kind of] “sin.” It’s not original sin; it’s not some original weakness or some original strength. This unmanifested karma is characterized by what in Buddhism is called *neutral nature*. Perfectly neutral nature: [there is no way] to put a certain label on this unmanifested karma which is called good or bad, right or wrong. [It is] completely beyond the moral sense. 
 
-[In Japanese,] we say *mufuku-muki*. *Mu* is “nothing”; *fuku* means “covered.” *Covered* means covered with moral sense: good or bad, right or wrong – or neutral, that is also *covered*. So *mufuku* means *no cover*, completely nothing to cover. And also *muki* means *neutral*. That neutral sense [of *muki*] is part of moral sense, but *mufuku* is completely “no cover”, so this *neutral nature* is the pure sense of the neutral nature of morality. That is *unmanifested karma*. 
+[In Japanese,] we say *mufuku-muki*. *Mu* is “nothing”; *fuku* means “covered.” *Covered* means covered with moral sense: good or bad, right or wrong – or neutral, that is also *covered*. So *mufuku* means *no cover*, completely nothing to cover. And also *muki* means *neutral*. That neutral sense [of *muki*] is part of moral sense, but *mufuku* is completely “no cover,” so this *neutral nature* is the pure sense of the neutral nature of morality. That is *unmanifested karma*. 
 
-If it is true, if we have carried this unmanifested karma from the beginningless past, then everybody has carried unmanifested karma from the beginningless past in that way. That is what is called *human being*, that is what is called *this table*, et cetera. If it is true, why is it that we have *different* karma? You are different from me: you are American, I am Japanese. Why is it that we have to have a different type of karma? This is a big question. 
+If we have carried this unmanifested karma from the beginningless past, then everybody has carried unmanifested karma from the beginningless past in that way. That is what is called *human being*, that is what is called *this table*, et cetera. If it is true, why is it that we have *different* karma? You are different from me: you are American, I am Japanese. Why is it that we have to have a different type of karma? This is a big question. 
 
-This question is really closely related with the neutral nature of morality which unmanifested karma has. That perfect neutral nature of morality means you simply cannot put a certain moral label on that unmanifested karma – good, bad, or even neutral. I don’t know any word for that, that’s why I use [the term] *neutral nature*. But [it’s] completely nothing; you simply cannot put any label on it. This is unmanifested karma. 
+This question is closely related with the neutral nature of morality which unmanifested karma has. The perfect neutral nature of morality means you simply cannot put a certain moral label on that unmanifested karma – good, bad, or even neutral. I don’t know any word for that, that’s why I use [the term] *neutral nature*. But completely nothing; you simply cannot put any label on it. This is unmanifested karma. 
 
-But how is it we create a different world? In Buddhism, we say *interdependent co-origination*; this is also a very important teaching for us. If you don’t understand this, pay careful attention to your reality, your life, every day. Very naturally, you will understand. What is *existence*? Existence is a form of *being* created by countless number of elements. It is not created by some particular person or being, or other beings. In Buddhism, *existence* is that which is produced by countless number of elemental conditions. 
+But how is it we create a different world? In Buddhism, we say *interdependent co-origination*; this is also a very important teaching for us. If you don’t understand this, pay careful attention to your reality, your life, every day. Very naturally, you will understand. 
 
-I told you before about smoking cigarettes. Forget it; you understand that. But the first question is, why is it I started to smoke? I don’t know. I have a reason: because I wanted to help my father. But this is *my* reason; I try to “justify” my life. *[He chuckles.]* Why did I smoke? Because I wanted to help my father. But this is nothing but justifying my life. But see more deeply: *why*? Well, finally I can say, maybe I have smoked from the beginningless past, because I have done it in that way for many, many years. And then, I started to smoke. Maybe so. 
+What is *existence*? Existence is a form of *being* created by countless number of elements. It is not created by some particular person or being, or other beings. In Buddhism, *existence* is that which is produced by countless number of elemental conditions. 
 
-For instance, why do you have breakfast? Why do you have to go to sleep? Do you know why? Of course, you can explain. But that explanation is just an intellectual explanation, biologically, whatever it is. Strictly speaking, finally, see more deeply: *why*? Finally you can say, “Well, I have a custom of sleeping at night, for many, many years.” 
+I told you before a little about smoking cigarettes. Forget it; you understand that. But the first question is, why is it I started to smoke? I don’t know. I have a reason: because I wanted to help my father. But this is *my* reason; I try to justify my life. *[He chuckles.]* “Why do you smoke?” “Because I want to help my father.” But this is nothing but justifying my life. See more deeply: *why*? Well, finally I can say, maybe I have smoked since the beginningless past. Because I have done it in that way for many, many years; and then, I started to smoke. Maybe so. 
 
-If you say, “No, you should work at night” – of course, maybe you can work at night. One of my friends always worked at night from eleven to seven. So he was very accustomed to being awake all night. But still he had a problem [...] Of course, you can sleep in the daytime, but that sleeping is not exactly the same as sleeping at night. So, still exhaustion is there, a different feeling is there. Anyway, that’s why finally we have a custom like this, we have a habit. We have had a habit in that way for many, many years. That’s why we have breakfast, or why we sleep at night. So this is very natural. Finally, you can say so. 
+For instance, why do you have breakfast? Why do you have to go to sleep? Do you know why? Of course, you can explain. But that explanation is just an intellectual explanation – biologically, whatever it is. Strictly speaking, see more deeply: *why*? Finally you can say, “Well, I have a custom of sleeping at night for many, many years.” 
 
-The question is, what is this custom that makes you sleep at night? This is *unmanifested karma*. We have done [it] for many, many years. And also, this *unmanifested karma* is always stored in your body and mind. It’s really a “good boy.” [It does] nothing to interrupt your life; it’s always in your life as unmanifested karma, it doesn’t appear. If it doesn’t appear on the surface, well, no one knows, and you don’t know either – so it doesn’t bother [anyone]. That is what is called *neutral nature*; completely neutral. 
+If you say, “No, you should work at night” – of course, maybe you can work at night. One of my friends always worked at night from eleven to seven. So he was very accustomed to being awake all night. But still he had a problem. [...] Of course, you can sleep in the daytime, but that sleeping is not exactly the same as sleeping at night. So, still exhaustion is there, a different feeling is there. 
 
-#### 38:30
+Anyway, that’s why finally we have a custom like this, we have a habit. We have had a habit in that way for many, many years. That’s why we have breakfast, or why we sleep at night. So this is very natural. Finally, you can say so. 
 
-But, sometimes [unmanifested karma] *happens*, it comes up. So in other words, your body and mind is a big storage. You store lots of “goods”: good karmas, evil karmas, neutral karmas are stored there. And the “door” of storage is completely closed. No one knows how to open that door. Even the gods, even divinity doesn’t know how to open it. Only one thing knows how to open that door: that is what is called *time and occasion and conditions*. When the time is right, conditions are arranged, the door immediately opens. And then, a bubble comes up. 
+The question is, this custom makes you sleep at night now, but what is this custom? This is *unmanifested karma*. We have done [it] for many, many years. 
+
+#### 37:37
+
+And also, this *unmanifested karma* is always stored in your body and mind. It’s exactly a “good boy.” [It does] nothing to interrupt your life; it’s always in your life as unmanifested karma, it doesn’t appear. If it doesn’t appear on the surface, well, no one knows, and you don’t know either – so it doesn’t bother [anyone]. That is what is called *neutral nature*; completely neutral. 
+
+But, sometimes it *happens*, it’s coming up. 
+
+So in other words, your body and mind is a big storage. You store lots of “goods”: good karmas, evil karmas, neutral karmas are stored there. And the “door” of storage is completely closed. No one knows how to open that door. Even the gods, even divinity doesn’t know how to open it. Only one thing knows how to open that door: that is what is called *time and occasion and conditions*. When the time is right, conditions are arranged, the door immediately opens. And then, a bubble comes up. 
 
 That’s why you don’t know. For instance, smoking cigarettes. You know pretty well intellectually that you should stop it: “Yes, I know.” But you cannot stop, because you smoked. Again, *why*? Your will? No, not by your will. By one of the certain consciousnesses? No. Instinct? No. Your friends? No. Completely there is a very simple reason: there is a time, there is an occasion, there are conditions, and then all are arranged and ripe. And then, you smoke. That’s all.
 
-And also, that time and occasion and conditions are really closely related with the karma you did in the past. You left something like an impression remaining behind your actions. That is called *unmanifested karma*. That is “stored”; and then, it comes up. 
+And also, that time and occasion and conditions are really closely related with the karma you did in the past, and you left something like an impression remaining behind your actions. That is called *unmanifested karma*. That is “stored”; and then, it comes up. 
 
-That’s why, very naturally, in our present life you can see different lifestyles, different types of human life. Broadly speaking, if you say *karma*, karma is with you, and also karma is completely *beyond* human control. At that time everyone is the same, all human beings are exactly the same. Everyone has the same karma: that is *ignorance*, *avidyā*. *Affliction*; *suffering*. And then we are doomed not to know exactly what the truth is. This is the very universal nature of the human world, which is called *dualism*, the dualistic world. But in the dualistic world, there are different types of human life; that is what is called *individual karma*. We have individual karma. How do we create this individual karma? Because you have done [so] for many, many years. And then, you have breakfast now. Why? Because we have had that custom for many, many years, and then when the time and conditions are arranged exactly, you want to have breakfast. [...] This unmanifested karma is really stored individual life. If the door of the storage doesn’t open, you are exactly the same person as others. But when this door of the storage is open, it’s different. 
+That’s why, very naturally, in our present life you can see different lifestyles, different types of human life. 
 
-Different types of individual life is really action, every day. For instance, I sit like this, and even though all of you sit in the same posture – it’s different! Don’t you think so? Or even though you gassho, or even though you smile, it’s different, your smile is different. How wide do you smile? When I went to a conference in Chicago, after the lecture at the fraternity, one of the students asked me, “Why do you have your mouth just like this?” *[Laughter.]* Wow! I didn’t notice that! So I just sat down like this. And then people asked me, “Why do you have your mouth closed like that?” So I said, “Why were you born in this world as an American?” *[Lots of laughter.]* 
+Broadly speaking, if you say *karma*, karma is with you, and also karma is completely beyond human control. At that time everyone is the same, all human beings are exactly the same. What is the point? Everyone has the same karma: that is *ignorance*, *avidyā*. *Affliction*; *suffering*. And then we are doomed not to know exactly what the truth is. This is the very universal nature of the human world, which is called *dualism*, the dualistic world. 
+
+But in the dualistic world, there are different types of human life; that is what is called *individual karma*. We have individual karma. How do we create this individual karma? Because you have done [so] for many, many years. And then, you have breakfast now. Why? Because we have had [a] custom for many, many years, and then when the time and conditions are arranged exactly, you want to have breakfast.
+
+This unmanifested karma is really stored individual life. If the door of the storage doesn’t open, you are exactly the same person as others. But when this door of the storage is open, it’s different. 
+
+So different types of individual life are really action, every day. For instance, I sit like this, and even though all of you sit in the same posture – it’s different! Don’t you think so? Or even though you gassho, or even though you smile, that’s different. Your smile is different. 
+
+Why do you smile in that way? When I went to a conference in Chicago, after a lecture I sat down at the fraternity. One of the students asked me, “Why do you have your mouth just like this?” *[Laughter.]* Wow! I didn’t notice that. So I just sat down like this, and then people asked me, “Why do you have your mouth closed like that?” So I said, “Why were you born in this world as an American?” *[Lots of laughter.]* 
 
 This is unmanifested karma. When the unmanifested karma appears, it is really your action, daily action. When you do... 
 
@@ -124,9 +146,11 @@ This is unmanifested karma. When the unmanifested karma appears, it is really yo
 
 ... always a different type of human world. 
 
-That’s why we have to take responsibility for individual behavior. Whatever it is – good or bad, right or wrong – we have to take responsibility. Just like *just do it*. *Not* like *no plan*. You cannot take care of human life with *no plan*. So you should take care of [it], because every day, you manifest yourself, which is called *as you are*, which is different from others. This is your daily actions. That is really something different from others; that’s why you have to take responsibility for your doings, whatever it is, good, or evil, or neutral. 
+That’s why we have to take responsibility for individual behavior. Whatever it is – good or bad, right or wrong – we have to take responsibility. Just like *just do it*; not like *no plan*. You cannot take care of human life with *no plan*. So you should take care of [it], because every day, you manifest yourself, which is called *as you are*, which is different from others. This is your daily actions. That is completely something different from others; that’s why you have to take responsibility for your doings, whatever it is, good, or evil, or neutral.
 
-And also, that different individual action comes from universal karma. Universal karma is that everyone exists in the dualistic world, analyzing, synthesizing, and always trying to understand intellectually. This is very common, which is [also] called karma. Broadly speaking, there are two types of karma. One is *public karma*. Public karma means universal karma; everyone has the same karma. Even you and I have the same karma as human beings, what is called *avidyā*; affliction. And then, [we] start to move. And then the other karma is *individual karma*. That is, you are American, I am Japanese; and also, you do something in different ways from me. 
+And also, that different individual action comes from universal karma. Universal karma is that already everyone exists in the dualistic world, analyzing, synthesizing, and always trying to understand intellectually. This is very common, which is [also] called karma. 
+
+Broadly speaking, there are two types of karma. One is *public karma*. Public karma means universal karma; everyone has the same karma. Even you and I have the same karma, as human beings, which is called *avidyā*; affliction. And then, we start to move. And then the other karma is *individual karma*. That is, you are American, I am Japanese; and also, you do something in different ways from me. 
 
 Do you have questions? 
 
@@ -134,39 +158,51 @@ Do you have questions?
 
 **Question:** When you stopped smoking, did *will* figure into that, as well as all the circumstances being ripe? Or could [it] always come back, at any time, if the time is ripe?
 
-**Katagiri:** Well, you have to use your will very often. But the perfect situation, when time is right and conditions are arranged, is completely beyond your will. You can just be there – right on. At that time, very naturally you can stop. That was my case. But until this, you have to [defeat it] again and again, using your will: “I want to stop it.” So you stop – for two days, three days, for a week, or sometimes two months, three months, et cetera. You start again, but you try to stop again. And then finally I said, “How stupid I am,” so I stopped. [No chance to smoke.] But even though I decided in that way, smoking is very interesting to my body. So, sooner or later. Still, I cannot continue to do this, so I always think, “I should stop – someday.” That is my hope; always aiming at the hope.
+**Katagiri:** Well, you have to use your will, very often. But the perfect situation, when time is right and conditions are arranged, is completely beyond your will. You can just be there – right on. At that time, very naturally you can stop. That was my case. 
 
-Even though you smoke or whatever [you do], under all circumstances, always, there is hope. If you always aim at the hope, when the time comes [in] daily life, if conditions are arranged, you can be just right on. That happened [to me] in San Francisco, at Sokoji temple. There was a seven day sesshin *[he laughs]* – no smoking. Of course you can smoke outside, but, [I thought,] “Oh this is good chance, so let’s stop smoking.” So I just stopped smoking. No suffering. That is really that the time was ripe, conditions arranged – just right on. I didn’t worry if after that, maybe I could smoke again, or not. I didn’t think; just be right on. And after the sesshin, I didn’t feel anything at all. So no problem.
+But until this, you have to [repeat] again and again, using your will: “I want to stop.” For two days, three days, for a week, or sometimes two months, three months, et cetera. You start again, but you try to stop again. 
 
-**Question:** Hojo-san, when you say you have that hope, is it in your mind, like while you’re smoking you have the hope that you won’t smoke?
+And then finally I said, “How stupid I am,” so I stopped. [No chance to smoke.] But even though I decided in that way, smoking is very interesting to my body. So, sooner or later. Still, I cannot continue to do this, so I always think, “I should stop – someday.” That is my hope; always aiming at the hope.
+
+So even though you smoke or whatever [you do], under all circumstances, always there is hope. If you always aim at the hope, when the time comes [in] life, if conditions are arranged, you can be just right on. 
+
+That happened [to me] in San Francisco, at Sokoji temple. That was a seven day sesshin *[he laughs]* – no smoking. Of course you can smoke outside, but, [I thought,] “Oh this is a good chance, so let’s stop smoking.” So I just stopped smoking. No suffering. That is really that the time was ripe, conditions arranged – just right on. I didn’t worry if after that maybe I could smoke again, or not. I didn’t think; just be right on. And after the sesshin, I didn’t feel anything at all. So no problem.
+
+**Question:** Hojo-san, when you say you had that hope, is it in your mind, like while you’re smoking you have the hope that you won’t smoke?
 
 **Katagiri:** Well, [...] not only the mind and the body, anyway. Mind, well you can think, you know, hope. You can be mindful of hope. 
 
 **Same person:** So you envision another...
 
-**Katagiri:** Sure, you can say *envision*, you can say *imagine* – *[he laughs with people]* – whatever it is. 
+**Katagiri:** Sure, you can say *envision*, you can [say *imagine*] – *[he laughs with people]* – whatever it is. 
 
 #### 52:15
 
-**Question:** Roshi, what is the relationship of *will* to *karma*. The first day, you said something about karma being a place of freedom as well, in order to change your life. 
+**Question:** Roshi, what is the relationship of *will* to *karma*? The first day, you said something about karma being a place of freedom as well, in order to change your life. 
 
-**Katagiri:** Yes. That’s why Buddhism explains the original nature of human structure based on dependent co-origination. It means everything is moving dynamically. Do you remember I gave you an example: turning the coins on the bottom of the string? This is the original nature of human existence: this is nothing but movement, which is called energy. And then, if something is really moving, the movement or the function of the energy [is never alone] without leaving anything; always something is left behind. That is what is called *circle*. [That is] *provisional being* – which seems to be a solid being, but it’s not a solid being. Only when you take a picture with your consciousness do you believe that that is a solid being which is called *circle*. But it’s not *really* solid.
+**Katagiri:** Yes. That’s why Buddhism explains the original nature of human structure based on dependent co-origination. It means everything is moving dynamically. 
 
-Karma is the same. Original nature, real karma, is nothing but the movement. That is energy. That’s why I told you yesterday the quality of the karma is *avidyā* (ignorance), but this is nothing but the energy which leads you to get into the human world! So at that time, karma is just like vitality; life. It’s really good vitality, don’t you think so? Without this, you cannot live in this world. 
+Do you remember I gave you an example: turning the coins on the bottom of the string? This is the original nature of human existence: this is nothing but movement, which is called energy. And then, if something is really moving, the movement or the function of the energy [will] never be alone without leaving anything; always something is left behind. That is what is called *circle*. [That is] *provisional being* – which seems to be a solid being, but it’s not a solid being. Only when you take a picture with your consciousness, you believe that is a solid being which is called *circle*. But it’s not *really* solid.
 
-Well, according to the dualistic sense, your intellectual sense, you can think that. But what is *vitality*? Vitality is that day by day, you have to *arrive*. Whatever happens, under all circumstances, we have to be alive, day by day; this is vitality. You can do this. And also *vitality* is [the] form of the dualistic world, and it is also the nature of karma. So very naturally, what is real karma? Karma is just energy. Turning on, constantly. Moving in all directions – not only [in a] circle, okay? It’s moving in all directions. If you see the original nature of karma like this, if you *really* understand this, that is what is called *freedom*. 
+Karma is the same. Original nature, real karma, is nothing but the movement. That is energy. 
+
+That’s why I told you yesterday the quality of karma is *avidyā* (ignorance), but this is nothing but the energy which leads you to get into the human world! So at that time, karma is just like vitality; life. It’s really good vitality, don’t you think so? It’s vitality! Without this, you cannot live in this world. 
+
+Well, according to the dualistic sense, your intellectual sense, you can think that. But what is *vitality*? Vitality is that day by day, you have to *arrive*. Whatever happens, under all circumstances, we have to be alive, day by day. This is vitality. 
+
+You can do this, and also *vitality* is [the] form of the dualistic world, and also this is the nature of karma. So very naturally, what is real karma? Karma is just energy. Turning on, constantly. Moving in all directions – not only [in a] circle, okay? It’s moving in all directions. If you see the original nature of karma like this, if you *really* understand this, that is what is called *freedom*. 
 
 That’s why I told you the example. Even though you create your karma and carry it to the present, [karma] is completely with you, [it’s yours,] and also it is completely beyond your control. But that is understanding. [...] So, all you have to do is just totally accept your karma, and then get a taste of this karma. And then at that time, when you get a taste of this karma, very naturally you can see your life a little bit turning over a new leaf.
 
-For instance, if I behave in a strange way, and you say, “You are strange.” If I understand this, if I accept it totally, I can say, “Yes!” If I say “yes,” it’s already turning over a new leaf. But if I say, “No, I’m pretty usual” – at that time, I continue to behave in a funny way.
+For instance, if I behave in a strange way, and you say, “You are strange.” If I understand this, if I accept it totally, I can say, “Yes!” If I say “yes,” it’s already [turning into a new life]. But if I say, “No, I’m pretty usual” – at that time, I continue to behave in a funny way.
 
-So, that is nothing but movement, vitality. So if you understand this karma, completely no control and also this is yours, but if you understand karma just like that, you fall into pessimism or fatalism – because you just understand it intellectually. But this is not something you should understand intellectually. Your karma that you have carried for many many years is not a matter of understanding, but a matter of penetrating your skin and muscle. That means total acceptance. And then, at that time, you can turn over a new leaf. That turning over a new leaf is exactly connected with the teaching, which is called dynamism, or energy. Nothing but energy: the mainspring of [creative] vitality. 
+So, that is nothing but movement, vitality. So if you understand this karma, completely no control and also this is yours. But if you understand karma just like that, you fall into pessimism or fatalism – because you understand it intellectually. But this is not something you should understand intellectually. Your karma that you have carried for many, many years is not a matter of understanding, but a matter of penetrating your skin and muscle. That means total acceptance. And then, at that time, you can turn over a new leaf. That turning over a new leaf is exactly connected with [the] teaching which is called dynamism, or energy. Nothing but energy: the mainspring of creating vitality. 
 
 #### 58:55
 
-**Question:** Hojo-san? You know the will is futile against karma. You say you vow to quit smoking, yet you continue to smoke. Do you think though that that is necessary in order to reach that point of ...
+**Question:** Hojo-san? [You know] the will is futile against karma. You know, you say you vow to quit smoking, yet you continue to smoke. Do you think though that that is necessary in order to reach that point of ...
 
-**Katagiri:** Maybe so. It depends on the individual; it’s different. But anyway, we have to use the will, and your determination, your consciousness, et cetera – because you are already [an] existent being, okay? Being is constant change, and also beings are always right in the middle of the dualistic world. So we have to use [the will].
+**Katagiri:** Maybe so. It depends on the individual; it’s different. But anyway, we have to use the will, and your determination, your consciousness, et cetera – because you are already existent, being, okay? So being is constant change, and also beings are always right in the middle of the dualistic world. So we have to use [it].
 
 #### 59:58
 
@@ -174,7 +210,7 @@ So, that is nothing but movement, vitality. So if you understand this karma, com
 
 **Katagiri:** The karma which you did in the past is karma stored in your life not as something particular. It’s already quiet. This is your storage. So, if you don’t touch it, it doesn’t appear. Very naturally it disappears, if you don’t touch it. *If you don’t touch it* means if you don’t create a certain time and occasion and conditions by yourself. 
 
-For instance, if yesterday I stole a ten dollar bill from someone’s pocket. And then today, I thought, “I shouldn’t do that.” [...] And then, if I create the time and occasion and conditions of stealing the ten dollars or five dollars, et cetera, immediately I think, “Oh, I don’t want to.” I can [repent]. 
+For instance, if yesterday I stole a ten dollar bill from someone’s pocket. And then after that, I thought, “I shouldn’t do that.” But today, well, I still shouldn’t. And then if I create the time and occasion and conditions of stealing the ten dollars or five dollars, et cetera, immediately I think, “Oh, would like to.” I can repeat.
 
 **Same person:** But you could also stop and pay somebody back. 
 
@@ -182,13 +218,13 @@ For instance, if yesterday I stole a ten dollar bill from someone’s pocket. An
 
 **Same person:** And say, “by my will, I did it, but now”...
 
-**Katagiri:** That is good karma. If you turn it in or give it back, that is good karma, even after this. But this karma is also unmanifested karma you can store in your life. Any good karmas or evil karmas [are] stored in your life, which doesn’t appear. Only when the time and conditions are arranged – naturally arranged, or *you* arrange something. At that time, it comes up. But if you don’t, very naturally, unmanifested karma disappears. And then if you always create good karmas every day, you can store good karmas.
+**Katagiri:** Sure. That is good karma. If you turn it in or give it back, that is good karma, even after this. But this karma is also the unmanifested karmas you can store in your life. Any good karmas or evil karmas [are] stored in your life, which doesn’t appear. Only when the time and conditions are arranged – naturally arranged, or *you* arrange something. And then at that time, it comes up. But if you don’t, very naturally unmanifested karma disappears. And then if you always create good karmas every day, you can store good karmas.
 
 #### 1:03:00
 
-**Question:** Hojo-san? You were saying how when the time is right it happens, like you can let go of smoking. We talk about great determination – how does that fit in? 
+**Question:** Hojo-san? You were saying how when the time is ripe it happens, like you can let go of smoking. We talk about great determination – how does that fit in? 
 
-**Katagiri:** Determination is [when] all elemental conditions come together, and then that creates determination. Your will and all environments come together, and *then* you can have great determination.
+**Katagiri:** Well, determination is only all elemental conditions come together, and *then* that creates determination. Your will and all environments come together, and *then* you can have great determination.
 
 **Same person:** Oh. So great determination is dependent on the right time and ...
 
@@ -204,17 +240,21 @@ For instance, if yesterday I stole a ten dollar bill from someone’s pocket. An
 
 **Katagiri:** Mmm-hmm. (Yes.)
 
-**Same person:** But yet it radically transforms from one life to the next? You know, your smoking habit is probably not because you smoked in your last life, but could be because you were in a fire or something like that?
+**Same person:** But yet it radically transforms from one life to the next? You know, say, your smoking habit is probably not because you smoked in your last life, but could be because you were in a fire or something like that?
 
-**Katagiri:** I don’t understand your point...
+**Katagiri:** I understand your point, but...
 
 **Same person:** My point was just asking whether it was radically transformed from one life to another. 
 
-**Katagiri:** When karma transforms from one life to another? 
+**Katagiri:** Will karma transform from one life to another? 
 
 **Same person:** Yes. It’s the same, but yes, it takes on different forms.
 
-**Katagiri:** You mean that your karma can be carried on toward the future? From the past, to the future? Well, sure. Even though I tell you that now I don’t smoke, there is no guarantee! Of course I have quit now, but there is no guarantee. Probably I could smoke again. So still I carry my karmas; any time the door is opened. But no one can touch it; only the time and conditions can open that door, [then] they come up. So that’s why if you understand karma and human life very deeply through meditation, you become more careful of taking care of your life. Because of time and conditions. Even though you say “I am a great person” – a good person, mature person, whatever you say – that’s just your understanding; it is no guarantee. If you are mature, that fact is okay, we should take care of it. You can be proud of yourself. But that pride is not a final thing you can depend on. The proud sometimes go to hell. *[Laughter.]* It’s really true.
+**Katagiri:** You mean that your karma can be carried on toward the future? From the past, to the future? Well, sure. Even though I tell you that now I don’t smoke, there is no guarantee! Of course I have quit now, but there is no guarantee. Probably I could smoke again. 
+
+So still I carry my karmas; any time the door is opened. But no one can touch it; only the time and conditions can open that door, [then] they come up. So that’s why if you understand karma and human life very deeply through meditation, you become more careful of taking care of your life. Because time and conditions. 
+
+Even though you say “I am a great person” – a good person, mature person, whatever you say – that’s just your understanding; it is no guarantee. If you are mature, that fact is okay, we should take care of it. You can be proud of yourself. But that pride is not a final thing you can depend on. The proud sometimes go to hell. *[Laughter.]* It’s really true.
 
 #### 1:07:00
 
@@ -224,15 +264,25 @@ For instance, if yesterday I stole a ten dollar bill from someone’s pocket. An
 
 **Same person:** Is it that or, could it be from – I don’t know what another explanation would be that I would now smoke. Would it come from something else other than that my ancestors smoked? The form that I manifest my karma in, is that the exact form that my ancestors’ had?
 
-**Katagiri:** Well whatever it is, if you *do* whatever, right now, in today’s life – smoking, or not smoking, whatever – probably you can ask why you smoke, you like or you don’t like, or whatever reason it is. But that reason is really just a little understanding of human life, because you want to justify your life. Finally, you realize whatever reason you have, it doesn’t fit to your life. [...] Finally you feel that reason is nothing but something you try to protect yourself with. Don’t you think so? So finally, *why* do you smoke? [...] That’s why finally, very naturally we try to understand a more deep level of human existence, connected with the past and the future, et cetera. *Why?* So very naturally through the present life, we can [peek at the] past life. That is karma. So maybe you did [something] in the past.
+**Katagiri:** Well whatever it is, if you *do* whatever, right now, in today’s life – smoking, or not smoking, whatever – probably you can ask why you smoke. You like or you don’t like, or whatever reason it is. But that reason is really just a little understanding of human life, because you want to justify your life. But finally, you realize whatever reason you have, it doesn’t fit to your life. *Why?* Finally you feel that reason is nothing but something you try to protect yourself with. Don’t you think so? 
 
-For instance, if maybe a few days ago a person walked on the bridge and immediately the bridge broke and he died. If someone survived right on the edge of the broken bridge – what’s the difference? Is there some reason? No reason. *Why?* We don’t know. Maybe he did something wrong in the past. The person who survived, maybe he did something good in the past. Well, that’s my theory. But it’s not necessary to put a certain label on it, okay? [Not putting a label on it] is a pretty good attitude toward human life, without too much arrogance. You can be very humble, modest toward human life. This is because you can see the long range of life. If you really understand just the present life, and then if you die on the bridge like that, you really get out of it, “Why did only *I* have to die?” Well, you died already from the story. *[He laughs.]* But this is really something that always happens. [It may be] only, “Why do I have to have a pain in zazen like this?” Well, you really are confused. Even [if it’s] good or bad, it’s really a narrow understanding. Narrow understanding really makes people arrogant. 
+So finally, why do you smoke? [...] That’s why finally, very naturally we try to understand a more deep level of human existence, connected with the past and the future, et cetera. *Why?* So very naturally through the present life, we can [peek at the] past life. That is karma. So maybe you did [something] in the past.
+
+For instance, if maybe a few days ago a person walked on a bridge, and immediately the bridge broke and he died. If someone survived right on the edge of the broken bridge – what’s the difference? Is there some reason? No reason. *Why?* We don’t know. 
+
+Maybe he did something wrong in the past. The person who survived, maybe he did something good in the past. Well, that’s my theory. But it’s not necessary to put a certain label on it, okay? [Not putting a label on it] is a pretty good attitude toward human life, without too much arrogance. You can be very humble, modest toward human life. This is because you can see the long range of life. If you really understand just the present life, and then if you die on the bridge like that, you really get out of it, “Why did only *I* have to die?” Well, you died already from the story. *[He laughs.]* But this is really something that always happens. [It may be] only, “Why do I have to have a pain in zazen like this?” Well, you really are confused. Even though [it’s] good or bad, it’s really a narrow understanding. Narrow understanding really makes people arrogant. 
 
 #### 1:12:42
 
-**Question:** If you’re constantly subject to the result of your earlier actions, how is it possible to be free from birth and death? If any time you’re alive, you’re constantly creating karma for the future, and there’s no way to be free from that, how is it that we can be free from birth and death? 
+**Question:** If you’re constantly subject to the result of your earlier actions, how is it possible to be free from birth and death? 
 
-**Katagiri:** That’s why we have to store unmanifested karma toward the future, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves an impression on our life, and we can carry on toward the future. At that time, we can carry this good karma as unmanifested karma, so very naturally you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage, and then good karma is stored in your life for the future. The moment when you store good karma, at that time [it becomes] unmanifested karma, this completely turns into neutral nature. So, there is nothing to say. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good. Then the karma appears. 
+**Katagiri:** Hmm?
+
+**Same person:** If any time you’re alive you’re constantly creating karma for the future, and there’s no way to be free from that, how is it that we can be free from birth and death? 
+
+**Katagiri:** That’s why we have to store unmanifested karma toward the future, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves an impression on our life, and we can carry on toward the future. At that time, we can carry this good karma as unmanifested karma, so very naturally you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage, and then good karma is stored in your life for the future. 
+
+The moment when you store good karma, at that time [it becomes] unmanifested karma. This completely turns into neutral nature. So, there is nothing to say. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good. Then the karma appears. 
 
 #### 1:15:03 end of recording
 
