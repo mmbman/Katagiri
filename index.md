@@ -27,6 +27,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**March 5, 2024:** Updated [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates).
+
 **March 4, 2024:** Updated [Karma in Buddhism](1987-05-23-Karma-in-Buddhism), [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects), and [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Link-Causation).
 
 **February 29, 2024:** Updated [Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
