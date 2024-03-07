@@ -7,7 +7,7 @@ title: "Karma: Taking Care of Karma"
 
 ### Summary
 
-Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
+Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This is why Dogen Zenji says, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ### Transcript
 
@@ -46,9 +46,7 @@ Dhyāna takes place in the world of form, and at that time, I told you before, w
 
 In the first stage of dhyāna, all unwholesome human behaviors *drop off*, exactly. You don’t believe this, but this is really true! In other words, the world of desires drops off. For instance, if you sit down like this, even though you get angry, you cannot express anger, or you cannot hit somebody. Anyway when you sit down, [you just] *sit down*, that’s all. Even though someone comes and gets angry and tries to hit you, it’s pretty hard to hit the person who is sitting quietly. Well, maybe somebody [is] there. *[He laughs.]* But don’t worry. 
 
-There are lots of stories [about this] in the history of Buddhism. In Japan, a *samurai* was about to be killed by an enemy, and at that time the samurai said, “Well, just a second, before you kill me, I would like to talk with you. Why don’t we drink a cup of *sake*?” *[He laughs.]* [So they drank sake]... and then very naturally, there is communication there. The samurai who was about to be killed, and the enemy, they are communicating with each-other, and they are very drunk. *[Laughter.]* 
-
-It’s not a trick. [But] you cannot do it in that way, because if you are on the verge of life and death, you really become nervous and confused; you cannot have such a wonderful faith. Can’t you imagine? 
+There are lots of stories [about this] in the history of Buddhism. In Japan, a *samurai* was about to be killed by an enemy, and at that time the samurai said, “Well, just a second, before you kill me, I would like to talk with you. Why don’t we drink a cup of *sake*?” *[He laughs.]* [So they drank sake]... and then very naturally, there is communication there. The samurai who was about to be killed, and the enemy, they are communicating with each-other, and they are very drunk. *[Laughter.]* It’s not a trick. You cannot do it in that way because if you are on the verge of life and death, you really become nervous and confused. You cannot have such a wonderful faith. Can’t you imagine? 
 
 So in the first stage of dhyāna, [all] unwholesome human behaviors drop off. That’s why the practice of meditation cannot start in the human world of desire. 
 
@@ -64,7 +62,7 @@ And also you experience *sukha*: this is *happiness*. In the realm of happiness,
 
 [Everyone can experience this.] That’s why if you really become one with zazen, that’s exactly the same as you become one with *you*. It’s the same thing. Zazen and you are different, but if you completely become one with zazen, that is exactly the same as you become *you* as you are. So, you feel good. [Maybe] intellectually you don’t like zazen, but beyond your speculation, you like it. You don’t know why. That is happiness, which is called *sukha*. 
 
-The [word] happiness you usually use is a little different. [That] happiness is always happiness opposed to unhappiness. But according to common sense, that happiness is sort of joyful interest. Still the six consciousnesses poke their head into each hole: “What’s in there?” That’s not happiness. If you believe that is happiness, that is really happiness opposed to unhappiness. Happiness is exactly happiness: becoming exactly one with zazen, or football, or painting, playing piano, or whatever it is. And also your consciousness is really clear; but it’s become one. At that time it is called *sukha*, happiness.
+The [word] *happiness* you usually use is a little different. [That] happiness is always happiness opposed to unhappiness. But according to common sense, that happiness is sort of joyful interest. Still the six consciousnesses poke their head into each hole: “What’s in there?” That’s not happiness. If you believe that is happiness, that is really happiness opposed to unhappiness. Happiness is exactly happiness: becoming exactly one with zazen, or football, or painting, playing piano, or whatever it is. And also your consciousness is really clear; but it’s become one. At that time it is called *sukha*, happiness.
 
 So at the first stage, you can experience *samadhi* and *sukha* and *prīti*, and also *vitarka* and *vicāra*. *Vitarka* means *thought*, and *vicāra* is *discursive thinking*. 
 
@@ -90,7 +88,7 @@ That is zazen [which] takes place in the world of *form*.
 
 #### 26:51
 
-And also, the question is, still [there are] four stages of zazen in the world of *formlessness!* That is really *deep*. *[He laughs.]* We don’t understand. So I will give you just the names of the four stages of zazen in the world of formlessness:
+And also, the question is, still [there are] four stages of zazen in the world of *formlessness!* That is really *deep*. *[He laughs.]* We don’t understand. So, I will give you just the names of the four stages of zazen in the world of formlessness.
 
 The first stage is: *the infinity of space*. 
 
@@ -99,8 +97,6 @@ Second: *the infinity of consciousness*.
 Third: *nothingness to resort to*.
 
 The fourth: *a state of concentration which goes beyond the matter of whether nothingness is allowed or not*. 
-
-(*Transcriber’s Note:* These correspond to the *samapattis*, “attainments”.)
 
 [In the fourth stage,] completely you can’t say anything at all. Nothing. So all you have to do is just be present. *Just* be present. This is the final goal, anyway. *[He chuckles.]* 
 
@@ -126,97 +122,113 @@ The first one is *contact*; in Sanskrit we say *sparśa*. And second is *feeling
 
 #### 36:37
 
-*Contact*, *sparśa*: this is not the contact which you have usually thought. (*Transcriber’s Note:* *contact* means contact of the six sense organs with six sense objects, plus six sense consciousnesses.) I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
+*Contact*, *sparśa*: this is not the contact which you have usually thought. I don’t know how you understand contact according to psychology, but in Buddhism, contact is not the idea of contact [from the] psychological point of view, contact is a little [more] broad. For instance, contact is just like a pillar in a building: big pillars connecting with the rafters and many things, and supporting the whole building. And also each of [the pillars] has recognized differences, and form a harmoniously connected whole. This is *sparśa*. Can you imagine this?
 
-So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their horns. *[He laughs.]* They’re really bumping into each other; this is *contact*. 
+So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their heads. *[He laughs.]* They’re really bumping into each other; this is *contact*. 
 
 #### 38:25
 
 So [contact] is really creating a certain function. When it works, like they’re hitting each other, at that time something happens. That is what is called *feeling*: *vedanā*. 
 
-Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like the] two goats bumping into each other – and if you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
+Vedanā is *reception*: to receive something. If they bump each other, your six [sense] organs contact with six [sense] objects, and then there is a big shock, [like the] two goats bumping into each other. If you get a shock, your body starts to work. That is feeling, vedanā. You immediately receive something. 
 
-And also when you receive something, there is the function which is called *grasping*: attaching to something. This is a quality of vedanā, feeling. (*Transcriber’s Note:* *upādāna* or grasping is the ninth link in Twelvefold Causation. It follows *taṇhā* or craving, which follows vedanā.)
+And also when you receive something, there is the function which is called *grasping*: loving or attaching to something. This is a quality of vedanā, feeling. (*Transcriber’s Note:* *Upādāna* or grasping is the ninth link in Twelvefold Causation. It follows *taṇhā* or craving, which follows vedanā.)
 
-And also, where the *vedanā* is located, that’s interesting. (*Transcriber’s Note:* It is not completely clear what “where the vedanā is located” means.) Essentially, feeling is very quiet, tranquil. You don’t know that, but the original nature of *vedanā* is very tranquil. And also, the original nature of *vedanā* creates wholesome behavior in the human mind. This is the original nature of human feeling. That’s why through feeling you can create the religious sense, and the musical or artistic sense. 
+And also, where the *vedanā* is located. [...] Essentially, feeling is very quiet, tranquil. You don’t know that, but the original nature of *vedanā* is very tranquil. And also, the original nature of *vedanā* creates wholesome behavior in the human mind. This is the original nature of human feeling. That’s why through feeling you can create the religious sense, and the musical or artistic sense. 
 
-That’s why we educate little children. You know the Japanese teacher of [violin] music, Mr. Suzuki? Suzuki’s Method. He teaches music to the little children. They don’t understand music, originally. But originally human beings have feeling. That feeling is really accepting everything. By bumping into each other, getting a big shock – that is *contact* – very naturally you can educate that feeling. Particularly in small children, it’s pretty easy to grow, to educate, such a quiet, tranquil feeling. That’s why Mr. Suzuki always teaches us in that way. 
+That’s why we educate the little children. You know the Japanese teacher of [violin playing], Mr. Suzuki? Suzuki’s [Method]. He teaches music to the little children. They don’t understand music, [...] but originally a human being has a *feeling*. That feeling is really [tranquil], accepting everything – by bumping into each other, getting the big shock. That is *contact*. So very naturally you can educate that feeling. Particularly in small children, it’s pretty easy to grow, to educate, such a quiet, tranquil feeling. That’s why Mr. Suzuki always teaches us in that way. 
 
-The same applies not only to music, but to religion, or sports, or whatever it is. That is, when you teach somebody when they are small, that’s pretty good. Even language, too: but not only teaching in a linguistic way, but teaching language through human feeling. They can get language through human feeling. In Japan, particularly music teachers pay careful attention to people who are under twenty. That is a very good time to teach somebody, in order to be a good musician, or carpenter, whatever it is. That’s a pretty good age. 
+The same applies not only to music, but to religion, or sports, or whatever it is. That is, when you teach somebody when they are small, that’s pretty good. Even language, too. But not only teaching in a [linguistic] way, but teaching language through human feeling. They can get language through the human feeling. So the teacher can teach in that way. 
 
-Maybe you know pretty well, when you are in high school, you can just concentrate on studying. In highschool, I memorized English terms by writing the terms on cards, the night before the examination. I didn’t forget them the next day. But later, when I went to university, I did it the same way, memorizing the English terms. Next day, I forgot everything! *[He laughs.]* You notice how different it is? Before twenty, it’s really easy to memorize, because your life is simpler than for people over twenty. If you’re over twenty, lots of things happen. *[He laughs.]*
+In Japan, particularly music teachers, or whoever it is, pay careful attention to people who are under twenty. That is a very good time to teach somebody, in order to be a good musician, or carpenter, whatever it is. That’s a pretty good age.
 
-So that’s why they always concentrate on educating young people like this. We have to educate [young people] in order to grow such tranquil human feelings. These little children learn human feeling through relationship with parents, and teachers, et cetera. 
+Maybe you know pretty well, when you are in high school, you can just concentrate on studying. In high school, I memorized English terms by writing the terms on cards, the night before the examination. I didn’t forget them the next day. But later, when I went to the university, I did it the same way, memorizing the English terms. Next day, I forgot everything! *[He laughs.]* You know how different it is? Before twenty, it’s really easy to memorize, because your life is very simple, simpler than for people over twenty. If you’re over twenty, lots of things happen. *[He laughs.]*
+
+So that’s why they always concentrate on educating young people like this. We have to educate [young people] in order to grow such human feelings, which are tranquil. These little children learn human feeling through relationship with parents, and teachers, et cetera. 
+
+That is *feeling*, *vedanā*.
 
 #### 45:24
 
-Next is *saṃjñā*: that is *perception*. This is a very interesting thing. Perception is just like a carpenter who recognizes what kind of wood they have to use, and also, next, the carpenter [puts a mark there]. [...] This is the quality of perception: if you put the mark, that putting the mark reminds you what kind of wood you should use. That means *re*-recognition. So first [there is] *recognition*, and second, the quality of perception is *re*-recognition. If you recognize something, you put a mark on your object, [so that you can immediately re-recognize it, so] you can know later what kind of wood you should use. 
+Next is *saṃjñā*: that is *perception*. This is a very interesting thing. 
 
-The function of perception is to attach individual understanding. Because the carpenter understands what kind of wood he needs, but that is the individual carpenter’s understanding of wood. That’s why he puts the mark on the wood.
+Perception is just like a carpenter who recognizes what kind of wood they have to use, and also, next, the carpenter [...] puts a mark there. [...] That putting the mark reminds you what kind of wood you should use. That means *re*-recognition. So first *recognition*, and second, the quality of perception is *re*-recognition. If you recognize something, you immediately put a mark on your object. So that putting a mark on the object is *re*-cognition. You can know, later, what kind of wood you should use.
 
-For instance, if you understand Zen, or Christianity, whatever, you have [an] experience of Christianity or Zen you understand. That is recognition. And then you put a mark on Christianity [or Zen]. That is your individual understanding. And then [the function of] this individual understanding is really to recognize; you recognize what kind of wood you need. Finally you say, “That is Christianity.” So you really attach to individual understanding. That is the function of perception. 
+At that time, the function of perception is to attach individual understanding. Because the carpenter understands what kind of wood he needs, but that is the individual carpenter’s understanding of wood. So that’s why he puts the mark on the wood.
 
-That is just like the blind men touching the elephant. That is an interesting story in the Buddhist scriptures: the king brings an elephant, and asks the blind men what it is. One blind man touches the ears of the elephant, and he says, “The elephant is just like a big fan.” Another is touching a leg, and says, “Oh, the elephant is just like a pillar!” *[He chuckles.]* That is really the function of perception. 
+For instance, if you understand Zen, or Christianity, whatever. You have [an] experience of Christianity or Zen you understand. That is recognition. And then you put the mark on Christianity. That is *your* individual understanding. And then this individual understanding is really [to] *re-cognize*. You really re-cognize what kind of wood you need. Finally you say, “That is Christianity.” So you really attach to individual understanding. That is the function of perception. 
 
-Another characteristic of perception is that perception cannot reach the depth of the object. Perception [happens in] a very short period of time, just like lightning. 
+That is just like the blind men touching the elephant. There is an interesting story in the Buddhist scriptures: the king brings an elephant, and asks the blind men what it is. One blind man touches the ears of the elephant, and he says, “The elephant is just like a big fan.” Another is touching a leg, and says, “Oh, the elephant is just like a pillar!” *[He chuckles.]* Well, that is really the function of perception. 
 
-For instance, just like if you walk in the countryside in the evening; it’s a little dark and you cannot see clearly what is in the road. All of a sudden you notice sort of a long string there, a rope. Then immediately you scream, “Snake!” That is perception. Perception starts to work immediately, but perception doesn’t have enough space to understand what it is. It’s very quick: touch it, and understand what it is. That is perception. 
+And another characteristic of perception is that perception cannot reach the depth of the object. Perception [happens in] a very short period of time, just like lightning. 
 
-But perception is also working with wisdom. Wisdom is [also] very quick sometimes, just like lightning. So perception is not something bad; perception is also working with wisdom. 
+For instance, just like if you walk in the countryside in the evening; it’s a little dark and you cannot see clearly what is in the road. All of a sudden you notice sort of a small rope. And then immediately you scream, “Snake!” That is perception. Perception starts to work immediately, but perception doesn’t have enough space to understand what it is. It’s very quick: touch it, and understand what it is. That is perception. 
 
-For instance, if you do zazen. I experienced something like this. Maybe I told you before, Zen teachers always teach that “zazen is useless.” But I didn’t understand this: why do I have to do zazen which is useless? So I didn’t understand, but I had to teach zazen anyway, so that was really my *affliction* – which is called *avidyā*, ignorance. *[He laughs.]* So, [it was] very difficult. But something compelled me to teach, so every day I had to teach, studying and understanding with my best [effort], while actually I didn’t understand. But all of a sudden, I understood the meaning of uselessness in zazen: “Ah! [It’s this]!” And then, I felt relief. I don’t know what it was, but suddenly it was just like water rushing out from the bottom of a bucket, *[fwoosh]*. *[Laughter.]* I felt good: “Ah, this is uselessness! Right! This is zazen. That’s good. So, this is maybe real zazen.”
+But this perception is also working with wisdom. Wisdom is [also] very quick sometimes, just like lightning. So perception is not something bad; perception is also working with wisdom. 
+
+For instance, if you do zazen. I also experience the same thing. Maybe I told you before, Zen teachers always teach that “zazen is useless.” But I didn’t understand this: why do I have to do zazen which is useless? So I didn’t understand. But I had to teach zazen anyway, so that was really my *affliction*, which is called *avidyā*, ignorance. *[He laughs.]* So, [it was] very difficult, but something compelled me to teach, so every day I had to teach, studying and understanding with my best [effort], while actually I didn’t understand. But all of a sudden, I understood the meaning of uselessness in zazen: “Ah! [It’s this]!” And then, from then, I feel relief. I don’t know what it was, but immediately it was just like water rushing out from the bottom of a bucket, *[fwoosh]*. *[Laughter.]* I felt good: “Ah, this is uselessness! *Right!* This is zazen. That’s good. So, that is maybe real zazen.”
 
 That is [also] a perception. You really get such an experience through perception, because perception is working with wisdom. 
 
 #### 54:21
 
-And next is *cetanā*. Cetanā is *thought*, and also *volition* or *will*. Cetanā is very important because it is the basis of karma. Whatever kinds of behavior you do, good, bad, or neutral, cetanā is working there. 
+And next is *cetanā*. Cetanā is *thought*, and also *volition* or *will*. 
 
-Cetanā is to think, contemplate, [or] volition, will. At that time cetanā makes very wonderful effort, twice as much as the other consciousnesses. Cetanā is really using its energies to succeed, whether in good behavior or evil behavior or neutral behavior, whatever it is. Cetanā is just like the boss of a company. If you have the position of supervisor or boss of a company, you really use great effort, twice as much as the employees. For instance, in modern civilization, particularly in Japan, the Japanese really *[unintelligible]*. So the boss of the company really makes every possible effort, day after day, twice as much as done by some other people, to create whatever kind of new product they should do. That’s really hard work. And also cetanā supervises the employees with his sort of order. So cetanā is orderly: cetanā has the power to order somebody and organize, and let employees work in the best way. At that time, cetanā uses great effort, twice as much as other people. 
+Cetanā is very important because it is the basis of karma. Whatever kinds of behavior you do, good, bad, or neutral, cetanā is working there. 
 
-So cetanā is the boss, and the employees are human behaviors: good, or bad, or neutral. If you organize the employees, that is good behavior. But if you fail to do [so], that is unwholesome. 
+Cetanā is to think, to contemplate, [or] volition, will. But at that time cetanā makes very wonderful effort, twice as much as the other consciousnesses. Cetanā is really using its energies to succeed, whether in good behavior or evil behavior or neutral behavior, whatever it is. Just like the boss of a company. If you have the position of supervisor or boss of a company, you really use great effort, twice as much as the employees. For instance, in modern civilization, particularly in Japan, the Japanese really *[unintelligible]*. So the boss of the company really makes every possible effort, day after day, twice as much as done by some other people, to create whatever kind of new product they should do. That’s really hard work. 
 
-That’s why cetanā is individual experience, individual [things]. Cetanā is boss of the company, [making] great effort; that is his business. But simultaneously, his behavior really influences other people; it is exactly interconnected with others. That is organizing the employees, et cetera. So individual cetanā is not individual; individual cetanā is simultaneously all others’ cetanā. 
+And also cetanā supervises the employees with his sort of order. So cetanā is orderly: cetanā has the power to order somebody and organize, and let employees work in the best way. But at that time, cetanā uses great effort, twice as much as other people.
+
+So cetanā is the boss, and the employees are human behaviors: good, or bad, or neutral. If you organize the employees, that is good behavior. But if you fail to do [so], that is unwholesome.
+
+That’s why cetanā is individual experience, individual [things]. Cetanā is boss of the company; [he] has great effort. That is his business. But simultaneously, his behavior, his cetanā, really influences other people. So [it is] exactly interconnected with others. Individual cetanā really influences other people; that is organizing the employees, et cetera. So individual cetanā is not individual; individual cetanā is simultaneously all others’ cetanā.
 
 #### 59:26
 
-And *citta* is *mind*; mind is to know and to understand, and also to *communicate* with [the] object. Creating communications between subject and object by understanding and knowing something; analyzing, synthesizing – this is the mind, which is called *citta*. 
+And *citta* is *mind*. Mind is to know and to understand, and also to *communicate* with [the] object. Creating communications between subject and object, by understanding and knowing something. Analyzing, synthesizing. This is the mind, which is called *citta*. 
 
 #### 1:00:05
 
-So, five [consciousnesses]: *Sparśa*, contact. *Vedanā*, feeling. *Saṃjñā*, perception. *Cetanā*, thought. And *citta*, mind. Those five are always working, whatever you do. Particularly *perception* remains, even after reaching the goal. That is interesting. This is just like a karma. 
+So, five [consciousnesses]: *Sparśa*, contact. *Vedanā*, feeling. *Saṃjñā*, perception. *Cetanā*, thought. And *citta*, mind. 
 
-According to Buddhist tradition, you have to continue to practice in order to reach what is called *formless samadhi*. That is completely no form, nothing. That is what is called *jijiyu samadhi* in Japanese, or sometimes that is called “to disport oneself in samadhi.” You really can be one with judo and kendo; your body is very flexible, round, just like a bow. You can experience that; this is the final goal which is called formless samadhi. And then at that time, you can go beyond perception. But, still there is something there: that is the human body and mind, which exist right now, right here. This is the final thing left. How can you take care of it? This is karma. It’s really karma.
+Those five are always working, whatever you do. Particularly *perception* remains, even after reaching the goal. That is interesting. This is just like karma. 
 
-Dogen Zenji says (in *Genjōkōan*),
+According to Buddhist tradition, you have to continue to practice in order to reach what is called *formless samadhi*. That is completely no form, nothing. That is what is called *jijiyu samadhi* in Japanese, or sometimes that is called “to disport oneself in samadhi.” It’s really [like] you can be one with judo and kendo; your body is very flexible, round, just like a bow. You can experience that; this is the final goal which is called formless samadhi. 
+
+And then at that time, you can go beyond perception. But, still there is something there: that is the human body and mind, which exist right now, right here. This is the final thing left. 
+
+How can you take care of it? This is karma. It’s really karma.
+
+That’s why Dogen Zenji says (in *Genjōkōan*),
 
 > The Buddha Way is completely beyond the concept of being or not-being. That’s why there are human beings and buddhas, life and death, delusion and enlightenment.
 
-Because everyone is a great being. If everything is great being, everything is entitled to live. Before you criticize, before you put a certain label on it, this is the actual picture of human life.
+Because everyone is great being. If everything is great being, everything is entitled to live. Before you criticize, before you put a certain label on it, this is the actual picture of human life.
 
 And next he says, 
 
 > Nevertheless, flowers fall with human attachment, ... 
 
-For instance, if you see the beautiful flower, you say, “Oh please, stay on the branch, as long as you can, because you’re beautiful.” [Dogen also says,] 
+For instance, if you see the beautiful flower, you say, “Oh please, stay on the branch, as long as you can, because you’re beautiful.” [And also,] 
 
 > ... weeds grow with hatred.
 
-Well, that is my translation, simply speaking, okay? Briefly speaking, he said, “Nevertheless, flowers fall with attachment, weeds grow with hatred.” We really don’t want weeds in the garden! But even though we hate it, weeds grow. 
+Well, that is my translation, simply speaking, okay? It means, weeds are weeds. We really don’t want weeds in the garden! But even though we hate it, weeds grow.
 
-That means Dogen really understands the final thing, what’s left, what remains after the final goal of religion: this is the human body, human mind. This human body and human mind is completely beyond being or not being, like or dislike. It’s *there*. It grows with hatred, it falls with attachment. When the time comes, you have to die, anyway. When the time comes, it grows; even though you don’t like your life, anyway it grows. You have to grow. 
+Dogen really understands the final thing, what remains after the final goal of religion, what’s left: this is the human body, human mind. This human body and human mind is completely beyond being or not being, like or dislike. It’s *there*. It grows with hatred, it falls with attachment. When the time comes, you have to die. When the time comes, it grows; even though you don’t like your life, anyway it grows. You have to grow. 
 
-So that is the final thing that you have to do. How can you take care of this human body and mind? This is really nothing but karma. Karma [is] completely beyond your control. [It] is reality, fact. 
+So that is the final thing that you have to do. How can you take care of this human body and mind? This is really nothing but karma. Karma [is] completely beyond your control. This is reality, fact. 
 
 So if you understand the Buddha Way, everything is equal, wonderful, okay? And then finally, you should pay attention to *you*. There is something. This is not enlightenment, not Buddha, not ordinary people! It is completely beyond: this is your human body and mind, given to you, as karma. 
 
 That’s why, please, take care of this karma. Because everything is changing; this body and mind is really in the stream of change, impermanence. Don’t attach too much; don’t hate too much. Anyway completely beyond hate or attachment, take care of your human body and mind, with *compassion*. Without compassion, you cannot take care of this human body and mind. 
 
-That’s why Dogen Zenji says finally, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” That means flowers and weeds have their own karma. Cats and dogs, trees and birds, all are Buddha, exactly, which means they live in this world without [our] evaluation and judgement. Whatever you say, that is human business: it doesn’t matter, they can live. But: cat is cat; cat has his own karma. Dog has his own karma. That’s why we can share our compassion with a dog, with a cat. 
+That’s why Dogen Zenji says finally, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” That means flowers and weeds have their own karma. Cats and dogs, trees and birds, all are Buddha, exactly, which means they can live in this world without [our] evaluation and judgement. Whatever you say, that is human business: it doesn’t matter, they can live. But: cat is cat. Cat has, also, his own karma. Dog [has] still his own karma. That’s why we can share our compassion with a dog, with a cat. 
 
-The same applies to human beings: we can have, finally, human body and mind. Without this karma, we cannot practice. So, this is really karma, the human body, coming from parents. This is not a biological understanding, this is a really deep understanding. If you understand your body and mind just according to a biological, physiological point of view, well, you really hate your body and mind. But, if you understand more deeply, your body and mind become Buddha. 
+The same applies to human beings: we can have, finally, human body and mind. Without this karma, we cannot practice! So, this is really karma, the human body, coming from parents. This is not a biological understanding, this is a really deep understanding. If you understand your body and mind just according to a biological, physiological point of view, well, you really hate your body and mind. But, if you understand more deeply, your body and mind become Buddha. 
 
-Human body and mind as Buddha is taking care of [your life] with compassion, in order to share your life with others. Because others also have the same karma, so you can share. At that time, you can be free from karma – because you can take care of your karma, without putting certain ideas, like or dislike, or whatever it is. Just take care, day by day, and share your karma with people, and recognize how important it is. That practice is wonderful; we say our karma turns into Buddha.
+Human body and mind as Buddha is taking care of [your life] with compassion, in order to share your life with others. Because others also have the same karma. So you can share. At that time, you can be free from karma – because you can take care of your karma, without putting certain ideas, like or dislike, or whatever it is. Just take care, day by day, and share your karma with people, and recognize how important it is. That practice is wonderful; we say our karma turns into Buddha.
 
 That is the conclusion of my talk this week. Do you have any questions? 
   

@@ -6,7 +6,7 @@ Katagiri Roshi gave this two-week seminar on *karma* in the summer of 1980. Also
 
 It may be surprising to learn that, far from being a side topic, the concept of *karma* is referred to in almost all of Katagiri Roshi’s dharma talks. The word *karma* is not always used, but terms like *causation*, *cause and effect*, *action*, *karmic consciousness*, *ālaya-vijñāna*, *the conditioned*, *conditioned elements*, *samskaras*, *personality*, *whole personality*, *culture*, and *“lifetime after lifetime”* are all related to karma. 
 
-The concept of karma is inextricably entwined with Buddhism itself. However, we should be careful to understand what Katagiri Roshi means by *karma*. Karma is not simply action, or simple cause and effect; nor is it some kind of force that locks us into a certain destiny. According to Katagiri Roshi, karma is great energy that allows us to live, to relate to people and the world, and to move freely into the future.
+The concept of karma is inextricably entwined with Buddhism itself. However, we should be careful to understand what Katagiri Roshi means by *karma*. Karma is not simply action, or cause and effect; nor is it some kind of force that locks us into a certain destiny. According to Katagiri Roshi, karma is great energy that allows us to live, to relate to people and the world, and to move freely into the future.
 
 ---
 
@@ -41,14 +41,14 @@ Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *
 ##### [Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
 ###### July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
+Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This is why Dogen Zenji says, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ---
 
 ##### [Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 ###### July 10, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses karma in terms of Dogen’s teaching, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji focuses on practice over study or even realization. *Karma* does not mean simple cause and effect or *action*, but includes *unmanifested karma*, the impression left behind by our actions. *Karmic retribution* is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. The line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi* relates to *eko* – giving away the merit from our actions – which is the fundamental attitude toward studying the Buddha Way. We must understand that our life right here and now is connected with the past and the future: that connection is through unmanifested karma.
+Katagiri Roshi discusses karma in terms of Dogen’s teaching, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dogen Zenji focuses on practice over study or even realization. *Karma* does not mean just cause and effect or *action*, but includes *unmanifested karma*, the impression left behind by our actions. *Karmic retribution* is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. The line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi* relates to *eko* – giving away the merit from our actions – which is the fundamental attitude toward studying the Buddha Way. We must understand that our life right here and now is connected with the past and the future: that connection is through unmanifested karma.
 
 ---
 

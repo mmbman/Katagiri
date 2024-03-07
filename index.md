@@ -27,6 +27,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**March 7, 2024:** Updated [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma). That completes the latest pass through the [Karma](karma) talks. 
+
 **March 6, 2024:** Updated [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested).
 
 **March 5, 2024:** Updated [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates).

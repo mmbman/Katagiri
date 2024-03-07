@@ -39,7 +39,7 @@ Traditionally, there are three meanings of *karma*.
 
 One meaning is just *action*, human action, with no sense of morality. *Just action* means, for instance, stretching your arms, lifting your hands, lying down, jumping, sitting, walking, sleeping, et cetera – this is just action, with no sense of morality. That is [one meaning of] karma, particularly in *Abhidharmakosha* – that is the oldest Buddhist psychology. 
 
-The second meaning is *religious ritual*; this is also called karma. This is maybe influenced by Brahmanism, because Brahmanism believes that people can go to heaven by handling religious ritual in the proper way, and if you don’t handle religious ritual in the proper way, you cannot go to heaven. Brahmanism particularly emphasizes this religious ritual. So broadly speaking, [this] religious ritual is called karma. 
+The second meaning is *religious ritual*; this is also called karma. This is maybe influenced by Brahmanism, because Brahmanism believes that people can go to heaven by handling religious ritual in the proper way, and if you don’t handle religious ritual in the proper way you cannot go to heaven. Brahmanism particularly emphasizes this religious ritual. So broadly speaking, [this] religious ritual is called karma. 
 
 The third meaning is *karmic retribution* of causation, cause and effect. This is the subject I want to [study] with you at this time: *karmic retribution*. 
 
