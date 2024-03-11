@@ -98,9 +98,7 @@ Third: *nothingness to resort to*.
 
 The fourth: *a state of concentration which goes beyond the matter of whether nothingness is allowed or not*. 
 
-[In the fourth stage,] completely you can’t say anything at all. Nothing. So all you have to do is just be present. *Just* be present. This is the final goal, anyway. *[He chuckles.]* 
-
-[This is] just like a fish swimming in the water. Even though the fish doesn’t use his own conscious, he doesn’t ignore the function of consciousness, because he has consciousness, but it doesn’t bother his activity. So the fish just swims in the water, dynamically, always. That is really the last stage of zazen in the world of formlessness.
+[In the fourth stage,] completely you can’t say anything at all. Nothing. So all you have to do is just be present. *Just* be present. This is the final goal, anyway. *[He chuckles.]* Just like a fish swimming in the water. Even though the fish doesn’t use his own conscious, he doesn’t ignore the function of consciousness, because he has consciousness, but it doesn’t bother his activity. So the fish just swims in the water, dynamically, always. That is really the last stage of zazen in the world of formlessness.
 
 So at that time, [...] if you really practice zazen constantly, *you* never change. You cannot change *you*. 
 
