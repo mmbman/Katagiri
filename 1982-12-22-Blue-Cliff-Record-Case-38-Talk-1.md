@@ -27,25 +27,43 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the sudden and the gradua
 > 
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-Here are two points: to discuss the *gradual*; second, to discuss the *sudden*. If you discuss the gradual, *gradual* means gradual progress, seeing progress through your individual feeling, understanding, and experience in your daily life. That is *gradual*. 
+#### 1:15
 
 > If we discuss the gradual, it is going against the ordinary to merge with the Way: in the midst of a bustling market place, seven ways up and down and eight ways across.  
 
-It is going against the ordinary because, *ordinary* means you are always a little bit away from the truth that you believe [toward], away from the point of the truth. Physically and mentally, in your daily life, your body and mind are present in daily living; that means being present right in the midst of the bustling marketplace. The bustling marketplace means making noise. Day to day, getting up in the morning: “Yes, I am getting up in the morning.” And then next you don’t want to get up in the morning, so, “I don’t want to get up in the morning.” So always bustling; your body and mind is [shown] in the bustling marketplace. Pretty noisy.
+Here are two points: [first,] to discuss the *gradual*; second, to discuss the *sudden*. If you discuss the gradual, *gradual* means gradual progress, seeing progress through your individual feeling, understanding, and experience in your daily life. That is the *gradual*. 
 
-And that means, next it says, “seven ways up and down and eight ways across.” We don’t care about the numbers; seven ways up and down means countless number, many times. Even for a moment, how often do you go up and down, you know? Can you imagine? *[He chuckles.]* If you do [imagine] that then you can see. In a moment your mind is really going up and down. And next your mind is really crossing rivers, and not crossing small rivers, you cross the universe. You can go to heaven. You can go to Japan. Immediately, you can go. So in a moment you are really going up and down, across the universe, going to heaven and hell, et cetera, because you are discussing in the gradual. 
+So, “If we discuss the gradual, it is going against the ordinary to merge with the Way.” 
 
-Gradual progress: because I am not a good person, I am not a real Buddhist, I am not mature exactly, that’s why I’m afraid to just be present with confidence, that’s why I want to progress. “I want to progress” means you are not mature, you are not perfect now, that’s why very naturally you are discussing about you, right in the middle of the bustling marketplace. That means [it’s] pretty hard. If you always take care of your life in that way, it’s really painful. 
+“It is going against the ordinary” [–] *ordinary* means you are always a little bit away from the truth that you believe [toward], away from the point of the truth. 
+
+Physically and mentally, in your daily life, your body and mind are present in daily living; that means being present right in “the midst of the bustling marketplace.” *The bustling marketplace* means making noise. Day to day, getting up in the morning: “Yes, I am getting up in the morning.” And then next you don’t want to get up in the morning, so, “I don’t want to get up in the morning.” So always bustling; your body and mind is [shown] in the bustling marketplace. Pretty noisy.
+
+And that means, next it says, “seven ways up and down and eight ways across.” We don’t care about the numbers; seven ways up and down means countless number, many times. Even [in] a moment, how often do you go up and down, you know? Can’t you imagine? *[He chuckles.]* If you do zazen you can see [this]. In a moment your mind is really going up and down. And next, your mind is really crossing rivers – and not crossing small rivers, you cross the universe. *[He laughs.]* You can go to heaven. You can go to Japan. Immediately, you can go. So in a moment you are really going up and down, across the universe, going to heaven and hell, et cetera. 
+
+Because, you are discussing [the] gradual. Gradual progress: because I am not a good person, I am not a real Buddhist, I am not mature exactly, that’s why I’m afraid to just be present with confidence, that’s why I *want* to progress. “I want to progress” means you are not mature, you are not perfect now, that’s why very naturally you are discussing about *you*, right in the middle of the bustling marketplace. 
+
+That means [it’s] pretty hard. If you always take care of your life in that way, it’s really painful. 
 
 #### 6:20
 
 > If we discuss the sudden, it doesn’t leave a hint of a trace; a thousand sages cannot find it.  
 
-You cannot take care of your life just like [the gradual], always. So next, we have to *discuss the sudden*. Sudden life, sudden progress. One hundred percent perfect. *The sudden* means one hundred percent perfect. 
+You cannot take care of your life just like [the gradual] always. So next, we have to *discuss the sudden*. Sudden life, sudden progress. One hundred percent perfect. *The sudden* means one hundred percent perfect. 
 
-For instance, if you perform athletics, you have to catch the iron bar. If you *discuss the gradual*, you are always looking at the bar, and looking at you, and then looking at the result which will come. And also you discuss about the audience, and you discuss about the points. You are always doing that, so naturally you are very uneasy and restless. On the other hand ... *the sudden* means one hundred percept perfect. That means you jump and grasp it. You cannot reach ninety percent; if you reach ninety percent to the iron bar, it’s not perfect. Ninety percent seems to be good, but it doesn’t make sense. So you have to completely perfectly catch it. If you catch it, then the next moment immediately you can perform athletics. “You discuss the sudden” means you should catch the iron bar perfectly, one hundred percent. That is not only athletics: [it is also] your study, your zazen, your daily living. 
+For instance, if you perform athletics, you have to catch the iron bar. If you *discuss the gradual*, you are always looking at the bar, and looking at you, and then looking at the result which will come. And also you discuss about the audience, and you discuss about the points; you are always doing that, so naturally you are very uneasy and restless. On the other hand you have to *discuss the sudden* means one hundred percent perfect. That means you grasp it. You cannot reach ninety percent; if you reach ninety percent to the iron bar, it’s not perfect. Ninety percent seems to be good, but it doesn’t make sense. So you have to completely perfectly catch it. If you catch it, then the next moment immediately you can perform athletics. 
 
-We need both. You cannot always say, “I can get one hundred points,” you know? You cannot boast about yourself like this. But a Zen Master in Japan says, “Zen is always to get zero points or one hundred points”; no middle between. This is Zen. Zen teaching doesn’t mean dogmatic teaching – this is *life*. I told you athletic performance: one hundred percent, or if you get ninety percent, ninety percent is exactly zero points, same thing. So no middle. Zero or one hundred percent. The same applies to zazen too: one hundred percent or zero. That’s what shikantaza is: to get the hundred points. It is very important. Discussing about you in the midst of the bustling marketplace, but on the other hand, you can do it! You have to do it; otherwise, you cannot see any progress in the bustling marketplace. So we need both simultaneously. 
+So “You discuss the sudden” means you should catch the iron bar perfectly, one hundred percent. That is not only athletics: [it is also] your study, your zazen, your daily living. 
+
+We need both. You cannot always say, “I can get one hundred points,” you know? You cannot boast about yourself like this. 
+
+A Zen Master in Japan says, “Zen is always to get zero points or one hundred points”; no middle between. *[He laughs.]* This is Zen teaching. Zen teaching doesn’t mean dogmatic Zen teaching – this is *life*. I told you [about] athletic performance: one hundred percent, or if you [get] ninety percent, ninety percent is exactly zero points, same thing. So no middle. Zero or one hundred percent. 
+
+The same applies to zazen too: one hundred percent or zero. That’s [what] shikantaza is: to get the hundred points. 
+
+It is very important. Discussing about *you*, in the midst of the bustling marketplace, but on the other hand, you can do it! Anyway, you *have* to do it; otherwise you cannot see any progress in the bustling marketplace. So we need both, simultaneously. 
+
+#### 10:16
 
 You know the famous haiku (by Bashō): 
 
@@ -53,29 +71,45 @@ You know the famous haiku (by Bashō):
 > a frog jumps in:  
 > Plop!  
 
-This is a pretty interesting short poem. If you discuss the gradual aspect, I think you can discuss about Bashō, and you can discuss about the frog, you can discuss about the old pond, and mountains, and quietness, and [the man], and also birds singing, et cetera; you can discuss [all those], gradually. But no matter how long you discuss about all this and then put [the] things together – [it’s] pretty good, but I don’t know if you can make this kind of poem. You cannot make such a wonderful poem through the discussion about the gradual: analyzing, synthesizing, and your feelings, and also your emotions, and psychological point of view, and the original nature of existence, et cetera. You cannot make a perfect nice poem [that way]. So an important point is next you have to discuss the sudden. That means the frog, and Bashō, and the old pond, and quietness, come together all of a sudden, as one hundred percent perfect beings. At that time, Bashō, frog, and the old pond, and [birds] singing songs, and quietness, are all put together. In the realm of the sudden, they exist like this. And *then*, if you discuss this, then a poem comes up. [In] this poem, [any] word is not [a] word coming from discussion of the sudden or discussion of the gradual. 
+This is a pretty interesting short poem. 
 
-#### 13:03
+If you discuss the gradual aspect, I think you can discuss about Bashō, and you can discuss about the frog, you can discuss about the old pond, and mountains, and quietness, [...] and also birds singing, et cetera. You can discuss [all those], gradually. 
 
-Then next it says, 
+But no matter how long you discuss about this and then put all the words [or] all the things together – [it’s] pretty good, but I don’t know if you can make this kind of poem. You cannot make such a wonderful poem through the discussion about the gradual: analyzing, synthesizing, and your feelings, and also your emotions, and psychological points of view, and the original nature of existence, et cetera. You cannot make a perfect nice poem [that way]. 
+
+So an important point is [that] next you have to discuss the sudden. [That] means the frog, and Bashō, and the old pond, and quietness, come together all of a sudden [...] as one hundred percent perfect beings. At that time, Bashō, frog, and the old pond, and [birds] singing songs, and quietness, are all put together. In the realm of the sudden, they exist like this. And *then*, if you discuss *this*, then a poem comes up. 
+
+[In] this poem, [any] word is not [a] word coming from discussion of the sudden or discussion of the gradual. Next [the pointer] says, 
 
 > If, on the other hand, we do not set up sudden or gradual, then what?
 
-Gradual or sudden are still discussion, nothing but discussion. So what do you mean? If you discuss the sudden, that sudden is not the sudden opposed to gradual because discussing sudden means you must be alive in the same way as the frog, old pond, quietness, universe. You have to exist like this, exactly. If so, what is this? They all become one. So it’s not discussion; it’s nothing but motion or function, the energy of function.
+*Gradual* or *sudden* are still discussion, nothing but discussion. So what do you mean if you discuss the sudden? That sudden is not the sudden opposed to gradual, because discussing sudden means you must be *alive* in the same way as the frog, old pond, quietness, the universe. You have to exist like this, exactly. If so, what is this? They all become one. So it’s not discussion; it’s nothing but motion, or the energy of function.
 
-Finally you cannot say what this is. This is the sudden: sudden means in the middle of the sudden, all things – frogs, old pond, quietness, and noise of the water – exist in peace and harmony. Is this still discussion? No. Opposed to gradual. That’s why next it says, “If, on the other hand, we do not set up sudden or gradual.” If you pay attention to *real* reality which is fully alive in your daily living with all sentient beings, at that time we do not set up sudden or gradual. And, “then what?” 
+Finally you cannot say what this is; [like] “this is the sudden”. “*Sudden* means in the realm of the sudden, all things – frogs, old pond, quietness, and noise of the water – exist in peace and harmony”: [no,] this is still discussion, opposed to gradual. That’s why next it says, “If, on the other hand, we do not set up sudden *or* gradual.” If you pay attention to *real* reality which is fully alive in your daily living, with all sentient beings, at that time we do not set up sudden or gradual. And then, *what*? 
 
-One of the old students at Zen Center in San Francisco, they visited here on the way to Karmê Chöling in Vermont. He stayed for a while and discussed Buddhism with me. He very much liked Buddhist teaching philosophically, and was always discussing it. At that time he wore very nice suits and was very gentlemanly. He said, “Buddhism is interesting,” so I discussed with him about emptiness and interdependent co-origination. Then he said, “Good! That’s a good explanation of emptiness.” And he said: “*Then* what?” *[He laughs.]* Exactly: *then what*? *Then what* is *then what*; no room to discuss. So *then what* means pointing out the *real* aspect of emptiness which is fully alive in your daily living. That is nothing to discuss; that’s why we say, “Then what?” We don’t know what it is. [But] the full aliveness of the words, the nature of the poem, comes from *then what*, before you set up gradual or sudden. We cannot set up *before* that. So that’s why here it says, “If, on the other hand, we do not set up sudden or gradual, then what?”
+One of the old students at San Francisco Zen Center visited here on the way to Karmê Chöling in Vermont. He stayed for a while and discussed Buddhism with me. He very much liked Buddhist teaching philosophically, and was always discussing it. At that time he wore very nice suits and was very gentlemanly. He said, “Buddhism is interesting,” so I discussed with him about emptiness and interdependent co-origination. Then he said, “Good! That’s a good explanation of emptiness.” And he said: “Then *what*?” *[He laughs.]* 
+
+Exactly: then *what*? “Then what” is *then what*; no room to discuss. So *then what* means pointing out the *real* aspect of emptiness which is fully alive in your daily living. That is nothing to discuss. That’s why we say, “Then what?” We don’t know what it is. [But] the full aliveness of the words, [from nature as a poem], comes from *then what*. Before you set up gradual or sudden. We cannot set up before that. 
+
+So that’s why here it says, “If, on the other hand, we do not set up sudden or gradual, then what?”
 
 #### 16:57
 
 > To a quick person, one word; to a quick horse, one blow of the whip.
 
-“To a quick person, one word”: At that time, one word comes from that *then what*. From *then what* means fully alive, nothing to pin down. That’s why we say our head is always catching up with something, but you cannot catch up, because full aliveness is always going, your intellectual sense cannot catch up. That’s why always I tell you it seems to me [like you] grasp the back of your bald head. You cannot grasp a bald head because there are no hairs. *[He chuckles.]* So it’s just like we’re always doing that. 
+“To a quick person, one word”: At that time, one word comes from that *then what*. From *then what* means fully alive, nothing to pin down. 
 
-That’s why “to a quick person, one word” is when you are exactly being present in the real function of emptiness, before you set up gradual or sudden. And then you can really get the full aliveness of the words, expressing oneness. The so-called old pond. A frog jumps in. Plop. That’s all. From these words, very quick persons, Bashō as a person, [are] not a being opposed to frog and the old pond; Bashō is exactly the same as the frog and the old pond. That’s why Sengai (Sengai Gibon, one of Bashō’s disciples) commented on this poem: “An old pond, Bashō jumps in, the sound of water.” You know? Bashō jumps into the pond: plop. In the notes he said, “If there is a pond with a jump, I want him to hear it.” Do you understand? “If there is a pond with a jump, I want him to hear it,” means a huge pond, it’s not a limited pond your senses can see. Pond is exactly pond with frog and universe and trees and mountains and quietness, et cetera. So that is a huge pond, so-called Buddha Nature – Buddha’s pond. So if there is a pond with a jump, I want to jump in, I want him to hear it. I am not different from Bashō; I *am* Bashō. That’s why I can understand Bashō’s feelings, and I can understand the frog’s life, I understand tranquility’s life, created by clouds and old pond and mountains, et cetera. So that’s why he said, “If there is a pond, I want to jump, I want him to hear it.” And next he says, “And old pond, something jumps in with a plop.” Something jumps in. What jumps in? I jump in? Or Bashō jumps in? Or frog jumps in? Or tranquility jumps in? I don’t know. *Something* jumps in. It means a very natural situation: something jumps in. *Something* is completely leaving no trace of frog and old pond and Bashō. [They are] working together perfectly, one hundred percent, but they don’t leave any trace, so-called “I am merging with all beings perfectly, one hundred percent perfect.” They don’t [leave  a trace like this]. So that’s why Sengai says, “Something jumps in, with a plop.” 
+That’s why we say our head is always catching up with something. But you cannot catch up, because full aliveness is always going; your intellectual sense cannot catch up. That’s why I always tell you it seems to me [like you] grasp the back of your bald head. You cannot grasp a bald head because there are no hairs. *[He chuckles.]* So it’s just [that] we are always doing like that. 
 
-This is explaining, “To a quick person, one word, to a quick horse, one blow of the whip.” No space to think of it; immediately [it] comes up.
+That’s why “to a quick person, one word” is when you are exactly being present in the real function of emptiness, before you set up gradual or sudden, and then you can really get the full aliveness of the words, expressing oneness. So-called, “Old pond. A frog jumps in. Plop.” That’s all. 
+
+From these words, very quick persons. [...] Bashō as a person [is] not a being opposed to the frog and the old pond; Bashō is exactly the same as the frog and the old pond. That’s why Sengai (one of Bashō’s disciples) commented on this poem: “An old pond, Bashō jumps in, a sound of water.” You know? Bashō jumps into the pond. Plop. 
+
+And also in the notes [Sengai] said, “If there is a pond, with a jump, I want him to hear it.” Do you understand? “If there is a pond, with a jump, I want him to hear it,” means [it’s] a huge pond, it’s not a limited pond your senses can see. Pond is exactly the life of the pond with the frog and the universe and trees and mountains and quietness, et cetera. So that is a huge pond, so-called *buddha nature* – Buddha’s pond. So if there is a pond, [...] I want to jump in, I want him to hear it. I am not different from Bashō; I *am* Bashō. That’s why I can understand Bashō’s feelings, and I can understand the frog’s life, I understand tranquility’s life, created by clouds and old pond and mountains, et cetera. So that’s why he said, “If there is a pond, I want to jump [in], I want him to hear it.” 
+
+And next he says, “An old pond, something jumps in with a plop.” Something jumps in. What jumps in? I jump in? Or Bashō jumps in? Or frog jumps in? Or tranquility jumps in? No, I don’t know. *Something* jumps in. It means a very natural situation: something jumps in. *Something* is completely leaving no trace of frog and old pond and Bashō. [They are] working together perfectly, one hundred percent, but they don’t leave any trace, so-called “I am merging with all beings perfectly, one hundred percent perfect.” They don’t [leave a trace like this]. So that’s why Sengai says, “Something jumps in, with a plop.” 
+
+This is explaining *then what?* “To a quick person, one word, to a quick horse, one blow of the whip.” No space to think of it; immediately [it] comes up.
 
 #### 22:20
 
@@ -83,11 +117,11 @@ This is explaining, “To a quick person, one word, to a quick horse, one blow o
 
 Who is a master? I am a master to make a poem? I am a master in zazen? Who is the master? Is Zazen the master? Because zazen educates me, zazen enhances me – so is zazen the master? No. So if it is not, am I the master? No. Well, who is the master? 
 
-Right in the middle of zazen you are merging with each other perfectly. That’s why I told you, being on the top of a hundred foot high pole, take one step forward. Who [jumps]? Who pushes you to take a step forward? No one. Who [approves] your jumping from the hundred foot high pole? No one. Anyway, jump! Take one step forward; that is a great master. Well, temporarily we can say [so]. 
+Right in the middle of zazen you are merging with each other perfectly. That’s why I told you, being on the top of a hundred foot high pole, take one step forward – who [jumps]? Who pushes you to take a step forward? No one. Who [approves] your jumping from the hundred foot high pole? No one. Anyway, jump! Take one step forward; that is a great master. Well, temporarily we can say [so]. 
 
-So take one step forward. Anyway, *take one step forward* is, maybe, master – without leaving any trace of being master. That’s why we don’t know who is the master. Who gives a reward? I don’t know. 
+So take one step forward. Anyway, *take one step forward* is, maybe, master – without leaving any trace of *being* master. That’s why we don’t know who is the master. Who gives the reward? I don’t know. 
 
-That’s why, *who is the master* – no. *Lotus Sutra* or Dogen Zenji says, “Buddha knows.” Only Buddha knows what the Buddha is. Only Buddha knows what human suffering is. Only Buddha knows the Buddha’s world. 
+That’s why, *who is the master* – no. So *Lotus Sutra* or Dogen Zenji says, “Buddha knows.” Only buddha knows what the buddha is. Only buddha knows what human suffering is. Only buddha knows the buddha’s world. 
 
 #### 24:23
 
