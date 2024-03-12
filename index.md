@@ -27,7 +27,7 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
-**March 12, 2024:**: For class: [Excerpt from Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox](ExcerptFromBCRCase38). 
+**March 12, 2024:**: For class: [Excerpt from Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox](ExcerptFromBCRCase38.pdf). 
 
 **March 7, 2024:** Updated [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma). That completes the latest pass through the [Karma](karma) talks. 
 
