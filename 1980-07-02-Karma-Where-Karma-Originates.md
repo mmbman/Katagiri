@@ -64,8 +64,6 @@ And also *consciousness*, *name and form*, *six consciousnesses*, *tangibility*,
 
 And also if you have six consciousnesses, if you have the six organs, the six organs immediately have to face six objects. Always six organs face six objects. This is *tangibility* – *contact*. Without contact [we cannot exist.] \[This is the present life.]
 
-(*Transcriber’s Note:* There is loud noise from an airplane, making this section difficult to hear.)
-
 So, *consciousness*, *name and form*, *six consciousnesses*, *contact*... and then *reception*. So you can *receive* this table: you can contact with this table [and] immediately you can receive. That is *feeling* – very *basic* feeling. We can [accept]. That is reception. 
 
 And when you receive something, then you can create your own world. That is a *birth*. 
