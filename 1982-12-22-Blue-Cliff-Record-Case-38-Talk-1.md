@@ -35,7 +35,7 @@ Here are two points: [first,] to discuss the *gradual*; second, to discuss the *
 
 So, “If we discuss the gradual, it is going against the ordinary to merge with the Way.” 
 
-“It is going against the ordinary” [–] *ordinary* means you are always a little bit away from the truth that you believe [toward], away from the point of the truth. 
+“It is going against the ordinary” [...] *ordinary* means you are always a little bit away from the truth that you believe [toward], away from the point of the truth. 
 
 Physically and mentally, in your daily life, your body and mind are present in daily living; that means being present right in “the midst of the bustling marketplace.” *The bustling marketplace* means making noise. Day to day, getting up in the morning: “Yes, I am getting up in the morning.” And then next you don’t want to get up in the morning, so, “I don’t want to get up in the morning.” So always bustling; your body and mind is [shown] in the bustling marketplace. Pretty noisy.
 
@@ -51,15 +51,13 @@ That means [it’s] pretty hard. If you always take care of your life in that wa
 
 You cannot take care of your life just like [the gradual] always. So next, we have to *discuss the sudden*. Sudden life, sudden progress. One hundred percent perfect. *The sudden* means one hundred percent perfect. 
 
-For instance, if you perform athletics, you have to catch the iron bar. If you *discuss the gradual*, you are always looking at the bar, and looking at you, and then looking at the result which will come. And also you discuss about the audience, and you discuss about the points; you are always doing that, so naturally you are very uneasy and restless. On the other hand you have to *discuss the sudden* means one hundred percent perfect. That means you grasp it. You cannot reach ninety percent; if you reach ninety percent to the iron bar, it’s not perfect. Ninety percent seems to be good, but it doesn’t make sense. So you have to completely perfectly catch it. If you catch it, then the next moment immediately you can perform athletics. 
+For instance, if you perform athletics, you have to catch the iron bar. If you *discuss the gradual*, you are always looking at the bar, and looking at you, and then looking at the result which will come. And also you discuss about the audience, and you discuss about the points. You are always doing that, so naturally you are very uneasy and restless. On the other hand you have to *discuss the sudden* means one hundred percent perfect. That means you grasp [the bar]. You cannot reach ninety percent; if you reach ninety percent to the iron bar, it’s not perfect. Ninety percent seems to be good, but it doesn’t make sense. So you have to completely, perfectly catch it. If you catch it, then the next moment immediately you can perform athletics. 
 
-So “You discuss the sudden” means you should catch the iron bar perfectly, one hundred percent. That is not only athletics: [it is also] your study, your zazen, your daily living. 
+So “you discuss the sudden” means you should catch the iron bar perfectly, one hundred percent. That is not only athletics: [it is also] your study, your zazen, your daily living. 
 
 We need both. You cannot always say, “I can get one hundred points,” you know? You cannot boast about yourself like this. 
 
-A Zen Master in Japan says, “Zen is always to get zero points or one hundred points”; no middle between. *[He laughs.]* This is Zen teaching. Zen teaching doesn’t mean dogmatic Zen teaching – this is *life*. I told you [about] athletic performance: one hundred percent, or if you [get] ninety percent, ninety percent is exactly zero points, same thing. So no middle. Zero or one hundred percent. 
-
-The same applies to zazen too: one hundred percent or zero. That’s [what] shikantaza is: to get the hundred points. 
+A Zen Master in Japan says, “Zen is always to get zero points or one hundred points”; no middle between. *[He laughs.]* This is Zen teaching. Zen teaching doesn’t mean dogmatic Zen teaching – this is *life*. I told you [about] athletic performance: one hundred percent, or if you [get] ninety percent, ninety percent is exactly zero points, same thing. So no middle. Zero or one hundred percent. The same applies to zazen too: one hundred percent or zero. That’s [what] shikantaza is: to get the hundred points. 
 
 It is very important. Discussing about *you*, in the midst of the bustling marketplace, but on the other hand, you can do it! Anyway, you *have* to do it; otherwise you cannot see any progress in the bustling marketplace. So we need both, simultaneously. 
 
