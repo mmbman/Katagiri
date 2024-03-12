@@ -29,9 +29,9 @@ So what is agreement? “Oh yes, it is the form of a circle” – this is nothi
 
 But this agreement is also important for us, okay? Don’t misunderstand. I don’t mean you should ignore agreement. Agreement is important, but you should know what [is the] component factor of agreement. Agreement is also that you accept your life completely with total agreement. Even though you like or you dislike, you accept already. So, you should know what [is] the component factor of agreement. 
 
-*Your body and your mind* is what? Just the words. We accept through what words? The five [skandhas](glossary#skandha). And [karma](glossary#karma). And *cetanā*, mind. That is Buddhist psychology, which is called [*Abhidharma*](glossary#abhidharma)*. *[He chuckles.]* It’s huge. It takes ten years to master it. If you don’t believe it, I will show it, I will explain it. *[He laughs.]* But if you want to study it, you should go to San Francisco Zen Center; they teach the Abhidharma. Huge. But interesting, very interesting!
+*Your body and your mind* is what? Just the words. We accept through what words? The five [skandhas](glossary#skandha). And [karma](glossary#karma). And *cetanā*, mind. That is Buddhist psychology, which is called [*Abhidharma*](glossary#abhidharma)*. *[He chuckles.]* It’s huge. It takes ten years to master it. If you don’t believe it, I will show it, I will explain it. *[He laughs.]* But if you want to study it, you should go to San Francisco Zen Center; they teach the *Abhidharma*. Huge. But interesting, very interesting!
 
-**Question:** Are there any stories in the Abhidharma about the beginning of time and space, and ignorance?
+**Question:** Are there any stories in the *Abhidharma* about the beginning of time and space, and ignorance?
 
 **Katagiri:** The beginning of time and space... *[He laughs.]* It’s already ignorance. *[Laughter.]* 
 
