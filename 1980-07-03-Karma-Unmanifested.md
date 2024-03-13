@@ -96,15 +96,15 @@ So that is what is called *unmanifested karma*. [It is] piled up in your life in
 
 But this unmanifested karma is not something “weak” or “strong.” It’s not [some kind of] “sin.” It’s not original sin; it’s not some original weakness or some original strength. This unmanifested karma is characterized by what in Buddhism is called *neutral nature*. Perfectly neutral nature: [there is no way] to put a certain label on this unmanifested karma which is called good or bad, right or wrong. [It is] completely beyond the moral sense. 
 
-[In Japanese,] we say *mufuku-muki*. *Mu* is “nothing”; *fuku* means “covered.” *Covered* means covered with moral sense: good or bad, right or wrong – or neutral, that is also *covered*. So *mufuku* means *no cover*, completely nothing to cover. And also *muki* means *neutral*. That neutral sense [of *muki*] is part of moral sense, but *mufuku* is completely “no cover,” so this *neutral nature* is the pure sense of the neutral nature of morality. That is *unmanifested karma*. 
+[In Japanese,] we say *mufuku-muki*. *Mu* is “nothing”; *fuku* means “covered.” *Covered* means covered with moral sense: good or bad, right or wrong – or neutral, that is also *covered*. So *mufuku* means “no cover,” completely nothing to cover. And also *muki* means “neutral.” That neutral sense [of *muki*] is part of moral sense, but *mufuku* is completely “no cover,” so this *neutral nature* is the pure sense of the neutral nature of morality. That is *unmanifested karma*. 
 
 If we have carried this unmanifested karma from the beginningless past, then everybody has carried unmanifested karma from the beginningless past in that way. That is what is called *human being*, that is what is called *this table*, et cetera. If it is true, why is it that we have *different* karma? You are different from me: you are American, I am Japanese. Why is it that we have to have a different type of karma? This is a big question. 
 
 This question is closely related with the neutral nature of morality which unmanifested karma has. The perfect neutral nature of morality means you simply cannot put a certain moral label on that unmanifested karma – good, bad, or even neutral. I don’t know any word for that, that’s why I use [the term] *neutral nature*. But completely nothing; you simply cannot put any label on it. This is unmanifested karma. 
 
-But how is it we create a different world? In Buddhism, we say *interdependent co-origination*; this is also a very important teaching for us. If you don’t understand this, pay careful attention to your reality, your life, every day. Very naturally, you will understand. 
+But how is it we create a different world? 
 
-What is *existence*? Existence is a form of *being* created by countless number of elements. It is not created by some particular person or being, or other beings. In Buddhism, *existence* is that which is produced by countless number of elemental conditions. 
+In Buddhism, we say *interdependent co-origination*; this is also a very important teaching for us. If you don’t understand this, pay careful attention to your reality, your life, every day; very naturally, you will understand. […] What is *existence*? Existence is a form of *being* created by countless number of elements. It is not created by some particular person or being, or other beings. In Buddhism, *existence* is that which is produced by countless number of elemental conditions. 
 
 I told you before a little about smoking cigarettes. Forget it; you understand that. But the first question is, why is it I started to smoke? I don’t know. I have a reason: because I wanted to help my father. But this is *my* reason; I try to justify my life. *[He chuckles.]* “Why do you smoke?” “Because I want to help my father.” But this is nothing but justifying my life. See more deeply: *why*? Well, finally I can say, maybe I have smoked since the beginningless past. Because I have done it in that way for many, many years; and then, I started to smoke. Maybe so. 
 
@@ -115,8 +115,6 @@ If you say, “No, you should work at night” – of course, maybe you can work
 Anyway, that’s why finally we have a custom like this, we have a habit. We have had a habit in that way for many, many years. That’s why we have breakfast, or why we sleep at night. So this is very natural. Finally, you can say so. 
 
 The question is, this custom makes you sleep at night now, but what is this custom? This is *unmanifested karma*. We have done [it] for many, many years. 
-
-#### 37:37
 
 And also, this *unmanifested karma* is always stored in your body and mind. It’s exactly a “good boy.” [It does] nothing to interrupt your life; it’s always in your life as unmanifested karma, it doesn’t appear. If it doesn’t appear on the surface, well, no one knows, and you don’t know either – so it doesn’t bother [anyone]. That is what is called *neutral nature*; completely neutral. 
 
@@ -130,7 +128,9 @@ And also, that time and occasion and conditions are really closely related with 
 
 That’s why, very naturally, in our present life you can see different lifestyles, different types of human life. 
 
-Broadly speaking, if you say *karma*, karma is with you, and also karma is completely beyond human control. At that time everyone is the same, all human beings are exactly the same. What is the point? Everyone has the same karma: that is *ignorance*, *avidyā*. *Affliction*; *suffering*. And then we are doomed not to know exactly what the truth is. This is the very universal nature of the human world, which is called *dualism*, the dualistic world. 
+#### 41:45
+
+Broadly speaking, if you say *karma*, karma is with you, and also karma is completely beyond human control. At that time everyone is the same, all human beings are exactly the same. [...] Everyone has the same karma: that is *ignorance*, *avidyā*. *Affliction*; *suffering*. And then we are doomed not to know exactly what the truth is. This is the very universal nature of the human world, which is called *dualism*, the dualistic world. 
 
 But in the dualistic world, there are different types of human life; that is what is called *individual karma*. We have individual karma. How do we create this individual karma? Because you have done [so] for many, many years. And then, you have breakfast now. Why? Because we have had [a] custom for many, many years, and then when the time and conditions are arranged exactly, you want to have breakfast.
 
@@ -232,7 +232,7 @@ For instance, if yesterday I stole a ten dollar bill from someone’s pocket. An
 
 **Same person:** So when you decided not to smoke during that *sesshin*, that was great determination?
 
-**Katagiri:** Yes I think so, determination. Environment, and also *sesshin*, and people encouraging me, et cetera. All things put together and just [right]. But if I try by myself, using a little will, that is pretty hard. That’s why we need environment, and friends, and many things. 
+**Katagiri:** Yes, I think so, determination. Environment, and also *sesshin*, and people encouraging me, et cetera. All things put together and just [right]. But if I try by myself, using a little will, that is pretty hard. That’s why we need environment, and friends, and many things. 
 
 #### 1:04:21
 
@@ -282,7 +282,7 @@ Maybe he did something wrong in the past. The person who survived, maybe he did 
 
 **Katagiri:** That’s why we have to store unmanifested karma toward the future, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves an impression on our life, and we can carry on toward the future. At that time, we can carry this good karma as unmanifested karma, so very naturally you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage, and then good karma is stored in your life for the future. 
 
-The moment when you store good karma, at that time [it becomes] unmanifested karma. This completely turns into neutral nature. So, there is nothing to say. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good. Then the karma appears. 
+The moment when you store good karma, at that time [it becomes] unmanifested karma. This completely turns into neutral nature. So, there is nothing to say. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good; then the karma appears. 
 
 #### 1:15:03 end of recording
 
