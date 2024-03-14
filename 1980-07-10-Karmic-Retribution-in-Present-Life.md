@@ -40,7 +40,7 @@ Well, later I will explain this. Dogen’s point is always focusing on actual pr
 
 #### 9:46
 
-You have a system of entering into the Buddha’s world, in other words, the human world. First: teaching. Second: practice. Third: result, which is called *realization*. According to common sense, we take them one by one, from the top: teaching, practice, and realization. The teaching means we should believe in the teaching first, and then after understanding and believing the teaching, then you can get into the practice. So you can practice. And then after practice, you can take one step into the gate of realization: the result. And then you understand: “Ah, this is human life.” 
+You have a system of entering into the Buddha’s world, in other words, the human world. First: *teaching*. Second: *practice*. Third: *result*, which is called *realization*. According to common sense, we take them one by one, from the top: teaching, practice, and realization. *The teaching* means we should believe in the teaching first, and then after understanding and believing the teaching, then you can get into the *practice*. So you can practice. And then after practice, you can take one step into the gate of *realization*: the result. And then you understand: “Ah, this is human life.” 
 
 But Dogen Zenji’s way is a little different. He really focuses first on actual practice. 
 
@@ -90,7 +90,7 @@ I would like to talk about karma in terms of Dogen’s understanding. Briefly, t
 
 *Buddha’s karma* should be understood from what I mentioned already from the three points: teaching, actual practice, and realization. And then if you really focus on actual practice, from which teaching comes and realization comes simultaneously, at that time, that karma becomes Buddha’s karma.
 
-Buddha’s karma is not something particular; Buddha’s karma is karma which is completely transparent. If you see karma [like] crystal, for instance. It’s beautiful. You can see the bottom of it. If it’s pure water, *[unintelligible]* really penetrates [to] the bottom of the river. That is Buddha’s karma: complete beauty of karma. If your karma becomes transparent – whatever you do, wherever you may be, if you can see your life as karma – it becomes Buddha’s karma, helping your life. 
+Buddha’s karma is not something particular; Buddha’s karma is karma which is completely transparent. If you see karma [like] crystal, for instance. It’s beautiful. You can see the bottom of it. [If] it’s pure water, *[unintelligible]* really penetrates [to] the bottom of the river. That is Buddha’s karma: complete beauty of karma. If your karma becomes transparent – whatever you do, wherever you may be, if you can see your life as karma – it becomes Buddha’s karma, helping your life. 
 
 *A great source of energy* is really, according to the Buddha’s teachings, *emptiness*. According to *Diamond Sutra*, that is *no abode*. From where does karma come? No abode. [There is] no root of abiding [which] karma depends on. That is emptiness. Plainly speaking, [karma] is nothing but dynamic function of energy.
 
@@ -100,7 +100,7 @@ The first one, *continuation of karma*, is that [karma] which each of us individ
 
 I told you, according to the Twelve-Linked Chain of Causation, karma is *samskara* and *bhava*. Bhava is *existence*; samskara is... it’s very difficult to translate, but this is the first stage of human movement. But this first stage of human movement is really connected with *avidyā*, ignorance. 
 
-I told you already, *ignorance* is a state of being in which one tries to understand what the truth is, but cannot understand it, [while] nevertheless one is constantly present in the truth. Can you see what ignorance means? Ignorance is not *bad*, okay? But it’s not *good*. And it’s not *neutral*. *[He laughs.]* It’s [only] something that is there. We don’t know why. But anyway, if we see something is there – right now, right here – through our wisdom, temporarily we say *ignorance*. But ignorance is really the state of being in which one simply cannot pin down what the truth is, although one is constantly present in the truth. 
+I told you already, *ignorance* is a state of being in which one tries to understand what the truth is, but cannot understand it, [while] nevertheless one is constantly present in the truth. Can you see what ignorance means? Ignorance is not *bad*, okay? But it’s not *good*. Well, it’s not *neutral*. *[He laughs.]* It’s [only] something that is there. We don’t know why. But anyway, if we see something is there – right now, right here – through our wisdom, temporarily we say *ignorance*. But ignorance is really the state of being in which one simply cannot pin down what the truth is, although one is constantly present in the truth. 
 
 Let’s understand [avidyā] through your daily life. Avidyā is not karma; avidyā is *klesha*: delusion, or affliction... pain. The state of being is *afflicted* [...] because we want to know, but we simply cannot. We are really “doomed” not to understand, not to pin down what the truth is, but nevertheless, we are there. That is really affliction, don’t you think? But the question is, why is it that we are already in such a situation? There is no answer. If we say something about this, there is only one thing we can say: because we have done so for many, many years; that’s why we are right in the middle of such a situation. 
 
@@ -112,7 +112,7 @@ People try to find a better way, which is called *busyness*. But, it’s not the
 
 But if you think the practice [is a] kind of sweet candy you can get, or you can get happiness, or whatever – that is not practice. In such a practice there are always lots of waves: big waves, ups and downs. If you become [like a] turtle or cow, it’s slow, but it’s really the shortest way, it’s really a shortcut. But you don’t believe it; that’s why I have to explain karma as Buddha’s karma, as Dogen mentions. I would like to talk about this point more later.
 
-That’s why in the first point of karma according to Dogen, karma is really continuation of karma from the beginningless past. And also, it is yours. [It’s] no one else’s, it’s really yours – as property, as *[unintelligible]*.
+That’s why in the first point of karma according to Dogen, karma is really continuation of karma from the beginningless past. And also, it is yours. [It’s] no one else’s, it’s really yours – as property, as *[unintelligible]*. It’s yours.
 
 Don’t misunderstand this. If you misunderstand this, such [an idea of] karma makes you pessimistic, nihilistic, or fatalist. I don’t think [it’s like that]. This is looking at your life in the *broad* perspective, and really making your life humble and modest and compassionate. There is no other way but to be compassionate. 
 
