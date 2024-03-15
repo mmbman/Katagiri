@@ -186,17 +186,19 @@ But taking care of day-to-day life is not “what will be, will be.” It doesn�
 
 #### 2 - 17:34
 
-From this way of life, you can really understand why you have to have a funeral service. [If a person dies and their ashes are just scattered wherever] – that’s fine. But are you satisfied, or not? It’s questionable. So finally, we want to do something for her or him, after his or her death, *beyond* the idea of “nothing left behind after death.” It doesn’t matter; just perform a funeral service. 
+From this way of life, you can really understand why you have to have a funeral service. [If a person dies and their ashes are scattered wherever] – that’s fine. But are you satisfied, or not? It’s questionable. So finally, we want to do something for her or him, after his or her death, *beyond* the idea of “nothing left behind after death.” It doesn’t matter; just perform a funeral service. 
 
 The content of that funeral service is a good lesson for you: [you] can always direct [yourself] to the beautiful destination *and* take care of day-to-day [life]. That means just take care of the funeral service with wholeheartedness. At that time, the funeral service really helps everyone, and also [it’s helpful] for you. This is the meaning of Buddhist services. 
 
-Dogen Zenji always talks about this in detail, but simply speaking, [it is] a very simple practice: *sit down*. So-called *shikan*: wholeheartedness. But that really gives you *lots* of information. Without the quality of this wholehearted way of life, you cannot take care of [...] everyday life, because everyday life is very complicated. Within the complicated and multitudinous aspect of everyday life, you have to manifest your *whole personality*, regarded as a simple entity including your very complicated life: heredity, karma, customs, many things. How do we know? That is very simple *personalities*. That’s why we can feel this from everyone. Even though you don’t say anything, you’re talking about your own life. 
+Dogen Zenji always talks about this in detail, but simply speaking, [it is] a very simple practice: *sit down*. So-called *shikan*: wholeheartedness. But that really gives you *lots* of information. Without the quality of this wholehearted way of life, you cannot take care of [...] everyday life, because everyday life is very complicated. Within the complicated and multitudinous aspect of everyday life, you have to manifest your *whole personality*, regarded as simple entities including your very complicated life: heredity, karma, customs, many things. 
+
+How do we know? That is very simple: *personalities*. That’s why we can feel this from everyone. Even though you don’t say anything, you’re talking about your own life. 
 
 So this is our practice, and also this is our study. Day by day, we have to study. 
 
 So finally the conclusion is: karma is... *guess*. We don’t know. *[He laughs.]* I can say I don’t know what karma is. But I think I can give you some hint what karma is. Okay? 
 
-So don’t accept karma as kind of pessimistic. No. It’s not [just a] good aspect of human life, but it’s not fate or destiny. It’s *kind of* destiny or fate, but it includes dynamic energy to make your life productive.
+So don’t accept karma as kind of pessimistic. No. It’s not [just a] good aspect of human life, but it’s not fate or destiny. It’s kind of destiny or fate, but it includes dynamic energy to make your life productive.
 
 This is karma. Practically speaking, I don’t know [what it is], but everyone can feel it. That’s why you can use karma, even though you don’t understand it. *[He chuckles.]*
 
@@ -266,17 +268,19 @@ For instance, if you live together with someone, for instance boyfriend or girlf
 
 **Same person:** But maybe as there is a karma that applies specifically to, say, Japanese culture, or to American culture, there’s one that applies to individuals, and that they depend on the whole. So that there can be a global karma, [...]
 
-**Katagiri:** Yes, that’s right. So, it’s very complicated. All things [are] interconnected. So [these are] very simple entities which you can see, practically, but the contents of the simple entity are very complicated, consisting of many situations. The global or cosmic state of existence is very complicated. [There is] the individual character of a nation, but also the common character of humans. Wherever you are, American, or Japanese, or European, [you] are human beings. If so, if you say *human beings*, human beings really have something stinky. And also peaceful being. So that is very common. You are American, which is different from others, but on the other hand, you are human, which is the same as I. 
+**Katagiri:** Yes, that’s right. So, it’s very complicated. All things [are] interconnected. So [those are] very simple entities which you can see, practically, but the contents of the simple entities are very complicated, consisting of many situations. 
+
+The global or cosmic state of existence is very complicated. [There is] the individual character of a nation, but also the common character of humans. Wherever you are, American, or Japanese, or European, [you] are human beings. If so, if you say *human beings*, human beings really have something stinky. And also peaceful being. So that is very common. You are American, which is different from others, but on the other hand, you are human, which is the same as I. 
 
 So that’s why the total overall cosmic or global picture – whatever you say – consists of many, many things. But practically, we have to take care of that overall picture of global existence. 
 
 That’s why we have to be careful. For instance, we are creating nuclear weapons, and all beings might be destroyed. Who created this? Particular races? No. That is human beings. That is really the global character of human beings. *[He laughs slightly.]*
 
-But, should we ignore the individual different characters? Where should we find the different characters? We should find different individual characters in that global character which all human beings possess. What is this [global character]? There is the example of creating nuclear weapons. Should we destroy individual character? No, we have to *develop* individual different characters in that global character of human beings. *How?* That’s why it’s difficult. But we shouldn’t ignore it. 
+But, should we ignore the individual different characters? Where should we find the different characters? We should find different individual characters *in* that global character which all human beings possess. What is this [global character]? There is the example of creating nuclear weapons. Should we destroy individual character? No, we have to *develop* individual different characters *in* that global character of human beings. 
 
-So we have to develop individual character and simultaneously the global character of human beings. Beyond any ideas of whether we can build up a peaceful world or not, let’s do it: be peaceful. 
+*How?* That’s why it’s difficult. But we shouldn’t ignore it. So we have to develop individual character and simultaneously the global character of human beings. Beyond any ideas of whether we can build up a peaceful world or not, let’s do it: be peaceful. 
 
-That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Breathing out, I smile with joy.” What is this practice? What does he mean? No discussion. But still, discussion there. But I think sooner or later we have to stop discussing, and then day-by-day we have to build up peace in the very complicated overall picture of global existence, so-called human being. This is our peace work, [religiously speaking.]
+That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Breathing out, I smile with joy.” What is this practice? What does he mean? No discussion. But still, discussion there. But I think sooner or later we have to stop discussing, and then day-by-day we have to build up peace in the very complicated overall picture of global existence, so-called human being. This is our peace work, [religiously speaking].
 
 #### 2 - 41:05 end of recording
 
