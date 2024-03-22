@@ -27,6 +27,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**March 21, 2024:** Updated [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings).
+
 **March 15, 2024:**: Completed one more pass through the [Karma](karma) series. 
 
 **March 12, 2024:**: For class: [Excerpt from Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox](ExcerptFromBCRCase38.pdf). 
