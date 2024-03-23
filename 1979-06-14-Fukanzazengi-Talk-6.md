@@ -18,11 +18,11 @@ Katagiri Roshi talks about *body and mind dropping off* from a psychological poi
 
 #### 0:00
 
-**Katagiri Roshi:** We talked about [zazen](glossary#zazen) based on body and mind dropping off, which means that from the first dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
+**Katagiri Roshi:** [We] talked about [zazen](glossary#zazen) based on body and mind dropping off, which means that from the first dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
 
 You know pretty well that in [primitive Buddhism](glossary#primitive-buddhism) there are the categories of existence which are called the [five skandhas](glossary#skandha). Among the five skandhas, there is a very interesting concept which is called [*samskara*](glossary#samskara). In the [*Prajnaparamita Sutra*](glossary#prajnaparamita-sutra), it is translated as [*impulses*](glossary#impulses). According to [Doctor Conze](https://en.wikipedia.org/wiki/Edward_Conze) it is regarded as *together-maker*. That concept of samskara is a very interesting teaching. 
 
-In the development of [Buddhism](glossary#buddhism) this concept, *samskara*, [appears in] many [places]. For instance, we already learned this year in a talk given by [Reb Anderson](glossary#reb-anderson) that in [*Abhidharmakosha*](glossary#abhidharmakosha) there are five psychological categories of existence:
+[In] the development of [Buddhism](glossary#buddhism) this concept, *samskara*, [appears in] many [places]. For instance, we already learned this year in a talk given by [Reb Anderson](glossary#reb-anderson) that in [*Abhidharmakosha*](glossary#abhidharmakosha) there are five psychological categories of existence:
 
 One is elements of *form*; that is the six organs, the six objects. 
 
@@ -30,17 +30,21 @@ The second one is *six consciousnesses*.
 
 The third category is called *function*: the concomitant mental faculties. That means function of the mind: the wholesome and unwholesome functions concomitant with the six consciousnesses. There are many kinds of concomitant functions of the mind: for instance anger, hatred, et cetera; many things. 
 
-These categories are very interesting, because the fourth one is an element which is completely not associated with the mind of the six sense consciousnesses, nor concomitant mental faculties, nor the elements of form, nor the fifth one, which is the truth. That is what is called *samskara*.
+[The fourth category is] very interesting, because [it] is an element which is completely not associated with the mind of the six consciousnesses, [nor] concomitant mental faculties, nor the elements of form, nor the fifth one, which is the truth. That is what is called *samskara*.
 
-In *Abhidharmakosha*, samskara is [included in] many things. I am very interested in this element, which is not associated with the mind and not associated with the truth. That element is sort of a *force*. In the book ["The Central Conception Of Buddhism"](books#central-conception), [the author] said about this: 
+In *Abhidharmakosha*, *samskara* is [included in] many things. [...] I am very interested in this element, which is not associated with the mind and not associated with the truth. 
+
+That [element] is sort of a *force*. In the book ["The Central Conception Of Buddhism"](books#central-conception), [the author] said about this: 
 
 > A force, it must be recalled, shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. But, simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara in the Buddhist system.
 >
 > (From [*The Central Conception of Buddhism and the Meaning of the Word Dharma*](books#central-conception) by Theodore Stcherbatsky
 
-So, samskara as a force shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. So samskara is not your force penetrating into other beings, but it is a kind of condition. A condition is a fact which occurs between two objects, but mainly these conditions are what is called origination and decay. According to [primitive Buddhism](glossary#primitive-buddhism ), that is [impermanence](glossary#impermanence) or constant change – appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
+So, samskara [as] a force shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. So samskara is not [a real] force penetrating into other beings, but it is a kind of *condition*. A condition is a fact which occurs between two [objects]. But mainly, these conditions are what is called *origination* and *decay*. According to primitive Buddhism, that is [*impermanence*](glossary#impermanence), or constant change – appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 
-Anyway, *force* is not a real “force,” but a conditioned element which occurs between two objects. And also this conditioned element has a certain power to *concert* two things, to exist. So that’s why this author says, “... simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara.”
+Anyway, *force* is not a real “force,” but a conditioned element which occurs between two objects. And also this conditioned element has a certain power to *concert* two things, to exist. 
+
+So that’s why this author says, “... simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara.”
 
 #### 9:02
 
