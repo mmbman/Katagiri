@@ -160,19 +160,23 @@ The third one is, you are completely not interested. *[He chuckles.]* [You say,]
 
 So, three possibilities. One possibility is to plant a seed. The second possibility is to actualize, in order to complete in your daily living. You can do it. And the third possibility is, no interest. That means, “This zazen, I don’t know. But, just do.” *[He laughs.]* No spirit of zazen; but Katagiri says let’s do zazen, that’s why just do zazen. But this is also pretty good, because that is possibility which will bloom in the future. That is called *completion of liberation*, *completion of freedom*. In other words, you are free. No particular [level], good or bad or neutral. Your life is “so-so.” Are you happy? No. Are you unhappy? No. Are you neutral? No. Well, how do you feel? So-so. That’s okay. Still there is a possibility. So that is one of the conditioned elements which is called obtaining or getting. 
 
-So between the two objects, zazen and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility [exist]. You can plant a seed, right now, using your body [...] completely, according to instructions. You can plant seeds, even though you don’t understand. Or, you can completely *actualize* completion. According to suggestions and instructions, you can find, you can realize. If you actualize exactly, even though intellectually you cannot reach it, it’s really actualized. So, you can complete something in your daily living. But also between zazen and you there is another possibility: “Well, I don’t understand. Well, I don’t want to do it, but I will just do it... [so-so].”
+So between the two objects, zazen and you, there are three kinds of conditioned elements. Three kinds of conditioned elements means three kinds of possibility [exist]. You can plant a seed, right now, using your body [...] completely, according to instructions. You can plant seeds, even though you don’t understand. Or, you can completely *actualize* completion. According to suggestions and instructions, you can find, you can realize. If you actualize exactly, even though intellectually you cannot reach it, it’s really actualized. So, you can complete something in your daily living. And also between zazen and you there is another possibility: “Well, I don’t understand. Well, I don’t want to do it, but I [will] just do it... [so-so].”
 
 The best way, that is...
 
 *[Tape change.]*
 
-... in the context of conditioned elements. How? Using your body, perfectly fitting into your object. At that time, your body becomes one with zazen, zazen becomes one with you, very naturally. At that time, there is something that happens. That is called zazen. The [problem] is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the problem. We have to understand, what is mind? Very tricky mind, very “monkey” mind, always.
+... in the context of conditioned elements. 
 
-Well, we have to make every possible effort to do that, because we have a mind. Mind is already here; that’s why we have to practice. 
+How? Using your body, perfectly fitting into your object. At that time, your body becomes one with zazen, zazen becomes one with you, very naturally. At that time, there is something that happens. That is called zazen. 
+
+The [problem] is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the [problem], so we have to understand what is mind. Very tricky mind, very “monkey” mind, always.
+
+Well, we have to make every possible effort to do that, [because] we have a mind. Mind is already here; that’s why we have to practice. 
 
 #### 48:25
 
-So Dogen Zenji says, that’s why 
+So Dogen Zenji says, that’s why ... 
 
 > ... it cannot be fully known by the practicing or realizing of supernatural power either.
 
@@ -184,7 +188,7 @@ Or, Dogen Zenji says,
 
 If you see zazen *after* your zazen, that is an image of zazen, it is not real zazen. 
 
-*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gi”, more or less). The *i* of *igi* means “majestic and awe-inspiring.” Very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior; that is deportment. Here it says “deportment,” but originally we use *igi*. Usually we use *behavior*, but that behavior is *igi* in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Your behavior is fitting into the rhythm of the truth.
+*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gi”, more or less). The *i* of *igi* means “majestic and awe-inspiring.” Very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior. And that is deportment. Here it says “deportment,” but originally we use *igi*. Usually we use *behavior*, but that behavior is *igi* in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Your behavior is fitting into the rhythm of the truth.
 
 So, this behavior which is called zazen is completely beyond hearing or seeing through the six consciousnesses. Let’s return to conditioned elements, that’s all. 
 
@@ -192,9 +196,9 @@ But, Dogen Zenji says,
 
 > Is it not the principle that is prior to one’s knowledge and perceptions?
 
-That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still [bowing](glossary#bowing), and being in accord with the function of knowledge and perception. How? Let’s use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
+That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still bowing, and being in accord with the function of knowledge and perception. How? Let’s use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
 
-And after that, mind associates, that’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach to it. But before mind, prior to the function of your mind, it’s really *just sit*. It’s a very simple practice. That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions?” It’s [there]. You have to really *fit* into your knowledge and perceptions. 
+And after that, mind associates, that’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach to it. But before mind, prior to the function of your mind, it’s really *just sit*. It’s a very simple practice. That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions?” It’s [there]. You have to [just] really *fit* into your knowledge and perceptions. 
 
 Do you have questions?
 
@@ -210,19 +214,19 @@ Do you have questions?
 
 **Same person:** Could you say a little more about that?
 
-**Katagiri:** Well that is change: the function of change, the stream of change, broadly speaking. We analyze that function of change, dividing it into several things – again, *prāpti* and *aprāpti* – but these are just categories. So that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
+**Katagiri:** Well that is *changing*: the function of change, the stream of change, broadly speaking. We analyze that function of change, dividing it into several things – *prāpti* and *aprāpti* – but these are just categories. But that means, broadly speaking, there is some force to combine, to put together something, to separate, always. That means appearing, disappearing.
 
-**Same person:** Could you develop a specific example, of something in everyday life that comes up and where...
+**Same person:** Could you develop a specific example of something in everyday life that comes up and where...
 
 **Katagiri:** Well, we always do it. Something happens.
 
 For instance... Well, here is a good example, okay? 
 
-When I was at [Eiheiji](glossary#eiheiji) monastery, we had a big earthquake. It was evening of the day on which we performed the memorial service for Dogen’s death, at 5:00 pm. And then, right after the service, all the monks were about to leave the [zendo](glossary#zendo), several people in the end of the line stepped out from the zendo, and then the earthquake happened. Fortunately there was no damage to the monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that’s all. No damage. 
+When I was at [Eiheiji](glossary#eiheiji) monastery, we had a big earthquake. It was evening of the day on which we performed the memorial service for Dogen’s death, [just before] five o’clock. Right after the service, all the monks were about to leave the [zendo](glossary#zendo), several people in the end of the line stepped out from the zendo, and then the earthquake happened. Fortunately there was no damage to the monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that’s all. No damage. 
 
 But here is a very good example. One of my friends was on vacation that day, a day off for him, so he went to Fukui City. It’s a little far from Eiheiji monastery ... now, it’s pretty quick, but at that time it took about thirty minutes or so from Eiheiji monastery to Fukui city. So, I don’t know what he did there, but anyway he went. He told me he wanted to see a movie, but he thought, “Oh, tonight is the memorial service; it’s the particular day of performing the memorial service for Dogen’s death. Let’s go back.” So he returned. And then at that time, the whole movie theater completely crashed; everybody died. Because there were several tiers, no posts; if you have a big earthquake, exactly “boom.” All the people died; but he was saved. *(Transcriber’s Note: The earthquake killed 3,769 people. See [Wikipedia: 1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))*
 
-Do you understand? This is a very good example. *[The group laughs – perhaps because no one understands how this is a good example.]*
+Do you understand? This is a very good example.
 
 One more person was on the train from Fukui City to Eiheiji monastery, because he too thought, “Oh, today is the particular day of performing a memorial service for Dogen, so let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off the track. But he survived. Do you understand? This is a very good example.
 
@@ -234,9 +238,9 @@ That is karma, maybe past life. Well, you can envision his past life, and also, 
 
 **Same person:** So the karma in life influences how strong these forces are enacting?
 
-**Katagiri:** Sure. In many ways. But only if the times and opportunities are ripe and conditions arranged. Dogen’s memorial day and his day off are set up, and then karma starts to work. Which would you like? You want to go to a movie, or you want go to Eiheiji monastery?
+**Katagiri:** Sure. In many ways. But only if the times and opportunities are ripe and conditions arranged. Dogen’s memorial day and his day off are set up, and then karma starts to work. [Which way] would you like? You want to go to a movie, or you want go to Eiheiji monastery?
 
- **Same person:** How then are those conditions separate from the body, if karma is involved? I mean, things don’t happen randomly. 
+**Same person:** How then are those conditions separate from the mind, if karma is involved? I mean, things don’t happen randomly. 
 
 **Katagiri:** What is your question? 
 
@@ -248,21 +252,21 @@ That is karma, maybe past life. Well, you can envision his past life, and also, 
 
 **Katagiri:** No. Because that karma is completely beyond good or bad, right and wrong. If you judge the karma – it’s good, it’s bad – that is the mind associated with karma. But karma is just karma. That is a conditioned element. 
 
-That’s why something happens. Rock, Gensha Shibi’s toes; something happens. But I don’t know; you cannot say it is bad or it is good. Why can’t you do this? Well, we don’t know. For instance, if you walk on a bridge, and the bridge immediately crashes, and you die: why is it you have to die? No one knows. 
+That’s why something happens. Rock, Gensha Shibi’s toes; something happens. But I don’t know; you cannot say it is bad or it is good. Why can you do this? Well, we don’t know. For instance, if you walk on a bridge, and the bridge immediately crashes, and you die: why is it you have to die? No one knows. 
 
 Well, that is a good example. Someone dies in that way, and that is conditioned elements, always. Good and bad – that is a matter of the mind. So whether it is associated with karma or not associated – completely beyond. Just conditioned elements. But anyway, conditioned elements are related with the past, present, future. That is conditioned elements. 
 
-Philosophically speaking, that is interdependent co-production. 
+So philosophically speaking, that is interdependent co-production. 
 
 **Same person:** Well then, we can still see the instant without attaching to it, and learning from that? Because, perhaps if he’d have noticed the rock an instant before, he wouldn’t have bumped his toe on it.
 
 **Katagiri:** Hmm?
 
-**Same person:** Gensha had noticed the rock...
+**Same person:** If Gensha had noticed the rock...
 
 **Katagiri:** I don’t know. Maybe so.
 
-**Same person:** Well I’m saying maybe he would have noticed the rock. Can we look at that and see that, or is that attaching to it?
+**Same person:** Well I’m saying maybe he would have noticed the rock. [...] Can we look at that and see that, or is that attaching to it?
 
 **Katagiri:** That is already the process of your mind, which is working. The rock and his toes completely are beings, as they really are. From moment to moment, [they are] completely beyond, prior to function of the mind, consciousness. Toes, and his body, and rock: just there. If his mind was working before he struck his toes, maybe he wouldn’t have had such an event. But already [something is there]; that means rock as a being, beyond function of human mind. But how do they associate with each other? We don’t know. Because between the two, something connects. That connection is not something that happens right now; it’s really connected with the past and the future. That’s why it’s *broad*. 
 
@@ -270,7 +274,7 @@ That’s why if you don’t pay careful attention to your life – well, many th
 
 And then after that – well, mind associates and attaches. 
 
-So, according to my talk yesterday, we are always seeing *before* zazen and *after* zazen. We miss the middle, that is *real* zazen. We always understand zazen before zazen and after zazen, or you before zazen, you after zazen. We always look and check, analyze ourself, but we miss the most important zazen and practice [as] the middle. Is that clear?
+So, according to my talk yesterday, we are always seeing the *before* zazen and *after* zazen. We miss the *middle*; that is *real* zazen. We always understand zazen before zazen and after zazen, or you before zazen, you after zazen. We always look and check, analyze, et cetera, but we miss the most important zazen and practice [as] the middle. Is that clear?
 
 **Same person:** Mmm-hmm.
 
@@ -280,7 +284,7 @@ So, according to my talk yesterday, we are always seeing *before* zazen and *aft
 
 **Katagiri:** Water, according to Dogen’s understanding, is the whole universe. That water is occupying a certain space; water is the universe. When the water becomes one with the moon, when the water reflects the moon, at that time, water is not water, water is the whole universe. At that time, there is no combination of water and moon.
 
-So, if you see the water, immediately there is the moon, but that moon doesn’t appear. That’s why Dogen Zenji says, “When one is bright, the other one is dark.” That means water appears; *that* water is really the blooming of the universe. Not water; the universe. So the universe includes moon, water, tree, birds. That is the real meaning of the water’s life. 
+So, if you see the water, immediately there is the moon, but that moon doesn’t appear. That’s why Dogen Zenji says, “When one is bright, the other one is dark.” That means water appears; *that* water is really the blooming of the universe. Not water; the universe. So the universe includes moon, water, trees, birds. That is the real meaning of the water’s life. 
 
 #### 1:08:19
 
@@ -296,35 +300,37 @@ So, if you see the water, immediately there is the moon, but that moon doesn’t
 
 **Question:** I still don’t understand the statement, “The body does not exist.” When he stubbed his toe, and he said, “This body does not exist,” or something like that?
 
-**Katagiri:** Well, if you use the term “body and mind,” already that is the *image* of the body and mind. You are already taken in by the [word], the trick, already. “The body and mind doesn’t exist” means, well, body and mind is what? Body and mind is nothing but a being which exists, right now, right here, beyond good or bad, right and wrong. So the body is what? Well, maybe a very important thing, but on the other hand, it’s not important. So if you judge the body from your mind – in other words, if you see the body after something, before something – if you understand the body before and after, always there is [objection then]. But really, body and mind is just the being becoming one with you, becoming one with some event. 
+**Katagiri:** Well, if you use the term “body and mind,” already that is the *image* of the body and mind. You are already taken in by the [word], [tricked], already. “The body and mind doesn’t exist” means, well, body and mind is what? Body and mind is nothing but a being which exists, right now, right here, beyond good or bad, right and wrong. So the body is what? Well, maybe a very important thing, but on the other hand, it’s not important. So if you judge the body from your mind – in other words, if you see the body *after* something, *before* something – if you understand the body before and after, always there is *[unintelligible]*. But really, body and mind is just the being becoming one with you, becoming one with some event. 
 
-If you strike your toes on the rock, your body and mind – what? Nothing but the toes. The toes exemplify your whole body and mind. So, toes, [or] your body, are just a being as it is, beyond human speculation. Before you see your body *before*, something happens. And also if you see your body *after* something happens, you can say, “that is the body”; that’s why you attach to it and scream, “Ouch!” But right in the middle of occurrence, [there is] no idea of body, because toes and rock are just one. That’s all. [By what conditions, elements?] Just one. Your toes are used perfectly for the rock, fitting into it. That’s all. Something happens. 
+If you strike your toes on the rock, your body and mind – what? Nothing but the toes. The toes exemplify your whole body and mind. So, toes, [or] your body, are just a being as it is, beyond human speculation. Before you see your body *before*, something happens. And also if you see your body *after* something happens, you can say, “that is the body”; that’s why you attach to it and scream, “Ouch!” But right in the middle of occurrence, [body just is]. [There is] no idea of body, because toes and rock are just one. That’s all. By what? Conditioned element. Just one. Your toes are used perfectly for the rock, fitting into it. That’s all. Something happens. 
 
 **Same person:** Why does the pain [continue]? Is that your mind attaching to it and *[unintelligible]*?
 
-**Katagiri:** Yes. Pain is sort of the image of some of your experience. [Real] pain is no pain. But if your mind attaches to something, sometimes it is called pain, sometimes it is called pleasure. Your toe, your body, is just one with the rock, right in the middle of the event. No idea of body, no idea of rock, no idea of toe, no idea of pain. Just all things put together, combined; they combine and appear. In this realm, there is no confusion; just all things put together. And after that, immediately, mind attaches to it, and then you say, “Body. I have a toe.” And then you say, “Ouch!” 
+**Katagiri:** Yes. Pain is sort of the image of some of your experience. [Real] pain is no pain. But if your mind attaches to something, it is called pain sometimes, it is called pleasure sometimes. Your toe, your body, is just one with the rock, right in the middle of the event. No idea of body, no idea of rock, no idea of toe, no idea of pain. Just all things put together; they combine and [appear]. In this realm, there is no confusion; just all things put together. And after that, immediately, mind attaches to it, and then you say, “Body. I have a toe.” And then you say, “Ouch!” 
 
-That’s why he said, “Body and mind doesn’t exist; from where does the pain come?” Actually, pain comes from no abode. *No abode* means just the functioning of the two things, rock and toe. Just function, total dynamic working, that’s all. Within this, no pain. Sort of [like] death. If you become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and us. *After* that, immediately I say, “Ah, this is death!” But it’s too late. We do this always in our daily living. “I died. Oh! This is death.” *[He laughs.]* 
+That’s why he said, “Body and mind doesn’t exist; from where does the pain come?” Actually, pain comes from no abode. *No abode* means just the functioning of the two things, rock and toe. Just the function, total dynamic working, that’s all. Within this, no pain. 
 
-And then we say that [means] body and mind exist; but I don’t think so. We cannot ignore that, [because] we have already mind, and also we have lots of customs we have accumulated in the past. That’s why we have to pay careful attention to our body and mind: how to use them, perfectly fitting into certain circumstances, environment: zazen, or whatever. 
+Sort of [like] death. If I become one with the death: no pain, no pleasure, nothing. Just dynamic working between death and I. *After* that, immediately I say, “Ah, this is death!” But it’s too late. We do this always in our daily living. “I died. Oh! This is death.” *[He laughs.]* 
+
+And then we say that is *body and mind exist*. But I don’t think so. But we cannot ignore that, [because] we have already mind, and also we have lots of customs we have accumulated in the past. That’s why we have to pay careful attention to our body and mind: how to use them, perfectly fitting into certain circumstances, environment: zazen, or whatever. 
 
 #### 1:16:36
 
 **Question:** You said we already have mind, and you had some other statements, Roshi. Does mind exist before these things take place?
 
-**Katagiri:** The mind ... already exists. 
+**Katagiri:** Mind ... already exists. 
 
 **Same person:** The mind is always existing? 
 
-**Katagiri:** Exists? Of course.
+**Katagiri:** It exists. Of course.
 
 **Same person:** Independent of these things? Independent of toe hitting rock?
 
-**Katagiri:** Oh, independent. You mean is the mind independent. Yes, actually mind is independent from that total dynamic working. Yes. *[There is some laughter.]* The original nature of the mind is already there. Original nature of the mind is what? Not-mind. No mind. It’s just conditioned origination, conditioned co-production. Function. That’s all.
+**Katagiri:** Oh, *independent*. You mean is the mind independent. Yes, actually... mind is independent from that total dynamic working. Yes. *[There is some laughter.]* Because the original nature of the mind is already there. Original nature of the mind is what? Not-mind. No mind. It’s just conditioned origination, conditioned co-production. Function. That’s all.
 
 **Same person:** But anyway, mind exists before these things are happening. 
 
-**Katagiri:** Yes. Original face of the mind is exactly the same as being. Just like the rock, and toes, and trees, and birds, many things. Same. That’s why we call them [dharmas](glossary#dharma). Everything is called dharmas. So mind – unwholesome mind or wholesome mind, whatever kind – all are dharmas. Completely the same. 
+**Katagiri:** Yes. Original face of the mind is exactly the same as being. Just like the rock, and toes, and trees, birds, many things. Same. That’s why we call them [dharmas](glossary#dharma). Everything is called dharmas. So mind – unwholesome mind or wholesome mind, whatever kind – all are dharmas. Completely the same. 
 
 **Same person:** Can we speak about mind apart from dharmas? 
 
