@@ -186,9 +186,9 @@ Or, Dogen Zenji says,
 
 > It must be deportment beyond one’s hearing and seeing.
 
-If you see zazen *after* your zazen, that is an image of zazen, it is not real zazen. 
+If you see zazen *after* real zazen, that is an image of zazen, it is not real zazen. 
 
-*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gi”, more or less). The *i* of *igi* means “majestic and awe-inspiring.” Very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior. And that is deportment. Here it says “deportment,” but originally we use *igi*. Usually we use *behavior*, but that behavior is *igi* in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Your behavior is fitting into the rhythm of the truth.
+*Deportment* means the behavior which is called zazen. In Japanese we call it [*igi*](glossary#igi) (pronounced “ee-gi”, more or less). The *i* of *igi* means “majestic and awe-inspiring.” Very majestic. *Gi* of *igi* means fitting into, or mention of, the truth. That is form, your behavior. And that is deportment. Here it says “deportment,” but originally we use *igi*. Usually we use [the word] *behavior*, but that behavior is *igi* in Buddhism, because that behavior has a sense of majesty, and also a sense of the awe-inspiring. Your behavior is fitting into the rhythm of the truth.
 
 So, this behavior which is called zazen is completely beyond hearing or seeing through the six consciousnesses. Let’s return to conditioned elements, that’s all. 
 
@@ -196,9 +196,11 @@ But, Dogen Zenji says,
 
 > Is it not the principle that is prior to one’s knowledge and perceptions?
 
-That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still bowing, and being in accord with the function of knowledge and perception. How? Let’s use your body and mind; breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
+That means that zazen, completely beyond hearing and seeing, is not a mysterious thing. There is still [bowing], and being [is] in accord with the function of knowledge and perception. How? Let’s use your body and mind. Breath and mind are perfectly fitting into one object called zazen. At that time, something happens. 
 
-And after that, mind associates, that’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach to it. But before mind, prior to the function of your mind, it’s really *just sit*. It’s a very simple practice. That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions?” It’s [there]. You have to [just] really *fit* into your knowledge and perceptions. 
+And after that, mind associates, that’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach [to it]. But before mind, prior to the function of your mind, it’s really *just sit*. It’s a very simple practice.
+
+That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions?” It’s [there]. You have to [just] really *fit* into your knowledge and perceptions. 
 
 Do you have questions?
 
@@ -318,7 +320,7 @@ And then we say that is *body and mind exist*. But I don’t think so. But we ca
 
 **Question:** You said we already have mind, and you had some other statements, Roshi. Does mind exist before these things take place?
 
-**Katagiri:** Mind ... already exists. 
+**Katagiri:** Mind [...] already exists. 
 
 **Same person:** The mind is always existing? 
 
@@ -326,21 +328,23 @@ And then we say that is *body and mind exist*. But I don’t think so. But we ca
 
 **Same person:** Independent of these things? Independent of toe hitting rock?
 
-**Katagiri:** Oh, *independent*. You mean is the mind independent. Yes, actually... mind is independent from that total dynamic working. Yes. *[There is some laughter.]* Because the original nature of the mind is already there. Original nature of the mind is what? Not-mind. No mind. It’s just conditioned origination, conditioned co-production. Function. That’s all.
+**Katagiri:** Oh, *independent*. You mean [is the] mind independent. Yes, actually... mind is independent from that total dynamic working. Yes. *[There is some laughter.]* Because the original nature of the mind is already there. Original nature of the mind is what? Not-mind. No mind. It’s just conditioned origination, conditioned co-production. Function. That’s all.
 
 **Same person:** But anyway, mind exists before these things are happening. 
 
-**Katagiri:** Yes. Original face of the mind is exactly the same as being. Just like the rock, and toes, and trees, birds, many things. Same. That’s why we call them [dharmas](glossary#dharma). Everything is called dharmas. So mind – unwholesome mind or wholesome mind, whatever kind – all are dharmas. Completely the same. 
+**Katagiri:** Yes. Original face of the mind is exactly the same as a being. Just like a rock, and toes, and trees, birds, many things. Same. That’s why we call them [dharmas](glossary#dharma). Everything is called dharma. So mind – unwholesome mind or wholesome mind, whatever kind – all are dharmas. Completely the same. 
 
 **Same person:** Can we speak about mind apart from dharmas? 
 
 **Katagiri:** No, we cannot. 
 
-**Same person:** We can’t talk about *[unintelligible]*?
+**Same person:** We can’t talk about one *[unintelligible]*?
 
-**Katagiri:** If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in the dualistic world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. That’s why *Prajnaparamita* says “no mind”: “no eyes, no ears, [etc.].” But how can we know no-mind? That’s why Dogen Zenji says, in the \[[*Shobogenzo*](topics#shobogenzo)] chapter [on the *Prajnaparamita Sutra*](topics#prajnaparamita) he said there is mind, there is eyes, nose, ears, et cetera. That means, *use* eye, ear, nose, mind, and body perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So, no eyes, no mind, no mouth.
+**Katagiri:** If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in the dualistic world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. 
 
-That is the meaning of no mind. *No mind* doesn’t mean to destroy. [It means] *using* your mind perfectly. How? Fitting into a single object: zazen. At that time, there is no mind. 
+That’s why *Prajnaparamita* says “no mind”: “no eyes, no ears, [et cetera].” But how can we know no-mind? That’s why Dogen Zenji says, in the \[[*Shobogenzo*](topics#shobogenzo)] chapter [on the *Prajnaparamita Sutra*](topics#prajnaparamita) he said there is mind, there is eyes, nose, ears, et cetera. That means, *use* eye, ear, nose, mind, and body perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So – no eyes, no mind, no mouth.
+
+That is the meaning of no mind. *No mind* doesn’t mean [to] destroy. [It means] *using* your mind perfectly. How? Fitting into a single object: zazen. At that time, there is no mind. 
 
 #### 1:20:44
 
@@ -352,21 +356,23 @@ Picky mind, monkey mind, is small mind. The original nature of the mind is big m
 
 **Same person:** You’re talking about big mind.
 
-**Katagiri:** Yes, big mind. But we cannot ignore small mind. Because, right after an event occurs, mind associates with it, so you cannot ignore it. That’s why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no [design] of having a reward, no [design] of becoming Buddha. [We have to] continually do this, otherwise we cannot use our body and mind perfectly, to fit into zazen. 
+**Katagiri:** Yes, big mind. But we cannot ignore small mind. Because, right after an event occurs, mind associates with it. So you cannot ignore it. That’s why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no [design] of having a reward, no [design] of becoming Buddha. [We have to] continually do this, otherwise we cannot use our body and mind perfectly, to fit into zazen. 
 
 #### 1:22:10
 
 **Question:** Roshi? When I asked what the water was before, if I understood you, [it was] your explanation of what the water is. And what I wanted to know is, what the water is right now.
 
-**Katagiri:** That’s why I said the universe. What is right now? Right now, right here, doesn’t mean something limited by something which is called water. Right now, right here is what? Right now, right here is the universe. 
+**Katagiri:** That’s why I said the universe. 
 
-If you say *universe*, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How can you see the real meaning of right now, right here, of the universe? Be alive, right now, right here. 
+What is right now? Right now, right here, doesn’t mean something limited by something which is called water. Right now, right here is what? Right now, right here is the universe. 
 
-So whatever you say – “that is water,” “that is the moon” – that’s okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using *right now, right here*, perfectly fitting into your object. At that time, the universe blooms. [There] is one; it is not a combination of the water and the moon. 
+If you say *universe*, you are already tricked by the word universe. The universe is what? Total function of right now, right here. How can you see the real meaning of right now, right here, [of] the universe? Be alive, right now, right here. 
+
+So whatever you say – “that is water,” “that is the moon” – that’s okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using *right now, right here*, perfectly fitting into your object. At that time, the universe blooms. [That] is one; it is not a combination of the water and the moon. 
 
 So that’s why Dogen Zenji says, *the self is the whole universe*. And also, *time is being*. Time is not time; time is *being*. Time is space; space is time.
 
-Time is being when you say “right now and right here.” What is *time is being*? We cannot put a name on it. That’s why we say *now-ness*, or *here-and-now-ness*, or *eternity*, or *eternal time* – whatever kind of words you use, it’s very difficult to manifest. Now and here are the universe.
+So time is being when you say “right now and right here.” What is *time is being*? We cannot put a name on it. That’s why we say *now-ness*, or *here-and-now-ness*, or *eternity*, or *eternal time* – whatever kind of words you use, it’s very difficult to [manifest]. Now and here are the universe.
 
 So, water is the universe. The self is the whole universe. Time is being.
 
@@ -374,13 +380,13 @@ So, water is the universe. The self is the whole universe. Time is being.
 
 *[tape skip]*
 
-**Question:** *[unintelligible]*
+**Question:** *[Unintelligible.]*
 
-**Katagiri:** Well, because we have enjoyed our small mind for many years. So we have got used to enjoying it for many, many years; not only your own life, [but] from the beginningless past, we have done so always. That’s why it’s pretty hard to see the big mind immediately. 
+**Katagiri:** Well, because we have enjoyed our little small mind for many years. So we have got used [to] enjoying with it for many, many years. Not only your own life, [but] from the beginningless past, we have done so always. That’s why it’s pretty hard to see the big mind immediately. 
 
-It really depends on the individual. Maybe someone really can see big mind after practicing three years, or five years, maybe ten years. Maybe so. It doesn’t matter. 
+It really depends on the individual. Maybe someone [really] can see big mind after practicing three years, or five years, maybe ten years. Maybe so. It doesn’t matter. 
 
-That’s why it’s pretty hard. But the important point is, when we practice, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing: “I like this,” “I don’t like this,” “I feel good,” “I don’t feel good,” “That’s why I want do this,” “I don’t want to do this”... This is very *messy*. *[He laughs.]* No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is *that*; it’s not necessary to destroy or hate or like [those thoughts]. [Leave them] alone. All you have to do is, just right zazen, if you want to do zazen.
+That’s why it’s pretty hard. But the important point is, when we practice, we have to practice zazen not as the being involved in the many things in the dualistic world. Analyzing, synthesizing; “I like this,” “I don’t like this,” “I feel good,” “I don’t feel good,” “That’s why I want do this,” “I don’t want to do this”... This is very *messy*. *[He laughs.]* No matter how long you practice zazen, you cannot find big mind [that way]. Anyway, that is *that*; it’s not necessary to destroy or hate or like [those thoughts]. [Leave them] alone. All you have to do is, just *right* zazen, if you want to do zazen.
 
 #### 1:27:50
 
@@ -390,7 +396,7 @@ That’s why it’s pretty hard. But the important point is, when we practice, w
 
 **Same person:** Okay, well in the story that you gave us as an example of *prāpti* and *aprāpti*, it seemed to me, if I understand it right, *prāpti* was the force that brought your friend back to the monastery, and *aprāpti* was the earthquake. And they were both present at that time. I think; if I understand the terms.
 
-**Katagiri:** *Aprāpti* is a kind of force which kept my friend at Eiheiji monastery separate from the movie theater. It kept him away, saving him from death. That is *aprāpti*: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of *aprāpti*.
+**Katagiri:** *Aprāpti* is a kind of force which kept my friend at Eiheiji monastery separate from the movie theater. *[He laughs.]* It kept him away, saving him from death. That is *aprāpti*: there is something separate; a force to separate. Or sometimes put together; at that time, unfortunately, you have to die. But he was saved; that is, maybe, a force of *aprāpti*.
 
 **Question:** Do you mean, Roshi, because he changed his mind?
 
@@ -408,17 +414,15 @@ Is that clear? That is *aprāpti*: force to separate from something.
 
 **Same person:** The force that things at rest tend to stay at rest, and things that are moving tend to...
 
-**Katagiri:** No, if you say force, that force has a certain kind of power, to penetrate into another.
+**Katagiri:** No, if you say force, that force has a certain kind of power to penetrate into another.
 
-**Same person:** No, that’s not [at all what] I mean. *[Unintelligible.]* So things that, like what you’re talking about prāpti and aprāpti, things that at rest tend to stay at rest unless something...
+**Same person:** No, that’s not [at all what] I mean. *[Unintelligible.]* So things that, like what you’re talking about prāpti and aprāpti, things that [are] at rest tend to stay at rest unless something...
 
 **Katagiri:** No.
 
-**Another person:** Roshi? What simplified it for me was when you explained in the book that aprāpti was more a force that kept away the negatives, and prāpti was the force that brought towards you positives. Is that correct understanding?
+**Another person:** Roshi, what simplified it for me was when you explained in the book that aprāpti was [...] a force that kept away the negatives, and prāpti was the force that brought towards you positives. Is that correct understanding?
 
-**Katagiri:** Towards you or towards your object. 
-
-#### 1:31:53
+**Katagiri:** Towards you or towards your object. [That is separate].
 
 **Question:** So are these functions that function in people that are actively engaged in practicing the Buddha’s way? Or for anyone?
 
@@ -427,8 +431,6 @@ Is that clear? That is *aprāpti*: force to separate from something.
 **Same person:** *Aprāpti* and *prāpti*. With the two in the example you gave, both of those people were monks, they were practicing the Buddha’s way. And we’re talking about either being drawn to positive or kept away from negative things. Are those terms also used just to describe events in anyone’s life? In Roman Catholics’ life?
 
 **Katagiri:** Sure. *[Laughter.]* It’s universal. Yes. *[Laughter.]*
-
-#### 1:32:51
 
 **Question:** Are they simultaneous, Roshi? Prāpti and aprāpti? Do they operate simultaneously? 
 
@@ -440,9 +442,9 @@ Is that clear? That is *aprāpti*: force to separate from something.
 
 *[Tape change.]*
 
-**Katagiri:** Well, the *Abhidharmakosha* is an outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world is created, just like creation of the world mentioned by Christianity.
+**Katagiri:** Well, the *Abhidharmakosha* is [this] outlook on the human world, the structure of the human world, the structure of human beings. They explain how the world is created, just like creation of the world mentioned by Christianity.
 
-According to that, I told you about [Mount Sumeru](glossary#mount-sumeru). Right in the middle of the Universe there is the huge Mount Sumeru. At the top of the mountain, the gods exists, and four kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. [The seventh part] is the human world. In the first book of *Abhidharmakosha*, the whole book is an explanation of how this structure and form exists. Very interesting.
+According to [that], I told you about [Mount Sumeru](glossary#mount-sumeru). Right in the middle of the Universe there is the huge Mount Sumeru. At the top of the mountain, the gods exists, and four kinds of guardians exist, protecting the gods. And also eight mountains, and nine beautiful, fragrant oceans. And then, four kinds of currents exist: north, south, east, west. [The southern part of the planet] is the human world. [...] In the first book of *Abhidharmakosha*, the whole book is an explanation of how this structure and form exists. Very interesting.
 
 #### 1:35:52 end of recording
 
