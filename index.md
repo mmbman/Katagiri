@@ -12,20 +12,19 @@ The [**Talk List**](list) lists the talks that are present in the [online audio 
 Katagiri Roshi gave many series of talks on topics in Buddhism – some during a *sesshin* (meditation retreat), some during a practice period, and some that were ongoing for years. Some of these series are:
 
 - [***Diamond Sutra***](diamond-sutra) (1979-1980)
+- [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [***Blue Cliff Record***](blue-cliff-record) (1979-1989)
 - [**Karma**](karma) (1980, 1987)
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
-
-In particular, Katagiri Roshi gave many series of talks on the works of Zen Master Eihei Dōgen. Some of the series on *Shōbōgenzō* or related works are: 
-
-- [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
 - [***Genjōkōan***](genjokoan) (1987)
 
-These lists will be updated as talks are transcribed.
+This list will be updated as talks are transcribed.
 
 Readers should be aware that these topics are discussed in many places within Katagiri Roshi’s talks, not just within these series. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere.
 
 ## Latest Updates
+
+**March 25, 2024:** Updated [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6).
 
 **March 21, 2024:** Updated [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings).
 
