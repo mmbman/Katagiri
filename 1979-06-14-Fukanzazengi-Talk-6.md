@@ -30,11 +30,11 @@ The second one is *six consciousnesses*.
 
 The third category is called *function*: the concomitant mental faculties. That means function of the mind: the wholesome and unwholesome functions concomitant with the six consciousnesses. There are many kinds of concomitant functions of the mind: for instance anger, hatred, et cetera; many things. 
 
-[The fourth category is] very interesting, because [it] is an element which is completely not associated with the mind of the six consciousnesses, [nor] concomitant mental faculties, nor the elements of form, nor the fifth one, which is the truth. That is what is called *samskara*.
+[The fourth category is] very interesting, because [it] is an element which is completely not associated with the mind of the six consciousnesses, [nor] concomitant mental faculties, nor the elements of form, nor the fifth one, which is the *truth*. That is what is called *samskara*.
 
-In *Abhidharmakosha*, *samskara* is [included in] many things. [...] I am very interested in this element, which is not associated with the mind and not associated with the truth. 
+In *Abhidharmakosha*, *samskara* is [included in] many things. [...] I am very interested in this element which is not associated with the mind and not associated with the truth, [...] but that is sort of a *force*. 
 
-That [element] is sort of a *force*. In the book ["The Central Conception Of Buddhism"](books#central-conception), [the author] said about this: 
+In the book ["The Central Conception Of Buddhism"](books#central-conception), [the author] said about this: 
 
 > A force, it must be recalled, shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. But, simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara in the Buddhist system.
 >
@@ -42,7 +42,7 @@ That [element] is sort of a *force*. In the book ["The Central Conception Of Bud
 
 So, samskara [as] a force shouldn't be regarded as a real influence of something extending beyond its own existence in order to penetrate into another. So samskara is not [a real] force penetrating into other beings, but it is a kind of *condition*. A condition is a fact which occurs between two [objects]. But mainly, these conditions are what is called *origination* and *decay*. According to primitive Buddhism, that is [*impermanence*](glossary#impermanence), or constant change – appearing and disappearing, appearing and disappearing. So broadly speaking, force is understood like this. 
 
-Anyway, *force* is not a real “force,” but a conditioned element which occurs between two objects. And also this conditioned element has a certain power to *concert* two things, to exist. 
+Anyway, *force* is not a real “force,” but a condition; a *conditioned element* which occurs between two objects. And also this conditioned element has a certain power to *concert* two things, to exist. 
 
 So that’s why this author says, “... simply as a condition, or a fact, upon which another fact arises, or becomes prominent by itself. This is samskara.”
 
@@ -94,9 +94,11 @@ Those things come from the old stories [of the exchanges] between the [Zen maste
 
 > ... cannot be fully understood by one’s discriminative thinking.
 
-We cannot understand *why* Gensha Shibi attained enlightenment by striking his toes and seeing the blood coming up. We don’t understand. *Why*? The blood has a mysterious power? I don’t think so. Blood is blood. His toes have a particular mysterious power? No. He didn’t use telepathy – just a rock. Rock is rock; it has no mysterious power. So why did he attain enlightenment? *[In the distance, the sound of a police siren starts.]* Because, I told you before, [without mind,] something happens with the rock, and toes, and the Gensha Shibis, and the *[unintelligible]* –– all are beings which are not associated with the mind. So everything exists, day after day, in the process of change, completely in the stream of change. *[The police siren is getting louder.]* Birds, zazen, and that siren: all things exist in peace and harmony, in the stream of change. And then something happens, according to [a] conditioned element, which will happen between the two. That conditioned element – *[the police siren finally stops]* – is characterized by one object, one being, used *perfectly* for another being, fitting into its object perfectly. This is conditioned element.
+We cannot understand *why* Gensha Shibi attained enlightenment by striking his toes and seeing the blood coming up. We don’t understand. *Why*? The blood has a mysterious power? I don’t think so. Blood is blood. His toes have a particular mysterious power? No. He didn’t use telepathy – just a rock. Rock is rock; it has no mysterious power. So why did he attain enlightenment? 
 
-For instance: a sound comes up. Your ears hear the sound outside. When your ears [are] completely [used] perfectly, fitting into the sound, at that time you can hear. By what? Well, conditioned elements, which is called [*source*], *together-maker*. That conditioned element, from where does it come? We don’t know. We know it’s there. Well, according to Buddhist philosophy, that is called [*dependent origination*](glossary#dependent-origination) – or *change*, constant change. The function of the conditioned elements [is change], always – and *interdependence*: always connected. 
+*[In the distance, the sound of a police siren starts.]* Because, I told you before, [without mind,] something happens with the rock, and toes, and the Gensha Shibis, and the *[unintelligible]* –– all are beings which are not associated with the mind. So everything exists, day after day, in the process of change, completely in the stream of change. *[The police siren is getting louder.]* Birds, zazen, and that siren: all things exist in peace and harmony, in the stream of change. And then something happens, according to [a] conditioned element, which will happen between the two. That conditioned element – *[the police siren finally stops]* – is characterized by one object, one being, used *perfectly* for another being, fitting into its object perfectly. This is conditioned element.
+
+For instance: a sound comes up. Your ears hear the sound outside. When your ears [are] completely [used] perfectly, fitting into the sound, at that time you can hear. By what? Well, conditioned elements, which is called [*source*], *together-maker*. That conditioned element, from where does it come? We don’t know. We know it’s there. Well, according to Buddhist philosophy, that is called [*dependent origination*](glossary#dependent-origination) – or *change*, constant change. The function of the conditioned element [is change], always – and *interdependence*: always connected. 
 
 The sound is completely used for your ear, fitting into your ear perfectly. At that time, your ear becomes one with sound. And then, something happens. That [is] sound. 
 
@@ -104,19 +106,21 @@ At that time, that is *event*. And then immediately, mind associates with this s
 
 Then finally what you have to do is: stop it. Stop it. How can you stop it? You cannot stop the mind. So, the first important thing in order to stop the mind [is that] first your body must be used perfectly, fitting into your object. At that time, very naturally, mind stops. Can you [imagine]? Because your body and breath becomes one with zazen. At that time, your body is completely one with zazen. 
 
-And then, the problem is, mind associates with it and attaches to it; at that time, you cannot see the oneness. And then, the mind misunderstands oneness. For instance, [the mind understands that] oneness is just like “the moon reflected in the water.” [That is a] combination of two things. It is not oneness, because two different things exist. So Dogen Zenji says it like this in the [*Genjokoan*](topics#genjokoan): “Oneness is not like moon reflected in the water, water in which moon is reflected.” 
+#### 28:46
+
+And then, the problem is, mind associates with it and attaches to it; at that time, you cannot see the oneness. And then, the mind misunderstands oneness. 
+
+For instance, [the mind understands that] oneness is just like “the moon reflected in the water.” [That is a] combination of two things; it is not oneness, because two different things exist. So Dogen Zenji says it like this in the [*Genjokoan*](topics#genjokoan): “Oneness is not like moon reflected in the water, water in which moon is reflected.” 
 
 So, what is oneness? Oneness appears, oneness manifests itself, only when your body is perfectly used and fitting into your object. At that time, your body merges itself in zazen. So, your body doesn’t appear; just zazen. When you see zazen, just zazen. When you see your body, just the body appears, and zazen doesn’t appear. 
 
-#### 30:24
-
-We don’t understand yet, because... Well, there is a good example. There is a saying, “[Like] a lump of clay.” How you use this clay depends on you, but let’s imagine we try to make a doll. Or a plate, china – whatever it is. Let’s make a plate, or a China dish. [Or] also a doll. 
+We don’t understand yet, because... [For instance], there is a good example. There is a saying, “[Like] a lump of clay.” How you use this clay depends on you, but let’s imagine we try to make a doll. Or a plate, china – whatever it is. Let’s make a plate, or a China dish. [Or] also a doll. 
 
 When you use this lump of clay perfectly, fitting into *dish*: at that time, where is the clay? You cannot say, “That is clay.” You say “dish.” When you see the dish ... clay is completely hidden behind the dish. Perfect. 
 
 When you make a doll with this clay, you don’t call that “clay,” you call it “doll.” A Japanese doll, or American doll; you say so. At that time, the clay doesn’t appear; in the realm of the doll world, it’s completely hidden. It isn’t disappeared; it’s always there. But we don’t [see] it; always we see the doll. When you see [it], just see the doll, that’s enough. If so, the clay is hidden behind the doll. [The clay is] support, great support. But you cannot always say, “That is a doll; no clay.” You cannot say so.
 
-On the other hand, turn it around. If you see the doll in terms of just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” In terms of the clay, doll and dish are completely hidden behind the clay; just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
+On the other hand, turn it around: if you see the doll in terms of just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” In terms of the clay, doll and dish are completely hidden behind the clay; just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
 
 Because, the total picture of the dish as a being possesses a double face. But this double face is not a combination of the two things. Just like the moon reflected in the water: that’s not oneness. Oneness is when you see the doll, just see the doll. At that time, clay doesn’t appear. Dogen Zenji says, “When one is bright, the other one is dark.” “The other one is dark” doesn’t mean the other one disappears. It’s there, but it doesn’t *interrupt*. One side, doll’s life, and this life, this great support, which doesn’t appear *yet* on the surface of the doll’s world. 
 
@@ -130,11 +134,9 @@ So how can you stop the functioning of your mind?
 
 You cannot stop it. The all-important point is, let’s return to the origin, which is called *samskara’s world*. Which is called *elements which are not associated with mind and truth* – completely nothing. Let’s return to conditioned elements. 
 
-How can we return to conditioned elements? Because I told you before, conditioned elements are characterized by unifying two beings perfectly. That means one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this. 
+How can we return to conditioned elements? Because I told you before, conditioned elements are characterized by unifying two beings perfectly. That means one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this. When your body and breath are used perfectly, fitting into zazen – at that time, something happens. That is zazen as an event. 
 
-When your body and breath are used perfectly, fitting into zazen – at that time, something happens. That is zazen as an event. 
-
-The mind immediately catches it. That’s, “I got it.” *[He laughs.]* You catch it. The moment when you “catch” it, there is attachment. That’s why regulation of the mind is important. That is, Dogen Zenji says, “Throw away good or bad, right or wrong. Have no design of becoming a [buddha](glossary#buddha).” Through and through, we have to practice having no design of becoming Buddha, no reward there. Just return to conditioned element, using your body, perfectly fitting into the object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
+The mind immediately catches it. That’s, “I got it.” *[He laughs.]* You catch it. The moment when you “catch” it, there is attachment. That’s why regulation of the mind is important. That is, Dogen Zenji says, “Throw away good or bad, right or wrong. Have no design of becoming a [buddha](glossary#buddha).” Through and through, we have to practice having no [design] of becoming buddha, no reward there. Just return to conditioned element, using your body, perfectly fitting into the object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
 
 And then when we see just the zazen, it is *zazen*. It is *just* zazen. Well, where is your body? Your body is hidden behind the zazen. That body doesn’t bother zazen. Just zazen. Just like a doll and also a dish.
 
@@ -170,11 +172,9 @@ The best way, that is...
 
 How? Using your body, perfectly fitting into your object. At that time, your body becomes one with zazen, zazen becomes one with you, very naturally. At that time, there is something that happens. That is called zazen. 
 
-The [problem] is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the [problem], so we have to understand what is mind. Very tricky mind, very “monkey” mind, always.
+The [problem] is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the [problem], so we have to understand *what is mind*. Very tricky mind, very “monkey” mind, always.
 
 Well, we have to make every possible effort to do that, [because] we have a mind. Mind is already here; that’s why we have to practice. 
-
-#### 48:25
 
 So Dogen Zenji says, that’s why ... 
 
@@ -234,7 +234,7 @@ One more person was on the train from Fukui City to Eiheiji monastery, because h
 
 **Same person:** Okay, how do these two terms then relate to [karma](glossary#karma)?
 
-**Katagiri:** I don’t know, I don’t know. *[There is some laughter.]* 
+**Katagiri:** I don’t know. I don’t know. *[There is some laughter.]* 
 
 That is karma, maybe past life. Well, you can envision his past life, and also, his karma in the past might be good, he planted good karma in the past. That’s why he wanted to see the movie but he thought, “Oh, no, let’s go back to Eiheiji monastery.” So that is pretty good karma. From where that good sense comes, maybe from a past life. 
 
@@ -356,7 +356,7 @@ Picky mind, monkey mind, is small mind. The original nature of the mind is big m
 
 **Same person:** You’re talking about big mind.
 
-**Katagiri:** Yes, big mind. But we cannot ignore small mind. Because, right after an event occurs, mind associates with it. So you cannot ignore it. That’s why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no [design] of having a reward, no [design] of becoming Buddha. [We have to] continually do this, otherwise we cannot use our body and mind perfectly, to fit into zazen. 
+**Katagiri:** Yes, big mind. But we cannot ignore small mind. Because, right after an event occurs, mind associates with it. So you cannot ignore it. That’s why in our practice, we have to practice regulation of the mind. Constantly we have to be mindful of no [design] of having a reward, no [design] of becoming buddha. [We have to] continually do this, otherwise we cannot use our body and mind perfectly, to fit into zazen. 
 
 #### 1:22:10
 
@@ -400,7 +400,7 @@ That’s why it’s pretty hard. But the important point is, when we practice, w
 
 **Question:** Do you mean, Roshi, because he changed his mind?
 
-**Katagiri*:** *Aprāpti* is not-obtaining or not-getting. That is a kind of force; that means a conditioned element. So, before your mind is [exercised], there is some kind of force, to attach to, or to separate from; to put together, or to separate. That is total dynamic working.
+**Katagiri:** *Aprāpti* is not-obtaining or not-getting. That is a kind of force; that means a conditioned element. So, before your mind is [exercised], there is some kind of force, to attach to, or to separate from; to put together, or to separate. That is total dynamic working.
 
 Is that clear? That is *aprāpti*: force to separate from something. 
 
