@@ -24,6 +24,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**March 26, 2024:** For class: [Whole Personality and Space](WholePersonalityAndSpace.pdf).
+
 **March 25, 2024:** Updated [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6).
 
 **March 21, 2024:** Updated [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings).
