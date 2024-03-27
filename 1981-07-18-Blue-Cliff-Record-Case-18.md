@@ -184,7 +184,9 @@ So if you really understand this karmic life, karmic life turns into Buddha's li
 
 That is really silence. 
 
-There is a story (at the beginning of “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken, [I don’t ask about the unspoken]” ...
+There is a story (at the beginning of “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” (*Transcriber’s Note:* This story is also in the commentary to the case.)
+
+In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken, [I don’t ask about the unspoken]” ...
 
 *[Tape change.]*
 
@@ -194,13 +196,17 @@ So, that [means] this Brahman really wanted to know what life’s seamless monum
 
 The World-honored One remained silent. Just, *sit down*.
 
-The outsider bowed in homage and cried in praise. He was really surprised to see the Buddha’s silence, *just sit down*; he really attained, he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
+The outsider bowed in homage and sighed in praise. He was really surprised to see the Buddha’s silence, *just sit down*; he really attained, he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
 
 So after the outsider had left, Ānanda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
 
 The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
 
-People often go to the silence for their understanding: “What is there to grasp?” In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [write] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence – [...] then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
+> (From the commentary:)  
+> 
+> People often go to the silence for their understanding. What is there to grasp?
+
+In Buddhism, silence is important – but silence itself, [to keep silent,] is not important. If I [write] the words, “teaching comes from silence” – because many people these days, not only Buddhists but even Western philosophers, say life and human existence is really based on silence – [...] then we believe that silence is really the truth of human existence. But I don’t think so. *[He chuckles.]* Because, [if I tell you] “silence *is* the truth of human life” – if you believe in that way, you have to always keep silent. How can you keep silent? You cannot stay with the silence *constantly*. 
 
 So you have to know the world completely unfolded beyond silence. If you keep silent, keep silent. But you have to know the somebody unfolded completely behind this silence. Do you understand? 
 
