@@ -282,7 +282,7 @@ But that is not always calm. It’s really alive.
 
 If you believe the seamless monument of human life and death, and human culture, whatever you say, we believe that [it] is something great, wonderful, which has lots of halos, light coming from your body and from your whole spirit. I don’t think so. That (seamless monument) is really a crystal palace, a great palace, because it is spiritual security, [so] we always expect [something], in many ways. But if you really get into it: there is no one who knows. *There is no one who knows* means spiritual security which lets go of *you* yourself, as freedom. 
 
-If you have *somebody* who knows, you are stuck in this guy or [this name]. “I know Katagiri”: at that time, I’m really stuck in this guy. So *who* knows? No one knows. “Know one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace, which I am, which you are. That is everybody. 
+If you have *somebody* who knows, you are stuck in this guy or [this name]. “I know Katagiri”: at that time, I’m really stuck in this guy. So *who* knows? No one knows. “No one knows” means you know pretty well, but you must be free from one who knows. Because this is the crystal palace, which I am, which you are. That is everybody. 
 
 So if you know, you have to be free from the person who knows. That is original nature, so-called spiritual security. Spiritual security lets you go free, constantly. That is spiritual security. If there is even slightly somebody or something which knows, that is really [suffering]. 
 
