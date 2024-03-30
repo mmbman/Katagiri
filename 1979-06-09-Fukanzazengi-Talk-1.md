@@ -70,63 +70,73 @@ That is *shikantaza* – very naturally.
 
 #### 17:16
 
-Psychologically speaking, there are several component factors in living. One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system*. And also, the *gut system*: your guts (the *internal organ system*). We have lots of guts. And also, the *brain-nerve system*.
+Psychologically speaking, there are several component factors in living. 
 
-The sensory system is to get some information or to give some information to somebody, and to learn information from the outside. Through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera – that is the sensory world. 
+One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts (the *internal organ system*). We have lots of guts. And also, the *brain-nerve system*.
 
-The movement system is through the body and the mind, by getting lots of information inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things; and then immediately you can create a certain movement.
+So [there are] circumstances and also the sensory system. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
 
-And also, the gut system: you have lots of guts. And next is the brain-nerve system. 
+The movement system is [that] through your body and mind, by getting lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
 
-And one more system: that is *total personality*. 
+And also, the gut system: you have lots of guts. 
 
-Total personality is the exact center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing. 
+And next is the brain-nerve system. 
+
+#### 21:05
+
+And one more [system]: that is *total personality*. 
+
+*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing. 
 
 There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
 
-*My* personality is something *I* can create, after my birth, so that is kind of like *character*. If you say *personality*, psychologically speaking this is a little bit broad. So my personality is something I can create after my birth, but there is another personality I [can’t] create. I have carried that personality from before my birth; this is maybe my parents, and also maybe what I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
+But *my* personality is something *I* can create, after my birth, so this is kind of [like] *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can] create. I have carried my personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
-#### 23:23
+So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” A part of this *smell* consists of something I have created after my birth. The other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. 
 
-If I see myself – here is Katagiri – immediately there is a certain kind of a sense; a “smell.” A part of this “smell” consists of something I have created after my birth. The other aspect of my “smell” is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that point, that personality is really a “smell.” If you see somebody, there is a smell. Katagiri smells. 
+So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri’s “smell” is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. So finally, that smell is not something evaluated. That is called *Buddha* – or, the *original nature of existence*. But psychologically speaking, that is called *total personality*. Total personality; or maybe *trans-personality*, whatever you say. *(Transcriber’s Note: “Trans-personality” may be referring to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)*
+But Katagiri’s “smell” is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. 
 
-That trans-personality immediately *smells*: “I smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in a sense. In a sense I feel good, but feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever I feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave, because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
+So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, it is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. *(Transcriber’s Note: “Trans-personality” might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)*
 
-That is really a “stink”... But where does that stink of Katagiri come from? Nowhere. You have to really go back to the beginningless past, to the endless future. Finally, that stink of Katagiri, which is called total personality, becomes trans-personality. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree, because your personality is tuned into the past and the future. You have to believe this. Well – believe it or not, your life is really there.
+But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good. That feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. Because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
-So that is what is called [Buddha Nature](glossary#buddha-nature). If you want to know psychologically, that is called [alayavijñāna](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [karma](glossary#karma). 
+That is really a “stink.” But where does that stink of Katagiri come from? Nowhere. You have to really go back to the beginningless past, to the endless future. So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree, because [your existence] is extending to the past and the future. You have to believe this. Well – believe it or not, your life is really there.
 
-Karma is completely beyond good or bad, right and wrong, but simultaneously, karma is something which is very powerful to carry your life in the [samsaric](glossary#samsara) world. If you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer to what karma is. But karma is with you. How do you know? In your daily living, you can know. 
+So that is what is called [buddha nature](glossary#buddha-nature). And also, what is buddha nature? If you want to know psychologically, that is called [*alayavijñāna*](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [*karma*](glossary#karma). 
+
+Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life [in] the [samsaric](glossary#samsara) world. [...] If you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer to what karma is. But karma is with you. How do you know? In your daily living, you can know. 
 
 #### 30:00
 
-When I became a monk and went to a monastery, at that time monastic life was completely blooming for me, so it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. But some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] 
+When I became a monk and went to a monastery, at that time monastic life was completely blooming for me. So it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. Some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] But for me, it was wonderful. 
 
-But for me, it was wonderful. I felt wonderful, but on the other hand, people called me crazy. Of course, maybe so! According to indulgence, maybe to practice hard was crazy. It might be crazy, but I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
+And on the other hand, I felt wonderful, but on the other hand, people called me crazy. Of course, maybe so! According to indulgence, maybe to practice hard was crazy. It might be crazy, but I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
 
-On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it that way? Why are you in the monastery? You want to learn laziness in the monastery? Well of course it's okay, but what is the purpose? Why are you here?” I didn't understand. On the other hand, the same applied to me: “Why are you practicing hard in zazen?” I don't know.
+On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it in that way? Why are you in the monastery? You want to be lazy in the monastery? You want to learn laziness? Well of course it's okay, but what is the purpose? Why are you here?” I didn't understand why they didn’t care.
 
-We can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense not understandable. Life is *[unintelligible]*. That is called karma; that is called Buddha Nature. We don't understand, because the present – your life – comes from beginningless past, endless future. 
+On the other hand, the same applied to me: “Why are you practicing hard in that way?” I don't know.
 
-We should be there. And finally, we should accept this, and we must be *present* there, constantly on the big tree. Psychologically speaking, this is called total personality.
+From this point, [...] we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense not understandable. So life is *[unintelligible]*. 
+
+That is called *karma*; that is called *buddha nature*. We don't understand, because the present – your life – comes from beginningless past, endless future. [We should be there]. And finally, we should accept this and we must be *present* there, constantly on the big tree. This is [the] core. Psychologically speaking, this is *total personality*.
 
 #### 34:20
 
-*Circumstances*: In order to realize this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
+And *circumstances*. In order to *realize* this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
 
-If we meddle with our involvements or our affairs right in the middle of zazen, we cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred of circumstances, or destroying circumstances, we just make arrangement. 
+If you meddle with “all involvements” or “all affairs” right in the middle of zazen, you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred with circumstances, or destroying circumstances, just make arrangement. 
 
 #### 36:23
 
-And next, our *sensory system*. We have a sensory system; it's not necessary to destroy it to keep away the human world, because we have it already. So instead of maligning or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
+And next, our *sensory system*. We have a sensory system; it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
 That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. *(Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](topics#zazengi) chapter of [Shobogenzo](topics#shobogenzo), which is distinct from [*Fukan zazengi*](topics#fukanzazengi).)*
 
-So first of all, you should make a choice of circumstances. What kind of a room do you have to use? You have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, you would see it completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
+First of all, you should make a choice of circumstances. What kind of a room do you have to use? Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
-So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should [be aware].
+So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should [deal with it].
 
 #### 39:42
 
@@ -136,7 +146,9 @@ You cannot destroy your movement. Sometimes movement comes from instinct; someti
 
 So we have to make arrangement of movement. For this, Dogen Zenji says, that is the half lotus position or full lotus position. Or he says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in zazen silently and immobile.” 
 
-This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind, so not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. This is movement simplified by our arrangement. 
+This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. 
+
+This is movement simplified by our arrangement. 
 
 #### 42:38
 
@@ -146,15 +158,15 @@ And next, the *gut system*. For this, Dogen Zenji says, “Eat and drink moderat
 
 Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. They’re going on. Even though your heart is beating, *[unintelligible]*, and then you put the gasoline into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
 
-But there is one thing that you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your breath is pretty good; the pulse is pretty good. And your heart is beating normally, very naturally.
+But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your breath is pretty good; *[unintelligible]* is pretty good. And your heart is beating normally, very naturally.
 
 #### 44:56
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-*(Transcriber’s Note: It looks like the translation Katagiri Roshi is using may be Norman Waddell's, as it says, “do not administer pros and cons.” See ["The Heart of Dogen's Shobogenzo" (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations include “do not judge true or false,” or, “do not consider right and wrong.”)*
+(*Transcriber’s Note:* The translation is Norman Waddell and Masao Abe’s; see [*The Heart of Dogen's Shobogenzo* (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
 
-That is the brain-nerve system. According to the brain-nerve system, we have to regulate the mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is characteristic of mind. So, we have to make arrangement of the function of the mind ...
+That is the brain-nerve system. According to the brain-nerve system, we have to regulate the mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
 
 *[Tape change.]*
 
@@ -162,31 +174,35 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 #### 46:44
 
-So Dogen says, “Do not think good or bad, right and wrong,” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of [egolessness](glossary#egolessness); selflessness. 
+So Dogen says, “Do not think good or bad, right and wrong,” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of [*egolessness*](glossary#egolessness); selflessness. 
 
-If your mind really attaches to good or bad or neutral, immediately there are thoughts, views, or wishes, and thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes – stop it. But even though you stop for a while, you cannot stop always. So you start to move, to the right, to the left. That is the dualistic world. 
+If your mind really attaches to good or bad or neutral, immediately there are thoughts, views, or wishes. And thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, [stopping]. [But] even though you can stop for a while, you cannot stop always. So you start to move, to the right, to the left again. That is the dualistic world. 
 
-Finally, you don't know *what* to do; and in your life you are really disappointed. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. On the other hand, there is *distraction*. Dogen Zenji says distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and all over. That is distraction. And finally, you don't know what to do. Whatever kind of [delusion](glossary#delusion), either dullness or distraction, both distract your activities. Then within your life, settling yourself in the self is very difficult.
+Finally, you don't know *what* to do; and in your life you are really disappointed. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, there is *distraction*. Dogen Zenji says distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. So finally, you don't know what to do. Whatever kind of [delusion](glossary#delusion), either dullness or distraction, both distract your activities, [...] your life. Settling yourself in the self is very difficult.
 
-So finally, we have to practice regulating the mind. That regulating of the mind is the practice of egolessness. But how can you practice egolessness? Dogen Zen Master says, if you really simply forget your body and mind, you throw away yourself into the heart of Buddha. That means, you should throw yourself away to something. That *to something* is to your object. But this object is not merely an object, this [object] is the house of the Buddha. 
+So finally, we have to practice regulating the mind. That regulating of the mind is the practice of *egolessness*. 
 
-So first of all, if you want to deal with this book [for example], you have to throw away yourself  into this book. But this object is not the book; this book is Buddha. So to throw away yourself into this book means to throw away yourself into the house of Buddha. That means deal with the book as well as dealing with your life. So you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something. That is egolessness. 
+But how can you practice egolessness? Dogen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of Buddha.” That means, you should throw yourself away to something. That *to something* is to your object. But this object is not merely an object, this [object] is the house of the Buddha. 
+
+So first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is Buddha. So to throw away yourself into this book means to throw away yourself into the house of Buddha. That means deal with the book as well as dealing with your life. So you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something. 
+
+So that is egolessness. 
 
 And also, if you throw yourself away, your body and mind, into the house of the Buddha, at that time, Dogen Zen Master says:
 
-> When function comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.
+> When functioning comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.
 
-That means if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very natural; simultaneous. 
+That means if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very naturally; simultaneous. 
 
-If you see zazen and you separately, that is a situation in which you can create the discriminatory world, the dualistic world. “I like zazen,” “I don't like zazen,” whatever you say, that is the dualistic world. So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, I told you before, you should take care of zazen with egolessness.
+So, here is zazen. If you see zazen and you separately, that is a situation in which you can create the discriminatory world, the dualistic world. “I like zazen,” “I don't like zazen,” whatever you say – that is the dualistic world. So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, [as I told you], you should take care of zazen, with egolessness.
 
-At that time, the practice of egolessness is to throw away yourself into zazen, [be] perfectly in the [flow] of zazen. Offer your body and mind to zazen completely. At that time, there is [no-self](glossary#no-self). No self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
+At that time, the practice of egolessness is to throw away yourself into zazen, perfectly in the [flow of] zazen. Offer your body and mind to zazen completely. At that time, there is [no-self](glossary#no-self). No self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
 
-That's egolessness. Egolessness, based on the spirit of throwing [yourself] away, offering yourself into zazen, is based on the help of [*samadhi*](glossary#samadhi) (one-pointedness). Only you can throw yourself away into zazen; you cannot do it without samadhi. 
+So that egolessness, based on the spirit of throwing away, offering yourself into zazen, is based on the help of [*samadhi*](glossary#samadhi). [You can only] throw away into zazen; at that time, you cannot do it without samadhi: one-pointedness.
 
-If you want to practice samadhi, one-pointedness, you have to arrange circumstances. Cease all affairs, and all involvements. There is no chance to involve in the sound of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is samadhi. If you practice samadhi, if you are right in the middle of samadhi, very naturally there is the practice of egolessness, because you can offer yourself to zazen. 
+If you want to practice samadhi, one-pointedness, you have to arrange circumstances. Cease all affairs, and all involvements. There is no chance to *involve* in the sound of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is samadhi. If you practice samadhi, if you are right in the middle of samadhi, very naturally there is the practice of egolessness, because you can offer yourself to zazen. So, it’s a very simple practice. 
 
-So, it’s a very simple practice. If you offer yourself, and then after that if there is no design on becoming a Buddha or expecting a reward, et cetera, at that time this practice is exactly to manifest the original nature of the Buddha: existence.
+And then, if you offer yourself, and then [...] if there is no design on becoming a Buddha or expecting a reward, et cetera, at that time this practice is exactly to manifest the original nature of the Buddha: [existence].
 
 #### 56:36
 
