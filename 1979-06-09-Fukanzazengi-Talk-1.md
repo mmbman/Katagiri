@@ -28,9 +28,7 @@ This is [the real] meaning of [shikantaza](glossary#shikantaza). It is pretty di
 
 When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside.” Because you are manifesting yourself as you really are, from moment to moment – in other words, you can stand up straight, right now, right here. But that means you can manifest yourself, so if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
 
-Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion through your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. 
-
-If you really want anger to go away very naturally, all you have to do is, you must be a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri), or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
+Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion through your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. If you really want anger to go away very naturally, all you have to do is, you must be a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri), or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
 
 But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
 
@@ -62,9 +60,7 @@ At that time, you accept yourself as an immature person. And then through zazen 
 
 So at that time, zazen is completely a means to an end. That means you already accept your life [as] not sublime. Your life is unhappy. [...] If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. 
 
-But no matter how long you do zazen like *this*, it's very difficult to realize real peaceful, harmonious life.
-
-Because at that time zazen is a means. *Means* means you are already creating something as a fixed idea. But [the] end itself is just actual movement-activity, which is called zazen. 
+But no matter how long you do zazen like *this*, it's very difficult to realize real peaceful, harmonious life. Because at that time zazen is a means. *Means* means you are already creating something as a fixed idea. But [the] end itself is just actual movement-activity, which is called zazen. 
 
 So just *do* zazen. *Do zazen* means you are present from moment to moment within the actual dynamic working which is called *doing zazen*. Becoming one with doing zazen, not seeing zazen [...] objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the [dualistic](glossary#dualistic) world. 
 
