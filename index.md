@@ -24,6 +24,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**March 30, 2024:** Updated [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1).
+
 **March 27, 2024:** Updated [Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18). 
 
 **March 26, 2024:** For class: [Whole Personality and Space](WholePersonalityAndSpace.pdf).
