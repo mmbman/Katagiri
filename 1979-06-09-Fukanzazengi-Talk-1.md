@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from a physical and psychological standpoint, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from the standpoint of Buddhist psychology, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
 
 ### Transcript
 
@@ -32,9 +32,13 @@ Or, particularly when you get angry, or when you're confused, very naturally you
 
 But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
 
-But when you do zazen, or when you pray to the gods, “Please help me” – even though you don't know how to deal with anger, you pray to the gods, “Please help me” – why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so. Or, maybe you really believe God takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
+But when you do zazen, or when you pray to the gods, “Please help me” – even though you don't know how to deal with anger, you pray to the gods, “Please help me” – why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so. 
 
-So you don't believe – but in a sense you believe. Finally you don't know why you are doing it in that way. Finally you say, “I just pray, because I don't know what to do.” So you pray to the bodhisattvas: “Avalokiteshvara, please.” Sit down in front of Avalokiteshvara, make your mind calm, and pray. That's pretty nice. At that time, there is no room to let the anger express, even for a moment. The anger, from the first, is struck aside. It's going away. 
+Or, maybe you really believe God takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
+
+So you don't believe – but in a sense you believe. Finally you don't know why you are doing it in that way. Finally you say, “I just pray, because I don't know what to do.” So you pray to the bodhisattvas: “Avalokiteshvara, please.” Sit down in front of Avalokiteshvara, make your mind calm, and pray. 
+
+That's pretty nice. At that time, there is no room to let the anger express, even for a moment. The anger, from the first, is struck aside. It's going away. 
 
 That is our life, okay?
 
@@ -42,15 +46,13 @@ That is our life, okay?
 
 So we have the practice of bowing to Buddha. Bowing to Buddha is to express the deepest appreciation to your existence: how sublime life is, how important your life is. 
 
-But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. Even if you understand, that is just a speck of dust of understanding of the human world. So actually, you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. 
-
-So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? Let’s bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
+But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. Even if you understand, that is just a speck of dust of understanding of the human world. So actually, you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? Let’s bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
 
 Before you bow, you must be *you* who has already accepted how sublime your life is. And then that's why you can bow, [because] there is no ego understanding, [ego consciousness](glossary#ego-consciousness), or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely Buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
 
 So to bow is simultaneously to accept the sublimity of life. So very naturally, ego consciousness from the first is struck aside. 
 
-That is what [Dogen Zenji](glossary#dogen) says. [The first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself]. And also, dullness and distraction from the first are struck aside, they’re going away. 
+That is what [Dogen Zenji](glossary#dogen) says. [The first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
 
 #### 12:45
 
@@ -92,13 +94,11 @@ There is [Katagiri](glossary#katagiri); that core of Katagiri is really supporte
 
 But *my* personality is something *I* can create, after my birth, so this is kind of [like] *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can] create. I have carried my personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
-So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” A part of this *smell* consists of something I have created after my birth. The other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. 
-
-So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
+So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” A part of this *smell* consists of something I have created after my birth. The other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
 
 But Katagiri’s “smell” is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. 
 
-So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, it is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. *(Transcriber’s Note: “Trans-personality” might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)*
+So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, it is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. (*Transcriber’s Note:* *Trans-personality* might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
 But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good. That feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. Because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
 
@@ -132,7 +132,7 @@ If you meddle with “all involvements” or “all affairs” right in the midd
 
 And next, our *sensory system*. We have a sensory system; it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
-That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. *(Transcriber’s Note: “Do not allow drafts of air to enter,” etc. is from the [Zazengi](topics#zazengi) chapter of [Shobogenzo](topics#shobogenzo), which is distinct from [*Fukan zazengi*](topics#fukanzazengi).)*
+That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the [*Zazengi*](topics#zazengi) chapter of [*Shobogenzo*](topics#shobogenzo), which is distinct from [*Fukan zazengi*](topics#fukanzazengi).)
 
 First of all, you should make a choice of circumstances. What kind of a room do you have to use? Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
@@ -154,7 +154,7 @@ This is movement simplified by our arrangement.
 
 And next, the *gut system*. For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
 
-*(Transcriber’s Note: Parts of the next paragraph are very hard to make out.)*
+(*Transcriber’s Note:* Parts of the next paragraph are very hard to make out.)
 
 Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. They’re going on. Even though your heart is beating, *[unintelligible]*, and then you put the gasoline into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
 
@@ -178,9 +178,9 @@ So Dogen says, “Do not think good or bad, right and wrong,” because we have 
 
 If your mind really attaches to good or bad or neutral, immediately there are thoughts, views, or wishes. And thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, [stopping]. [But] even though you can stop for a while, you cannot stop always. So you start to move, to the right, to the left again. That is the dualistic world. 
 
-Finally, you don't know *what* to do; and in your life you are really disappointed. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, there is *distraction*. Dogen Zenji says distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. So finally, you don't know what to do. Whatever kind of [delusion](glossary#delusion), either dullness or distraction, both distract your activities, [...] your life. Settling yourself in the self is very difficult.
+Finally, you don't know *what* to do; and in your life you are really disappointed. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, there is *distraction*. Dogen Zenji says distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. 
 
-So finally, we have to practice regulating the mind. That regulating of the mind is the practice of *egolessness*. 
+So finally, you don't know what to do. Whatever kind of [delusion](glossary#delusion), either dullness or distraction, both distract your activities, [...] your life. Settling yourself in the self is very difficult. So finally, we have to practice regulating the mind. That regulating of the mind is the practice of *egolessness*. 
 
 But how can you practice egolessness? Dogen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of Buddha.” That means, you should throw yourself away to something. That *to something* is to your object. But this object is not merely an object, this [object] is the house of the Buddha. 
 
@@ -206,35 +206,35 @@ And then, if you offer yourself, and then [...] if there is no design on becomin
 
 #### 56:36
 
-So, there are three important points: samadhi, egolessness, and no design on becoming Buddha, no design of expecting reward. Those three points are very important. 
+So, there are three important points: *samadhi*, *egolessness*, and *no design on becoming Buddha*, no design of expecting reward. Those three points are very important. 
 
 Egolessness: that is to regulate the mind. How to regulate the mind? Egolessness. How to practice egolessness? Throw yourself away. In other words, offer yourself into zazen. How can you do that? By the help of samadhi, one-pointedness. With wholeheartedness, you can do it, very naturally. 
 
-If you really want to accomplish one thing which you want to do, you have to cut off all involvements and all affairs. In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing; it seems to be good, but it's not the real achievement or accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with wholeheartedness, it is very natural that you keep away, you make arrangement of circumstances. This is a very natural attitude to our life. That's why Dogen Zenji says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; throw it away. 
+So if you really want to accomplish one thing which you want to do, you have to cut off “all involvements and all affairs.” In other words, make arrangement. The young kids are listening to the radio and also studying and also trying to accomplish one thing – it seems to be good, but it's not the real accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with wholeheartedness, it is very natural that you make arrangement of circumstances. This is a very natural attitude to our life. That's why Dogen Zenji says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; throw [it] away. 
 
-How can you throw away? Simplify. You should simplify your activity. [Simplify the relationship with] subject and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. How can you simplify? Let's practice samadhi. Samadhi is one-pointedness. If you come from one-pointedness, there is egolessness. Let egolessness simplify your life. 
+How can you throw away? *Simplify*. You should simplify your activity. [Simplify the relationship with] subject and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. [...] How can you simplify? Let's practice *samadhi*. Samadhi is one-pointedness. If you practice one-pointedness, there is *egolessness*. Let egolessness simplify your life. Manifest simplicity, simplify your life. Because [then] you can offer yourself to the object: zazen, or study, et cetera. And then, completely simplified, unified, that is what is called *harmonious*. 
 
-Manifest simplicity, simplify your life; because then you can offer yourself to the object: zazen, or study, et cetera. And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means that you know all things, many things around us. First, accept them, and then, how to *arrange* them; how to use the circumstances, the sensory system, movement system, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is Buddha Nature.
+Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] all things, many things around us. First, accept them, and then, how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha nature. And then this total personality, which is called Buddha, is completely perfect and all-pervading. Dogen Zenji says, “The origin of the way is perfect and all-pervading.” 
 
-And then this total personality, which is called Buddha, is completely perfect and all-pervading. Dogen Zenji says, “The origin of the way is perfect and all-pervading.” [It is] manifesting the original nature of existence. If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain system, nervous system, very naturally you can practice samadhi, you can offer yourself into [zazen], and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
+And also, “manifesting the original nature of existence.” If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain [and] nervous system, very naturally you can practice samadhi, you can offer yourself into [zazen], and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
-#### 1:02:05
+And then, even though you don't understand, total personality is perfectly peaceful, harmonious. How? This is *belief*. Belief really helps your activities, your practice.
 
-And then, even though you don't understand, your total personality is perfectly peaceful, harmonious. How? This is *belief*. Belief really helps your activities, your practice.
-
-So I told you three important points, but there are four important points. First, *belief*. That is *faith*. Faith is total acceptance that your original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved; and you grow, very naturally. This is faith.
+So I told you three important points, but there are four important points. First, *belief*. That is *faith*. Faith is total acceptance that your original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
 
 And then, if you are under the huge tree, and saved, at that time that is called *salvation*. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). 
 
-How can you experience enlightenment? Well first, practice egolessness. How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is no design on expecting any reward. Just do it; that is *shikantaza*. That is really helpful. That is really a way of helping people: offering your merit, the merit of your practice, to all sentient beings. 
+How can you experience enlightenment? Well, first, practice egolessness. How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is no design on expecting any reward. Just do it; that is *shikantaza*. 
 
-According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice; but it is a narrow understanding – because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
+That is really helpful. That is really a way of helping people: offering your merit, the merit of your practice, to all sentient beings. 
+
+According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice; but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
 
 #### 1:05:26
 
-So, that is the conclusion of the main subject in *Fukanzazengi*. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is the meaning of the zazen [we always do]. 
+So, that is the conclusion of the main subject in [*Fukanzazengi*]. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is really our zazen. We always [do this]. 
 
-If you believe by the zazen that “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony this way, because if you believe that, then zazen is always something far from you. And not only zazen: you accept yourself as an unhappy person. So you yourself are also a person far from the real person, [if you are] opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult for you to deal with zazen and whatever you do. So, that is not the practice for us.
+If you believe that by the zazen “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony [this way]. Because if you believe that, zazen is always something far from you. And not only zazen – you accept yourself as sort of an unhappy person. So you yourself are also a person far from the real person, opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult [for you] to deal with zazen and whatever you do. So, that is not the practice for us.
 
 #### 1:07:20 end of recording
 
