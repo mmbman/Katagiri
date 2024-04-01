@@ -1057,7 +1057,7 @@ External links:
 
 ## Suki
 
-suki (Japanese): gap; space.
+suki (Japanese) 隙: gap; space.
 
 - [Fukanzazengi – Talk 2 (7:52)](1979-06-10-Fukanzazengi-Talk-2#752)
 

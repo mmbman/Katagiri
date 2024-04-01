@@ -74,7 +74,7 @@ That is *shikantaza* – very naturally.
 
 Psychologically speaking, there are several component factors in living. 
 
-One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts (the *internal organ system*). We have lots of guts. And also, the *brain-nerve system*.
+One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts. We have lots of guts. (**Transcriber’s Note:** In subsequent talks, this is referred to as the *internal organ system*.) And also, the *brain-nerve system*.
 
 So [there are] circumstances and also the sensory system. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
 
@@ -152,11 +152,11 @@ This is movement simplified by our arrangement.
 
 #### 42:38
 
-And next, the *gut system*. For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
+And next, the *gut system*. (The *internal organ system*.) For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
 
 (*Transcriber’s Note:* Parts of the next paragraph are very hard to make out.)
 
-Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. They’re going on. Even though your heart is beating, *[unintelligible]*, and then you put the gasoline into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
+Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. They’re going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gas] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
 
 But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your breath is pretty good; *[unintelligible]* is pretty good. And your heart is beating normally, very naturally.
 
