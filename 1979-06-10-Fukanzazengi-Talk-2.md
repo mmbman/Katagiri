@@ -116,7 +116,7 @@ Do you have any questions?
 
 #### 28:15
 
-**Question:** I don’t understand circumstances; I don’t quite understand the idea. 
+**Question:** I don’t understand *circumstances*; I don’t quite understand the idea. 
 
 **Katagiri:** Circumstances are outside; outward circumstances. The sound of the car.
 
@@ -124,11 +124,13 @@ Do you have any questions?
 
 **Katagiri:** Situation. Mmm-hmm. Environment.
 
-Although, there are lots of environments. Some environments are connected with you directly, but some environments are not connected directly; they are indirectly connected. But even though there are some environments connected indirectly, they are also environments; we cannot ignore them. Circumstances includes all things, all environments, connected directly or indirectly. 
+Although, there are lots of environments. Some environments are connected with you directly, but some environments are not connected directly; they are indirectly connected. But even though there are some environments connected indirectly, they are also environments; we cannot ignore them. Circumstances includes all things, *all* environments, connected directly or indirectly. 
 
-For instance, we are in America. We don’t know what’s happening in Japan. But Japan is an environment – connected indirectly. Consciously or unconsciously, everything is connected. That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? For instance, Paris? I have never been in Paris. But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
+For instance, we are in America. We don’t know what’s happening in Japan. But Japan is an environment – connected indirectly. Or consciously or unconsciously, everything is connected. 
 
-So cut off all things. “Cut off” means, put them aside, in their place. You cannot destroy them. 
+That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? For instance, Paris? I have never been in Paris. But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
+
+So cut off all things. “Cut off” means put them aside. You cannot destroy them. 
 
 #### 30:30
 
@@ -138,7 +140,7 @@ So cut off all things. “Cut off” means, put them aside, in their place. You 
 
 **Same person:** Where do they appear?
 
-**Katagiri:** Well, the regulation of body, regulation of the breath, regulation of mind, is the teaching of [Zen Buddhism](glossary#zen-buddhism), the practice of zazen, through regulation. So that’s why I want to explain that. Those six categories are very common categories according to psychology.
+**Katagiri:** Well, the regulation of body, regulation of the breath, regulation of mind, is the teaching of [Zen Buddhism](glossary#zen-buddhism), the practice of zazen, through regulation. So that’s why I want to explain that. But those six categories are very common categories according to psychology. 
 
 **Same person:** I see.
 
@@ -148,11 +150,11 @@ If you don’t understand number one, number two, number three, four, five: numb
 
 **Same person:** Oh yes.
 
-**Katagiri:** Oh, it’s very easy. So that’s why, according to zazen, we can make arrangement of those five, or at least four. And then immediately, you can get a chance to manifest total personality, because all circumstances are perfectly arranged. 
+**Katagiri:** Well, it’s very easy. So that’s why, according to zazen, we can make arrangement of those five, or at least four. And then immediately, you can get a chance to manifest total personality, because all circumstances are perfectly arranged. 
 
-For instance, if you want to feel comfortable, you cannot get a comfortable feeling without making arrangement of the environment. That’s the environment: number one, number two, number three, number four. So anyway, first of all make arrangement, that is the point, instead of escaping, or attaching, or destroying, et cetera. 
+For instance, if you want to feel comfortable, you cannot get a comfortable feeling without making arrangement of the environment. That’s the environment: number one, number two, number three, number four. So anyway, first of all make arrangement, that is the point. Instead of escaping, or attaching, or destroying, et cetera. 
 
-But on the other hand, the problem is we have a mind. The mind is trying to attach to a certain result which we have experienced. That’s why zazen immediately is seen as a means to an end. So we say, “Let’s do zazen; you can attain enlightenment.” Or, “Zazen makes you happy, zazen makes you strong, psychologically, mentally.” It *seems* to be good; but actually it’s not the real experience of touching the core of the problem of life and death. Life and death is completely no design. [The basis] of life and death has no design on having a reward after doing or before doing. Just do. [Zazen] is a good example. 
+But on the other hand, the problem is we have a mind. [The] mind is trying to attach to a certain result which we have experienced. That’s why zazen immediately is seen as a means to an end. So you say, “Let’s do zazen; you can attain enlightenment.” Or, “Zazen makes you happy, zazen makes you strong, psychologically, mentally.” It *seems* to be good; but actually it’s not the real experience of touching the core of the problem of life and death. Life and death is completely no design. [The basis] of life and death has no design on having a reward after doing or before doing. Just do. So death is a good example. 
 
 So that’s why the regulation of the mind is very important. 
 
@@ -160,17 +162,19 @@ So that’s why the regulation of the mind is very important.
 
 **Question:** Roshi? We talk about and we chant that the natural condition of mind is to be free from clinging. Sometimes I wonder, I’m not clear about, if it’s our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it’s almost impossible to attain it. Why is this called the natural condition in life?
 
-**Katagiri:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think that it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience ... the basis of [ego consciousness](glossary#ego-consciousness) [et cetera]. But usually, I told you, total personality. Through this person, through this *you*, we can see the total personality. In a sense, according to consciousness, our sense, our mind, I can “smell” you. Or, I can smell myself. There is a “stink,” in a bad sense; but in a good sense, it’s pretty good. So the total personality shows you the judgement, good or bad. But that good or bad is something you understand through consciousness. 
+**Katagiri:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience [the] natural [condition], or the basis of [ego consciousness](glossary#ego-consciousness), et cetera. But usually, I told you, total personality: through this person, through this *you*, we can see the total personality. 
 
-On the other hand, that total personality comes from beginningless past and endless future. Finally that’s total personality, where [Katagiri](glossary#katagiri) is Katagiri. So why don’t I take care of Katagiri with compassionate attention, completely beyond judgement [of] good or bad, right and wrong? So we must be right in the middle of total personality in everyday life. Total personality is the core of life, so we must always be there.
+In a sense, according to the common sense – you know, consciousness, our sense, our mind – I can “smell” you. Or, I can smell myself. That is a “stink,” in a bad sense; but in a good sense, it’s pretty good. So the total personality shows you the judgement, good or bad. But that good or bad is something you understand through consciousness. 
 
-So from this point, it’s pretty easy, no difficulty. That’s why Dogen Zenji says that within total personality or the original nature of existence, there is no [suffering](glossary#suffering), no confusion, no agitation, et cetera. Completely perfect. 
+On the other hand, that total personality comes from where? Beginningless past, and endless future. So finally that’s total personality, [so] Katagiri is Katagiri. So why don’t I take care of Katagiri with compassionate attention, completely beyond judgement [of] good or bad, right and wrong? So we must be right in the middle of total personality, everyday life. Total personality is the core of life, so we must always be there.
 
-So it’s pretty easy, in a sense. But in a sense, according to the six consciousnesses, it’s pretty hard. In the six consciousnesses we can understand our life according to the huge pile of experiences which we have accumulated; that’s why it’s pretty hard. Arrangement, regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? 
+So from *this* point, it’s pretty easy, no difficulty. That’s why Dogen Zenji says that the Buddhist faith – if you believe total personality, or buddha nature, whatever there is – within total personality or the original nature of existence, there is no [suffering](glossary#suffering), no confusion, no agitation, et cetera. Completely perfect. 
 
-So basically, it’s very easy: just do it. Just, proper posture. But it’s not easy, because you already have your own posture, and also you already have your own sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why, if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
+So it’s pretty easy, in a sense. But in a sense, according to the six consciousnesses, it’s pretty hard. Because in the six consciousnesses we can understand our life according to the huge pile of experiences which we have accumulated. That’s why it’s pretty hard. Arrangement, regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? 
 
-**Same person:** In terms of the senses, it seems like zazen is not natural. It’s like ... when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. *[Katagiri Roshi laughs.]*
+So basically, it’s very easy: just do it. Just, proper posture. But it’s not easy, because you already have your own posture, and also you already have your [own] sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why, if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
+
+**Same person:** In terms of the senses, it seems like zazen is *not* natural. It seems like [...] when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. *[Katagiri Roshi laughs.]*
 
 **Katagiri:** It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. Physical pain is in the mind, up here. Even though it is natural.
 
@@ -182,9 +186,9 @@ So basically, it’s very easy: just do it. Just, proper posture. But it’s not
 
 **Same person:** (This is still mostly unintelligible on the recording.) But I mean, in terms of regulation... If it seems as if you are experiencing something that’s tranquil ... There’s some effects of that... You want to have that happen again. But isn’t that the purpose of regulating everything, in order to have everything working smoothly?
 
-**Katagiri:** Regulating is not to control. Basically, we have to regulate what? Body and breath. These are the two that we have to do at a minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, many things. But they are just a [bump]. Our mind attaches to it if you always see that “oh, that’s good,” “that’s bad”; but without mind, if you let it go, just *[unintelligible]*, come back. If you see the sleep, just sleep: “Oh, it’s sleep.” If you realize. Awareness is important, okay? And then, [forget it]. That’s why there is number three, regulation of the body: sitting in the proper way, immobile. It means, sitting with the body and also mind, which leads you to awaken totally [to anything].
+**Katagiri:** Regulating is not to control. Basically, we have to regulate what? Body and breath. These are something that have to do to the minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, many things. But they are just a [bump]. Our mind attaches to it, if you see that “oh, that’s good,” “that’s bad.” But without mind, if you let it go, just [a bump]. Come back. If you see the sleep, just sleep: “Oh, it’s sleep.” If you realize. Awareness is important, okay? And then, [adjust]. That’s why there is number three, regulation of the body: sitting in the proper way, immobile. It means, sitting with the body and also mind, which leads you to awaken totally [to anything].
 
-That’s why at that time, the mind is very sharp. The minute you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and waking up, you can realize [it]. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let’s sit down, right now, [totally in your body]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is just to see, and correct [what you see]. That’s just the total dynamic working. That is awakening, that is wisdom: see, and adjust. Very good. 
+That’s why at that time, the mind is very sharp. Immediately you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and waking up, you can realize [it]. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let’s sit down, right now, [totally in your body]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is just to see, and correct, adjust. [That’s] just the total dynamic working. That is awakening, that is wisdom: see, and adjust. Very good. 
 
 The mind is always there, interfering, judging good or bad. [Enlightenment, practice] – that is no design.
 
