@@ -7,7 +7,7 @@ title: "Buddha’s Birthday"
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
+<p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/buddhas-birthday" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
