@@ -82,7 +82,7 @@ So Buddha encourages us to live in that way. Because it is the truth, it is real
 
 So that is called “I alone” – or *all* alone – “are honored [ones].” In heaven and on earth. Not a particular area, but in heaven and on earth – in the universe. 
 
-##### 25:05
+#### 25:05
 
 So I think in order to be thoughtful and kind and compassionate, we have to see human life, how it is going, understanding deeply life and death. We have to constantly [be] thinking about death, and then, [be] moving toward death, but not be upset so much, not the preparation for death, but day-by-day, how we live. That is Buddha’s teaching. 
 
