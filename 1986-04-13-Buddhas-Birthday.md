@@ -8,7 +8,7 @@ title: "Buddha’s Birthday"
 
 ### Summary
 
-Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour tea over the statue of the baby Buddha, why the baby Buddha took seven steps, and the real meaning of his declaration, “I alone am the honored one in heaven and on earth.” 
+Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour tea over the statue of the baby Buddha, why according to legend the baby Buddha took seven steps, and the real meaning of his declaration, “I alone am the honored one in heaven and on earth.” 
 
 ### Transcript
 
