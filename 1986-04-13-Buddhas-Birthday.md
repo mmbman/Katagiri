@@ -22,9 +22,7 @@ We have a very traditional celebration of Buddha’s Birthday on the eighth of A
 
 In [Southeast] Asia, I think they celebrate Buddha’s life on the day called *Vesak*, according to the lunar calendar. [...] Buddha’s birthday, nirvana day – Buddha’s death – and enlightenment day, all the events of Buddha’s life, are celebrated on the day of *Vesak*, which is [when] you can see the full moon [at] night. That is in the second month of the year, so February.
 
-As you know pretty well, in [Southeast] Asia, you can have flowers all year round, just like Hawaii. [...] So even in February they can have beautiful flowers. 
-
-And then Buddhism came to China. [...] You know China: the weather in China is quite different from [southeastern] Asia. So winter, spring, summer, and autumn are definite different seasons. In February, it’s very cold. No flowers. 
+As you know pretty well, in [Southeast] Asia, you can have flowers all year round, just like Hawaii. [...] So even in February they can have beautiful flowers. And then Buddhism came to China. [...] You know China: the weather in China is quite different from [southeastern] Asia. So winter, spring, summer, and autumn are definite different seasons. In February, it’s very cold. No flowers. 
 
 So they started to think about when they should celebrate Buddha’s birthday. Do you know Buddha was born in the Lumbini garden, surrounded by beautiful flowers? So they thought that they had better have a beautiful season, surrounded by beautiful flowers. [In other words,] in Spring. So they picked April. 
 
