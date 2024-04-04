@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 ---
 ## April 12, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| [Next](1986-04-26-Three-Collective-Pure-Precepts) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| [Next](1986-04-13-Buddhas-Birthday) \| Series: [Lay Ordination](lay-ordination)
 
 ### Summary
 
@@ -145,4 +145,4 @@ Do you have questions?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| [Next](1986-04-26-Three-Collective-Pure-Precepts) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| [Next](1986-04-13-Buddhas-Birthday) \| Series: [Lay Ordination](lay-ordination)

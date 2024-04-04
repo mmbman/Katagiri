@@ -433,6 +433,13 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
+##### [Buddha’s Birthday](1986-04-13-Buddhas-Birthday)
+###### April 13, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour tea over the statue of the baby Buddha, why the baby Buddha took seven steps, and the real meaning of his declaration, “I alone am the honored one in heaven and on earth.” 
+
+--- 
+
 ##### [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
 ###### April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
