@@ -24,42 +24,44 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
-**April 4, 2024:**: Added [Buddha’s Birthday](1986-04-13-Buddhas-Birthday). Happy Buddha’s Birthday!
+**April 8, 2024:** Updated [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18). 
 
-**March 30, 2024:** Updated [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1).
+**April 4, 2024:**: Added [“Buddha’s Birthday”](1986-04-13-Buddhas-Birthday). Happy Buddha’s Birthday!
 
-**March 27, 2024:** Updated [Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18). 
+**March 30, 2024:** Updated [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1).
 
-**March 26, 2024:** For class: [Whole Personality and Space](WholePersonalityAndSpace.pdf).
+**March 27, 2024:** Updated [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18). 
 
-**March 25, 2024:** Updated [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6).
+**March 26, 2024:** For class: [“Whole Personality and Space”](WholePersonalityAndSpace.pdf).
 
-**March 21, 2024:** Updated [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings).
+**March 25, 2024:** Updated [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6).
+
+**March 21, 2024:** Updated [“Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings).
 
 **March 15, 2024:**: Completed one more pass through the [Karma](karma) series. 
 
-**March 12, 2024:**: For class: [Excerpt from Blue Cliff Record Case 38: Feng Hsueh’s Workings of the Iron Ox](ExcerptFromBCRCase38.pdf). 
+**March 12, 2024:**: For class: [Excerpt from “*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox”](ExcerptFromBCRCase38.pdf). 
 
-**March 7, 2024:** Updated [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma). That completes the latest pass through the [Karma](karma) talks. 
+**March 7, 2024:** Updated [“Karma: Taking Care of Karma”](1980-07-04-Karma-Taking-Care-of-Karma). That completes the latest pass through the [Karma](karma) talks. 
 
-**March 6, 2024:** Updated [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested).
+**March 6, 2024:** Updated [“Karma: Unmanifested Karma”](1980-07-03-Karma-Unmanifested).
 
-**March 5, 2024:** Updated [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates).
+**March 5, 2024:** Updated [“Karma: Where Karma Originates”](1980-07-02-Karma-Where-Karma-Originates).
 
-**March 4, 2024:** Updated [Karma in Buddhism](1987-05-23-Karma-in-Buddhism), [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects), and [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Link-Causation).
+**March 4, 2024:** Updated [“Karma in Buddhism”](1987-05-23-Karma-in-Buddhism), [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects), and [“Karma: Twelve-Link Causation”](1980-07-01-Karma-Twelve-Link-Causation).
 
-**February 29, 2024:** Updated [Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
+**February 29, 2024:** Updated [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18).
 
-**February 27, 2024:** Updated [Karma: Conclusion](1980-07-12-Karma-Conclusion).
+**February 27, 2024:** Updated [“Karma: Conclusion”](1980-07-12-Karma-Conclusion).
 
-**February 26, 2024:** For class: [Interdependence / Karma / *Four Horses*
-– Additional Reading](Interdependence-Karma-FourHorses.pdf).
+**February 26, 2024:** For class: [“Interdependence / Karma / *Four Horses*
+– Additional Reading”](Interdependence-Karma-FourHorses.pdf).
 
-**February 25, 2024:** Updated [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness).
+**February 25, 2024:** Updated [“Karma: Karma as Energy/Emptiness”](1980-07-11-Karma-As-Energy-Emptiness).
 
-**February 23 and 24, 2024:** Updated [Karma: Karmic Retribution in Present Life](https://katagiritranscripts.net/1980-07-10-Karmic-Retribution-in-Present-Life). (Important corrections!)
+**February 23 and 24, 2024:** Updated [“Karma: Karmic Retribution in Present Life”](https://katagiritranscripts.net/1980-07-10-Karmic-Retribution-in-Present-Life). (Important corrections!)
 
-**February 13, 2024:** For class: [Excerpts on Bodhidharma](ExcerptsOnBodhidharma.pdf)
+**February 13, 2024:** For class: [“Excerpts on Bodhidharma”](ExcerptsOnBodhidharma.pdf)
 
 **February 12, 2024:** Posted drafts of [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) and [Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).
 
@@ -67,14 +69,14 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 **January 30, 2024:** Adjusted page margins.
 
-**January 23, 2024:** More cleanup up [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
+**January 23, 2024:** More cleanup up [“*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2”](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2). 
 
-**January 22, 2024:** Updated [Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
+**January 22, 2024:** Updated [“*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2”](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2).
 
-**January 21, 2024:** Even more cleanup of the first part of [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18). Finally figured out *hosho-ike*.
+**January 21, 2024:** Even more cleanup of the first part of [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18). Finally figured out *hosho-ike*.
 
-**January 18, 2024:** More editing of [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18).
+**January 18, 2024:** More editing of [“*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1”](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) and  [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18).
 
-**January 17, 2024:** Updated [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
+**January 17, 2024:** Updated [“*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1”](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1).
 
 **January 16, 2024:** Centered headings and style changes.
