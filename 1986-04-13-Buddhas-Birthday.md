@@ -18,7 +18,7 @@ Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour
 
 #### 0:00
 
-We have a very traditional celebration of Buddha’s Birthday on the eighth of April every year. 
+**Katagiri Roshi:** We have a very traditional celebration of Buddha’s Birthday on the eighth of April every year. 
 
 In [Southeast] Asia, I think they celebrate Buddha’s life on the day called *Vesak*, according to the lunar calendar. [...] Buddha’s birthday, nirvana day – Buddha’s death – and enlightenment day, all the events of Buddha’s life, are celebrated on the day of *Vesak*, which is [when] you can see the full moon [at] night. That is in the second month of the year, so February.
 
