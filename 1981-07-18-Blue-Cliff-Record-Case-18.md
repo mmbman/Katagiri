@@ -184,7 +184,9 @@ So if you really understand this karmic life, karmic life turns into Buddha's li
 
 That is really silence. 
 
-There is a story (at the beginning of “Four Horses”) where Dogen Zenji says, “Haven’t you heard how an outsider asked the Buddha, ‘I don’t ask about the spoken, I don’t ask about the unspoken.’” (*Transcriber’s Note:* This story is also in the commentary to the case.)
+There is a story (at the beginning of “Four Horses”) where Dogen Zenji says... (*Transcriber’s Note:* This story is also in the commentary to the case, which Katagiri Roshi is quoting here.)
+ 
+> Haven’t you heard how an outsider asked the Buddha, “I don’t ask about the spoken, I don’t ask about the unspoken.” 
 
 In other words, completely beyond words or not-words, karmic life or not karmic life – what is life? The outsider – in other words, this means a Brahman – asked the Buddha, “I don’t ask about the spoken, [I don’t ask about the unspoken]” ...
 
@@ -194,15 +196,19 @@ In other words, completely beyond words or not-words, karmic life or not karmic 
 
 So, that [means] this Brahman really wanted to know what life’s seamless monument is. 
 
-The World-honored One remained silent. Just, *sit down*.
+> The World Honored One remained silent. 
 
-The outsider bowed in homage and sighed in praise. He was really surprised to see the Buddha’s silence, *just sit down*; he really attained, he really touched something. And then he said, “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
+Just, *sit down*.
 
-So after the outsider had left, Ānanda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
+> The outsider bowed in homage and sighed in praise; ...
 
-The World-honored One said, “In worldly terms, he’s like a good horse. He goes when he sees the shadow of the whip.”
+He was really surprised to see the Buddha’s silence, *just sit down*; he really attained, he really touched something. And then he said, 
 
-> (From the commentary:)  
+> “The World-honored One, with greatest mercy and great compassion, has dispersed the clouds of my delusion and caused me to gain entry!” 
+> 
+> After the outsider had left, Ananda asked the Buddha, “What did the outsider witness, that he said he had gained entry?” 
+>
+> The World Honored One said, “In worldly terms he’s like a good horse; he goes when he sees the shadow of the whip.” 
 > 
 > People often go to the silence for their understanding. What is there to grasp?
 
