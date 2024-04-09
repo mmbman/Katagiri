@@ -196,11 +196,11 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 **Question:** Roshi? It seems like that adjustment is constantly in the direction of samadhi – you constantly make that adjustment, but how do you – ?
 
-**Katagiri:** Well, maybe it depends on the individual; maybe so. But, constantly adjusting and adjusting – what’s wrong with adjustment? They’re just adjustments. But if you adjust and you say, “Oh, constantly I have to adjust” – is there something wrong? 
+**Katagiri:** Well, maybe it depends on the individual; maybe so. But, constantly adjusting and adjusting – what’s wrong with adjustment? [It’s] just all that adjustment. Just adjustment. But if you adjust and you say, “Oh, constantly I have to adjust” – is there something wrong? ...
 
 *[Tape change.]*
 
-... immediately you attach to the adjustment you have made, trying to judge, “it is good,” or “it is bad,” “I am doing zazen,” “this is the real zazen,” or, “this is really shikantaza itself.” Do you understand?
+... immediately you attach to the adjustment you have made. [You] try to judge, “it is good,” or “it is bad,” “I am doing zazen,” “this is the real zazen,” or, “this is really shikantaza,” et cetera. Do you understand?
 
 **Question:** Roshi, I wonder the same thing. I sort of feel like the effort is to follow the breath, and then suddenly I realize I’m getting a little sleepy, or I catch myself thinking about something. And at that time, you’re saying, just return to your effort to follow the breath. 
 
@@ -220,9 +220,9 @@ Is that something wrong?
 
 **Question:** Roshi? Sometimes so many things come up, especially the first couple days of [sesshin](glossary#sesshin), it seems like it takes enormous effort to return to the breath. Should we use that enormous effort?
 
-**Katagiri:**  We cannot continue *enormous* effort. So, sometimes [use effort]; don’t attach to enormous effort constantly. Sometimes enormous effort makes you exhausted. At that time, forget it! Just *relax*, okay? *[The group laughs.]* Just relax! And then, taking a breath, and a short breath, and a long breath; letting it go. 
+**Katagiri:** [Use] enormous effort, but we cannot continue *enormous* effort. So, sometimes [use effort]; don’t attach to enormous effort constantly. Sometimes enormous effort makes you exhausted. At that time, forget it! Just *relax*, okay? *[The group laughs.]* Just relax! And then, taking a breath, and a short breath, and a long breath; letting [it] go. 
 
-And while you take a breath, very naturally, as naturally as you can – then, your mind can calm. Maybe it takes an hour? Maybe two hours; maybe a day. It’s okay. And then if your mind is very relaxed, let’s return.
+And then [...] you take a breath very naturally, as naturally as you can. And then, your mind can calm. Maybe it takes an hour? Maybe two hours; maybe a day. It’s okay. And then if your mind is very relaxed, let’s return.
 
 #### 49:08
 
@@ -232,13 +232,13 @@ And while you take a breath, very naturally, as naturally as you can – then, y
 
 The center is always the center. Okay? You must be in the center. 
 
-So you have to see. [One person] says [in zazen] many things always happen; at that time you really need lots of effort. Sometimes you need that enormous effort. Of course you have to push yourself. And on the other hand, it’s not always good. In the process of using the enormous effort, you can see there are lots of things happening again which you have never seen before – so, [you are] adding something more, adding to the enormous effort. There are lots *extra* things happening. For instance, enormous effort makes you exhausted: that is something extra. That’s why in the process of enormous effort, we have to see what enormous effort is. We have to take care of enormous effort.
+So you have to see. [Someone] says many things always happen [in zazen]; and at that time you really need lots of effort. Sometimes you need that enormous effort. Of course, you have to push yourself. And on the other hand, it’s not always good. In the process of using the enormous effort, you can see that lots of things happen [...] which you have never seen before – so, [you are] adding something more, adding to the enormous effort. There are lots of *extra* things happening. For instance, enormous effort makes you exhausted: that is something extra. That’s why in the process of enormous effort, we have to see what enormous effort is. We have to take care of enormous effort.
 
 **Same person:** I’m a little confused, I’m not sure I’m understanding you. What I was thinking of is that, sometimes I have enormous effort to put out, or even if I don’t feel it right now, I can get myself to put it out. Other times, I don’t have the effort here; I could try to force myself to find it, but it really feels like I don’t want to put much effort. I thought I understood you saying to [the person] that when we’re feeling not a lot of effort, it’s okay to go with that for a while. 
 
 **Katagiri:** In zazen there is a basic rule, [there is] a basic way of life which is called zazen. Physically, already we have it here. That’s why, even though you forget the enormous effort, still there is an effort, physically. Breathing. 
 
-That’s a point, but in daily living, it’s a little different. For instance, a person’s diet may be difficult. But still there is that you must be in the center of life. It means, even though you forget enormous effort, it’s not necessary to be confused by it. “To be confused by” means you are completely dragged away by the “mess”; lots of questions. So, still there is effort. “Forget enormous effort” doesn’t mean completely throw it away; still there is effort.
+That’s a point, but in daily living, it’s a little different. For instance, a person’s diet may be difficult. But still there is that you must be [in the] center of life. It means, even though you forget enormous effort, it’s not necessary to be confused by [it]. “To be confused by” means you are completely dragged away by the “mess”; lots of questions. So, still there is effort. “Forget enormous effort” doesn’t mean completely throw it away; still there is effort.
 
 **Same person:** So there’s kind of a minimum level, that you always have to...
 
@@ -248,21 +248,21 @@ That’s a point, but in daily living, it’s a little different. For instance, 
 
 **Question:** Well, how does this compare with... Let’s say if you read [Kapleau Roshi](glossary#kapleau-roshi)’s books, and a [Rinzai](glossary#rinzai-zen) approach is to just force yourself continually to break through and find some kind of enlightenment. Do you see any merit in that, or are you saying that that isn’t necessary? 
 
-**Katagiri:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, this and that, samadhi, you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen; through zazen you have to attain enlightenment, that’s why the teachers push you so hard. That means, you are Buddha but you are not Buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the [dualistic](glossary#dualistic) world. And also zazen is seen in the dualistic world. 
+**Katagiri:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, [this and that], samadhi, you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen: through zazen you have to attain enlightenment, that’s why the teachers push you so hard. That means, you are Buddha but you are not Buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the [dualistic](glossary#dualistic) world. And also zazen is seen in the dualistic world. 
 
-Well of course, it is okay. But the final stage is not that zazen and subject and object should be seen in the [dualistic](glossary#dualistic) world. We have to take care of subject and object according to total personality; we have to settle ourselves in total personality, from the beginning to end. 
+Of course, it is okay. But the final stage is not that zazen and subject and object should be seen in the dualistic world. We have to take care of subject and object according to *total personality*. We have to settle ourselves in total personality, from the beginning to end. 
 
 That means, finally, we have to do zazen with no design on having any reward. That means, offering yourself perfectly. 
 
 #### 54:47
 
-**Same person:** I was reading an account of [Tibetan Buddhism](glossary#tibetan-buddhism), and the author was talking about [Zen](glossary#zen), and they were talking about the purity of Zen. It sounds like you’re talking about Zen in a very pure sense of just entering [nondualism](glossary#nondualism). And they were saying that for very rare people, they can go into that very pure practice and get into it, but for say the typical American, who’s completely caught in [dualism](glossary#dualism), they can’t just step into that kind of purity, they have to work on it step by step, and Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that’s what you’re saying, that me as an individual striving for enlightenment is already [dualistic](glossary#dualistic), and so you’re being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn’t that awfully hard?
+**Same person:** I was reading an account of [Tibetan Buddhism](glossary#tibetan-buddhism), and the author was talking about [Zen](glossary#zen), and they were talking about the *purity* of Zen. You know, it sounds like you’re talking about Zen in a very pure sense of just entering [nondualism](glossary#nondualism). And they were saying that for very rare people, they can go into that very pure practice and get into it, but for say the typical American, who’s completely caught in dualism, they can’t just step into that kind of purity, they have to work on it step by step, and Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that’s what you’re saying, that me as an individual striving for enlightenment is already dualistic, and so you’re being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn’t that awfully hard?
 
-**Katagiri:** Well, that is not only Americans, but also Japanese, and whoever you are. If you attain enlightenment in [dualism](glossary#dualism), that enlightenment is nothing but [dualistic](glossary#dualistic) enlightenment; that’s all. Don’t you think so? That means dualistic enlightenment is sort of “dregs.” It’s pretty hard to see those dregs... sort of always a trace, or track.
+**Katagiri:** Well, that is not only Americans, but also Japanese, or whoever you are. But if you attain enlightenment in dualism, that enlightenment is nothing but dualistic enlightenment; that’s all. Don’t you think so? That means dualistic enlightenment is sort of [the] “dregs.” It’s pretty hard to see those dregs... sort of always a *trace*, or track.
 
 **Same person:** You’re saying that it isn’t really the enlightened state of mind? 
 
-**Katagiri:** No, I don’t think so. It seems to be good; wonderful. In that world, things are encouraging people. But finally, if you attain enlightenment in the dualistic world, it’s nothing but enlightenment in the [dualistic](glossary#dualistic) world. 
+**Katagiri:** No, I don’t think so. It seems to be good; wonderful. [In that little] things are encouraging people. But finally, if you attain enlightenment in the dualistic world, it’s nothing but enlightenment in the dualistic world. 
 
 For instance, I will show you [calligraphy](glossary#calligraphy) written by a first grade child who is an expert of calligraphy, so you should look at this and learn calligraphy. And then, this child tells you that you are great; you are master of the calligraphy. Can you imagine? That is enlightenment. Do you understand?
 
