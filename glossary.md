@@ -23,9 +23,7 @@ description: A work-in-progress glossary of terms used in the talks.
 
 "an abstract and highly technical systemization of the [Buddhist] doctrine"
 
-External links:
-
-- [Wikipedia: Abhidharma](https://en.wikipedia.org/wiki/Abhidharma)
+External link: [Wikipedia: Abhidharma](https://en.wikipedia.org/wiki/Abhidharma)
 
 ## Abhidharmakosha
 
@@ -67,9 +65,7 @@ External links:
 
 [Shakyamuni Buddha](glossary#shakyamuni-Buddha)’s attendent, known for his complete memory of what the Buddha said.
 
-External links:
-
-- [Wikipedia: Ānanda](https://en.wikipedia.org/wiki/Ānanda)
+External link: [Wikipedia: Ānanda](https://en.wikipedia.org/wiki/Ānanda)
 
 ## Ancestor
 
@@ -79,17 +75,11 @@ Also: *patriarch*
 
 An attendant to a teacher. Similar to the ceremonial [jisha](glossary#jisha) position, but closer to a full-time butler and cleaning person.
 
-- [Blue Cliff Record: Case1 – Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1#1036)
-
 ## Aprāpti
 
-[Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). 
+[Sanskrit](glossary#sanskrit): aprāpti. "To separate"; non-acquisition. A 'force' between conditioned elements. See also: [prāpti](glossary#prāpti). Mentioned in [Fukanzazengi – Talk 6 (1:27:50)](1979-06-14-Fukanzazengi-Talk-6#12750)
 
-- [Fukanzazengi – Talk 6 (1:27:50)](1979-06-14-Fukanzazengi-Talk-6#12750)
-
-External links:
-
-- [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
+External link: [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 ## Arhat
 
@@ -99,25 +89,19 @@ External links:
 [(1:18:00-1:27:13)](1979-06-11-Fukanzazengi-Talk-3#11800)
 - [Fukanzazengi – Talk 3 (1:36:06)](1979-06-11-Fukanzazengi-Talk-3#13606) – definition
 
-External links:
-
-- [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
+External link: [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
 ## Aryadeva
 
 Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th [patriarch](glossary#ancestor) in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
 
-External links:
-
-- [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
+External link: [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
 
 ## Asanga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian [Sanskrit](glossary#sanskrit) exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
-External links:
-
-- [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
+External link: [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
 
 ## Auddhatya
 
@@ -131,17 +115,13 @@ Japanese: Kannon
 
 The [Bodhisattva](#bodhisattva) of Compassion. [Manjushri](manjushri) and Avalokiteshvara are two primary symbolic figures in [Zen Buddhism](glossary#zen), representing Wisdom and Compassion.
 
-External links:
-
-- [Wikipedia: Avalokiteśvara](https://en.wikipedia.org/wiki/Avalokiteśvara)
+External link: [Wikipedia: Avalokiteśvara](https://en.wikipedia.org/wiki/Avalokiteśvara)
 
 ## Avatamsaka Sutra
 
 The Avataṃsaka Sūtra: Flower Garland Sutra, Flower Adornment Sutra, or Flower Ornament Scripture. Known for (naturally?) it's grandiose, "flowery" prose, describing a quest to meet a series of [Bodhisattvas](glossary#bodhisattva) who explain reality.
 
-External links:
-
-- [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
+External link: [Wikipedia: Avatamsaka_Sutra](https://en.wikipedia.org/wiki/Avatamsaka_Sutra)
 
 # B
 
@@ -152,11 +132,7 @@ Chinese: Mazu Daoyi (Ma-tsu Tao-yi), 馬祖道一
 Japanese: Baso Dōitsu  
 709–788.
 
-- [*Blue Cliff Record* Case 3 – Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-
-External links:
-
-- [Wikipedia: Mazu Daoyi](https://en.wikipedia.org/wiki/Mazu_Daoyi)
+External link: [Wikipedia: Mazu Daoyi](https://en.wikipedia.org/wiki/Mazu_Daoyi)
 
 ## Blue Cliff Record
 
@@ -170,13 +146,9 @@ Katagiri Roshi usually refers to [*The Blue Cliff Record* translated by Thomas C
 
 The First [Ancestor](glossary#ancestor) of [Chan (Zen) Buddhism](glossary#chan-buddhism) in China.
 
-- [Fukanzazengi – Talk 4 (0:00)](1979-06-12-Fukanzazengi-Talk-4#000)
-
 ## Bodhisattva
 
 ([Sanskrit](glossary#sanskrit)) "Enlightenment Being" or "Enlightening Being". Can refer to historical or mythical beings, or can also denote any being who is following the [Buddha Way](glossary#buddha-way).
-
-- [Fukanzazengi – Talk 3 (1:36:06)](1979-06-11-Fukanzazengi-Talk-3#13606)
 
 ## Book of Equanimity
 Japanese: Shōyōroku
@@ -193,11 +165,9 @@ Another collection of koans, similar to [Blue Cliff Record](glossary#blue-cliff-
 
 ## Buddha
 
-([Sanskrit](glossary#sanskrit)) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the [Tathāgata](glossary#tathāgata)". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "Buddha Nature" or "All are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
+([Sanskrit](glossary#sanskrit)) A title meaning "Awakened One". "Buddha" can refer to the historical [Shakyamuni Buddha](glossary#shakyamuni-buddha), Siddhartha Gotama, referred to as "the Buddha" or "the [Tathāgata](glossary#tathāgata)". Also used to denote other (mostly mythical) figures. "Buddha" can be used in a more general sense to mean the original nature of reality, or an awakened state, e.g. "buddha nature" or "all are Buddha". "Buddha" is also [enlightenment](#enlightenment) personified.
 
-External links:
-
-- [Wikipedia: Buddhahood](https://en.wikipedia.org/wiki/Buddhahood)
+External link: [Wikipedia: Buddhahood](https://en.wikipedia.org/wiki/Buddhahood)
 
 ## Buddha Dharma
 
@@ -214,9 +184,7 @@ The original nature of existence, perfect and all pervading. Interconnection.
 - [*Diamond Sutra* Introduction (40:46)](1979-05-09-Diamond-Sutra-Introduction#4046)
 - e.g. [Fukanzazengi – Talk 2 (4:32)](1979-06-10-Fukanzazengi-Talk-2#432)
 
-External links:
-
-[Wikipedia: Buddha nature](https://en.wikipedia.org/wiki/Buddha-nature)
+External link: [Wikipedia: Buddha nature](https://en.wikipedia.org/wiki/Buddha-nature)
 
 ## Buddha Way
 
@@ -224,14 +192,10 @@ External links:
 
 ## Buddhist Psychology
 
-- [Fukanzazengi – Talk 6 35:32](1979-06-14-Fukanzazengi-Talk-6#3532)
-
 ## Buddhistic
 
 "Of, relating to, or supporting [Buddhism](#buddhism)." As it turns out, this is an actual word, so it is kept verbatim. Although one could usually substitute "Buddhist" for "Buddhistic", Katagiri Roshi's use of "Buddhistic" might connote that something is "like Buddhism" without implying that "Buddhism" is a fixed object or concept.
 
-- [Fukanzazengi – Talk 2 (1:10:26)](1979-06-10-Fukanzazengi-Talk-2#11026)
-- [Fukanzazengi – Talk 5 (5:14)](1979-06-13-Fukanzazengi-Talk-5#514)
 
 # C
 
@@ -243,9 +207,7 @@ A traditional art practiced by Zen priests and monks.
 
 - [Fukanzazengi – Talk 2 (1:23:27)](1979-06-10-Fukanzazengi-Talk-2#12327)
 
-External links:
-
-- [Wikipedia: Hitsuzendō](https://en.wikipedia.org/wiki/Hitsuzendō)
+External link: [Wikipedia: Hitsuzendō](https://en.wikipedia.org/wiki/Hitsuzendō)
 
 ## Cat
 
@@ -286,17 +248,13 @@ Mistaking a perception for an independent object or fact.
 
 (Japanese) Denkōroku 伝光録, Record of the Transmission of the Light
 
-External links:
-
-- [Wikipedia: Denkoroku](https://en.wikipedia.org/wiki/Denkoroku)
+External link: [Wikipedia: Denkoroku](https://en.wikipedia.org/wiki/Denkoroku)
 
 ## Dependent Origination
 
 ## Dharma
 
-Truth; the teachings; universal law; original nature of existence; phenomena.
-
-‘Dharma’ is a multi-faceted word with no single equivalent in English, so it is often left untranslated.
+Truth; the teachings; universal law; original nature of existence; phenomena. ‘Dharma’ is a multi-faceted word with no single equivalent in English, so it is often left untranslated.
 
 - e.g. [*Blue Cliff Record* Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 
@@ -330,9 +288,7 @@ Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dog
 
 - [Dogen Index](dogen)
 
-External links:
-
-- [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
+External link: [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
 
 ## Dualism
 
@@ -373,9 +329,6 @@ The titles for these discourses are taken from [“Dōgen’s Extensive Record: 
 
 Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
 
-- [Fukanzazengi – Talk 2 (1:25:50)](1979-06-10-Fukanzazengi-Talk-2#12550)
-- [Fukanzazengi – Talk 3 (0:00)](1979-06-11-Fukanzazengi-Talk-3#000), [(1:09:51)](1979-06-11-Fukanzazengi-Talk-3#10951)
-
 ## Emptiness
 
 See [śūnyatā](glossary#śūnyatā).
@@ -396,7 +349,6 @@ Yuanwu added the Pointers, Notes and Commentaries to the [Blue Cliff Record](glo
 Awakening from [delusion](glossary#delusion).
 
 - [*Blue Cliff Record* Case 2 – Talk 2 (20:50)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#2050)
-- etc.
 
 # F
 
@@ -415,15 +367,11 @@ It is said that if a teaching contains the Four Dharma Seals then it can be cons
 
 - [*Diamond Sutra* Introduction (10:17)](1979-05-09-Diamond-Sutra-Introduction#1017)
 
-External links:
-
-- [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
+External link: [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four_Dharma_Seals)
 
 ## Fukanzazengi
 
-Fukanzazengi – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
-
-[See Topic Index](topics#fukanzazengi)
+*Fukanzazengi* – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
 ## Fukutoku
 
@@ -433,9 +381,7 @@ Also: **kudoku**
 
 - [Fukanzazengi – Talk 3 (38:30)](1979-06-11-Fukanzazengi-Talk-3#3830)
 
-External links:
-
-- [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
+External link: [nichirenlibrary.org link](https://www.nichirenlibrary.org/en/dic/Content/P/131)
 
 # G
 
@@ -507,9 +453,7 @@ Dignity; dignified manner; majesty.
 
 - [Fukanzazengi – Talk 6 (48:25)](1979-06-14-Fukanzazengi-Talk-6#4825)
 
-External links:
-
-- [wordhippo: igi](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html)
+External link: [wordhippo: igi](https://www.wordhippo.com/what-is/the-meaning-of/japanese-word-0d45dfac78c794d7b6efef7af8dee3925de5d40b.html)
 
 ## Impermanence
 
@@ -564,9 +508,7 @@ One of the greatest Zen teachers in China. It is said that he became a monk at 6
 
 - [*Blue Cliff Record* Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
 
-External links:
-
-- [Wikipedia: Zhaozhou Congshen](https://en.wikipedia.org/wiki/Zhaozhou_Congshen)
+External link: [Wikipedia: Zhaozhou Congshen](https://en.wikipedia.org/wiki/Zhaozhou_Congshen)
 
 # K
 
@@ -631,9 +573,7 @@ Chinese name Ching-ch’ing or Jingqing. 863–937. Successor of [Seppō Gison](
 
 One of the main disciples of Shakyamuni Buddha. 'Maha' means 'Great'.
 
-External links:
-
-- [Wikipedia: Mahākāśyapa](https://en.wikipedia.org/wiki/Mahākāśyapa)
+External link: [Wikipedia: Mahākāśyapa](https://en.wikipedia.org/wiki/Mahākāśyapa)
 
 ## Mahaprajnaparamita
 
@@ -641,17 +581,13 @@ External links:
 
 Mahāyāna (/ˌmɑːhəˈjɑːnə/; "Great Vehicle") is a term for a broad group of Buddhist traditions, texts, philosophies, and practices. Mahāyāna is considered one of the two main existing branches of Buddhism (the other being Theravada). Mahāyāna Buddhism developed in India (c. 1st century BCE onwards). It accepts the main scriptures and teachings of early Buddhism, but also adds various new doctrines and texts such as the Mahāyāna Sūtras.[1]
 
-External links:
-
-- [Wikipedia: Mahayana](https://en.wikipedia.org/wiki/Mahayana)
+External link: [Wikipedia: Mahayana](https://en.wikipedia.org/wiki/Mahayana)
 
 ## Manjushri
 
 The [Bodhisattva](glossary#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](glossary#zendo). 
 
-External links:
-
-- [Wikipedia: Manjushri](https://en.wikipedia.org/wiki/Manjushri)
+External link: [Wikipedia: Manjushri](https://en.wikipedia.org/wiki/Manjushri)
 
 ## Masao Abe
 
@@ -670,9 +606,7 @@ External links:
 
 ## Mount Sumeru
 
-External links:
-
-- [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
+External link: [Wikipedia: Mount Meru (Buddhism)](https://en.wikipedia.org/wiki/Mount_Meru_(Buddhism))
 
 ## Mudra
 
@@ -688,36 +622,28 @@ A symbolic pose of (usually) the hands, found in Hinduism, Jainism and Buddhism.
 
 Probably Soen Nakagawa. 
 
-External links:
-
-[Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
+External link: [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 
 ---
 ## Nagarjuna
 
 Nāgārjuna
 
-External links:
-
-- [Wikipedia: Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna)
+External link: [Wikipedia: Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna)
 
 ---
 ## Nichiren
 
 - [*Blue Cliff Record* Case 2 – Talk 1 (52:05)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#5205)
 
-External links:
-
-- [Wikipedia: Nichiren](https://en.wikipedia.org/wiki/Nichiren)
+External link: [Wikipedia: Nichiren](https://en.wikipedia.org/wiki/Nichiren)
 
 ---
 ## Nikāya
 
 Nikāya: a Pāli word meaning "volume". It is often used like the [Sanskrit](glossary#sanskrit) word [āgama](glossary#āgama) to mean "collection", "assemblage", "class" or "group". In the [Pali Cannon](glossary#pali-cannon), the Nikāyas are a collection of the teaching of early Buddhism, originally transmitted orally, recorded after [Shakyamuni Buddha](glossary#shakyamuni-buddha)'s death.
 
-External links:
-
-- [Wikipedia: Nikāya](https://en.wikipedia.org/wiki/Nikāya)
+External link: [Wikipedia: Nikāya](https://en.wikipedia.org/wiki/Nikāya)
 
 ## Nirvana
 
@@ -739,9 +665,7 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 
 The branch of philosophy dealing with the nature of being.
 
-External links:
-
-- [Wikipedia: ontology](https://en.wikipedia.org/wiki/Ontology)
+External link: [Wikipedia: ontology](https://en.wikipedia.org/wiki/Ontology)
 
 # P
 
@@ -773,9 +697,7 @@ Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna
 
 According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
-External links:
-
-- [Wikipedia: Prajnaparamita](https://en.wikipedia.org/wiki/Prajnaparamita)
+External link: [Wikipedia: Prajnaparamita](https://en.wikipedia.org/wiki/Prajnaparamita)
 
 ## Prajnaparamita Sutra
 
@@ -788,9 +710,7 @@ See [Prajnaparamita](glossary#prajnaparamita)
 - [Fukanzazengi – Talk 6 (39:44)](1979-06-14-Fukanzazengi-Talk-6#3944)
 - [Fukanzazengi – Talk 6 (1:27:50)](1979-06-14-Fukanzazengi-Talk-6#12750)
 
-External links:
-
-- [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
+External link: [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhāṣika)
 
 ## Primitive Buddhism
 
@@ -802,9 +722,7 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 - [Fukanzazengi – Talk 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Talk-6#000)
 - [*Diamond Sutra*: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 
-External links:
-
-- [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
+External link: [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 
 # Q
 
@@ -835,9 +753,7 @@ Chinese: Longtan Chongxin (龍潭崇信)
 Japanese: Ryōtan Sūshin  
 9th century.
 
-External links:
-
-- [terebess.hu: Longtan Chongxin](https://terebess.hu/zen/longtan.html)
+External link: [terebess.hu: Longtan Chongxin](https://terebess.hu/zen/longtan.html)
 
 # S
 
@@ -845,11 +761,9 @@ External links:
 
 ## Saddharma Puṇḍarīka Sutra
 
-The Lotus Sutra. 
+The *Lotus Sutra*. 
 
-External links:
-
-- [Wikipedia: Lotus Sutra](https://en.wikipedia.org/wiki/Lotus_Sutra)
+External link: [Wikipedia: Lotus Sutra](https://en.wikipedia.org/wiki/Lotus_Sutra)
 
 ## Samadhi
 
@@ -861,8 +775,8 @@ One-pointedness. Often the kind achieved in meditation, but it can refer to comp
 
 ## Samskara
 
-[Sanskrit](glossary#sanskrit): saṃskāra संस्कार<br>
-Pali: Saṅkhāra सङ्खार<br>
+[Sanskrit](glossary#sanskrit): saṃskāra संस्कार  
+Pali: Saṅkhāra सङ्खार  
 
 One of the [five skandhas](glossary#skandha); often translated as *formations* or *impulses*. 
 
@@ -873,7 +787,6 @@ As "original nature of action": see [Save All Sentient Beings](1980-03-15-Save-A
 External links:
 
 - [Article: “What are ‘Conditioned Things’ in Buddhism?” by Bikkhu Bodhi](https://www.lionsroar.com/it-all-depends/)
-
 - [Wikipedia: Saṅkhāra](https://en.wikipedia.org/wiki/Saṅkhāra)
 
 ## Saṃyukta Āgama
@@ -882,9 +795,7 @@ External links:
 
 - [*Blue Cliff Record* Case 18 (30:32)](1981-07-18-Blue-Cliff-Record-Case-18#3032)
 
-External links:
-
-- [Wikipedia: Āgama Buddhism](https://en.wikipedia.org/wiki/Āgama_\(Buddhism\)#Saṃyukta_Āgama)
+External link: [Wikipedia: Āgama Buddhism](https://en.wikipedia.org/wiki/Āgama_\(Buddhism\)#Saṃyukta_Āgama)
 
 ## Sandhinirmocana Sutra
 
@@ -903,9 +814,7 @@ The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked
 
 ## Sanskrit
 
-External links:
-
-- [Wikipedia: Sanskrit](https://en.wikipedia.org/wiki/Sanskrit)
+External link: [Wikipedia: Sanskrit](https://en.wikipedia.org/wiki/Sanskrit)
 
 ## Śrāvakabuddha
 
@@ -913,9 +822,7 @@ A buddha who attains enlightenment through listening the Buddha’s teaching. (B
 
 - [*Blue Cliff Record* Case 3 – Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
-External links:
-
-- [Wikipedia: Sāvakabuddha](https://en.wikipedia.org/wiki/Sāvakabuddha)
+External link: [Wikipedia: Sāvakabuddha](https://en.wikipedia.org/wiki/Sāvakabuddha)
 
 ## Satori
 
@@ -1000,9 +907,7 @@ External links:
 
 ## Sōen Nakagawa
 
-External links:
-
-- [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
+External link: [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 
 ## Soto Zen
 
@@ -1010,9 +915,7 @@ External links:
 
 Śrīmālādevī Siṃhanāda - [Sanskrit](glossary#sanskrit)
 
-External links:
-
-- [Wikipedia: Śrīmālādevī Siṃhanāda Sūtra](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
+External link: [Wikipedia: Śrīmālādevī Siṃhanāda Sūtra](https://en.wikipedia.org/wiki/Śrīmālādevī_Siṃhanāda_Sūtra)
 
 ## Styāna
 
@@ -1026,14 +929,12 @@ One of the [Four Dharma Seals](#four-dharma-seals).
 
 ## Śūnyatā
 
-[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".<br>
+[Sanskrit](#sanskrit): śūnyatā, pronounced "shoon-ya-ta".  
 Also: **emptiness**, **vastness**, **boundlessness**
 
 Lack of independent, inherent existence. Sūnyatā or "emptiness" is frequently discussed in Zen Buddhism. The first thing to understand is that it is not a nihilistic kind of emptiness, it really means unlimited potential.
 
-External links:
-
-- [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
+External link: [Wikipedia: Śūnyatā](https://en.wikipedia.org/wiki/Śūnyatā)
 
 ## D. T. Suzuki
 
@@ -1061,9 +962,7 @@ suki (Japanese) 隙: gap; space.
 
 - [Fukanzazengi – Talk 2 (7:52)](1979-06-10-Fukanzazengi-Talk-2#752)
 
-External links:
-
-- [jisho.org: suki]([](https://jisho.org/search/suki))
+External link: [jisho.org: suki]([](https://jisho.org/search/suki))
 
 ## Sutra
 
@@ -1081,15 +980,11 @@ A title applied to a [Buddha](glossary#buddha), meaning "thus come, thus gone."
 
 - [Fukanzazengi – Talk 3 (1:36:06)](1979-06-11-Fukanzazengi-Talk-3#13606)
 
-External links:
-
-- [Wikipedia: Tathāgata](https://en.wikipedia.org/wiki/Tathāgata)
+External link: [Wikipedia: Tathāgata](https://en.wikipedia.org/wiki/Tathāgata)
 
 ## Tathāgatagarbha
 
-External links:
-
-- [Wikipedia: Tathāgatagarbha thought](https://en.wikipedia.org/wiki/Eight_Consciousnesses#Tathagata-garbha_thought)
+External link: [Wikipedia: Tathāgatagarbha thought](https://en.wikipedia.org/wiki/Eight_Consciousnesses#Tathagata-garbha_thought)
 
 ## Three Times
 
@@ -1123,9 +1018,7 @@ From [Wikipedia: Tōrō](https://en.wikipedia.org/wiki/Tōrō): In Japan, a tōr
 
 ## Vasubandhu
 
-External links:
-
-- [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
+External link: [Wikipedia: Vasubandhu](https://en.wikipedia.org/wiki/Vasubandhu)
 
 ## Vimalakirti
 
@@ -1147,9 +1040,7 @@ External links:
 
 Yogācāra; literally "yoga practice" is an influential tradition of Buddhist philosophy and psychology emphasizing the study of cognition, perception, and consciousness through the interior lens of meditative and yogic practices.
 
-External links:
-
-[Wikipedia: Yogachara](https://en.wikipedia.org/wiki/Yogachara)
+External link: [Wikipedia: Yogachara](https://en.wikipedia.org/wiki/Yogachara)
 
 # Z
 
