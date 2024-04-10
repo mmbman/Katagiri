@@ -28,13 +28,13 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 **April 4, 2024:**: Added [“Buddha’s Birthday”](1986-04-13-Buddhas-Birthday). Happy Buddha’s Birthday!
 
-**March 30, 2024:** Updated [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1).
+**March 30, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1).
 
 **March 27, 2024:** Updated [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18). 
 
 **March 26, 2024:** For class: [“Whole Personality and Space”](WholePersonalityAndSpace.pdf).
 
-**March 25, 2024:** Updated [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6).
+**March 25, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6).
 
 **March 21, 2024:** Updated [“Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings).
 
