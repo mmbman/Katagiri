@@ -18,17 +18,15 @@ Katagiri Roshi examines the meaning of the line “from the first, dullness and 
 
 #### 0:00
 
-**Katagiri Roshi:** [I want to] say something a little bit more about the subject I talked about yesterday. The subject was, “You must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” I would like to explain a little more about the same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called [shikantaza](glossary#shikantaza).
+**Katagiri Roshi:** [I want to] say something a little bit more about the subject I talked about yesterday. The subject was, “You must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” I would like to explain a little more about the same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called [*shikantaza*](glossary#shikantaza).
 
 Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This was the first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn’t understand the meaning, but I was moved very much by this point: if you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[There is some mild laughter.]* I was lucky, anyway. If I had had a big head, I couldn’t have accepted it. But I accepted it, totally. I was a lucky guy.
 
 #### 2:33
 
-Particularly [with regard] to *dullness* and *distraction*: 
+Particularly [with regard] to *dullness* and *distraction*. Dullness and distraction here are meant to exemplify all kinds of [delusions](glossary#delusion). According to the [*Abhidharmakosha*](glossary#abhidharmakosha), dullness and distraction are just [two] of the delusions. You can find them [on the list of dharmas] in the *Abhidharmakosha*: thirty-seven and thirty-eight say *dullness* and *distraction*. 
 
-Dullness and distraction here are meant to exemplify all kinds of [delusion](glossary#delusion). According to the [Abhidharmakosha](glossary#abhidharmakosha), dullness and distraction are just two of the delusions. You can find them [on the list of dharmas] in the Abhidharmakosha: thirty-seven and thirty-eight say dullness and distraction. 
-
-*Dullness* in [Sanskrit](glossary#sanskrit) is [*styāna*](glossary#styāna). The translation says: torpor, stiffness, or obduracy ... indifference. And *[unintelligible]* ... sluggishness, languor, sloth.
+*Dullness* in [Sanskrit](glossary#sanskrit) is [*styāna*](glossary#styāna). The translation says, “torpor, stiffness, or obduracy, stolidity, indifference. [...] Or sluggishness, languor, sloth.” Many translations. 
 
 And the other one is *distraction*: they present it in Sanskrit as [*auddhatya*](glossary#auddhatya). That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
