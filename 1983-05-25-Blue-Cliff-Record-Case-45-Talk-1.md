@@ -45,17 +45,17 @@ This koan is also pretty famous.
 
 Not only Zen teachers or Zen masters, but all of you, when you speak, speaking is really expression of your life in dynamism through the words. Within the words you can express what you feel, what you think, what you want to give. But simultaneously, behind these words, [there is] something there through the words. You can understand the words, but through the words, you can understand the huge world behind the words. 
 
-Because – remember this point – you accept you, verbally, mentally, psychologically, or you always bring out yourself first. But this is [why you can do this]. If you bring up yourself first, so-called *I*, at that time you’re always emphasizing how important *you* are, ignoring others. This is perverted. But basically, the moment when you accept yourself, whatever reason, egoistically or whatever, if you bring out yourself first, at that time that means you accept totally. In other words, *you live*, you are alive. Total affirmation, self-affirmation. Without [total] self-affirmation, you cannot offer yourself, you cannot express. So “I alone, individual[ly] exist” means I exist in the same [and] one ground, where all sentient beings exist. 
+Because – remember this point – you accept *you*, verbally, mentally, psychologically, or you always bring out yourself first. But this is [why you can do this]. If you bring up yourself first, so-called *I*, at that time you’re always emphasizing how important *you* are, ignoring others. This is perverted. But basically, the moment when you accept yourself, whatever reason, egoistically or whatever, if you bring out yourself first, at that time that means you accept totally. In other words, *you live*, you are alive. Total affirmation, self-affirmation. Without [total] self-affirmation, you cannot offer yourself, you cannot express. So “I alone, individual[ly] exist” means I exist in the same [and] one ground, where all sentient beings exist. 
 
-That’s why if you bring up yourself first and emphasize how important you alone are, that is perverted. Do you understand? It’s really perverted, because basically, there is a huge horse pasture there. Regardless of whether you understand or not: a huge horse pasture, all sentient beings exist there. And then human beings are always emphasizing the self alone. Very naturally, that is perverted. That’s why Buddha always talks about the practice of egolessness. That means, one more time check up your understanding, check up the situation, check [out your emphasis], [check out] the state of your understanding. “Check up” means check you and others. In other words, let’s see the situation in a broad universal perspective. 
+That’s why if you bring up yourself first and emphasize how important you alone are, that is perverted. Do you understand? It’s really perverted, because basically, there is a huge horse pasture there. Regardless of whether you understand or not: a huge horse pasture. All sentient beings exist there. And then human beings are always emphasizing the self alone. Very naturally, that is perverted. That’s why Buddha always talks about the practice of egolessness. That means, one more time check up your understanding, check up the situation, check [out your emphasis], [check out] the state of your understanding. “Check up” means check you and others. In other words, let’s see the situation in a broad universal perspective. 
 
-“Check up” doesn’t mean to pick up dust from the corner of your box. Individual life is really kind of a box, you know? Katagiri box, and James box. *[He chuckles.]* And then we’re always picking up dust from the corner of the box. That’s the criticism, and the checking, watching, and “good boy,” “bad boy,” “good girl,” et cetera. But that is not to check. *Check* means to see the situation in broad perspective – including you, including others, including inanimate beings, too. 
+“Check up” doesn’t mean to pick up dust from the corner of your box. Individual life is really kind of a box, you know? Katagiri box, and James box. *[He chuckles.]* And then we’re always picking up dust from the corner of the box. That’s the criticism, and the checking, watching, and “good boy,” “bad boy,” “good girl,” et cetera. But that is not *to check*. *Check* means to see the situation in broad perspective – including you, including others, including inanimate beings, too. 
 
-So that’s why the *Heart Sutra* always says “perverted view,” “perverted view,” “no eyes, no ears, no nose.” That is we have to go through these stages. Otherwise you don’t understand *you* in the universal perspective. 
+So that’s why the *Heart Sutra* always says “perverted view, perverted view,” “no eyes, no ears, no nose.” That is we have to go through these stages. Otherwise you don’t understand *you* in the universal perspective. 
 
 So through the words you can express you, but what you can express of you through the words, through the thinking, through your body physically, anyway there is already the one, the same, the vast horse pasture. And *then* you can express. But we don’t pay attention to this. 
 
-It is called *eternity*, or *buddha world*, *buddha land*, or sometimes according to Christianity we say “God.” According to Confucianism we say *taikyoku*; that means “the first cause.” Literally *tai* means “thick,” “great,” “huge.” And *kyoku* is a pole; like north pole and east pole. So *taikyoku* means the absolute; you cannot go back, you know? So according to Confucianism we call it *taikyoku*, the first cause or the absolute. In Buddhism, we say sometimes *dharma*, sometimes *dharma nature*, sometimes *nirvana*, sometimes *buddha nature*. Lots of words in Buddhism. But in Christianity we say God. 
+It is called *eternity*, or *buddha world*, *buddha land*, or sometimes according to Christianity we say *God*. According to Confucianism we say *taikyoku*; that means “the first cause.” Literally *tai* means “thick,” “great,” “huge.” And *kyoku* is a pole; like north pole and east pole. So *taikyoku* means the absolute; you cannot go back, you know? So according to Confucianism we call it *taikyoku*, the first cause or the absolute. In Buddhism, we say sometimes *dharma*, sometimes *dharma nature*, sometimes *nirvana*, sometimes *buddha nature*. Lots of words in Buddhism. But in Christianity we say God. 
 
 So that is really the same and one ground. According to my term, this is a huge, vast horse pasture. All sentient beings exist there. Regardless of whether you are conscious of it or not, it’s there. And *then* you can live. So without this horse pasture you cannot exist, at all. 
 
@@ -63,11 +63,11 @@ From this point, your speaking is your speaking, but simultaneously your speakin
 
 But even though we don’t understand this silence, we exist in the silence, because we want to have confidence. When you talk, when you act, when you express yourself, very naturally you want to have confidence. Security. Peace. Harmony.
 
-So when you talk, through the talk you can express yourself and simultaneously others, and also the whole universe. At that time, your talk is yours, but it’s not yours, your talk is talking about the universe. If you talk about your life, it’s not *your* life. You have to talk [about] others’ life. If you talk [about] Buddhism, not talking about Buddhism, [but] talking about you, talking about all sentient beings, at that time Buddhist teaching becomes stable. When you talk about Buddhism alone, excluding the other religions, other understandings, and then just talking about Christianity, the so-called teaching of Christianity – that is really stinky. It doesn’t work. Sometimes it becomes a cause of human trouble. 
+So when you talk, through the talk you can express yourself and simultaneously others, and also the whole universe. At that time, your talk is yours, but it’s not yours, your talk is talking about the universe. If you talk about your life, it’s not *your* life. You have to talk [about] others’ life. If you talk [about] Buddhism, not talking about Buddhism [but] talking about you, talking about all sentient beings, at that time Buddhist teaching becomes stable. When you talk about Buddhism alone, excluding the other religions, other understandings, and then just talking about Christianity, the so-called teaching of Christianity – that is really stinky. It doesn’t work. Sometimes it becomes a cause of human trouble. 
 
 So in speaking the teaching of religion, it must be talking about you, talking about all others, talking about trees. At that time, that teaching is really stable, and very soft, very generous, very universal, and very impressive. But it’s quiet, very quiet. It’s quiet, but if you talk, it’s really penetrating. It’s really penetrating, before you are conscious of it. 
 
-The more you study Buddhism, the more you realize that point about Buddhism. I really feel the more I study Buddhism, the more I understand Buddhism very deeply, penetrating my life, penetrating human life, *before* I know. So I say, “Buddhism is sneaking in Buddhism.” *[He laughs.]* It’s really so; “sneaking in.”
+The more you study Buddhism, the more you realize that point about Buddhism. I really feel the more I study Buddhism, the more I understand Buddhism very deeply, penetrating my life, penetrating human life, *before* I know. So I say, “Buddhism is sneaking in Buddhism.” *[He laughs.]* It’s really so: “sneaking in.”
 
 So if you don’t understand Buddhism, don’t worry! But every day, when you express yourself physically or mentally or verbally, you should just express. But not egoistically, okay? If you express egoistically, your expression is very unstable, restless. Your expression must be very universal. At that time, your expression is very stable, calm, and dynamic. Working, but very silent. But very impressive! Just your presence is very impressive. 
 
@@ -75,7 +75,7 @@ So that is the natural situation inherent in everyone. But we don’t realize th
 
 Even though you don’t realize, you struggle to express yourself every day, don’t you? Between your friends and you, you try to express, you try to talk about something – really struggling. Don’t you? The more you try to [talk about something] in a proper way, the more you realize [there is] some problem there. So regardless of whether you are conscious of it or not, we really want to have confidence – in speech, in physical action, in mental action, whatever you do. 
 
-So that’s why [it says,] when you have to speak, you have to speak — but, “in the whole world there is no match for him.” That [means] nothing to compare. At that time, words [are] coming from the silence, according to my term. In other words, life itself. It’s really life. You cannot pin down what life is, but you can experience it. Study, and quietly, stably, practice day by day. Anyway, whatever happens, if your life is just going like the water in the Ganges river, you can really realize what life is. It’s very difficult to express it, but when you talk, that talking is coming from this. 
+So that’s why [it says,] when you have to speak, you have to speak — but, “in the whole world there is no match for him.” That [means] nothing to compare. At that time, words [are] coming from the silence, according to my term. In other words, life itself. It’s really life. You cannot pin down what life is, but you can experience it. Study and quietly, stably, practice day by day. Anyway, whatever happens, if your life is just going like the water in the Ganges river, you can really realize what life is. It’s very difficult to express it, but when you talk, that talking is coming from this. 
 
 So even though you say one word, it’s very impressive. Even though you use usual words, behind the words there is something. You don’t know what it is. Behind the words there is something impressive. 
 
@@ -95,7 +95,7 @@ Don’t ignore the formality. Formality is form. It is very important for you.
 
 And then, at Eiheiji monastery, all the monks always pick up the posture. “Don’t hold the sutra card like this, hold it like this.” So always *[whap]*, hitting the hand like this. Or if you’re holding it high, like this. Without saying anything. 
 
-Sometimes the older monks become very mad. *[He laughs.]* And sometimes when I was there... you know the *kyusaku*? The hitting stick? During the morning service, [they go] around behind the monks, sitting [...] with the kyosaku. If you *[unintelligible]*, *[whap]*. And also, lots of visitors are there, watching, listening, participating. And then the old monks [...] *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if a one year monk hits the three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
+Sometimes the older monks become very mad. *[He laughs.]* And sometimes when I was there... you know the *kyusaku*? The hitting stick? During the morning service, [they go] around behind the [sitting] monks [...] with the kyosaku. If you *[unintelligible]*, *[whap]*. And also, lots of visitors are there, watching, listening, participating. And then the old monks [...] *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if a one year monk hits the three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
 
 Actually one day I saw a situation. Before they hit, the monk just taps your shoulder. A one-year monk tried [to tap an old monk]. *[Tap.]* Then immediately the old monk held the stick: “Stop it.” *[Laughter.]*
 
@@ -139,7 +139,7 @@ Zen history says Soto Zen is gradual enlightenment, Rinzai Zen is sudden enlight
 
 So human life is exactly like... I say, [living is like] a leaping fish. Leaping fish is exactly just like a spark of lightning. 
 
-Because you don’t know what it is. If you say fish, *fish* already becomes a concept, you know? But fish is not fish, fish is moving. So you say [it’s] movement? No. It’s not movement; it’s fish. But it’s not fish; it’s movement. How can you call this? Movement? No. Movement means energy, inherent to everything. So you can say energy? No. It’s fish. [So] you can say fish – but it’s not. So how can you say the total leaping fish? 
+Because you don’t know what it is. If you say fish, *fish* already becomes a concept, you know? But fish is not fish, fish is moving. So you say [it’s] movement? No. It’s not movement; it’s fish. But it’s not fish; it’s movement. How can you call this? Movement? No. Movement means energy, inherent to everything. So you can say energy? No. It’s fish. [So] you can say fish – but it’s not. How can you say the total leaping fish? 
 
 That total leaping fish is something you can *learn*. You can learn, you can express yourself, right in the middle of... what? Pure sincerity, pure heart. That is *wholeheartedness*. And then you can express. That is called the universe. So that’s why the leaping fish is very beautiful. Very active, very impressive. 
 
@@ -153,7 +153,7 @@ Diamond is very hard because it’s working at superspeed. At that time, diamond
 
 That’s why it’s moving very quick. That is the relationship between the truth and phenomena. And [between] consciousness and buddha nature. Your life and others’ life. Human life and nature. Simultaneous: there is no gap between. 
 
-But we don’t know [this], because we have been tamed by the analyzing, synthesizing, and *then* try to, well, [put] everything together. If we do that, and if you believe [in] human life like this, your like becomes just like tofu. It’s very slow. No [solidity], no confidence there. Because you always analyze, and synthesize, *[he chuckles]*, and try to get good ideas, et cetera. Your life becomes tofu. It’s very breakable. Fragile. 
+But we don’t know [this], because we have been tamed by the analyzing, synthesizing, and *then* try to, well, [put] everything together. If we do that, and if you believe [in] human life like this, your life becomes just like tofu. It’s very slow. No [solidity], no confidence there. Because you always analyze, and synthesize, *[he chuckles]*, and try to get good ideas, et cetera. Your life becomes tofu. It’s very breakable. Fragile. 
 
 So originally our life is very solid, that’s why [at any cost] we have to awaken to it. That is called buddha nature, buddha. Greatness of existence, beyond your speculation and judgement. 
 
@@ -191,7 +191,7 @@ In the case,
 
 This is an interesting point. 
 
-You know pretty well, “the myriad things return to one.” In the phenomenal world, countless myriad beings exist. But when you research, [...] when you trace back to the source... it’s one. There is only one. 
+You know pretty well *the myriad things return to one*. In the phenomenal world, countless myriad beings exist. But when you research, [...] when you trace back to the source... it’s one. There is only one. 
 
 According to scientists, maybe it is called energy. Maybe it is called “very original elements of chemical stuff”...
 
@@ -201,9 +201,9 @@ According to scientists, maybe it is called energy. Maybe it is called “very o
 
 According to Christianity, I told you, it is called God. According to Confucianism it is called *taikyoku*, the first cause. In Buddhism it is called *dharma nature*, or dharma. 
 
-But we know that, we know that. Not only Buddhists; everyone knows that. But the next point is pretty difficult to know: where does [the] one return to? That is a very interesting question. 
+But we know that, we know that. Not only Buddhists, everyone knows that. But the next point is pretty difficult to know: where does [the] one return to? That is a very interesting question. 
 
-In other words, every knows the human world, all the universe, is created by God: fine. Created by first cause: fine. Created by dharma nature: fine. But *who* creates dharma nature? Who creates God? Who creates Buddha? Et cetera. Who creates the first cause? 
+In other words, everyone knows the human world, all the universe, is created by God: fine. Created by first cause: fine. Created by dharma nature: fine. But *who* creates dharma nature? Who creates God? Who creates Buddha? Et cetera. Who creates the first cause? 
 
 At that time, most people are very confused. 
 
@@ -237,9 +237,7 @@ That is the interconnection, interpenetration between [the] two, simultaneously.
 
 So, that is the universe there. 
 
-Chao Chou said, “When I was in Ch’ing Chou I made a cloth shirt.” That means everyday life. Anyway, come back to *me*; everyday life. 
-
-So *I* am there; *I* express myself every day. But on the other hand, that shirt is not a usual shirt. That is seven pounds. 
+Chao Chou said, “When I was in Ch’ing Chou I made a cloth shirt.” That means everyday life. Anyway, come back to *me*; everyday life. So *I* am there; *I* express myself every day. But on the other hand, that shirt is not a usual shirt. That is seven pounds. 
 
 That means, *I* make a shirt, but it’s pretty light. If I make *my* shirt, it’s very limited, because it must fit me in size, et cetera. So it’s very light. You cannot wear a seven pound shirt. So if I make a shirt, it’s very light; in other words, I express myself. That is very stinky; Katagiri. Simultaneously there is a seven pound shirt. That means [a] seven pound Katagiri expressed in the small shirt I have made. 
 
@@ -263,9 +261,9 @@ How can you get this? If you try to get security or confidence, very secure impe
 
 So all you have to do is, every day, you have to manifest it, you have to practice like this. And then, you can really see, sometimes.
 
-That is called *seven pounds*. That weight is a seven pound shirt. It’s very heavy. Katagiri is small, but it’s very heavy; Katagiri is here, that is universal Katagiri. And that is called spiritual security, or faith. In life, in death, in whatever. Under certain circumstances, separately, Katagiri is there; that Katagiri is very shaky. But on the other hand, universal Katagiri is very heavy, just like a mountain. 
+That is called *seven pounds*. That weight is a seven pound shirt. It’s very heavy. Katagiri is small, but it’s very heavy: Katagiri is here, that is universal Katagiri. And that is called spiritual security, or faith. In life, in death, in whatever. Under certain circumstances, separately, Katagiri is there; that Katagiri is very shaky. But on the other hand, universal Katagiri is very heavy, just like a mountain. 
 
-How can we know? It is just doing. Every moment you act like this, take care of you like this. 
+How can we know? It is just doing. Every moment you act like this, take care of *you* like this. 
 
 #### 57:20
 
@@ -273,7 +271,7 @@ This morning, one of the ladies called from Oklahoma. I tried to communicate wit
 
 So sometimes she said, “I tried to become a Christian, studying the Bible.” So I said, “Oh, that’s good. Why don’t you read the Bible carefully, and see the ministers, and talk about your [Father].” Because it’s very hard to communicate through the telephone, you know? *[He laughs.]* Through the telephone it’s very simple, but it’s very difficult to communicate person to person. Particularly about human problems. Well, trying to get [an appointment] – “tomorrow I want [an appointment] with you” – that is simple, you know, through the telephone you can do it. But how can I communicate about human problems? First of all I have to communicate with the person directly, person-to-person, and then something happens. That’s pretty important for us. But through the telephone it’s very hard. But anyway, I tried to tell her that point. 
 
-And she asked me, “What is nirvana?” That’s a big problem. *[He laughs.]* I said, “Peaceful and harmonious life.” “What is harmonious, peaceful life?” I told her, “In sickness, please be calm and peaceful in the sickness.” She said, “How can I *do* it?” “Well, first, be present in the sickness. And next, keep your mind calm, and deal with the sickness.” But she didn’t understand me. 
+And she asked me, “What is nirvana?” That’s a big problem. *[He laughs.]* I said, “Peaceful and harmonious life.” [She asked,] “What is harmonious, peaceful life?” I told her, “In sickness, please be calm and peaceful in the sickness.” She said, “How can I *do* it?” “Well, first, be present in the sickness. And next, keep your mind calm, and deal with the sickness.” But she didn’t understand me. 
 
 But that is everyday life. Because the sickness you can see is the small sickness, but sickness is exactly sickness as the universe. Just like in your life. Sickness is nothing but life.
 
@@ -293,7 +291,7 @@ Do you have some questions?
 
 #### 1:02:40
 
-**Question:** Hojo-san? You spoke of speed and slowness. And I’m reminded of Thich Nhat Hanh’s visit, and his teaching of a practice which is far slower than we had seen, certain practices. And I was asked by someone in San Francisco to ask you, because it has been a serious consideration for many people: what is it in the Japanese tradition, in monasteries, what is the nature of the speed that monks are trained to use in the monastery? Is there a kind of mindfulness ... 
+**Question:** Hojo-san? You spoke of speed and slowness. And I’m reminded of Thich Nhat Hanh’s visit, and his teaching of a practice which is far slower than we had seen. Certain practices. And I was asked by someone in San Francisco to ask you, because it has been a serious consideration for many people: what is it in the Japanese tradition, in monasteries, what is the nature of the speed that monks are trained to use in the monastery? Is there a kind of mindfulness ... 
 
 **Katagiri**: Mmm-hmm.
 
@@ -307,9 +305,9 @@ Do you have some questions?
 
 And then if we see that total security in terms of speed, or slow or fast, then we say *slow motion*. But that is a name, a concept. [But it is] completely beyond slow motion. Because his life is exactly fitting from moment to moment, so [it’s] very quick. So his slowness is not slow; his slowness is very quick, hitting the point. 
 
-Immediately if you see Thich Nhat Hanh, immediately you’re shocked, don’t you think so? I was shocked. I saw him gassho at the airport, immediately [that] shock. So that is very slow, but it’s not slow: [it’s] immediate. Just a lightning spark. 
+Immediately if you see Thich Nhat Hanh, immediately you’re shocked, don’t you think so? I was shocked. [When] I saw him gassho at the airport, immediately [that] shock. So that is very slow, but it’s not slow: [it’s] immediate. Just a lightning spark. 
 
-That is the point, alright? I am talking about that [point]. So I say the diamond apparently is hard, the hardest being. That means total security, human security. But in order to have this security, [...] the inside of your life must be connected at superspeed. *At superspeed* means completely beyond fast or slow. That is superspeed. In other words, freedom. No particular pattern, so-called slow or fast. Because it’s super-speed. So no particular pattern.
+That is the point, alright? I am talking about that [point]. So I say the diamond apparently is hard, the hardest being. That means total security, human security. But in order to have this security, [...] the inside of your life must be connected at superspeed. *At superspeed* means completely beyond fast or slow; that is superspeed. In other words, freedom. No particular pattern, so-called slow or fast. Because it’s super-speed. So no particular pattern.
 
 That’s why we don’t know if molecules have a certain type of speed, slow or fast. We can find [out] how A and B come together and create the water which exists. But we don’t [know]. Some we can know, but some we don’t know. So finally the question is: why? Water exists just as it is. We don’t know why. So that means all molecules inside of the water, inside of the diamond, are working very quickly, interconnected. That movement makes something hard. That is [the] security [I mean].
 
@@ -319,7 +317,7 @@ So apparently he just expressed one type of action, slow moving. But it is not t
 
 Mindfulness is really working at not creating a gap between you and your object. This is the practice of mindfulness. Thich Nhat Hanh also says this. That means you and your object working at super-speed: interconnected, interpenetrated. So the important point in mindfulness is that you have to be *one*, exactly one. 
 
-But in order to be one, we have to create certain circumstances. If you become an expert, [say in] running, [this] is also [that] you can practice mindfulness. Don’t you think so? [...] You can really concentrate on *[unintelligible]*. It’s really mindfulness. And also slow, step by step – this is also pretty good. But in the beginning or for his case, he just follows slow motion. That is one part. But the basic teaching of mindfulness is really [that] your life must be working at superspeed, interconnected with your object. Just like molecules of water, or the molecules of diamond inside of a diamond. This is mindfulness. 
+But in order to be one, we have to create certain circumstances. If you become an expert, [say in] running, [this] is also [that] you can practice mindfulness. Don’t you think so? [...] You can really concentrate on *[unintelligible]*. It’s really mindfulness. And also slow, step by step – this is also pretty good. But in the beginning, or for his case, he just follows slow motion. That is one part. But the basic teaching of mindfulness is really [that] your life must be working at superspeed, interconnected with your object. Just like molecules of water, or the molecules of diamond inside of a diamond. This is mindfulness. 
 
 #### 1:10:55
 
