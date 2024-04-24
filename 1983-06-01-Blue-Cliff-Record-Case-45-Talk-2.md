@@ -23,11 +23,11 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2
 
 This is the whole story. Chao Chou (Zhaozhou Congshen, in Japanese Jōshū Jūshin, 778–897) was one of the famous Zen masters in China, who became a monk when he was sixty years old, and travelled all over China, attained enlightenment at 80 years old, and he lived to 120. Dogen Zenji mentioned him very often in his works. He really respected Chao Chou. 
 
-A monk asked Zen Master Chao Chou, “The myriad things return to one...” This is the point everyone understands. Any kind of religion emphasizes [this]. “The myriad things” means all things the world has. In other words, the phenomenal world, if you research [it], study [it] with spiritual eyes, very naturally you can return to *one* – so-called *the truth*. The truth is one. Wherever you may go, the truth is exactly one. 
+A monk asked Zen Master Chao Chou, “The myriad things return to one...” This is the point everyone understands. Any kind of religion emphasizes [this]. All beings, “the myriad things,” means all things the world has. In other words, the phenomenal world, if you research [it], study [it] with [a] spiritual eye, very naturally you can return to *one* – so-called *the truth*. The truth is one. Wherever you may go, the truth is exactly one. 
 
 So the monk asked Chao Chou, “The myriad things return to one,” but he continued to ask, “where does the one return to?” 
 
-This is an interesting point, which not everyone pays attention to. Because it’s pretty hard to know. Most people try to close their eyes, try *not* to understand *one*, to where all sentient beings return, because it is pretty mysterious. No matter how long you poke your head into it, you don’t understand it. So most of religion emphasizes “just believe it.” Just believe. Yes, [this is right], in a sense. But it is not exactly right. 
+This is an interesting point, which not everyone pays attention to. Because it’s pretty hard to know. Most people try to close their eyes, try *not* to understand *one*, to where all sentient beings return, because it is pretty mysterious. No matter how long you poke your head into it, you don’t understand it. So most of religion emphasizes “just believe it.” Just believe. Yes, [this is right], in a sense. But it is not *exactly* right. 
 
 So anyway, the monk understands the myriad things, the phenomenal world, returns to one. He understood this, but he didn’t understand *why*. He didn’t understand *one*, as the truth. 
 
@@ -35,7 +35,7 @@ So if everything returns to one, maybe one should have some place to return. Thi
 
 > “When I was in Ch’ing Chou I made a cloth shirt. It weighed seven pounds.”
 
-Ch’ing Chou is the town in China. (Qingzhou.)
+Ch’ing Chou is a town in China. (Qingzhou.)
 
 Well, that answer seems to be completely far away from his question, but it’s a very sharp or direct answer. That’s why this koan has been handed down from generation to generation: because we don’t understand it, it seems to be a puzzle for us, but it’s a very good answer, it’s a very good question. That’s why it is one of the famous koans. 
 
@@ -50,7 +50,7 @@ Well, today, the verse. The verse says:
 
 > He wraps everything up and presses against the ancient old awl.  
 
-That’s Joshu Zen Master, Chao Chou. Chao Chou Zen Master was just like an old awl. Do you know the *awl*? A Japanese awl, the point is very sharp, and [it is] also very square. (*Transcriber’s Note:* an awl is “a small pointed tool used for piercing holes, especially in leather.”) The metal part is very short, just like the length of a needle, and it’s a little thicker than a needle, but exactly square. The point is *very* sharp. And then you use it like this, and make a hole. 
+That’s Joshu Zen Master, Chao Chou. Chao Chou Zen Master was just like an old awl. Do you know the *awl*? A Japanese awl, the point is very sharp, and [it is] also very square. The metal part is very short, just like the length of a needle, and it’s a little thicker than a needle, but exactly square. The point is *very* sharp. And then you use it like this, and make a hole. (*Transcriber’s Note:* There is some discussion about the awl. An awl is “a small pointed tool used for piercing holes, especially in leather.”)
 
 But “old awl” means if you use it so long, the square[ness] disappears and it becomes round. That means mature. The personality is completely mature, so no corner of the awl. [Most of us are not mature;] if you are not mature, you have lots of corner. That means bumping [into] each other, and anger, hatred – hitting, and crying. *[He laughs.]* This is *immature*. If you become *mature*, there are no corners, so even though you bump somebody, you can slip off. Even though someone tries to grasp you, you don’t have a corner, so it’s just like grasping a boar’s head [from] behind. Do you understand boar head? *[Laughter.]*
 
