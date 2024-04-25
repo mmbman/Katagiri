@@ -5,9 +5,11 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1
 
 #### [List](list#1983) \| [Previous](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2) \| [Next](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
-### Transcript
+### Summary
 
-#### **This transcript is in rough draft stage.**
+Where does *the one* come from? Who creates the first cause? A “seven pound shirt” means an ordinary shirt is interconnected with the whole universe. The one comes from *here*. It’s not necessary to move fast or slow in Zen; your life must be connected at superspeed. Being still in dynamism, dynamic in stillness — that is spiritual security. It’s not really mysticism. But we know it in a moment of time only.
+
+### Transcript
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-45-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
@@ -171,7 +173,7 @@ And also a rushing torrent: when you cross a river in a rushing torrent, there i
 
 “When he lifts up the hammer” means one of the devices you use for refining copper, iron, or gold, et cetera. It means educating you, educating others, transmitting something important in human life to somebody. That is really using the hammer to refine copper or iron. That word, [or] hammer, must be working just like a rushing torrent, coming from silence. So it’s really coming up. 
 
-Baso also gets that poem coming from silence, but from the silence Baso gets the words. [...] Look at this poem. Behind the poem there is dynamic working between Baso and nature. Just like a rushing torrent, just like crossing the sharp edge of a sword: simultaneously there. So that’s why through the words, you can really see the vastness of existence. 
+Baso also gets that poem coming from silence. [...] From the silence Baso gets the words. [...] Look at this poem. Behind the poem there is dynamic working between Baso and nature. Just like a rushing torrent, just like crossing the sharp edge of a sword: simultaneously there. So that’s why through the words, you can really see the vastness of existence. 
 
 At that time, when you “lift up” something, in other words words and actions, et cetera, “you won’t avoid losing your point.” There is nothing to – what would you say – *challenge* somebody to argument, or discussion. Nothing. Because, when you express yourself, within your expression there is *you*, simultaneously there is the universe, that you and the universe working together dynamically – how? I don’t know. But it’s there. It’s really there. If you do it, [it’s] exactly there. Somebody doesn’t see it, but somebody knows. 
 
@@ -183,7 +185,7 @@ So nothing to argue. So “you won’t avoid losing your point” – you cannot
 
 > He lets out a single continuous road. 
 
-But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something – so that is this koan [or] case. 
+But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road”: it’s very difficult, but let me say something. So that is this koan [or] case. 
 
 #### 43:03
 
@@ -213,15 +215,15 @@ So, this monk is a very sharp guy. That’s why in the comment, it says,
 
 > He’s pressing this old fellow. 
 
-[“Old fellow”] means Joshu, Chao Chou. You are pretty good, to drive Chao Chou into the corner where he can’t move an inch. *[He laughs.]* So pretty good, monk; you are pretty good. That is the comment here. 
+[“Old fellow”] means Joshu, Chao Chou. You are pretty good, to drive Chao Chou into the corner where he can’t move an inch. *[He laughs.]* So pretty good, monk. You are pretty good. That is the comment here. 
 
 But anyway, where does the one return to? That is, constantly if you seek *where does the one return to* intellectually, you never get [the] place where the one returns to. Because intellectual understanding lets you go in parallel, always; [it] never comes together. Intellectually, probably two things come very close together, but always parallel. That’s why this guy is going fast, this guy slow, but very close, that’s why [they make] noise. The other one goes fast, the other one is slow. The world is going very quickly, [and] you try to catch up with this, but you cannot catch up, so you’re always making noise, so-called *despair*. You’re disappointed. So that intellectual understanding lets you go always in parallel with the world, people, friends, everything. So, always making noise. 
 
 So finally [...] the question is, from where does this question come? Okay? *This question* means “where does [the] one return to.” From where does this question come? Do you understand? This is your koan, anyway. From where? 
 
-It’s very simple. It’s *very* simple. If I say “where does [the] one return to” – who talks, who makes the question? This guy? This guy is who? Katagiri? This Katagiri is ...? Well, Katagiri, but totally speaking, Katagiri is something alive, so-called *being*. So this Katagiri is really alive – and then the question comes up. 
+It’s very simple. It’s *very* simple. If I say “where does one return to” – who talks, who makes the question? This guy? This guy is who? Katagiri? This Katagiri is ...? Well, Katagiri, but totally speaking, Katagiri is something alive, so-called *being*. So this Katagiri is really alive – and then the question comes up. 
 
-So where does the one return to? Where does the one come from? One comes from here? One returns to this silence. It’s very close. It’s too close to understand. So if you try to know intellectually what is the beginning of the world, and where is the end of the world, you really go outwardly, and never end, never begin. No beginning, no end. Always parallel. That’s why finally you are confused. Confusion means something which makes you unstable, irritated, restless. 
+So where does the one return to? Where does the one come from? One comes from here? One returns to this silence. It’s very close. It’s too close to understand. [So] if you try to know intellectually what is the beginning of the world, and where is the end of the world, you really go outwardly, and never end, never begin. No beginning, no end; always parallel. That’s why finally you are confused. Finally *confusion* means something which makes you unstable, irritated, restless. 
 
 So, exactly, finally you come back *here*. [The] one comes from here. 
 
@@ -259,11 +261,11 @@ So that is “seven pounds.”
 
 I told you before, whatever you do, consciously or unconsciously, everyone wants to be secure in each action. No one [wants to do anything] without security, in each action, in each speech, in each thinking. 
 
-How can you get this? If you try to get security or confidence, very secure imperturbable thinking or action, you never get it. So day by day, you have to *do it* like this. Gassho, you should do gassho. Anyway, this is your gassho but that is universal gassho, [that] means you do your gassho with your wholeheartedness. At that time this gassho becomes imperturbable, stable. Right now, there. There is no space, there is nothing to impart your feeling or criticism into it, because life is really dynamic. Life is moving, just like a flashing light. Just like a rushing torrent. Just like walking the edge of the sword. 
+How can you get this? If you try to get security or confidence, very secure imperturbable thinking or action, you never get it. So day by day, you have to *do it* like this. Gassho, you should do gassho. Anyway, this is your gassho but that is universal gassho, [that] means you do your gassho with your wholeheartedness. At that time this gassho becomes imperturbable, stable. Right now, [here]. There is no space, there is nothing to impart your feeling or criticism into it, because life is really dynamic. Life is moving, just like a flashing light, just like a rushing torrent, just like walking the edge of the sword. 
 
-So all you have to do is, every day, you have to manifest it, you have to practice like this. And then, you can really see, sometimes.
+So all you have to do is, every day, you have to manifest [it], you have to practice like this. And then, you can really see, sometimes.
 
-That is called *seven pounds*. That weight is a seven pound shirt. It’s very heavy. Katagiri is small, but it’s very heavy: Katagiri is here, that is universal Katagiri. And that is called spiritual security, or faith. In life, in death, in whatever. Under certain circumstances, separately, Katagiri is there; that Katagiri is very shaky. But on the other hand, universal Katagiri is very heavy, just like a mountain. 
+That is called *seven pounds*. That weight is a seven pound shirt. It’s very heavy. Katagiri is small, but it’s very heavy: Katagiri is here, that is universal Katagiri. And that is called spiritual security, or faith. In life, in death, in whatever. Under certain circumstances, separately, Katagiri is there: that Katagiri is very shaky. But on the other hand, universal Katagiri is very heavy, just like a mountain. 
 
 How can we know? It is just doing. Every moment you act like this, take care of *you* like this. 
 
@@ -271,7 +273,7 @@ How can we know? It is just doing. Every moment you act like this, take care of 
 
 This morning, one of the ladies called from Oklahoma. I tried to communicate with her through the telephone, but her [accent] was a little bit funny, I didn’t understand it exactly. *[Laughter.]* But I understood that she was suffering and she wanted to get some security. She had some problem there, but I didn’t understand exactly what kind of problem. 
 
-So sometimes she said, “I tried to become a Christian, studying the Bible.” So I said, “Oh, that’s good. Why don’t you read the Bible carefully, and see the ministers, and talk about your [Father].” Because it’s very hard to communicate through the telephone, you know? *[He laughs.]* Through the telephone it’s very simple, but it’s very difficult to communicate person to person. Particularly about human problems. Well, trying to get [an appointment] – “tomorrow I want [an appointment] with you” – that is simple, you know, through the telephone you can do it. But how can I communicate about human problems? First of all I have to communicate with the person directly, person-to-person, and then something happens. That’s pretty important for us. But through the telephone it’s very hard. But anyway, I tried to tell her that point. 
+So sometimes she said, “I tried to become a Christian, studying the Bible.” So I said, “Oh, that’s good. Why don’t you read the Bible carefully, and see the ministers, and talk about your [Father].” Because it’s very hard to communicate through the telephone, you know? *[He laughs.]* Through the telephone it’s very simple, but it’s very difficult to communicate person to person, particularly about human problems. Well, trying to get [an appointment] – “tomorrow I want [an appointment] with you” – that is simple, you know, through the telephone you can do it. But how can I communicate about human problems? First of all I have to communicate with the person directly, person-to-person, and then something happens. That’s pretty important for us. But through the telephone it’s very hard. But anyway, I tried to tell her that point. 
 
 And she asked me, “What is nirvana?” That’s a big problem. *[He laughs.]* I said, “Peaceful and harmonious life.” [She asked,] “What is harmonious, peaceful life?” I told her, “In sickness, please be calm and peaceful in the sickness.” She said, “How can I *do* it?” “Well, first, be present in the sickness. And next, keep your mind calm, and deal with the sickness.” But she didn’t understand me. 
 
@@ -279,9 +281,9 @@ But that is everyday life. Because the sickness you can see is the small sicknes
 
 So in the sickness, there is the sickness you can see, but real sickness is beyond the sickness you can see. So that is the universe. So you have to deal with the sickness with the universe. How? Well, first, keep your mind calm. If you’re confused, you cannot deal with the sickness. So first, keep your mind calm, and be present in the sickness. And then step by step, what should you do. This is, each moment, how can I do? This is Katagiri expressed in sickness, simultaneously Katagiri as the universe expressed in sickness. 
 
-So, [there is a] seven pound Katagiri there, seven pound [Jim] there. More than seven pounds; huge. No one can move it. That is called security. 
+So, [there is a] seven pound Katagiri there, seven pound [Jim] there. More than seven pounds: huge. No one can move it, anyway. That is called security. 
 
-Security is pretty hard to tell you, to give you. Security is really *my* security. My security is always in here. It’s always working. I can talk, but even though I can talk [about] security, it’s *my* security. So you could find *your* security. 
+Security is pretty hard to tell you, to give you. Security is really *my* security. My security is always in *here*. It’s always working. I can talk, but even though I can talk [about] security, it’s *my* security. So you should find *your* security. 
 
 That’s why spiritual security is always just like a seven pound, huge mountain there. But it’s very difficult to tell you, to give you. Because, *you* should find it. 
 
@@ -305,9 +307,9 @@ Do you have some questions?
 
 **Katagiri:** Slow, for him, it is a kind of stability. Very stable. Do you understand what I mean? Slow action. Slow action is, in this case, kind of total security there. 
 
-And then if we see that total security in terms of speed, or slow or fast, then we say *slow motion*. But that is a name, a concept. [But it is] completely beyond slow motion. Because his life is exactly fitting from moment to moment, so [it’s] very quick. So his slowness is not slow; his slowness is very quick, hitting the point. 
+And then if we see that total security in terms of speed, or slow or fast, then we say *slow motion*. But that is a name, a concept. [It is] completely beyond slow motion, because his life is exactly fitting from moment to moment, so [it’s] very quick. So his slowness is not slow; his slowness is very quick, hitting the point. 
 
-Immediately if you see Thich Nhat Hanh, immediately you’re shocked, don’t you think so? I was shocked. [When] I saw him gassho at the airport, immediately [that] shock. So that is very slow, but it’s not slow: [it’s] immediate. Just a lightning spark. 
+If you see Thich Nhat Hanh, immediately you’re shocked, don’t you think so? I was shocked. [When] I saw him gassho at the airport, immediately [that] shock. So that is very slow, but it’s not slow: [it’s] immediate. Just a lightning spark. 
 
 That is the point, alright? I am talking about that [point]. So I say the diamond apparently is hard, the hardest being. That means total security, human security. But in order to have this security, [...] the inside of your life must be connected at superspeed. *At superspeed* means completely beyond fast or slow; that is superspeed. In other words, freedom. No particular pattern, so-called slow or fast. Because it’s super-speed. So no particular pattern.
 
@@ -355,7 +357,7 @@ And then, how? That is simultaneously deal with the sutra card...
 
 Is that alright? 
 
-For instance, if you practice karate, or something [with] energy. Or [being] *doan*. First of all, you always try not to forget how to hit the bells, *[he chuckles,]* or how to master a certain form a karate, very carefully. Don’t you think so? But all you have to do is, you have to do [it] – [whether] you don’t like or you like, you try not to forget the form taught by the teacher. You have to master it, constantly. If you do it, finally, you can be present in the form, [in the] proper way. Exactly there. So if you move, exactly the proper form comes up. So your body and your form [are] exactly one. No gap between. That is called *dhyana*. 
+For instance, if you practice karate, or something [with] energy. Or [being] *doan*. First of all, you always try not to forget how to hit the bells. *[He chuckles.]* Or how to master a certain form of karate, very carefully. Don’t you think so? But all you have to do is, you have to do [it] – [whether] you don’t like or you like, you try not to forget the form taught by the teacher. You have to master it, constantly. If you do it, finally, you can be present in the form, [in the] proper way. Exactly there. So if you move, exactly the proper form comes up. So your body and your form [are] exactly one. No gap between. That is called *dhyana*. 
 
 So if you become a *doan*, very naturally, you can hit the bell in the proper way. But how can you do it? Every day, try not to forget how to hit the bell in the proper way. That is our practice.
 
