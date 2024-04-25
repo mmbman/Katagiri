@@ -152,13 +152,13 @@ So anyway, through this actual life, you have to see it. You have to see it. It�
 
 > Right now I throw it down into West Lake; ...
 
-“Yes, I understand. I made a shirt, and also that shirt is seven pounds” – that means you can create universal life, so-called tolerance or freedom, and peace and harmony, within the limitation of your life, so-called life and death. You understand this. But, if you really hang on – “I can do it” – you are stuck there. So, if you know this, if you realize “I can have a chance to create this universal creative life” right in the middle of your life, limited by life and death – at that time, you should throw away your ideas. And then, every day, you have to make your life work. Just like this. Just freely work. 
+“Yes, I understand. I made a shirt, and also that shirt is seven pounds” – that means you can create universal life, so-called tolerance or freedom, and peace and harmony, within the limitation of your life, so-called life and death. You understand this. But, if you really hang on – “I can do it” – you are stuck there. So, if you know this, if you realize “I have a chance to create this universal creative life” right in the middle of your life, limited by life and death – at that time, you should throw away your ideas. And then, every day, you have to make your life work. Just like this. Just freely work. 
 
-So, “Right now I throw it down into West Lake.” We have to throw it away. You can get it, then throw it away. You can get it; throw it away. Otherwise, it’s pretty easy to be stuck. But *throw it away* doesn’t mean to ignore your life and circumstances, or others’ life. Pay careful attention to your and others’ circumstances, and use your head, use your mind, your brains. But, if you get it, please – throw it away, let go of it. And then you think carefully, and get it, and throw it away. That’s always repeating; we have to do it. “Just sit down”: you can get it. But throw it away. And then sit again. Get it. Throw it away. That means *sit down*. And so, get it. Throw it away. That is really returning to the one.
+[So,] “Right now I throw it down into West Lake.” We have to throw it away. You can get it, then throw it away. You can get it; throw it away. Otherwise, it’s pretty easy to be stuck. But *throw it away* doesn’t mean to ignore your life and circumstances, or others’ life. Pay careful attention to your and others’ circumstances, and use your head, use your mind, your brains. But, if you get it, please – throw it away, let go of it. And then [...] you think carefully, and get it, and throw it away. That’s always repeating; we have to do it. “Just sit down”: you can get it, but throw it away, and let’s sit again. Get it; throw it away: *that* means *sit down*. [So] get it, throw it away. That is really returning to the one.
 
-And then, where does the one return to? That is, “Sit down, right now.” And then you can get it, and throw it away. This is return to one, and one returns to this present. 
+And then, where does the one return to? That is, “Sit down, right now.” And *then* you can get it, and throw it away. This is return to [the] one, and [the] one returns to this present. 
 
-This is actual practice, not a matter of philosophical discussion. You have to do it everyday. 
+This is actual practice, not a matter of philosophical discussion. You have to do it, every day. 
 
 #### 38:40
 
