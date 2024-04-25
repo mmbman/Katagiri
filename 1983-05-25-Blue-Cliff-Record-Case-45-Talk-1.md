@@ -45,9 +45,11 @@ This koan is also pretty famous.
 
 Not only Zen teachers or Zen masters, but all of you, when you speak, speaking is really expression of your life in dynamism through the words. Within the words you can express what you feel, what you think, what you want to give. But simultaneously, behind these words, [there is] something there through the words. You can understand the words, but through the words, you can understand the huge world behind the words. 
 
-Because – remember this point – you accept *you*, verbally, mentally, psychologically, or you always bring out yourself first. But this is [why you can do this]. If you bring up yourself first, so-called *I*, at that time you’re always emphasizing how important *you* are, ignoring others. This is perverted. But basically, the moment when you accept yourself, whatever reason, egoistically or whatever, if you bring out yourself first, at that time that means you accept totally. In other words, *you live*, you are alive. Total affirmation, self-affirmation. Without [total] self-affirmation, you cannot offer yourself, you cannot express. So “I alone, individual[ly] exist” means I exist in the same [and] one ground, where all sentient beings exist. 
+Because – remember this point – you accept *you*, verbally, mentally, psychologically, or you always bring out yourself first – but this is [why you can do this]. If you bring up yourself first, so-called *I*, at that time you’re always emphasizing how important *you* are, ignoring others. This is perverted. But basically, the moment when you accept yourself, whatever reason, egoistically or whatever, if you bring out yourself first, at that time that means you accept totally. In other words, *you live*, you are alive. Total affirmation, self-affirmation. Without [total] self-affirmation, you cannot offer yourself, you cannot express. So “I alone, individual[ly] exist” means I exist in the same [and] one ground, where all sentient beings exist. 
 
-That’s why if you bring up yourself first and emphasize how important you alone are, that is perverted. Do you understand? It’s really perverted, because basically, there is a huge horse pasture there. Regardless of whether you understand or not: a huge horse pasture. All sentient beings exist there. And then human beings are always emphasizing the self alone. Very naturally, that is perverted. That’s why Buddha always talks about the practice of egolessness. That means, one more time check up your understanding, check up the situation, check [out your emphasis], [check out] the state of your understanding. “Check up” means check you and others. In other words, let’s see the situation in a broad universal perspective. 
+That’s why if you bring up yourself first and emphasize how important you alone are, that is perverted. Do you understand? It’s really perverted, because basically, there is a huge horse pasture there. Regardless of whether you understand or not: a huge horse pasture. All sentient beings exist there. And then human beings are always emphasizing the self alone. Very naturally, that is perverted. 
+
+That’s why Buddha always talks about the practice of egolessness. That means, one more time check up your understanding, check up the situation, check [out your emphasis], [check out] the state of your understanding. “Check up” means check you and others. In other words, let’s see the situation in a broad universal perspective. 
 
 “Check up” doesn’t mean to pick up dust from the corner of your box. Individual life is really kind of a box, you know? Katagiri box, and James box. *[He chuckles.]* And then we’re always picking up dust from the corner of the box. That’s the criticism, and the checking, watching, and “good boy,” “bad boy,” “good girl,” et cetera. But that is not *to check*. *Check* means to see the situation in broad perspective – including you, including others, including inanimate beings, too. 
 
@@ -95,7 +97,7 @@ Don’t ignore the formality. Formality is form. It is very important for you.
 
 And then, at Eiheiji monastery, all the monks always pick up the posture. “Don’t hold the sutra card like this, hold it like this.” So always *[whap]*, hitting the hand like this. Or if you’re holding it high, like this. Without saying anything. 
 
-Sometimes the older monks become very mad. *[He laughs.]* And sometimes when I was there... you know the *kyusaku*? The hitting stick? During the morning service, [they go] around behind the [sitting] monks [...] with the kyosaku. If you *[unintelligible]*, *[whap]*. And also, lots of visitors are there, watching, listening, participating. And then the old monks [...] *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if a one year monk hits the three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
+Sometimes the older monks become very mad. *[He laughs.]* And sometimes when I was there... you know the *keisaku*? The hitting stick? During the morning service, [they go] around behind the [sitting] monks [...] with the keisaku. If you *[unintelligible]*, *[whap]*. And also, lots of visitors are there, watching, listening, participating. And then the old monks [...] *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if a one year monk hits the three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
 
 Actually one day I saw a situation. Before they hit, the monk just taps your shoulder. A one-year monk tried [to tap an old monk]. *[Tap.]* Then immediately the old monk held the stick: “Stop it.” *[Laughter.]*
 
@@ -109,7 +111,7 @@ In this book, you know the koan of Isan’s cow? [That] story? Do you remember? 
 
 While your body is *you* do, [Isan practicing] zazen is cow practicing zazen. That is really the human body practicing zazen. But on the other hand, if I say, “Oh, [Isan] does zazen,” it’s wrong. Because, I told you before, this presence is already based on – supported by – vastness of existence, the horse pasture. So *[unintelligible]* sitting is *[unintelligible]*, so-called cow. But it’s *not* cow. *Cow* means the physical/mental body. But simultaneously, through this physical body and mind, [religious] presence manifests, which is called Isan. That means buddha. The universe. 
 
-Holding the sutra card like this: this is *I do*. And then if you see that, that is formality. It’s ridiculous. However I hold the sutra card, this way or that way, it doesn’t matter – you think like that. But no way. If you think so, every day you take care of your life exactly in that way. So at that time you can express yourself, but nothing else, nothing *more* than that. So that’s why your life is very unstable. 
+Holding the sutra card like this: this is *I do*. And then if you see that, that is formality; it’s ridiculous. However I hold the sutra card, this way or that way, it doesn’t matter – you think like that. But no way. If you think so, every day you take care of your life exactly in that way. So at that time you can express yourself, but nothing else, nothing *more* than that. So that’s why your life is very unstable. 
 
 But anyway, when you practice, practice is to educate you, simultaneously to educate the universe. You have to educate you with the universe, with all sentient beings. So, [to] take care of zazen is [to] take care of *your* zazen, but simultaneously there is universal zazen, that means best care of your zazen. And then, that is simultaneously [to] express the universe.
 
@@ -175,13 +177,13 @@ At that time, when you “lift up” something, in other words words and actions
 
 So why? I don’t know how they come together, how they interconnect with each other dynamically. We don’t know. But if you do it, exactly do it, we can express it. 
 
-So nothing to argue. So “you won’t avoid losing your point” – you cannot challenge somebody to discuss it. “And having your tongue tied” means you cannot help withdrawing, in other words going back to [your room]. 
+So nothing to argue. So “you won’t avoid losing your point” – you cannot challenge somebody to discuss it. “... and having your tongue tied” means you cannot help withdrawing, in other words going back to [your room]. 
 
 #### 42:30
 
 > He lets out a single continuous road. 
 
-But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something. So that is this koan [or] case. 
+But it’s very difficult to explain that situation, *oneness*. Oneness of you and the universe [...] going from moment to moment is something difficult to express. But, he says, “He lets out a single continuous road.” It’s very difficult, but let me say something – so that is this koan [or] case. 
 
 #### 43:03
 
