@@ -15,9 +15,9 @@ title: "Verse of Opening the Sutra"
 
 #### 0:00
 
-**Katagiri Roshi:** I want to study tonight the Verse of Opening [the] Sutra, [that] we chanted a few minutes ago. Would you get the sutra card, please? ... [It’s] the fourth [...] from the bottom, on the back. [Let’s] read it together. In English. 
+**Katagiri Roshi:** I want to study tonight the Verse of Opening [the] Sutra, [that] we chanted a few minutes ago. Would you get the sutra card, please? [...]
 
-*Hai.* Please.
+On Opening the Sutra. Would you read together? [In] English. *Hai.* Please.
 
 **Group chanting:**
 
@@ -36,11 +36,11 @@ title: "Verse of Opening the Sutra"
 
 (from [sotozen.org](https://www.sotozen.com/eng/library/glossary/individual.html?key=verse_for_opening_sutras)\))
 
-**Katagiri Roshi:** In this verse, finds it place in the portion of the Daily Used Statements, Verses and Dharani, which occurs in the [Versions] of Various Ekos – final dedications – compiled by [Hu-yen] in 1565 (CE) or so. 
+**Katagiri Roshi:** This verse finds it’s place in the portion of the “Daily Used Statements, Verses, and Dharani,” which occurs in the *Versions of Various Ekos* – final dedications – compiled by [Hu-yen] in 1565 (CE) or so. 
 
 So the “unsurpassed, penetrating, and perfect dharma...” 
 
-Well, in Japanese, *Kaikyōge* – the “Verse for Opening Sutra[s].” *Sutra* means scriptures, but a sutra originally means interwoven strings in vertical and horizontal. Is that clear? Interwoven – that is the meaning of the term *sutra* in Sanskrit. The sutra as a Buddhist scripture means interwoven strings in vertical and horizontal. That means human life, the human world, is exactly interwoven by time and space. The huge network of interwoven time and space: this is human world, human life. Even though you see, the moment / instant that you exist, day to day, it consists of a huge network of interwoven time and space. This is the structure of the [instant]. So opening that sutra means completely open means you have to see that huge network of interwoven time and space. We have to see it clearly, and then taste it. This is “open”. If you even slightly have your own prejudice, your own desires and education, it’s very difficult to open our life. So completely open ourselves. That is opening the sutra. Because we have to see the real picture of human life. 
+Well, in Japanese, *Kaikyōge*: the “Verse for Opening Sutra[s].” *Sutra* means scriptures, but a *sutra* originally means “interwoven strings in vertical and horizontal.” Is that clear? Interwoven – that is the meaning of the term *sutra* in Sanskrit. So *sutra* as a Buddhist scripture means “interwoven strings in vertical and horizontal.” That means human life, the human world, is exactly interwoven by time and space. The huge network of interwoven time and space: this is human world, human life. Even though you see, the moment / instant that you exist, day to day, it consists of a huge network of interwoven time and space. This is the structure of the [instant]. So opening that sutra means completely open means you have to see that huge network of interwoven time and space. We have to see it clearly, and then taste it. This is “open”. If you even slightly have your own prejudice, your own desires and education, it’s very difficult to open our life. So completely open ourselves. That is opening the sutra. Because we have to see the real picture of human life. 
 
 And, if you open the sutra, the huge network of interwoven time and space, it is exactly “the unsurpassed, penetrating, and perfect dharma.” 
 
