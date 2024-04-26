@@ -24,7 +24,7 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
-**April 25, 2024:** Updated [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) some more.
+**April 25, 2024:** Updated [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) some more, and also [Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).
 
 **April 23, 2024:** Updated [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1).
 
