@@ -7,8 +7,6 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2
 
 ### Transcript
 
-#### **This transcript is in rough draft stage.**
-
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-45-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
