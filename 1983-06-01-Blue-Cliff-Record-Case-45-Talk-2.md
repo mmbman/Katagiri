@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2
 
 ### Summary
 
-Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings forth the seven pound shirt, but can we wear it? If we wear it, then we also have to throw it away. A refreshing breeze passes through the horse pasture of all beings. It’s not mysticism.
+Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings forth the seven pound shirt: universal, creative life. But can we wear it? If we wear it, achieving stability in a moment of time, then next moment we have to throw it away. A refreshing breeze passes through the horse pasture of all beings. It’s not mysticism.
 
 ### Transcript
 
