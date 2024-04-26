@@ -5,6 +5,10 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2
 
 #### [List](list#1983) \| [Previous](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
+### Summary
+
+Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings forth the seven pound shirt, but can we wear it? If we wear it, then we also have to throw it away. A refreshing breeze passes through the horse pasture of all beings. It’s not mysticism.
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
