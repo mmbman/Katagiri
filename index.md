@@ -34,7 +34,7 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 **April 8, 2024:** Updated [“*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument”](1981-07-18-Blue-Cliff-Record-Case-18). 
 
-**April 4, 2024:**: Added [“Buddha’s Birthday”](1986-04-13-Buddhas-Birthday). Happy Buddha’s Birthday!
+**April 4, 2024:** Added [“Buddha’s Birthday”](1986-04-13-Buddhas-Birthday). Happy Buddha’s Birthday!
 
 **March 30, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1).
 
@@ -46,9 +46,9 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 **March 21, 2024:** Updated [“Save All Sentient Beings”](1980-03-15-Save-All-Sentient-Beings).
 
-**March 15, 2024:**: Completed one more pass through the [Karma](karma) series. 
+**March 15, 2024:** Completed one more pass through the [Karma](karma) series. 
 
-**March 12, 2024:**: For class: [Excerpt from “*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox”](ExcerptFromBCRCase38.pdf). 
+**March 12, 2024:** For class: [Excerpt from “*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox”](ExcerptFromBCRCase38.pdf). 
 
 **March 7, 2024:** Updated [“Karma: Taking Care of Karma”](1980-07-04-Karma-Taking-Care-of-Karma). That completes the latest pass through the [Karma](karma) talks. 
 
