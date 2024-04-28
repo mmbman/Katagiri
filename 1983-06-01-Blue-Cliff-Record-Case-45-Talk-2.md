@@ -132,7 +132,7 @@ The young monk, a friend of mine, really pushed him to get out from the top of t
 
 Anyway, do you understand that sense? That [was a] very good experience for me. 
 
-One teacher was always walking in the usual way, never running. And [he] always scolded the monks: *[in a deep, gravelly voice]* “Don’t run.” He was always walking like this. We teased him when we had the big earthquake: “What did you do, sir?” *[He laughs.]* He gave a smile and said: *[gravelly voice]* “I ran.” *[Laughter.]* We laughed very much.
+One teacher was always walking in the usual way, never running. And [he] always scolded the monks: *[in a deep, gravelly voice]* “Don’t run.” He was always walking like this. We teased him when we had the big earthquake: “What did you do, sir?” He gave a smile and said: *[gravelly voice]* “I ran.” *[Laughter.]* We laughed very much.
 
 So it’s pretty easy to say in words, but it’s very hard to *do*: just sit down there, you are ready to die, to really depend on these circumstances you are facing, exactly. When you are right in the middle of this situation, it’s very hard. We are now a little bit looking at such a situation from a distance, so it’s pretty easy to say so. But when you are there, it’s very hard. 
 
