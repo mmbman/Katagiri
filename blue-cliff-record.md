@@ -257,7 +257,7 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 ##### [Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1)
 ###### May 25, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Where does *the one* come from? Who creates the first cause? A “seven pound shirt” means an ordinary shirt is interconnected with the whole universe. The one comes from right *here*. It’s not necessary to move fast or slow in Zen; your life must be connected at superspeed. Being still in dynamism, dynamic in stillness — that is spiritual security. But we know it in a moment of time only.
+Where does *the one* come from? Who creates the first cause? The one comes from right *here*. A “seven pound shirt” means an ordinary shirt is interconnected with the whole universe. It’s not necessary to move fast or slow in Zen; your life must be connected at superspeed. Being still in dynamism, dynamic in stillness — that is spiritual security. But we know it in a moment of time only.
 
 ---
 
