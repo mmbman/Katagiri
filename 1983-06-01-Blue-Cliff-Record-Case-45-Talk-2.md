@@ -250,8 +250,6 @@ So you are screaming, and that is already *tanpankan*. And then when you feel go
 
 Okay? 
 
-#### 1:00:57
-
 **Question:** Hojo-san? Is that the same as having square, sharp edges? 
 
 **Katagiri:** Mmm-hm. That is deepening, or maturing. That is the best way to make your life mature. 
