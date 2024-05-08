@@ -24,6 +24,8 @@ Readers should be aware that these topics are discussed in many places within Ka
 
 ## Latest Updates
 
+**May 8, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) some more, including the summary. 
+
 **April 26, 2024:** Updated the summary to [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2”](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).
 
 **April 25, 2024:** Updated [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2”](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2), and also [Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) some more.

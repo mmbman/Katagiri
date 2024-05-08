@@ -2,14 +2,14 @@
 title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen"
 ---
 
-Katagiri Roshi gave several series of talks on *Fukanzazengi*; currently only this series is in the online archive. These talks were given during a seven-day *sesshin* in June of 1979.
+Katagiri Roshi gave more than one series of talks on *Fukanzazengi*; currently this single series of talks is available in the online archive. These talks were given during a seven-day *sesshin* in June of 1979.
 
 ---
 
 ##### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 ###### June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from the standpoint of Buddhist psychology, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
 
 ---
 
@@ -44,7 +44,7 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 ##### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 ###### June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi explains *shikantaza*, or body and mind dropping off, from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” Samskara is presented as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, Katagiri Roshi explains a key line from Dogen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi further explains *shikantaza*, or body and mind dropping off, from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” Samskara is presented as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, Katagiri Roshi explains a key line from Dogen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ---
 

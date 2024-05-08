@@ -7,14 +7,13 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen from the standpoint of Buddhist psychology, and discusses how important it is to arrange circumstances and let go. He also talks about life at Eiheiji monastery.
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
 
 ### Transcript
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
-
 
 #### 0:00
 
@@ -88,37 +87,37 @@ And next is the brain-nerve system.
 
 And one more [system]: that is *total personality*. 
 
-*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing. 
+*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
 
-There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
+But *my* personality is something *I* can create, after my birth. But this is kind of *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can’t] create. So I have carried my personality from before my birth; this is maybe my parents, and also maybe I have carried [it] from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
-But *my* personality is something *I* can create, after my birth, so this is kind of [like] *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can] create. I have carried my personality from before my birth; this is maybe my parents, and also maybe [what] I have carried from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
+So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” [...] A part of this *smell* consists of something I have created after my birth. But the other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
 
-So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” A part of this *smell* consists of something I have created after my birth. The other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
+But Katagiri’s “smell” is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future. *Then* you can understand. 
 
-But Katagiri’s “smell” is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future; *then* you can understand. 
+So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, that is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. (*Transcriber’s Note:* *Trans-personality* might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
-So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, it is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. (*Transcriber’s Note:* *Trans-personality* might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
+But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good – [but] that feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, [...] there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. 
 
-But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good. That feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. Because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are a lot of reasons. I don't know why [exactly], so I cannot say.
+Because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are lots of reasons. I don't know why [exactly], so I cannot say.
 
-That is really a “stink.” But where does that stink of Katagiri come from? Nowhere. You have to really go back to the beginningless past, to the endless future. So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree, because [your existence] is extending to the past and the future. You have to believe this. Well – believe it or not, your life is really there.
+That is really a “stink.” But where does that stink of Katagiri come from? Nowhere. You have to really go back to the beginningless past, to the endless future. So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree, because [your existence] is extending to the past and the future – your personality. You have to believe this. Well – believe it or not, your life is really there.
 
-So that is what is called [buddha nature](glossary#buddha-nature). And also, what is buddha nature? If you want to know psychologically, that is called [*alayavijñāna*](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [*karma*](glossary#karma). 
+So that is [that] we are called [buddha nature](glossary#buddha-nature). And also, what is buddha nature? If you want to know psychologically, that is called [*alayavijñāna*](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [*karma*](glossary#karma). 
 
-Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life [in] the [samsaric](glossary#samsara) world. [...] If you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer to what karma is. But karma is with you. How do you know? In your daily living, you can know. 
+Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life [in the] \[samsaric](glossary#samsara) world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer to what karma is. But karma is with you. How do you know? In your daily living, you can know. 
 
 #### 30:00
 
 When I became a monk and went to a monastery, at that time monastic life was completely blooming for me. So it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. Some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] But for me, it was wonderful. 
 
-And on the other hand, I felt wonderful, but on the other hand, people called me crazy. Of course, maybe so! According to indulgence, maybe to practice hard was crazy. It might be crazy, but I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
+And on the other hand, I felt wonderful, but on the other hand, people called me crazy. Of course, maybe so! According to indulgence, maybe the [hard practice] was crazy, it [might be] crazy. But I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
 
-On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it in that way? Why are you in the monastery? You want to be lazy in the monastery? You want to learn laziness? Well of course it's okay, but what is the purpose? Why are you here?” I didn't understand why they didn’t care.
+On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it in that way? Why are you in the monastery? You want to be lazy in the monastery? You want to learn laziness? Well of course it's okay, but what is the purpose? *Why*? Why are you here?” I didn't understand why they didn’t care.
 
 On the other hand, the same applied to me: “Why are you practicing hard in that way?” I don't know.
 
-From this point, [...] we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense not understandable. So life is *[unintelligible]*. 
+From this point, in everyday life, we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense not understandable. So, life is pretty [big]. 
 
 That is called *karma*; that is called *buddha nature*. We don't understand, because the present – your life – comes from beginningless past, endless future. [We should be there]. And finally, we should accept this and we must be *present* there, constantly on the big tree. This is [the] core. Psychologically speaking, this is *total personality*.
 
