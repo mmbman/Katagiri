@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
 
 ### Transcript
 
@@ -23,17 +23,19 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s 
 
 This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means [that if you do zazen,] the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside.” From the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. 
 
-This is [the real] meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true, which you experience in your daily living. [Our] life is really based on this teaching. 
+This is [the real] meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true, which you experience in your daily living. [...] Life is really based on this teaching. 
 
-When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside.” Because you are manifesting yourself as you really are, from moment to moment – in other words, you can stand up straight, right now, right here. But that means you can manifest yourself, so if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
+When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside.” Because you are manifesting yourself as you really are, from moment to moment – in other words, you can stand up straight, right now, right here. But that means you can manifest *yourself*, so if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
 
-Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion through your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. If you really want anger to go away very naturally, all you have to do is, you must be a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri), or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
+Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion in your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. 
+
+If you really want anger to go away very naturally, all you have to do is, you must be [...] a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri), or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
 
 But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
 
 But when you do zazen, or when you pray to the gods, “Please help me” – even though you don't know how to deal with anger, you pray to the gods, “Please help me” – why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so. 
 
-Or, maybe you really believe God takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
+Or, [maybe] you really believe God takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
 
 So you don't believe – but in a sense you believe. Finally you don't know why you are doing it in that way. Finally you say, “I just pray, because I don't know what to do.” So you pray to the bodhisattvas: “Avalokiteshvara, please.” Sit down in front of Avalokiteshvara, make your mind calm, and pray. 
 
@@ -43,15 +45,15 @@ That is our life, okay?
 
 #### 8:43
 
-So we have the practice of bowing to Buddha. Bowing to Buddha is to express the deepest appreciation to your existence: how sublime life is, how important your life is. 
+So we have a practice of bowing [to] Buddha. Bowing [to] Buddha is to express the deepest appreciation to your existence: how sublime life is, how important your life is. 
 
 But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. Even if you understand, that is just a speck of dust of understanding of the human world. So actually, you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? Let’s bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
 
-Before you bow, you must be *you* who has already accepted how sublime your life is. And then that's why you can bow, [because] there is no ego understanding, [ego consciousness](glossary#ego-consciousness), or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely Buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
+Before you bow, you must be *you* who has already accepted your life, how sublime [your life] is. And then that's why you can bow. There is no ego understanding, [ego consciousness](glossary#ego-consciousness), or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
 
 So to bow is simultaneously to accept the sublimity of life. So very naturally, ego consciousness from the first is struck aside. 
 
-That is what [Dogen Zenji](glossary#dogen) says. [The first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
+That is what [Dogen Zenji](glossary#dogen) says. So [the first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
 
 #### 12:45
 
@@ -77,35 +79,35 @@ One is *circumstances*. The second is the sensory world, *sensory system*. And a
 
 So [there are] circumstances and also the sensory system. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
 
-The movement system is [that] through your body and mind, by getting lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
+The movement system is [that] through your body and mind, by getting the lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
 
 And also, the gut system: you have lots of guts. 
 
 And next is the brain-nerve system. 
 
-#### 21:05
+And one more thing: that is *total personality*. 
 
-And one more [system]: that is *total personality*. 
+*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. There is [Katagiri](glossary#katagiri): that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is *total* personality. 
 
-*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. There is [Katagiri](glossary#katagiri); that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is total personality. 
-
-But *my* personality is something *I* can create, after my birth. But this is kind of *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can’t] create. So I have carried my personality from before my birth; this is maybe my parents, and also maybe I have carried [it] from my parents, from my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
+But *my* personality is something *I* can create, after my birth. But this is kind of *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can’t] create. So I have carried my personality from before my birth; this is maybe my parents, and also maybe I have carried [it] from [...] my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
 So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” [...] A part of this *smell* consists of something I have created after my birth. But the other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri’s “smell” is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future. *Then* you can understand. 
+But Katagiri’s *smell* is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future. *Then* you can understand. 
 
 So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, that is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. (*Transcriber’s Note:* *Trans-personality* might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
-But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good – [but] that feeling good is not always *feeling good*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, [...] there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. 
+But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good, [but] feeling good is not always *feeling good* *[he chuckles]*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, [...] there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. Because that feeling comes from a “stink,” which is called total personality. 
 
-Because that feeling comes from a “stink,” which is called total personality. Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are lots of reasons. I don't know why [exactly], so I cannot say.
+Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are lots of reasons. I don't know why [exactly], so I cannot say.
 
-That is really a “stink.” But where does that stink of Katagiri come from? Nowhere. You have to really go back to the beginningless past, to the endless future. So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree, because [your existence] is extending to the past and the future – your personality. You have to believe this. Well – believe it or not, your life is really there.
+That is really a “stink.” [...] But where does that stink of Katagiri come from? No way. You have to really go back to the beginningless past, to the endless future. So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree. Because [your existence] is extending to the past and the future – your personality. 
+
+You have to believe this. Well – believe it or not, your life is really there.
 
 So that is [that] we are called [buddha nature](glossary#buddha-nature). And also, what is buddha nature? If you want to know psychologically, that is called [*alayavijñāna*](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [*karma*](glossary#karma). 
 
-Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life [in the] \[samsaric](glossary#samsara) world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer to what karma is. But karma is with you. How do you know? In your daily living, you can know. 
+Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life [in the] \[samsaric](glossary#samsara) world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do you know? In your daily living, you can know. 
 
 #### 30:00
 
@@ -123,19 +125,21 @@ That is called *karma*; that is called *buddha nature*. We don't understand, bec
 
 #### 34:20
 
-And *circumstances*. In order to *realize* this core of human life, first of all we have to make arrangement of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system. That's why Dogen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of circumstances. 
+[...] In order to *realize* this core of human life, first of all we have to *make arrangement* of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system.
+
+That's why Dogen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of *circumstances*. 
 
 If you meddle with “all involvements” or “all affairs” right in the middle of zazen, you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred with circumstances, or destroying circumstances, just make arrangement. 
 
 #### 36:23
 
-And next, our *sensory system*. We have a sensory system; it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
+And next, our *sensory system*. We have a sensory system; but it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
 That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the [*Zazengi*](topics#zazengi) chapter of [*Shobogenzo*](topics#shobogenzo), which is distinct from [*Fukan zazengi*](topics#fukanzazengi).)
 
-First of all, you should make a choice of circumstances. What kind of a room do you have to use? Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
+First of all, you should make a choice of circumstances, what kind of a room you have to use. Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
-So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. You should [deal with it].
+So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. We should [deal with it].
 
 #### 39:42
 
@@ -147,23 +151,23 @@ So we have to make arrangement of movement. For this, Dogen Zenji says, that is 
 
 This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. 
 
-This is movement simplified by our arrangement. 
+This is movement simplified, by our arrangement. 
 
 #### 42:38
 
 And next, the *gut system*. (The *internal organ system*.) For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
 
-(*Transcriber’s Note:* Parts of the next paragraph are very hard to make out.)
+(*Transcriber’s Note:* The next paragraph is very hard to make out.)
 
-Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. They’re going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gas] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
+Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It’s going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gas] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
 
-But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your breath is pretty good; *[unintelligible]* is pretty good. And your heart is beating normally, very naturally.
+But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your blood is pretty good; [your pulse] is pretty good. And your heart is beating normally, very naturally.
 
 #### 44:56
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-(*Transcriber’s Note:* The translation is Norman Waddell and Masao Abe’s; see [*The Heart of Dogen's Shobogenzo* (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
+(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe; see [*The Heart of Dogen's Shobogenzo* (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
 
 That is the brain-nerve system. According to the brain-nerve system, we have to regulate the mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
 
@@ -173,7 +177,7 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 #### 46:44
 
-So Dogen says, “Do not think good or bad, right and wrong,” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of [*egolessness*](glossary#egolessness); selflessness. 
+So Dogen says “do not think good or bad, right and wrong” because we have to regulate the mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of [*egolessness*](glossary#egolessness); selflessness. 
 
 If your mind really attaches to good or bad or neutral, immediately there are thoughts, views, or wishes. And thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, [stopping]. [But] even though you can stop for a while, you cannot stop always. So you start to move, to the right, to the left again. That is the dualistic world. 
 
