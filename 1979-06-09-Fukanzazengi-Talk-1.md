@@ -35,7 +35,7 @@ But we don't do this; completely the opposite. If you get angry, [you] *express*
 
 But when you do zazen, or when you pray to the gods, “Please help me” – even though you don't know how to deal with anger, you pray to the gods, “Please help me” – why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so. 
 
-Or, [maybe] you really believe God takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
+Or, [maybe] you believe God really takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
 
 So you don't believe – but in a sense you believe. Finally you don't know why you are doing it in that way. Finally you say, “I just pray, because I don't know what to do.” So you pray to the bodhisattvas: “Avalokiteshvara, please.” Sit down in front of Avalokiteshvara, make your mind calm, and pray. 
 
@@ -54,8 +54,6 @@ Before you bow, you must be *you* who has already accepted your life, how sublim
 So to bow is simultaneously to accept the sublimity of life. So very naturally, ego consciousness from the first is struck aside. 
 
 That is what [Dogen Zenji](glossary#dogen) says. So [the first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
-
-#### 12:45
 
 But actually, we don't do zazen like this. Zazen is used as a means. 
 
