@@ -18,7 +18,7 @@ Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these se
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
 - [***Genjōkōan***](genjokoan) (1987)
 
-... This list will be updated as talks are transcribed. Readers should be aware that these topics are discussed in many places within Katagiri Roshi’s talks, not just within these series. Because all Buddhist teaching is interrelated, these topics can and do come up anywhere.
+... This list will be updated as talks are transcribed. Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. 
 
 ## Latest Updates
 
