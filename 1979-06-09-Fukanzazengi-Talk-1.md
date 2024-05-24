@@ -73,7 +73,7 @@ That is *shikantaza* – very naturally.
 
 Psychologically speaking, there are several component factors in living. 
 
-One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts. We have lots of guts. (**Transcriber’s Note:** In subsequent talks, this is referred to as the *internal organ system*.) And also, the *brain-nerve system*.
+One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts. We have lots of guts. (*Transcriber’s Note:* In subsequent talks, this is referred to as the *internal organ system*.) And also, the *brain-nerve system*.
 
 So [there are] circumstances and also the sensory system. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
 
