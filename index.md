@@ -7,7 +7,7 @@ This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as 
 
 The [**Talk Summaries**](summaries) page lists the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
 
-The [**Talk List**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed. There are many talks that are not on this list because they are not yet in the online audio archive.
+The [**Talk List**](list) lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed.
 
 Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these series are:
 
