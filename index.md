@@ -22,6 +22,8 @@ Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these se
 
 ## Latest Updates
 
+**May 26, 2024:** Updated [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1), especially around the story of Isan’s cow.
+
 **May 8, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) some more, including the summary. 
 
 **April 26, 2024:** Updated the summary to [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2”](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2).

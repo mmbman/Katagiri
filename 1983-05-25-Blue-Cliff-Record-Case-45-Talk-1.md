@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1
 
 ### Summary
 
-Where does *the one* come from? Who creates the first cause? The one comes from right *here*. A “seven pound shirt” means an ordinary shirt is interconnected with the whole universe. It’s not necessary to move fast or slow in Zen; your life must be connected at superspeed. Being still in dynamism, dynamic in stillness — that is spiritual security. But we know it in a moment of time only.
+Where does *the one* come from? Who creates the first cause? The one comes from right *here*. A “seven pound shirt” means an ordinary shirt is interconnected with the whole universe. It’s not necessary to move fast or slow in Zen; your life must be connected beyond speed. Being still in dynamism, dynamic in stillness — that is spiritual security. But we realize it in a moment of time only.
 
 ### Transcript
 
@@ -91,39 +91,39 @@ That’s why we have to talk like this. But whoever you are, we are very egoisti
 
 To anyone, [or] to [anything]. 
 
-For instance, when[ever] we had morning service at Eiheiji monastery, I was very impressed first by one thing. All the monks sit down, exactly sitting straight. That was very impressive [for me]. Because, before I became a monk, I was always sitting like *this* (presumably, sitting casually), you know? But at Eiheiji monastery, everyone is sitting up just like a stick. And then we hold the sutra [card] like this, but everyone holds [it in] exactly the same position. I was very impressed. 
+For instance, when we had morning service at Eiheiji monastery, I was very impressed first by one thing. All the monks sit down, exactly sitting straight. That was very impressive [for me]. Because, before I became a monk, I was always sitting like *this* (presumably, sitting casually), you know? But in Eiheiji monastery, everyone is sitting [up] just like a stick. And then we hold the sutra [card] like this, but everyone holds [it in] exactly the same position. I was very impressed. 
 
 That is formality. But behind this formality, there is something. I don’t know what it is. But I was very impressed. Do you understand what I mean? 
 
 Don’t ignore the formality. Formality is form. It is very important for you. 
 
-And then, at Eiheiji monastery, all the monks always pick up the posture. “Don’t hold the sutra card like this, hold it like this.” So always *[whap]*, hitting the hand like this. Or if you’re holding it high, like this. Without saying anything. 
+And then, in Eiheiji monastery, [old] monks always [enforce] the posture. “Don’t hold the sutra card like this, hold it like this.” So always hitting the hand like this, *[whap]*. Or if you’re holding it high, like this. Without saying anything. Sometimes the older monks become very mad. *[He laughs.]* 
 
-Sometimes the older monks become very mad. *[He laughs.]* And sometimes when I was there... you know the *keisaku*? The hitting stick? During the morning service, [they go] around behind the [sitting] monks [...] with the keisaku. If you *[unintelligible]*, *[whap]*. And also, lots of visitors are there, watching, listening, participating. And then the old monks [...] *[whap]*. And then everyone [was thinking], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if a one year monk hits the three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
+And sometimes when I was there... you know the *keisaku*? The hitting stick? During the morning service, [they go] around behind the [sitting] monks [...] with the *keisaku*, and if you *[unintelligible]*, *[whap]*. And also, lots of visitors are there, watching, listening, participating, and then the old monks [...] *[whap]*. Everyone was [wondering], “Wow, what’s going on there?” *[Laughter.]* Sometimes, you know, fighting there. Sometimes fighting! Because old monks sit there for three years, four years, living at Eiheiji monastery. And if a one year monk hits a three years monk... the three years monk is really mad! *[He laughs, and people laugh.]*
 
-Actually one day I saw a situation. Before they hit, the monk just taps your shoulder. A one-year monk tried [to tap an old monk]. *[Tap.]* Then immediately the old monk held the stick: “Stop it.” *[Laughter.]*
+Actually one day I saw [such a] situation. Before they hit, the monk just taps your shoulder. A one-year monk tried [to tap an old monk]. *[Tap.]* Then immediately the old monk held the stick: “Stop it.” *[Laughter.]*
 
-That expression was not good. Don’t act in that way. *[He laughs.]*
+That expression was not good, [I think]. Don’t act in that way. *[He laughs.]*
 
 So anyway, whatever [action] you do – holding the sutra card like this, or *kinhin*, or sitting up straight – that is really expressing the universe. That’s why behind the posture, behind the form, there is something. 
 
-Read *Refining Your Life*, a cooking book written by Uchiyama Roshi recently, a new book. Do you know it? This book is very nice for you. 
+Read *Refining Your Life*, a cooking book written by Uchiyama Roshi recently, a new book. Do you know it? This book is *very* nice for you. (*Transcriber’s Note:* This book is currently available as *How to Cook Your Life: From the Zen Kitchen to Enlightenment*.)
 
-In this book, you know the koan of Isan’s cow? [That] story? Do you remember? Isan says, “A hundred years from now, I [will be] born in a village as a cow. And then you should go there to check that cow, under the arm or belly, and you can find the name Isan [there]. And then if you say, “Oh, this is Isan” – it’s wrong, because it’s a cow. But if you say, “Oh, it’s not Isan, it’s a cow” – your answer is wrong, because it says Isan. How do you call [it]? *[He chuckles.]* This is the koan. How do you call [it]? 
+In this book, you know the koan of Isan’s cow? (Guishan Lingyou, Japanese: Isan Reiyu, 771–853.) [That] story? Do you remember? Isan says, “A hundred years from now, I will be born in a village as a cow. And then you should go there to check that cow, under the arm or belly, and you can find the name Isan [there]. And then if you say, “Oh, this is Isan” – it’s wrong, because it’s a cow. But if you say, “Oh, it’s not Isan, it’s a cow” – your answer is wrong, because it says Isan. How do you call [it]? *[He chuckles.]* This is the koan, okay? How do you call [it]? 
 
-While your body is *you* do, [Isan practicing] zazen is cow practicing zazen. That is really the human body practicing zazen. But on the other hand, if I say, “Oh, [Isan] does zazen,” it’s wrong. Because, I told you before, this presence is already based on – supported by – vastness of existence, the horse pasture. So *[unintelligible]* sitting is *[unintelligible]*, so-called cow. But it’s *not* cow. *Cow* means the physical/mental body. But simultaneously, through this physical body and mind, [religious] presence manifests, which is called Isan. That means buddha. The universe. 
+[...] Your body is *you do*. [This practice of] zazen is, well, a cow [practicing] zazen – the human body. That is really the human body practicing zazen. But on the other hand, if I say, “Oh, [Isan] does zazen,” it’s wrong. Because, I told you before, [this] presence is already based on – supported by – vastness of existence, the horse pasture. So [little] sitting is [little], so-called cow. *Cow* means the physical/mental body. But it’s *not* cow. Simultaneously, through this physical body and mind, [religiously], a presence manifests which is called Isan, [which] means buddha. The universe. 
 
-Holding the sutra card like this: this is *I do*. And then if you see that, that is formality; it’s ridiculous. However I hold the sutra card, this way or that way, it doesn’t matter – you think like that. But no way. If you think so, every day you take care of your life exactly in that way. So at that time you can express yourself, but nothing else, nothing *more* than that. So that’s why your life is very unstable. 
+Holding this sutra card like this: this is *I do*. And then if you see that, that is the formality; it’s ridiculous. You think that however I hold the sutra card, this way or that way, it doesn’t matter. But no way. If you think so, every day you take care of your life exactly in that way. So at that time you can express yourself, but nothing else, nothing else *more* than that. So that’s why your life is very unstable. 
 
-But anyway, when you practice, practice is to educate you, simultaneously to educate the universe. You have to educate you with the universe, with all sentient beings. So, [to] take care of zazen is [to] take care of *your* zazen, but simultaneously there is universal zazen, that means best care of your zazen. And then, that is simultaneously [to] express the universe.
+But anyway, when you practice, practice is to educate you, simultaneously to educate the universe. You have to educate you with the universe, with all sentient beings. So, [to] take care of zazen is [to] take care of *your* zazen, but simultaneously there is universal zazen, that means [to take] best care of your zazen. And then, that is simultaneously [to] express the universe.
 
-But if you say, “Oh this is formality” – it is. You cannot express the universal. 
+But if you say, “Oh, this is formality” – [in this], you cannot express the universal. 
 
-So the teacher says, “Hold this [sutra card like this].” “Yes sir” – that’s enough. Because the teacher saying “hold this sutra card like this” doesn’t mean formality. The teacher always emphasizing holding this book or sutra card like this means, “Please hold this sutra card *and* hold the universe like this, together.” This sutra card is not the sutra card you think. The sutra card is the universe. Exactly the same as your life. 
+So the teacher says, “Hold this [sutra card like this].” “Yes sir” – that’s enough. Because the teacher saying “hold this sutra card like this” doesn’t mean formality. The teacher always emphasizing holding this book or sutra card like this means, “Please hold this sutra card *and* the universe like this, together.” This sutra card is not the sutra card you think – the sutra card is the universe. Exactly the same as your life. So anyway, [holistic].
 
-So anyway, hold [it like this]. And then [...] how can you hold this sutra card? With *wholeheartedness*. Wholeheartedness means pure faith or pure mind, purity. *Purity* means no gap between the sutra card and you. That is called purity. So [there is] very natural communication there. That is called expression of the universe. 
+And then [we ask] how can you hold this sutra card? With *wholeheartedness*. Wholeheartedness means pure faith or pure mind, purity. *Purity* means no gap between the sutra card and you. That is called purity. So [there is] very natural communication there. That is called expression of the universe. 
 
-[But] the moment when you express the universe, consciousness starts to work, [picking] up that one, so you don’t know what is the *real* universe. But the real universe is something which makes your presence, makes your action, makes your talk, makes your speech, makes your thinking very stable, [confident,] in a moment of time *only*. Remember this: *in a moment of time only*. So next moment, if you think it – it’s not. 
+[But] the moment when you express the universe, consciousness starts to work, [picking] up [one thing], so you don’t know what is the *real* universe. But the real universe is something which makes your presence, makes your action, makes your talk, makes your speech, makes your thinking very stable, [confident] – in a moment of time *only*. Remember this: *in a moment of time only*. So next moment, if you think it – it’s not. 
 
 So *in a moment of time only* means what? No space to think it. No space to impart your feeling into [it]. All you have to do is, just do. You have to spin just like a top. 
 
