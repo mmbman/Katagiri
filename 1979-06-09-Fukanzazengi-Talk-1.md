@@ -105,7 +105,7 @@ You have to believe this. Well – believe it or not, your life is really there.
 
 So that is [that] we are called [buddha nature](glossary#buddha-nature). And also, what is buddha nature? If you want to know psychologically, that is called [*alayavijñāna*](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [*karma*](glossary#karma). 
 
-Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life [in the] \[samsaric](glossary#samsara) world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do you know? In your daily living, you can know. 
+Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life \[in the] [samsaric](glossary#samsara) world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do you know? In your daily living, you can know. 
 
 #### 30:00
 
