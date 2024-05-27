@@ -12,7 +12,7 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-45-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-45-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
 #### 0:00
