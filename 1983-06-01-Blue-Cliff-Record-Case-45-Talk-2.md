@@ -144,7 +144,7 @@ So this is not only [an] emotional problem, but this is a problem of life and de
 
 How? That is sit down. “I’m scared” – that’s alright. Sit down anyway. [If] you really get enlightenment through zazen – that’s alright, anyway sit down. Or “I feel boredom from zazen” – that’s alright, anyway sit down. 
 
-Well, that’s pretty hard practice for us. So that’s why Hsueh Tou says, “How many people can there be who know the weight of this seven-pound shirt?” Because it’s pretty hard. Because that seven pound shirt [is] working individual heart, individual life. It’s very difficult. If you don’t have eyes to see it, you never see. [...]
+Well, that’s pretty hard practice for us. So that’s why Hsueh Tou says, “How many people can there be who know the weight of this seven-pound shirt?” Because it’s pretty hard. Because that seven pound shirt [is] working individual heart, individual life. [...] If you don’t have eyes to see it, you never see [it]. [...]
 
 So anyway, through this actual life, you have to see it. You have to see it. It’s not teaching, or getting something in your hand. Anyway, through your body and mind, you should learn. 
 
@@ -154,9 +154,9 @@ So anyway, through this actual life, you have to see it. You have to see it. It�
 
 > Right now I throw it down into West Lake; ...
 
-“Yes, I understand. I made a shirt, and also that shirt is seven pounds” – that means you can create universal life, so-called tolerance or freedom, and peace and harmony, within the limitation of your life, so-called life and death. You understand this. But, if you really hang on – “I can do it” – you are stuck there. So, if you know this, if you realize “I have a chance to create this universal creative life right in the middle of [my] life, limited by life and death” – at that time, you should throw away your ideas. And then, every day, you have to make your life work. Just like this. Just freely work. 
+“Yes, I understand. I made a shirt, and also that shirt is seven pounds” – that means you can create universal life, so-called tolerance or freedom, and peace and harmony, within the limitation of your life, so-called life and death. You understand this. But, if you really hang on – “I can do it” – you are stuck there. So, if you know this, if you realize “I have a chance to create this universal creative life right in the middle of [my] life, limited by life and death” – at that time, you should throw away your ideas. And then, every day, you have to make your life work, just like this. Just freely work. 
 
-[So,] “Right now I throw it down into West Lake.” We have to throw it away. You can get it, then throw it away. You can get it; throw it away. Otherwise, it’s pretty easy to be stuck. But *throw it away* doesn’t mean to ignore your life and circumstances, or others’ life. Pay careful attention to your and others’ circumstances, and use your head, use your mind, your brains. But, if you get it, please, throw it away, let go of it. And then [...] you think carefully, and get it, and throw it away. That’s always repeating; we have to do it. “Just sit down”: you can get it, but throw it away, and let’s sit again. Get it; throw it away: *that* means *sit down*. [So] get it, throw it away. That is really returning to the one.
+[So,] “Right now I throw it down into West Lake.” We have to throw it away. You can get it, and then throw it away. You can get it; throw it away! Otherwise, it’s pretty easy to be stuck. But *throw it away* doesn’t mean to ignore your life and circumstances, or others’ life. Pay careful attention to your and others’ circumstances, and use your head, use your mind, your brains. But, if you get it, please: throw it away, let go of it. And then [...] you would think carefully, and get it, and throw it away. That’s always repeating; we have to do it. “Just sit down”: you can get it, but throw it away, and let’s sit again. Get it; throw it away: *that* means *sit down*. [So] get it, throw it away. That is really returning to the one.
 
 And then, where does the one return to? That is, “Sit down, right now.” And *then* you can get it, and throw it away. This is return to one, and one returns to this present. 
 
@@ -168,9 +168,9 @@ So (returning to the commentary):
 
 > “Right now I throw it down into West Lake.” Myriad things return to one, but he doesn’t even need the one.  
 
-Even the one, you don’t need. Because if you understand the one, then should you hold [onto] it? No. Because *one* is pretty vast. Even though you try to obey [it], you try to follow it – you don’t know what it is. 
+Even the one, you don’t need. Because if you understand the one, then should you hold [onto] it? No. Because *one* is pretty vast. Even though you try to obey it, you try to follow it – you don’t know what it is. 
 
-Well, some religions say *truth*, or *God*, *divinity*, et cetera. “All sentient beings are made by God, [or] divinity” – it’s fine, it’s fine. And then we never think, “Where does the one return to?” Because it’s untouchable. It’s untouchable because your intellectual sense never reaches it. So [we say], “if you don’t understand, just believe it.” This is fine. But if you think so – well, God, or whatever you say, truth, or divinity, are completely going far from you, because you can see them objectively. Always at a distance. It’s never alive in your life directly. That’s why next moment, anyway, where *is* [the] one? How is *one* alive? We have to think.
+Well, some religions say *truth*, or *God*, *divinity*, et cetera; “all sentient beings are made by God, [or] divinity” – it’s fine, it’s fine. And then we never think, “Where does the one return to?” Because it’s untouchable. It’s untouchable because your intellectual sense never reaches it. So [we say], “if you don’t understand, just believe it.” This is fine. But if you think so – well, even God, or whatever you say, truth, or divinity, are completely going far from you, because you can see them objectively. Always at a distance; it’s never alive in your life directly. That’s why next moment, anyway, where *is* [the] one? How is *one* alive? We have to think.
 
 Well, maybe naturally we can think of it. “How? Where is it? How does it work?” If you just think, “Well, all sentient beings are made by divinity, and only one divinity,” then we can appreciate it, yes, because we completely depend on this one. That is a particular way to project yourself into your object. That is a logical structure of human feeling, how to project itself into your object. 
 
@@ -194,9 +194,7 @@ If you become *tanpankan*, life is simple, okay? Because you just walk on a one 
 
 So Zen practice is not “no merit.” “No merit” is *get it*: because you get it, that’s why Zen has to say “no merit.” “No merit” means you already get merit; that’s why next moment, Zen has to say “no merit,” which means, “let it go.” Anyway – “I’m sorry; let it go.” If you let it go, you can get it – something different; so-called seven pound shirt. You can get it. 
 
-If you jump into the ocean, with [thinking,] carrying the weight of some doubts and fears – anyway, get [an idea] how to swim, how to jump, and jump in. *Jump in* means you should let go of your whole body and mind. To where? The ocean. And then does that mean to commit suicide? No. You can get the seven pound shirt, because the ocean helps you while swimming, simultaneously, even though you don’t know how to. Intellectually you know, but if you jump [in], immediately it helps you. 
-
-So your body and your swimming is really not three pounds, it’s really seven pounds – supported by the ocean and sky, the rhythm of the ocean, and the rhythm of your life. 
+If you jump into the ocean [with thinking], carrying the weight of some doubts and fears... Anyway, get [an idea] how to swim, how to jump, and jump in. *Jump in* means you should let go of your whole body and mind. To where? The ocean. And does that then mean to commit suicide? No. You can get the seven pound shirt, because the ocean helps you while swimming, simultaneously, even though you don’t know how to. Intellectually you know, but if you jump [in], immediately it helps you. So your body and your swimming is really not three pounds, it’s really seven pounds. Supported by the ocean and sky... the rhythm of the ocean, and the rhythm of your life. 
 
 That’s why here it says, “but he doesn’t even need the one.”
 
@@ -210,7 +208,7 @@ Hsueh Tou lived on Mount Tung T’ing, so there was a green lake to the west.
 
 > ... The pure wind of unburdening—to whom should it be imparted?
 
-“The pure wind of unburdening” means the seven pound shirt is universal life, creative life. That is pretty difficult to teach you, to give you as something particular. It’s pretty difficult, but it’s really this teacher’s heart, this teacher’s daily life. So always that is just like a pure wind of unburdening. It’s really just like a cool [breeze] in summer. 
+“The pure wind of unburdening” means the seven pound shirt is universal life, creative life. That is pretty difficult to teach you, to give you as something particular. It’s pretty difficult, but it’s really this teacher’s heart, this teacher’s daily life. So always that is just like a pure wind of unburdening. It’s really just like a cool [breeze] in summer.  
 
 “To whom should it be imparted”: To whom should I give it? How should I give it? Well, you should have eyes, to be ready to get it. At any time, show it. It is living there; that is his life. So if you have eyes to see, you can see it. 
 
