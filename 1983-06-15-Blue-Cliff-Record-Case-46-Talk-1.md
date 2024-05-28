@@ -6,8 +6,9 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1
 
 #### [List](list#1983) \| [Previous](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
+***Archive Issue***: The online audio for this talk is actually from *Blue Cliff Record* Case 43 Talk 2, on the Five Ranks, so this talk is currently not available. 
 
-***Archive Issue***: The online audio for this talk is actually the audio for *Blue Cliff Record* Case 43 Talk 3, so this talk is currently not available. 
+The next talk, “[Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2),” seems to actually be the first talk. And *Blue Cliff Record* Case 46 is also covered extensively in [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4).
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-46-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
