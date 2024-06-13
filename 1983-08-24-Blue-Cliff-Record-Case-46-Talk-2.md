@@ -6,6 +6,10 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2"
 
 #### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
+### Summary 
+
+You can turn your life 360 degrees. 
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
@@ -16,7 +20,7 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2"
 
 #### 0:00
 
-**Katagiri Roshi:** ... the first Ching is exactly C-h-i-n-g, and then C-h - apostrophe - i-n-g. *(He pronounces Ching Ch’ing.)* “Ching Ch’ings Sound of Raindrops.” 
+**Katagiri Roshi:** ... the first Ching is exactly C-h-i-n-g, the second one [is] C-h - apostrophe - i-n-g. *[He pronounces Ching Ch’ing.]* “Ching Ch’ings Sound of Raindrops.” 
 
 The Pointer: 
 
@@ -37,41 +41,47 @@ The Case:
 
 #### 02:30
 
-(Returning to) the pointer:
+[Returning to] the pointer:
 
 > With a single stroke he completes it and passes beyond ordinary and holy. 
 
-This discussion between Ching Ch’ings and the monk about the sound of raindrops... I think in the history of Buddhism... first, I think [...] in the early period of time, when Buddhism was born, almost right after the Buddha’s death, the image of the Buddha was expressed by a kind of story. You know *Jataka* [stories]? It’s very fantastic, a Jataka story: it teaches us [about] the Buddha’s past life, in order to respect how great Buddha’s personality, his life was. In order to admire Buddha’s life, people naturally tried to explain the Buddha through his past life. That is a Jataka story, the Jataka sutra. 
+This discussion between Ching Ch’ing and the monk about the sound of raindrops...
 
-And with more development of Buddhism, the image of Buddha was represented not as a story, [but] as mountains, rivers, and birds... the sound of raindrops... Spring, butterflies, [...] et cetera. So in the Buddhist scriptures, particularly Zen, I think Zen teachers use the trees, birds, and mountains, skies, and moon – nature – to express buddha nature, and Buddha himself. Or enlightenment, et cetera; truth. 
+I think in the history of Buddhism... first, [...] in the early period of time when Buddhism was born, almost right after the Buddha’s death, the image of the Buddha was expressed by a kind of story. You know *Jataka* [stories]? It’s very fantastic, a Jataka story: it teaches us [about] the Buddha’s past life, in order to respect how great Buddha’s personality, Buddha’s life, was. In order to admire Buddha’s life, people naturally tried to explain the Buddha through his past life. That is a Jataka story, the Jataka sutra. 
 
-And in the later period of time, maybe the image of Buddha is represented as a Buddha statue, picture of buddha, photograph of Buddha, et cetera. So, pretty different expression in the history of Buddhist teaching. 
+And with more development of Buddhism, the image of Buddha was represented not as a story, [but] as mountains, rivers, and birds... the sound of raindrops... Spring, butterflies, [...] et cetera. So in the Buddhist scriptures, particularly Zen, I think Zen teachers use the trees, birds, and mountains, skies, and moon – nature – to express buddha nature, and Buddha himself. Or enlightenment, et cetera. Truth. 
 
-So about the sound of raindrops: in this case, raindrops is not the usual raindrops, this is the symbol of buddha nature, the symbol of the truth. In order to express, in order to represent the truth, or buddha nature, or Buddha’s personality, the Zen teacher uses the sound of the raindrops. 
+And in the later period of time, maybe the image of Buddha is represented as a Buddha statue, a picture of buddha, photograph of Buddha, et cetera. So, [there is] pretty different expression in the history of Buddhist teaching. 
 
-So the sound of raindrops is not the usual sound of raindrops. Through the usual sound of raindrops you have to have eyes to see deeply what the truth is, *through* the raindrops. Through the table, through the flowers. That is the point in this case. 
+So about the sound of raindrops: in this case, “raindrops” is not the usual raindrops, this is the symbol of buddha nature, the symbol of the truth. In order to express, in order to represent the truth, or buddha nature, or Buddha’s personality, the Zen teacher uses the sound of the raindrops. 
 
-[...] Through the table, through the sound of the raindrops, through the flowers, through the sound of a stone hitting the bamboo tree [...] You can turn [a new leaf]. You are all of a sudden impressed by the flower of the plum tree, the sound of the stone hitting the bamboo. This is religious transformation. 
+So the sound of raindrops is not the usual sound of raindrops. Through the usual sound of raindrops you have to have eyes to see deeply what the truth is. *Through* the raindrops. Through the table, through the flowers. That is the point in this case. 
 
-You cannot know how you can turn your new leaf. You don’t know how you can turn at 360 degrees of your life. That is not something which occurs through your intellectual understanding. Because between the phenomenal world [or] your life, and the truth, vastness of existence, there is no gap between. No gap. It’s exactly one... [yet] it’s not “mixed up.” But when you try to understand the relationship between your life and the truth or vastness of existence, universal life, at that time you naturally create a gap between. And then you are interested in the gap. How can you stop up that gap? In other words, how [does] truth relate or influence your life. Or you are interested in the point [of] how your life connects [to] or touches the truth, vastness of existence or universal life. You’re very interested. But we don’t know. Because actually, [there is] no gap. 
+“With a single stroke he completes it and passes beyond ordinary and holy”: [As I said,] through the table, through the sound of the raindrops, through the blooming flowers, through the sound of a stone hitting the bamboo tree [...] you can turn [a new leaf]. You are all of a sudden impressed by the flower of the plum tree, the sound of the stone hitting the bamboo. This is religious transformation. 
 
-When they have no gap between, it means they are functioning totally, at superspeed. They are not dead, they are not stagnant water. They are really functioning at superspeed, that’s why no gap between. I told you before, [there are] lots of colors on [a] top, and when the top is spinning, all the colors become one. But all the colors are not mixed up. They are one, but they are not one, each color is completely independent. Only when top is spinning, all colors become one. They are not one, they are separate, independent, but they are one, no gap between. 
+You cannot know how you can turn your new leaf. You don’t know how you can turn at 360 degrees of your life. That is not something which occurs through your intellectual understanding. Because between the phenomenal world [or] your life, and the truth, vastness of existence, there is no gap between. No gap. It’s exactly one... but it’s not “mixed up.” 
 
-That is the picture of reality you live in. That’s why it’s very difficult to understand the ultimate nature of existence – how you can communicate, how you can touch the truth, or how the truth comes to your life. We don’t know. Only when your life is really fully alive, [it works], it’s becoming one. 
+But when you try to understand the relationship between your life and the truth or vastness of existence, universal life, at that time you naturally create a gap between. And then you are interested in the gap. How can you stop up that gap? In other words, how [does] truth relate [to] or influence your life. Or you are interested in the point [of] how your life connects [to] or touches the truth, vastness of existence or universal life. You’re very interested. But we don’t know. Because actually, [there is] no gap. 
+
+When they have no gap between, it means they are functioning totally, at superspeed. They are not dead, they are not stagnant water. They’re not. They are really functioning at superspeed, that’s why no gap between. 
+
+I told you before, [there are] lots of colors on [a] top, and when the top is spinning, all the colors become one. But all the colors are not mixed up. They are one, but they are not one, each color is completely independent. Only when top is spinning, all colors become one. They are not one, they are separate, independent, but they are one, no gap between. 
+
+That is the picture of reality you live in. That’s why it’s very difficult to understand the ultimate nature of existence – how you can communicate, how you can touch the truth, or how the truth comes to your life. We don’t know. But only when your life is really fully alive, [it works], it’s becoming one. 
 
 But still your intellectual sense is very stubborn, so alway analyzing, synthesizing. So in order to refine your consciousness, which is good enough to see the total picture of the functioning process of your life and the truth, [...] that’s why we do zazen. Doing zazen, and studying the Buddha’s teaching – that is really refining your mind. 
 
 So only when they are fully functioning, at that time it is a state of oneness. So that’s why even though you don’t understand when you do zazen, anyway zazen and you must be fully alive. That’s all we have to do. 
 
-And then when the time is ripe, conditions arranged, [which] means when your body and mind are ready to accept that rhythm of the universe and your life, at that time, you can turn your life at 360 degrees – at a moment of time only. That happens in a moment of time only. 
+And then when the time is ripe, conditions arranged, [which] means when your body and mind are ready to accept that rhythm of the universe and your life – at that time, you can turn your life at 360 degrees – at a moment of time only. That happens in a moment of time only. 
 
-Sometimes you can *catch it* immediately. Sometimes you are very impressed by this. You can have a big shock. Sometimes you don’t know when it goes in. It sneaks in very slowly, sometimes. For the long range, you understand, but you don’t know when you realize that one. 
+Sometimes you can *catch it* immediately. Sometimes you are very impressed by this. You can have a big shock. Sometimes you don’t know when it goes in. It sneaks in very slowly, sometimes. For the long range, you understand, but you don’t know *when* you realize that one. 
 
-Sometimes people really experience a big shock. So [there are] various ways to experience that oneness. But whatever experience you have, that experience occurs in a moment of time only. That is a point. That’s why here it says, “with a single stroke he completes it,” exactly. When you hit the drum or case, in a moment of time, that is the time and space which is complete, which you can complete something. That is turn over, your life is really turned over, all of a sudden.
+Sometimes people really experience a big shock. [There are] various ways to experience that oneness. But whatever experience you have, that experience occurs in a moment of time only. That is a point. That’s why here it says, “with a single stroke he completes it.” Exactly. When you hit the drum or case, in a moment of time, that is the time and space which is complete, [in] which you can complete something. That is [to] turn over. Your life is really turned over, all of a sudden.
 
-So that is “with one stroke he completes it.” 
+So that is “with one stroke he completes it...” 
 
-“... and passes beyond ordinary and holy.” We don’t know how, and also we don’t know [if] it is holy or not. Anyway [it is] completely beyond your speculation. Buddha did it? Or some holy power turns your life 360 degrees? No way. No, I don’t think so. You did it? No. No one knows. No one knows; you cannot deal with it, but only when your life is really fully alive – in a moment of time only, again and again, all of a sudden you can experience religious transformation. 
+“... and passes beyond ordinary and holy.” We don’t know *how*, and also we don’t know [whether] it is holy or not. [It is] completely beyond your speculation. Buddha did it? Or some holy power turns your life at 360 degrees? No way. No, I don’t think so. You did it? No. No one knows. No one knows, you cannot deal with it, but only when your life is really fully alive – in a moment of time only, again and again – all of a sudden you can experience religious transformation. 
 
 That is called enlightenment. 
 
@@ -79,11 +89,13 @@ That is called enlightenment.
 
 > His slightest word can break things up, ...
 
-If you experience that, well... your words come up from ... say... vastness of existence which is silent. So from silence, it comes up. That word is really powerful and helpful for you [and] for others. So the slightest hit, the slightest word can break things up. 
+If you experience [this], well... your words come up from... say... vastness of existence, which is silent. So from silence, [your word] comes up. That word is really powerful and helpful for you [and] for others. So the slightest hit, the slightest word can break things up. 
 
 > ... untying what is bound and releasing what is stuck. 
 
-[...] “What is bound” is the intellectual... what would you say... constraint? But “what is stuck” means in this case kind of emotional attachment which is very sticky. It’s pretty hard to cut it off. But more or less, you can practice every day. 
+[...] “What is bound” is the intellectual... what would you say... constraint? But “what is stuck” means, in this case, kind of emotional attachment which is very sticky. It’s pretty hard to cut it off. 
+
+But *more or less*, you can practice every day. 
 
 When I was in college, in the beginning of a college student’s life, at that time it was very hard for me, but toward the end, I was also [having] a hard time. So one day I confessed how hard my life was, so I [talked] to my teacher about my karma, with sort of a sentimental feeling. *[He chuckles.]* I didn’t cry, but almost cried. But he knew my situation came from kind of a little bit sentimental. So he said immediately, “Katagiri, don’t sit on the chair of your karma.” In other words, don’t enjoy. Don’t enjoy sitting on the chair of your karma. Because I explained my karma. Do you understand that?
 
@@ -220,99 +232,109 @@ That is seeing the human world, human beings, with the eyes of the path. That is
 
 #### 46:44
 
-The second [point]: “Explaining sound and form.” Next, you have to understand what the sounds and forms are. That means what the enlightenment, delusion, or ordinary people and bodhisattvas and buddhas, are what they are. What the trees are, what the birds are. If the birds are buddha nature, birds have a kind of lamp of buddha, a kind of “avocado seed”? No. I don’t think so. So buddha means human beings and birds and trees are all the same. That means no particular form of the self. That is equality. That is egolessness. 
+The second [point]: “Explaining sound and form.” Next, you have to understand what the sounds and forms are. That means what the enlightenment [and] delusion – or ordinary people and bodhisattvas and buddhas – are, what they are. What the trees are, what the birds are. 
+
+If the birds are buddha nature, [do the] birds have a kind of lamp of buddha, a kind of “avocado seed”? No, I don’t think so. *Buddha* means human beings and birds and trees are all the same. That means no particular form of the self. That is equality. That is egolessness. 
 
 So, according the *Genjokoan*, Dogen Zenji says, “When the ten thousand dharmas are without self, there are no delusions, no enlightenment, no buddhas, no creatures, no life and no death.” Very naturally, you can see the real picture of the microphone, real picture of the trees. That is really no-self. 
 
 No-self means that everything has a certain reason why they exist. Even devils. Even trees, even birds. They have a reason why they exist, completely beyond human speculation – good or bad, right or wrong. So they exist, exactly. That is called buddha nature. 
 
-So that is no particular prejudice. In terms of a certain idea, individual human understanding, or psychological viewpoint, or physical viewpoint, or biological viewpoint. No. Completely nothing. 
+So that is no particular prejudice – in terms of a certain idea, individual human understanding, or psychological viewpoint, or physical viewpoint, or biological viewpoint. No. Completely nothing. 
 
-So, that is a second point, “explaining sound and form.” 
+So that is a second point, “explaining sound and form.” 
 
 #### 49:22
 
 The third point: “Explaining the mind source.” 
 
-So from this point, the third one is explaining the mind source. [It] means what is the reality we exist. What is the reality we and trees and birds exist. That is the source of existence. The source of you; the source of tree; the source of bird. What is the reality? Is it only open to human beings, or a particular creature? No. Reality is completely beyond human speculation – good or bad, right and wrong, or evaluation, pros and cons, success and failure. This is the real reality you are present in. 
+So from this point, the third one is explaining the mind source: [it] means what is the reality we exist. What is the reality we and trees and birds exist. That is the source of existence. The source of you; the source of tree; the source of bird. What is the reality? Is it only open to human beings, or a particular creature? No. Reality is completely beyond human speculation – good or bad, right and wrong, or evaluation, pros and cons, success and failure. This is the real reality you are present in. 
 
-So according to Dogen’s term, Dogen mentions very simple, “The buddha way transcends being and nonbeing, therefor there are life and death, delusion and enlightenment, creatures and buddhas.” So who you are. You are completely buddha way – means you are completely beyond people’s criticism, or judgement, evaluation. Good or bad, right and wrong. This is the real picture of your life. 
+So according to Dogen’s term[s], Dogen [says] very simply, “The buddha way transcends being and nonbeing, therefore there are life and death, delusion and enlightenment, creatures and buddhas.” So [it is] who you are. You are completely buddha way – means you are completely beyond people’s criticism, or judgement, evaluation. Good or bad, right and wrong. This is the *real* picture of your life. 
 
-So that is really [...].
+So that is really [valuable]. 
 
-That is the third point: “Explaining the mind source.”
+That is the third point, “explaining the mind source.”
 
 #### 51:20
 
 The fourth: “Explaining forgetting feeling.”
 
-If so, fourth, the real reality we exist, the real reality of our lives, the real reality of my type of me, is completely beyond the idea of being or not being, or idea of good or bad, right or wrong. So who I am? I am completely beyond my speculation and your speculation. That means my life is really clear water. 
+If so, fourth, the real reality we exist, the real reality of our lives, the real reality of my type of *me*, is completely beyond the idea of being or not being, or [the] idea of good or bad, right or wrong. So, who am I? I am completely beyond my speculation and your speculation. That means my life is really clear water. But in the clear water, I can live. In the realm of freedom, I can exist. So what kind of life happens? 
 
-But in the clear water, I can live. In the realm of freedom, I can exist. So what kind of life happens? It depends on me; my actions. 
+It depends on *me*; my actions. 
 
-So that’s why ... my action is based on feelings, perceptions, impulses, consciousness. So when the flowers fall, Katagiri feels a little bit sad, because I want to keep the flower blooming constantly. When the weeds grow, I hate it. So this is a very reality. When I create hatred, I drop in, anyway, blood into (black ink) the clear water. This is my actions, this is my life. So it really depends on individual actions, individual life, in motion. Every day. Because basically your life is clear water, beyond good or bad, right and wrong. So-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy.” This is the real reality of your life. 
+My action is based on feelings, perceptions, impulses, [and] consciousness. So when the flowers fall, Katagiri feels a little bit sad, because I want to keep the flower blooming constantly. When the weeds grow, I hate it. This is [something very real]. When I create hatred, I drop black ink into the clear water. This is my actions, this is my life. 
 
-But nonetheless, your individual life is there! What is this? This is really, well, depending on your actions. You can create your own life, depending on your actions. Blue ink, and red ink, black ink sometimes. And then create lots of world. 
+So it really depends on individual actions, individual life in motion, every day. Because basically your life is clear water, beyond good or bad, right and wrong: so-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy.” This is the real reality of your life. But nevertheless, your individual life is there! What is this? This is really depending on your actions. You can create your own life, depending on your actions. Blue ink, and red ink, sometimes black ink. And then [you] create lots of world. 
 
-So that’s why Dogen Zenji says next in *Genjokoan*, “However, ” “The buddha way transcends being and nonbeing, therefor there are life and death, ordinary people and buddhas.” Everyone exists. Beyond good or bad, right or wrong – that’s why can live, because we have everything as a reason why it exists. No comment. Nothing to destroy. This is the peaceful world. “However,” we have to return to human life, anyway. If you are a human being, you have to return to human being, reality. Come back to reality. Wake up, anyway. You cannot stay always [in the] peaceful world, tranquil, silence – no. So you have to come back. Because you create your own life, from moment to moment. So that’s why Dogen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
+So that’s why Dogen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” and everyone exists, beyond good or bad, right or wrong. That’s why can live, because we have everything as a reason why it exists. No comment. Nothing to destroy. [...] This is the peaceful world. “However,” we have to return to human life, anyway. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back. Because you create your own life, from moment to moment. So that’s why Dogen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
 
-So this is reality, this is the fact you experience. Whatever you say, philosophical or psychological, well this is the fact. 
+So this is reality, this is the fact you experience. Whatever you say, philosophical or psychological, well, this is the fact. 
 
-So very naturally, pay careful attention to your feeling, anyway. When the flowers fall, you feel a little bit melancholy – well, pensive. This is you. This is a human being. Don’t destroy this feeling, but don’t stay with it, anyway, for long. If you want to cry, you can cry, but you cannot stay with it for long. Because if you stay with, it means you stop of the sharp blade of the sword. Naturally, your feet are cut. So we have to continue to walk on the blade of the sword. 
+So very naturally, pay careful attention to your feeling, anyway. When the flowers fall, you feel a little bit melancholy, or pensive. This is you; this is a human being. Don’t destroy this feeling – but don’t stay with it for long. If you want to cry, you can cry, but you cannot stay with it for long. Because if you stay with, it means you stop on the sharp blade of the sword, and naturally, your feet are cut. So we have to continue to walk on the blade of the sword. 
 
-That’s why next, “explaining forgetting feeling.” Forgetting feeling means not exactly forgetting. This is kind of a Rinzai type. *[He laughs.]* “Enlightenment, and then next, you have to come back to the human world. But if you come back to the human world, you have lots of emotions, feelings. So *forget it*.” You know? You just keep standing in the Buddha’s world; sharp sword. That’s why Rinzai is very sharp; always very vigorous and vital. 
+That’s why next [there is] “explaining forgetting feeling.” *Forgetting feeling* means not exactly forgetting. This is kind of a Rinzai type (of expression). *[He laughs.]* “Enlightenment, and then next, you have to come back to the human world – but if you come back to the human world, you have lots of emotions, feelings. So *forget it*.” You know? You just keep standing in the Buddha’s world. Sharp sword! That’s why Rinzai is very sharp: always very vigorous and vital. 
 
-But Dogen Zenji is a little bit different, you know? A little bit soft, and very realistic. And also very romantic. *[He chuckles.]* Not the usual romantic, but pretty romantic. High level of romantic. *[He laughs, and people laugh.]* And also very realistic. So Dogen Zenji doesn’t scream. And not vigorous, not enthusiastic, not tough. Very soft. But in the bottom of his life, it’s really strong. Vitality there. Which makes his life continually going, without stop. But it is very quiet way of life. 
+But Dogen Zenji is a little bit different. A little bit soft, and very realistic. And also very romantic. *[He chuckles.]* Not the usual romantic, but pretty romantic. High level of romantic. *[He laughs, and people laugh.]* And also very realistic. 
 
-So anyway, fourth point is “explaining forgetting feelings.” 
+So Dogen Zenji doesn’t scream, and [he’s] not *vigorous*, not *enthusiastic*, not *tough*. Very soft. But in the bottom of his life, it’s really strong vitality there, which makes his life continually going, without stop. But it is [a] very quiet way of life. 
+
+So anyway, the fourth point is “explaining forgetting feelings.” 
 
 #### 58:12
 
-And the fifth: “Explaining preaching.” 
+And the fifth: “Explaining preaching.” That’s why Rinzai is always *spitting* from that “forgetting the feeling.” So [they] immediately scream, and completely ignore human feelings, et cetera – the human world. This is kind of a Rinzai type. I don’t mean it is *wrong*. It’s alright, but...
 
-That’s why Rinzai is always spitting from that forgetting the feeling. So immediately scream, and completely ignore human feelings, et cetera, the human world. This is kind of a Rinzai type. I don’t mean it is wrong; it’s alright. 
+And then Dogen’s way is, finally, he says, “To practice and realize the myriad dharmas by conveying the self to them is delusion. That the myriad dharmas advance and practice and realize the self is enlightenment.” 
 
-And then Dogen’s way, finally, he says, “To practice and realize the myriad dharmas by conveying the self to them is delusion. That the myriad dharmas advance and practice and realize the self is enlightenment.” 
+In other words, “to practice and realize the myriad dharmas by conveying the self to them”: if you want to understand the sound of raindrops, first of all you have to *convey* yourself. I mean, you have to – what would you say – move toward. 
 
-In other words, to practice and realize the myriad dharmas by conveying the self to them – if you want to understand the sound of raindrops, first of all you have to convey yourself... I mean you have to, what would you say, move toward. If you want to make a poem of a pine tree, you have to move toward the pine tree first, initiatively. And then you can practice and realize what the pine tree is in nature. Not only the pine tree; as a whole, you have to understand the pine tree in nature. That means you have to move toward that; you should convey yourself, you should carry yourself toward that pine tree. And then, very naturally, you can practice the pine tree and realize the pine tree. And then next, the pine tree comes up to you. In other words, the pine tree tells you what it is, about the life of the pine tree which you have never seen before. So very naturally you can move there, and then the pine tree moves to you. Simultaneously there is spiritual communion there. At that time, you can compose a poem.
+If you want to make a poem of a pine tree, you have to move toward the pine tree first, initiatively. And then you can practice and realize what the pine tree is, in nature. Not only the pine tree: as a whole, you have to understand the pine tree in nature. That means you have to move toward that; you should convey yourself, you should carry yourself toward that pine tree. And then, very naturally, you can practice the pine tree and realize the pine tree. And then next, the pine tree comes up to you. In other words, the pine tree tells you what it is, [tells you] about the life of the pine tree which you have never seen before. So very naturally you can move there, and then, the pine tree moves to you. Simultaneously there is spiritual communion there. At that time, you can compose a poem.
 
-Just like a mountaineer. If you climb the mountain, you always climb the mountain, and then finally the mountain tells you what the mountain is, what the beauty of the mountain is. So if you do it, constantly the mountain teaches you about your life, about the life of the mountains, about the trees, birds. 
+Just like a mountaineer. If you climb the mountain, you always climb the mountain, and then finally the mountain tells you what the mountain is, what the beauty of the mountain is. So if you do it constantly, the mountain teaches you about your life, about the life of the mountains, about the trees, birds. 
 
-At that time, here it says, “The myriad dharmas advance and practice and realize the self.” In other words, you are draw in by the mountains and birds, trees. If you climb the mountain constantly, without stop, day by day, year after year, you are drawn in by the life of mountains. So that is really great experience. That is so-called total picture of enlightenment. 
+At that time, here it says, “The myriad dharmas advance and practice and realize the self.” In other words, you are draw in by the mountains and birds, trees. If you climb the mountain constantly, without stop, day by day, year after year, you are drawn in by the life of mountains. So that is really great experience. That is so-called *total picture of enlightenment*. 
 
-Before this, you have to come back [to] the fact of human feeling, human warmness. You feel pensive when the flower falls. This is alright. But an important point is, you cannot ignore the feelings, you cannot ignore the human warmness, whatever kind of emotions, you cannot. So anyway return to human life again. And then pay attention to it. [That] means don’t be carried away so much, but don’t stay with it, whatever it is. So all you have to do is, let’s continue practice. What do you mean? Let’s try to move toward [the] destination, so-called buddha. In other words, if you want to compose of poem about nature, you have to move toward nature first, you have to convey yourself to nature. And then nature comes up to you, nature teaches you about your life, about the life of nature. That is called continuous practice; Buddhist practice. And then this is really big enlightenment. 
+Before this, you have to come back [to] the fact of human feeling, human *warmness*. You feel pensive when the flower falls. This is alright. *[He chuckles, just slightly.]*
 
-But sometimes, you don’t know. Not sometimes – always you don’t know, how great it is. But when the time comes, conditions arranged, you can experience something. In a moment of time only. That is experience, religious transformation. Sometimes it’s a big shock, but sometimes it’s very sneaking in. You don’t know when, but if you continue to practice, very naturally, that great enlightenment penetrates your life. 
+But an important point is: you cannot ignore the feelings, you cannot ignore the human warmness, whatever kind of emotions. You cannot. So anyway, return to human life again, and then pay attention to it. [That] means don’t be carried away so much, but don’t stay with it, whatever it is. 
+
+So all you have to do is, let’s continue practice. What do I mean? Let’s try to move toward [the] destination, so-called buddha. In other words, if you want to compose of poem about nature, you have to move toward nature first, you have to convey yourself to nature. And then nature comes up to you, nature teaches you about your life, about the life of nature. That is called continuous practice; Buddhist practice. And then this is really big enlightenment. 
+
+But sometimes, you don’t know. Not sometimes – *always* you don’t know, how great it is. But when the time comes, conditions arranged, you can experience something. In a moment of time only. That is experience, religious transformation. 
+
+Sometimes it’s a big shock, but sometimes it’s very sneaking in. You don’t know when, but if you continue to practice, very naturally, that great enlightenment penetrates your life. 
 
 Alright... do you have questions?
 
 #### 1:04:34
 
-**Question:** Hojo-san? Why do you say that to advance towards things is delusion, when it’s the essential part of our understanding of life? Why does he say – I don’t know his wording on it, but he says to advance toward things is delusion, to let things...
+**Question:** Hojo-san? Why did you say that to advance towards things is delusion, when it’s this essential part of our understanding of life? Why does he say – I don’t know his wording on it, but he says “to advance toward things is delusion, to let things...”
 
 **Katagiri:** Moving toward...
 
-**Same person:** Yeah, moving toward. What does he call that delusion?
+**Same person:** Yeah, moving toward. Why does he call that delusion?
 
-**Katagiri:** Delusion is, in a good sense it’s delusion. [...] Because delusion also has a reason why it exists. Without delusion, you cannot move toward the destination, so-called buddha.
+**Katagiri:** [It’s delusion] in a good sense. [...] Because delusion also has a reason why it exists. Without delusion, you cannot move toward the destination, so-called buddha. So delusion is nice. 
 
-So delusion is nice. So for this, delusion is moving toward. In other words, initiatively, you should act. You should act, you should build up your life. You should take care of your life every day, whatever it is you have. That is delusion. Because you can understand human life. You can understand how strong you are, how weak you are. You understand your life. But it’s delusion because it’s pretty easy for us to be, well, just crashed, or carried away by learning of your life. So in many ways, delusion. 
+So for this, delusion is moving toward. In other words, initiatively, you should act. You should act, you should build up your life. You should take care of your life every day, whatever reason you have. That is delusion. Because you can understand human life. You can understand how strong you are, how weak you are. You understand your life. But it’s delusion because it’s pretty easy for us to be, well, just crushed, or carried away by learning of your life. So in many ways, delusions. 
 
-But delusions are also nothing but entities, as a buddha. So we have to go through the delusions, beings. Going, taking care of human life again and again, initiatively. And then, until your life tells you about your life and about others’ life. So very naturally, you can experience... spiritual communication. 
+But delusions are also nothing but entities, as a buddha. So we have to go through the delusions, beings, [...] taking care of human life again and again, initiatively, until your life tells you about your life and about others’ life. So very naturally, you can experience ... spiritual communication. 
 
 Is that alright?
 
 #### 1:07:11
 
-**Question:** Hojo-san? You mentioned that the beautiful destination that takes place in a moment is a 360 degree turn. I’m just curious whether you mean 360 or whether you mean 180?
+**Question:** Hojo-san? You mentioned that the beautiful destination that takes place in a moment is “a 360 degree turn.” I’m just curious whether you mean 360 or whether you mean 180.
 
-**Katagiri:** 180 is okay.
+**Katagiri:** 180 is okay...
 
 *[Laughter.]*
 
-180 degree is quite moderate experience, you know? Which makes you enjoy. Joyful. But 360 degree: not much excitement. Because you turn, and come back to yourself. So you are very usual guy. You are not a saint. But if you turn your life at 180, you become a saint. Don’t you think so? *[He laughs, and someone, perhaps the questioner, laughs.]* You feel good. 
+180 degree [is a] quite moderate experience, you know? [An experience] which makes you joyful. But 360 degree: not much excitement. Because you turn, and come back to yourself! So you are very usual guy; you are not a saint. But if you turn your life at 180, you become a saint. Don’t you think so? *[He laughs, and someone else laughs.]* You feel good!
 
-But even though you don’t say “I am a saint,” you say, “I am the good spirit of a Zen student,” don’t you think so? If you practice for ten years: *[serious voice]* “I am an advanced student.” *[He laughs.]* 
+Well, even though you don’t say “I am a saint,” you say, “I am the good spirit of a Zen student,” don’t you think so? If you practice for ten years: *[serious voice]* “I am an advanced student.” *[He laughs.]* 
 
 Is that alright? 
 
