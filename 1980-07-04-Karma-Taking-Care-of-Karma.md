@@ -124,6 +124,8 @@ The first one is *contact*; in Sanskrit we say *sparśa*. And second is *feeling
 
 So sparśa is contact *as a whole*. This is very powerful: just like two goats fighting each other with their heads. *[He laughs.]* They’re really bumping into each other; this is *contact*. 
 
+(*Transcriber’s Note:* For another explanation of sparśa, see [“*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2”](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2).)
+
 #### 38:25
 
 So [contact] is really creating a certain function. When it works, like they’re hitting each other, at that time something happens. That is what is called *feeling*: *vedanā*. 
