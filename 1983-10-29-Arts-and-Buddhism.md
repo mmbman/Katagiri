@@ -4,7 +4,7 @@ title: "Arts and Buddhism"
 
 ## October 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
 
 ### Transcript
 
@@ -22,7 +22,7 @@ title: "Arts and Buddhism"
 
 So I said, “I am already living in the United States.” 
 
-So she asked me, “Are you a citizen of America?” 
+She asked me, “Are you a citizen of America?” 
 
 I said, “No, I have permanent residence.”
 
@@ -36,7 +36,7 @@ Actually, if you are Japanese, you have to go back to Japan; that is called “g
 
 So I kept quiet. *[Laughter.]*
 
-Anyway. I don’t know which is my home, but I am coming back. I am already in the United States, and I am very happy to practice again [here].
+Anyway. I don’t know which is my home, but I am coming back. I am already in the United States, and I am very happy to practice again here.
 
 #### 2:05
 
@@ -170,4 +170,4 @@ Yes [it does]. First of all, anyone, if you are interested in – or even if you
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
