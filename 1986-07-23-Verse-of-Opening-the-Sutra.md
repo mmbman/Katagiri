@@ -7,7 +7,7 @@ title: "Verse of Opening the Sutra"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+**This transcript is in draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/gatha-of-opening-the-sutra" target="_blank">Listen to this talk on mnzencenter.org</a>
