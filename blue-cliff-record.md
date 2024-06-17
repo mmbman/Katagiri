@@ -268,8 +268,20 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 
 ---
 
-- Case 46 Talk 1
-- Case 46 Talk 2
+##### [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1)
+###### June 15, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+*This talk is not available due to an error in the online audio archive.*
+
+---
+
+##### [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
+###### August 24, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 - Case 49 Talk 1
 - Case 49 Talk 2
 - Case 50

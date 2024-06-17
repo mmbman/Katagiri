@@ -22,6 +22,8 @@ Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these se
 
 ## Latest Updates
 
+**June 16, 2024:** Posted draft of [“*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2”](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2).
+
 **May 26, 2024:** Updated [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1), especially around the story of Isan’s cow.
 
 **May 8, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) some more, including the summary. 

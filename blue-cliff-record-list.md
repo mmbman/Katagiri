@@ -65,8 +65,8 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*
 - [Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
 - [Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1)
 - [Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2)
-- Case 46 Talk 1
-- Case 46 Talk 2
+- [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1)
+- [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
 - Case 49 Talk 1
 - Case 49 Talk 2
 - Case 50
