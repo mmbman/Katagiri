@@ -38,7 +38,7 @@ So I kept quiet. *[Laughter.]*
 
 Anyway. I don’t know which is my home, but I am coming back. I am already in the United States, and I am very happy to practice again here.
 
-#### 2:05
+#### 1 - 2:05
 
 This time, when I came back, I felt many things from Buddhism in Japan [and] the United States. When I went back to Japan, there are lots of things I would have to think, how or what I should deal with Buddhism in the United States or in Japan. I don’t know exactly what to do, but very naturally I realized that there are many problems, many questions, in American Buddhism. But not only in American Buddhism – in Japanese Buddhism, too. 
 
@@ -90,7 +90,7 @@ That means that there is a sense of negation of human beings, human desires. You
 
 Anyway, Buddhism as a religion, I told you before, gives you perfect peace and harmony, which means something beyond what you have thought [or] you think. So this is maybe a little bit against your human desires, because you don’t understand it. If you don’t understand it, you don’t want to do it, you don’t want to follow. So even though I emphasize that just sitting is perfect peace, why don’t you sit down... if you don’t feel good, you don’t want to do that. Don’t you think so? 
 
-#### 20:30
+#### 1 - 20:30
 
 Well, not only Buddhism as a religion, but whatever you do. 
 
@@ -232,7 +232,7 @@ So lots of questions in Buddhism in the United States. And in Japan too.
 
 Do you have questions? 
 
-#### 18:37
+#### 2 - 18:37
 
 **Question:** Hojo-san? Is the desire for perfect peace and harmony a human desire? 
 
@@ -250,7 +250,7 @@ But real peace, real harmony shouldn’t be seen in terms of life and death, so-
 
 **Katagiri:** Sure... “To know” is already questionable, because to know which we are not different from trees, birds, et cetera, means already you see the trees, birds objectively. That is called “to know”. Alright? It’s not something to know; you must be trees and birds, okay? *[He laughs.]* That’s why it’s very difficult. That’s why we have to continually practice, in your whole life. Otherwise, you always... Buddhism which you have known, or you have felt. It’s pretty good, because you practice it, or you feel it, so being very naturally can be experienced. But it’s not the *real* one. 
 
-#### 22:13
+#### 2 - 22:13
 
 **Question:** Roshi? I have a small message. I talked to C.J. Liu (Chun-Jo Liu) recently, and she’s returned recently from China. Her special interest is the study of Buddhist chants. She’s travelled widely in China over a number of years and on several trips for this purpose. And this time when she was in China she went to western China, and she met there a priest who told her that the Buddhist community in China today is self-supporting, that they are not having to depend on government support now. But what I wanted to mention in particular is that he said that he would like her to convey a message of peace to American Buddhists. 
 
@@ -266,7 +266,7 @@ I don’t know whether it is real peace or not. We have to think of it.
 
 Science is physics and biology. Are modern physics and modern biology developing very well and developing human life? Yes they are... but still it’s questionable. Because we are always using physics and other sciences for the sake of attempt of satisfying human desires constantly. “Better life, better life,” constantly. Yes, it’s very helpful for us, but it’s really questionable. 
 
-#### 25:36
+#### 2 - 25:36
 
 **Question:** But do the two have to be in contradiction?
 
@@ -296,13 +296,13 @@ But it’s pretty easy for us always to be bogged down with one side, one-sided 
 
 So two contradictory aspects means, when you think in the level of human consciousness, everything becomes contradictory. But each of them, basically it’s not contradictory. It’s very harmonious. Trees, birds, wilderness, nature – American, Japanese – the underlying essence is very harmonious. That’s why when we see the human world, why are we always fighting? Why are we fighting each other, killing each other? Just now, you know? 
 
-#### 32:35
+#### 2 - 32:35
 
 **Question:** Hojo-san? I would like to relate a little story which relates to most of what Roshi has talked about today. It’s had a profound affect on me. About three months ago, when I was bowing in South Dakota, I had an experience that was really quite unusual for me. It was a very hot day, and I was very angry. I was bowing in a state where about a total of four people had spoken to me. And I really questioned why I was doing all of this, and I was getting angry, because nobody was paying attention to me. Well, one day this old dirty farmer, who drove up in this old dirty car, came up, and he watched me bow for maybe a couple minutes. And then, when I got up from a bow I looked at him, and he spit out his tobacco onto the road, and he looked at me very angrily and said, “What are you doing?” In much harsher words than that. With my infinite arrogance, I told him that I was bowing for world peace. And he spit out some more tobacco and he looked at me again, and he said, “Why?” My infinite arrogance kicked in again, and I said, “So everyone will be peaceful, and the world won’t blow up.” And as soon as those words came out of my mouth, I knew I had made a mistake. And he looked at me, with the sharpest eyes that I’ve ever seen, and said, “*Who said* they’re going to blow up the world?” And I sat back, like an old car that you see when its tires went flat. And it was *me* who said they were going to blow up the world. Nobody else. I was bowing, not to bow, but for a desire. Call it spiritual olympics, call it world peace, call it what you want to, but it’s still a big desire, not just to bow. 
 
 I don’t really want to explain any more about that story, but I think it relates greatly to what Roshi talked about today. Thank you. 
 
-#### 35:07 end of recording. 
+#### 2 - 35:07 end of recording. 
 
 ---
 
