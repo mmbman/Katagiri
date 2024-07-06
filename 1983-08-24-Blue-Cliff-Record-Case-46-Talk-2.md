@@ -49,7 +49,7 @@ I think in the history of Buddhism... first, [...] in the early period of time w
 
 And with more development of Buddhism, the image of Buddha was represented not as a story, [but] as mountains, rivers, and birds... the sound of raindrops... Spring, butterflies, [...] et cetera. So in the Buddhist scriptures, particularly Zen, I think Zen teachers use the trees, birds, and mountains, skies, and moon – nature – to express buddha nature, and Buddha himself. Or enlightenment, et cetera. Truth. 
 
-And in the later period of time, maybe the image of Buddha is represented as a Buddha statue, a picture of buddha, photograph of Buddha, et cetera. So, [there is] pretty different expression in the history of Buddhist teaching. 
+And in the later period of time, maybe the image of Buddha is represented as a Buddha statue, a picture of Buddha, photograph of Buddha, et cetera. So, [there is] pretty different expression in the history of Buddhist teaching. 
 
 So about the sound of raindrops: in this case, “raindrops” is not the usual raindrops, this is the symbol of buddha nature, the symbol of the truth. In order to express, in order to represent the truth, or buddha nature, or Buddha’s personality, the Zen teacher uses the sound of the raindrops. 
 
@@ -57,25 +57,27 @@ So the sound of raindrops is not the usual sound of raindrops. Through the usual
 
 “With a single stroke he completes it and passes beyond ordinary and holy”: [As I said,] through the table, through the sound of the raindrops, through the blooming flowers, through the sound of a stone hitting the bamboo tree [...] you can turn [a new leaf]. You are all of a sudden impressed by the flower of the plum tree, the sound of the stone hitting the bamboo. This is religious transformation. 
 
-You cannot know how you can turn your new leaf. You don’t know how you can turn at 360 degrees of your life. That is not something which occurs through your intellectual understanding. Because between the phenomenal world [or] your life, and the truth, vastness of existence, there is no gap between. No gap. It’s exactly one... but it’s not “mixed up.” 
+You cannot know how you can turn your new leaf. You don’t know how you can turn at 360 degrees of your life. That is not something which occurs through your intellectual understanding. Because between the phenomenal world [or] your life, and the truth, vastness of existence, there is no gap between. No gap. It’s exactly one. But it’s not “mixed up.” 
 
 But when you try to understand the relationship between your life and the truth or vastness of existence, universal life, at that time you naturally create a gap between. And then you are interested in the gap. How can you stop up that gap? In other words, how [does] truth relate [to] or influence your life. Or you are interested in the point [of] how your life connects [to] or touches the truth, vastness of existence or universal life. You’re very interested. But we don’t know. Because actually, [there is] no gap. 
 
 When they have no gap between, it means they are functioning totally, at superspeed. They are not dead, they are not stagnant water. They’re not. They are really functioning at superspeed, that’s why no gap between. 
 
-I told you before, [there are] lots of colors on [a] top, and when the top is spinning, all the colors become one. But all the colors are not mixed up. They are one, but they are not one, each color is completely independent. Only when top is spinning, all colors become one. They are not one, they are separate, independent, but they are one, no gap between. 
+I told you before, [there are] lots of colors on [a] top, and when the top is spinning, all the colors become one. But all the colors are not mixed up. They are one, but they are not one, each color is completely independent. Only when the top is spinning, all colors become one. They are not one, they are separate, independent; but they are one, no gap between. 
 
 That is the picture of reality you live in. That’s why it’s very difficult to understand the ultimate nature of existence – how you can communicate, how you can touch the truth, or how the truth comes to your life. We don’t know. But only when your life is really fully alive, [it works], it’s becoming one. 
 
-But still your intellectual sense is very stubborn, so alway analyzing, synthesizing. So in order to refine your consciousness, which is good enough to see the total picture of the functioning process of your life and the truth, [...] that’s why we do zazen. Doing zazen, and studying the Buddha’s teaching – that is really refining your mind. 
+But still your intellectual sense is very stubborn, so [you are] always analyzing, synthesizing. So in order to refine your consciousness, which is good enough to see the total picture of the functioning process of your life and the truth, [...] that’s why we do zazen. Doing zazen, and studying the Buddha’s teaching – that is really refining your mind. 
 
-So only when they are fully functioning, at that time it is a state of oneness. So that’s why even though you don’t understand when you do zazen, anyway zazen and you must be fully alive. That’s all we have to do. 
+Only when they are fully functioning, at that time it is a state of oneness. So that’s why even though you don’t understand when you do zazen, anyway zazen and you must be fully alive. That’s all we have to do. 
 
 And then when the time is ripe, conditions arranged, [which] means when your body and mind are ready to accept that rhythm of the universe and your life – at that time, you can turn your life at 360 degrees – at a moment of time only. That happens in a moment of time only. 
 
 Sometimes you can *catch it* immediately. Sometimes you are very impressed by this. You can have a big shock. Sometimes you don’t know when it goes in. It sneaks in very slowly, sometimes. For the long range, you understand, but you don’t know *when* you realize that one. 
 
-Sometimes people really experience a big shock. [There are] various ways to experience that oneness. But whatever experience you have, that experience occurs in a moment of time only. That is a point. That’s why here it says, “with a single stroke he completes it.” Exactly. When you hit the drum or case, in a moment of time, that is the time and space which is complete, [in] which you can complete something. That is [to] turn over. Your life is really turned over, all of a sudden.
+Sometimes people really experience a big shock. [There are] various ways to experience that oneness. 
+
+But whatever experience you have, that experience occurs in a moment of time only. That is a point. That’s why here it says, “with a single stroke he completes it.” Exactly. When you hit the drum or case, in a moment of time, that is the time and space which is complete, [in] which you can complete something. That is [to] turn over. Your life is really turned over, all of a sudden.
 
 So that is “with one stroke he completes it...” 
 
@@ -95,9 +97,9 @@ If you experience [this], well... your words come up from... say... vastness of 
 
 But *more or less*, you can practice every day. 
 
-When I was in college, in the beginning of college student life [...] it was very hard for me, but toward the end I was also [having] a hard time. So one day I confessed how hard my life was; I [explained] to my teacher about my karma. [Well, I had] sort of a sentimental feeling *[he chuckles]* – I didn’t cry, but almost cried. But he knew my situation came from kind of a little bit sentimental. So he immediately said, “Katagiri, don’t sit on the chair of your karma.” In other words, don’t enjoy; don’t enjoy sitting on the chair of your karma. *[He laughs.]* Because I explained how [hard] my karma is. Do you understand that?
+When I was in college, in the beginning of college student life [...] it was very hard for me, but toward the end I was also [having] a hard time. So one day I confessed how hard my life was; I [explained] to my teacher about my karma. [Well, I had] sort of a sentimental feeling *[he chuckles]* – I didn’t cry, but almost cried. But he knew my situation came from kind of a little bit sentimental. So he immediately said, “Katagiri, don’t sit on the chair of your karma.” In other words, don’t enjoy. Don’t enjoy sitting on the chair of your karma. *[He laughs.]* Because I explained how [hard] my karma is. Do you understand that?
 
-You know, if you cry, if you feel sad or melancholy, or if you feel sentimental – well, sentimental is okay, romantic is alright, but if you become sentimental, people don’t notice [that] you are enjoying sitting on the chair of sentimental. Do you understand? But in order to understand sentimental, you have to stand up from the chair of the sentimental, and *then* you can understand *really*, you can be free from. But when you become sentimental, very naturally, we enjoy. We enjoy sitting on the chair of the sentimental.
+You know, if you cry, if you feel sad or melancholy, or if you feel sentimental... well, sentimental is okay, romantic is alright, but if you become sentimental, people don’t notice [that] you are enjoying sitting on the chair of sentimental. Do you understand? But in order to understand sentimental, you have to stand up from the chair of the sentimental, and *then* you can understand *really*, you can be free from. But when you become sentimental, very naturally, we enjoy. We enjoy sitting on the chair of the sentimental.
 
 The problem is we don’t realize that. So very naturally, you really fall into it; your life becomes just like quicksand of the sentimental. So it’s very difficult to get up from that. So that’s why that teacher said, “Katagiri, don’t enjoy sitting on the chair of your karma.” That was a very simple answer, but it was really a strong suggestion for me. I woke up! Really, “My goodness!”
 
