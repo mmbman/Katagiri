@@ -109,7 +109,7 @@ So the words, even the simple words, are very helpful for everyone, if they come
 
 > As if walking on thin ice or running over sword blades, ...
 
-[That] means when you walk on thin ice, if you stop [walking], you can break the ice, so you can fall into the lake. So you cannot stop, you have to continue to move. 
+[That] means when you walk on thin ice, if you stop [walking] you can break the ice, so you can fall into the lake. So you cannot stop, you have to continue to move. 
 
 And also it’s as if “running over sword blades”: if you stop walking, you are walking on the sharp blades of the swords, so your legs are cut in two. 
 
@@ -119,9 +119,7 @@ So you have to continually walk without stopping.
 
 “Sound and form” means this usual human world, created by the six consciousnesses. 
 
-So, we sit within the heaps of sound and form – within the samsaric world – and then you can practice this. How? Just like walking on the thin ice. Continually you should walk. Whatever you feel – scared, or enjoyment – you cannot sit on the enjoyment, et cetera. Whatever you feel, you have to just walk there, without stopping. And [it’s like] just running over swords blades. Anyway, you have to walk constantly there. Where? That is in the human world, the samsaric world. This is really good practice for us. 
-
-That’s why here it says, “... he sits within the heaps of sound and form, he walks on top of sound and form.”
+So, we sit within the heaps of sound and form – within the samsaric world – and then we can practice this. How? Just like walking on the thin ice: continually you should walk. Whatever you feel – scared, or enjoyment – you cannot sit on the enjoyment, et cetera. Whatever you feel, you have to just walk there, without stopping. And [also it’s like] running over swords blades. Anyway, you have to walk constantly there. Where? This is in the human world, the samsaric world. This is really good practice for us. That’s why here it says, “... he sits within the heaps of sound and form, he walks on top of sound and form.” 
 
 So how can you experience religious transformation at 360 degrees? You have to continue to walk and run on the top of the sharp blades of a sword. 
 
@@ -129,13 +127,13 @@ So how can you experience religious transformation at 360 degrees? You have to c
 
 > For the moment I leave aside wondrous functioning in all directions. How is it when he leaves that very instant? 
 
-Well, it’s very difficult to explain how is it when he leaves that very instant. At the very moment of time only, then that is a place and that is a time and space which you can turn over your life 360 degrees. “How is it when he leaves that very instant” – how can you explain this? That’s pretty hard. But here is a case, [an] example. That’s why it says, 
+Well, it’s very difficult to explain how is it when he leaves that very instant. At the very moment of time only, that is a place and that is a time and space which you can turn over your life 360 degrees. “How is it when he leaves that very instant?” – how can you explain this? That’s pretty hard. But here is a case, [an] example. That’s why it says, 
 
 > To test I am citing this old case: look!
 
-But “he leaves that very instant” means without being involved in the idea of the very moment of time you can experience religious transformation. Because it is nothing but practice, continuous practice. Continuous [walking], continuous running, without stop. This is life. 
+But “he leaves that very instant” means without being involved in the idea of the very moment of time [where] you can experience religious transformation. Because it is nothing but practice, continuous practice. Continuous [walking], continuous running, without stop. This is life. 
 
-So if you leave that moment, that moment [in] which you are [always] running, which you are walking constantly, it’s very difficult to explain. Of course we can explain, but it’s very difficult. But here is a good example. That’s why this koan gives us an example. 
+So if you leave that moment, that moment [in] which you are [always] running, [in] which you are walking constantly, it’s very difficult to explain. Of course we can explain, but it’s very difficult. [Yet] here is a good example; that’s why this koan gives us an example. 
 
 #### 27:24
 
@@ -143,7 +141,7 @@ So if you leave that moment, that moment [in] which you are [always] running, wh
 
 This is a very... honest answer. “What sound is that outside the gate?” And then the monk said, “The sound of raindrops.” 
 
-Well, in “the sound of raindrops” [it] means not only the sound of raindrops. You can say anything. “What sound is that outside the gate?” Maybe you can say, “The sound of a snake eating a frog.” Or you can say, “The sound of the blooming flowers.” You can say, “The sound of morning sunlight.” 
+Well, in “the sound of raindrops,” [it] means not only the sound of raindrops. You can say anything. “What sound is that outside the gate?” Maybe you can say, “The sound of a snake eating a frog.” Or you can say, “The sound of the blooming flowers.” You can say, “The sound of morning sunlight.” 
 
 So, in this case, maybe it is the time when rain falls. That’s why the monk said, “The sound of raindrops.”
 
@@ -157,7 +155,7 @@ In Buddhist psychology, whenever your mind works, there are at least five consci
 
 One is *tangibility*. Tangibility means communication with the world; *touch*. That [means] tangibility is kind of one important pole of a house. When you are born in this world, you can communicate with the world, so your life is just like an important pole of the house, supporting the whole structure of the house. So your presence is very important for us. That is called *tangibility*; touching. 
 
-Next, *feeling*. Feeling means receiving your world. So [there are] several kinds of feeling: a physical pleasant feeling or unpleasant feeling, and a mental pleasant feeling or unpleasant feeling, and also mental or physical neutral feelings. This is *receiving*. When you receive the world, immediately your feeling starts [to] work. That is several kinds of work, that is physical unpleasant feeling or pleasant feeling, and neutral feeling, mental pleasant or unpleasant feeling and neutral. So those [start to] work. 
+Next, *feeling*. Feeling means receiving your world. So [there are] several kinds of feeling: a physical pleasant feeling or unpleasant feeling, and a mental pleasant feeling or unpleasant feeling, and also mental or physical neutral feelings. This is *receiving*. When you receive the world, immediately your feeling starts [to] work. That is several kinds of work, that is physical unpleasant feeling or pleasant feeling, and neutral feeling, mental pleasant or unpleasant feeling and neutral. Those [start to] work. 
 
 And next, *perception*, so you can create an image of your object in your mind. That is perception. 
 
@@ -165,7 +163,7 @@ And next, the fourth is *volition*, or *will*. When you receive, and you can exp
 
 Then next, the fifth one is a kind of *spontaneous attention*. So immediately you spontaneously pay attention to your object.
 
-Those find minds *always* work, whatever you do. As long as you are alive, [they] work. Through these five functions of your mind, we can accept, we can understand, we can discriminate, we can separate, we can synthesize, an understanding. 
+Those five minds *always* work, whatever you do. As long as you are alive, [they] work. Through these five functions of your mind, we can accept, we can understand, we can discriminate, we can separate. We can synthesize an understanding. 
 
 (*Transcriber’s Note:* These five consciousnesses or functions of the mind are *sparśa* (contact), *vedanā*  (feeling or reception), *saṃjñā* (perception), *cetanā* (thought), and *citta* (mind). For another presentation on these five, see [“Taking Care of Karma”](1980-07-04-Karma-Taking-Care-of-Karma).)
 
@@ -276,7 +274,7 @@ It depends on *me*; my actions.
 
 My actions are based on feelings, perceptions, impulses, [and] consciousness. So when the flowers fall, Katagiri feels a little bit sad, because I want to keep the flowers blooming constantly. When the weeds grow, I hate it. This is very [real]. When I create hatred, I drop black ink into the clear water. This is my actions, this is *my* life. 
 
-So it really depends on individual actions, individual life in motion, every day. Because basically your life is clear water, beyond good or bad, right and wrong: so-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy.” This is the real reality of your life. But nevertheless, your individual life is there! What is this? This is really depending on your actions. You can create your own life, depending on your actions. Blue ink, and red ink, black ink sometimes. And then [you] create lots [of world]. 
+So it really depends on individual actions, individual life in motion, every day. Because basically your life is clear water, beyond good or bad, right and wrong: so-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy”; this is the real reality of your life. But nevertheless, your individual life is there! What is this? This is really depending on your actions: you can create your own life, depending on your actions. Blue ink, and red ink; black ink sometimes. And then [you] create lots [of world]. 
 
 So that’s why Dogen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live, because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dogen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
 
