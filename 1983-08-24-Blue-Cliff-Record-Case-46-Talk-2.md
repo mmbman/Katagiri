@@ -210,7 +210,7 @@ On page 324, there is a very interesting teaching given by [Yuan Wu in the] seco
 
 > (Ch’ing’s words in the Case) are also called “penetrating sound and form,” ...
 
-Five points here [in] his teaching. 
+[There are] five points here [in] his teaching. 
 
 One point is “explaining the eye of the Path.” 
 
@@ -224,13 +224,13 @@ Fifth, “explaining preaching” – that teaching of [the] process of how you 
 
 #### 42:31
 
-The first one is “explaining the eye of the path.” That means you should have the third eye, that means the eye of the path: deep understanding. In other words, that is your magnanimity, tolerance, patience, effort, [...]. And also wisdom and tranquility. [The] six *paramitas*. That is the eye of the path. 
+The first one is “explaining the eye of the path.” That means you should have the third eye; that means the eye of the path: deep understanding. In other words, that is your magnanimity, tolerance, patience, effort, [...]. And also wisdom and tranquility. [The] six *paramitas*. That is *the eye of the path*. 
 
 With your third eye you have to see the human world. For this, you cannot understand mountains in terms of your views, and you cannot judge it immediately. So you have to be patient, and you have to be magnanimous, to understand total picture of the mountains, including the clouds and skies, human beings, birds, trees, et cetera. For this, you have to continue to practice at least the six *paramitas*.
 
-That is with “the eyes of the path.” At that time, you can understand the whole world, which is buddha. Everything is buddha.
+That is with *the eyes of the path*. At that time, you can understand the whole world, which is buddha. Everything is buddha.
 
-But before you attain enlightenment, how can you understand everything is buddha? So, even though you don’t understand, there is a good example mentioned by buddhas and ancestors: that is the Buddhist scriptures, teaching. So through the teaching, you can see the destination, in which direction you should go. That is the teaching. So through the teaching you should find the destination, which is called *everything is buddha*. That is your destination; you should go [toward it]. 
+But before you attain enlightenment, how can you understand everything is buddha? So, even [if] you don’t understand, there is a good example mentioned by buddhas and ancestors: that is the Buddhist scriptures, [the] teaching. So through the teaching, you can see the destination, in which direction you should go. That is the teaching. So through the teaching you should find the destination, which is called *everything is buddha*. That is your destination; you should go [toward it]. 
 
 So even though you don’t understand, you don’t experience this, actually through the teaching you should find the destination. So you should accept that destination, because this is the destination you have to go [toward]. So that is called *faith*, or belief. Or *receive* and keep it. In the Lotus Sutra, [it] always says “receive and keep, and practice.” So faith is [to] totally accept and receive, receive the Buddha’s teaching. 
 
@@ -258,7 +258,7 @@ The third point: “Explaining the mind source.”
 
 So from this point, the third one is explaining the mind source: [it] means what is the reality we exist. What is the reality we and trees and birds exist. That is the source of existence. The source of you; the source of tree; the source of bird. What is the reality? Is it only open to human beings, or a particular creature? No. Reality is completely beyond human speculation – good or bad, right and wrong, or evaluation, pros and cons, success and failure. This is the real reality you are present in. 
 
-So according to Dogen’s term[s], Dogen [says] very simply, “The buddha way transcends being and nonbeing, therefore there are life and death, delusion and enlightenment, creatures and buddhas.” So [it is] who you are. You are completely buddha way – means you are completely beyond people’s criticism, or judgement, evaluation. Good or bad, right and wrong. This is the *real* picture of your life. 
+So according to Dogen’s term[s], Dogen [says] very simply, “The buddha way transcends being and nonbeing, therefore there are life and death, delusion and enlightenment, creatures and buddhas.” So [it is] who you are. You are completely buddha way – [that] means you are completely beyond people’s criticism, or judgement, evaluation. Good or bad, right and wrong. This is the *real* picture of your life. 
 
 So that is really [valuable]. 
 
@@ -268,15 +268,15 @@ That is the third point, “explaining the mind source.”
 
 The fourth: “Explaining forgetting feeling.”
 
-Fourth: If so, the real reality we exist, the real reality of our lives, the real reality of my type of *me*, is completely beyond the idea of being or not being, or [the] idea of good or bad, right or wrong. So, who am I? I am completely beyond my speculation and your speculation. That means my life is really clear water. But in the clear water, I can live. In the realm of freedom, I can exist. So what kind of life happens? 
+[...] If so – [if] the real reality we exist, the real reality of our lives, the real reality of my type of *me*, is completely beyond the idea of being or not being, or [the] idea of good or bad, right or wrong – so, who am I? I am completely beyond my speculation and your speculation: that means my life is really clear water. But in the clear water, I can live. In the realm of freedom, I can exist. So what kind of life happens? 
 
 It depends on *me*; my actions. 
 
-My actions are based on feelings, perceptions, impulses, [and] consciousness. So when the flowers fall, Katagiri feels a little bit sad, because I want to keep the flowers blooming constantly. When the weeds grow, I hate it. This is very [real]. When I create hatred, I drop black ink into the clear water. This is my actions, this is *my* life. 
+My actions are based on *feelings*, *perceptions*, *impulses*, [and] *consciousness*. So when the flowers fall, Katagiri feels a little bit sad, because I want to keep the flowers blooming constantly. When the weeds grow, I hate it. This is very [real]. When I create hatred, I drop black ink into the clear water. This is my actions, this is *my* life. 
 
 So it really depends on individual actions, individual life in motion, every day. Because basically your life is clear water, beyond good or bad, right and wrong: so-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy”; this is the real reality of your life. But nevertheless, your individual life is there! What is this? This is really depending on your actions: you can create your own life, depending on your actions. Blue ink, and red ink; black ink sometimes. And then [you] create lots [of world]. 
 
-So that’s why Dogen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live, because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dogen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
+So that’s why Dogen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live – because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dogen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
 
 So this is reality, this is a fact you experience. Whatever you say, philosophical or psychological, well, this is a fact. 
 
