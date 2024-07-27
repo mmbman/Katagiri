@@ -282,17 +282,19 @@ So this is reality, this is a fact you experience. Whatever you say, philosophic
 
 So very naturally, pay careful attention to your feeling, anyway. When the flowers fall, you feel a little bit melancholy, or pensive. This is you; this is a human being. Don’t destroy this feeling – but don’t stay with it for long. If you want to cry, you can cry, but you cannot stay with it for long. Because if you stay with, it means you stop on the sharp blade of the sword, and naturally, your feet are cut. So we have to continue to walk on the blade of the sword. 
 
-That’s why next [there is] “explaining forgetting feeling.” *Forgetting feeling* means not exactly forgetting. This is kind of a Rinzai type (of expression). *[He laughs.]* “Enlightenment, and then next, you have to come back to the human world – but if you come back to the human world, you have lots of emotions, feelings. So *forget it*.” You know? You just keep standing in the Buddha’s world. Sharp sword! That’s why Rinzai is very sharp: always very vigorous and vital. 
+That’s why next [there is] “explaining forgetting feeling.” *Forgetting feeling* means not exactly *forgetting*. This is kind of a Rinzai type (of expression). *[He laughs.]* “Enlightenment, and then next, you have to come back to the human world – but if you come back to the human world, you have lots of emotions, feelings. So *forget it*.” You know? You just keep standing in the Buddha’s world. Sharp sword! That’s why Rinzai is very sharp: always very vigorous and vital. 
 
 But Dogen Zenji is a little bit different. A little bit soft, and very realistic. And also very romantic. *[He chuckles.]* Not the usual romantic, but pretty romantic. High level of romantic. *[He chuckles, and people laugh.]* And also very realistic. 
 
-So Dogen Zenji doesn’t scream, and [he’s] not *vigorous*, not *enthusiastic*, not *tough*. Very soft. But in the bottom of his life, it’s really strong vitality there, which makes his life continually going, without stop. But it is [a] very quiet way of life. 
+So Dogen Zenji doesn’t scream, and [he’s] not “vigorous,” not “enthusiastic,” not “tough.” Very soft. But in the bottom of his life, it’s really strong vitality there, which makes his life continually going, without stop. But it is [a] very quiet way of life. 
 
 So anyway, the fourth point is “explaining forgetting feelings.” 
 
 #### 58:12
 
-And the fifth: “Explaining preaching.” That’s why Rinzai is always *spitting* from that “forgetting the feeling.” So [they] immediately scream, and completely ignore human feelings, the human world, et cetera. This is kind of a Rinzai type. I don’t mean it is *wrong*. It’s alright, but...
+And the fifth: “Explaining preaching.” 
+
+That’s why Rinzai is always *spitting* from that “forgetting the feeling.” So [they] immediately scream, and completely ignore human feelings, the human world, et cetera. This is kind of a Rinzai type. I don’t mean it is *wrong*. It’s alright, but...
 
 [...] Dogen’s way is, finally, he says, “To practice and realize the myriad dharmas by conveying the self to them is delusion. That the myriad dharmas advance and practice and realize the self is enlightenment.” In other words, “to practice and realize the myriad dharmas by conveying the self to them”: if you want to understand the sound of raindrops, first of all you have to *convey* yourself. I mean, you have to – what would you say – move toward. 
 
@@ -312,7 +314,7 @@ But sometimes, you don’t know. Not sometimes – always you don’t know, how 
 
 Sometimes it’s a big shock, but sometimes it’s very sneaking in. You don’t know when, but if you continue to practice, very naturally, that great enlightenment penetrates your life. 
 
-Alright... do you have questions?
+All right... do you have questions?
 
 #### 1:04:34
 
