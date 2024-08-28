@@ -22,6 +22,8 @@ Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these se
 
 ## Latest Updates
 
+**August 27, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4).
+
 **August 23, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 3”](1979-06-11-Fukanzazengi-Talk-3).
 
 **June 16, 2024:** Posted draft of [“*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2”](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2).
