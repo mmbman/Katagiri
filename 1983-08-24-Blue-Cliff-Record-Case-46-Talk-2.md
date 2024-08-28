@@ -302,17 +302,15 @@ If you want to make a poem of a pine tree, you have to move toward the pine tree
 
 Just like a mountaineer. If you climb a mountain, you always climb the mountain, and then finally the mountain tells you what the mountain is, what the beauty of the mountain is. So if you do it constantly, the mountain teaches you about your life, about the life of the mountains, about the trees, birds. 
 
-At that time, here it says, “The myriad dharmas advance and practice and realize the self.” In other words, you are draw in by the mountains and birds, trees. If you climb the mountain constantly, without stop, day by day, year after year, you are drawn in by the life of mountains. So that is really great experience. That is so-called *total picture of enlightenment*. 
+At that time, [Dogen] says, “The myriad dharmas advance and practice and realize the self.” In other words, you are drawn in by the mountains and birds, trees. If you climb the mountain constantly, without stop, day by day, year after year, you are drawn in by the life of mountains. So that is really great experience. That is so-called *total picture of enlightenment*. 
 
-Before this, you have to come back [to] the fact of human feeling, human *warmness*. You feel pensive when the flower falls. This is alright. *[He chuckles slightly.]*
+Before this, you have to come back [to] the fact of human feeling, human *warmness*. You feel pensive when the flower falls. This is alright. *[He chuckles slightly.]* But an important point is: you cannot ignore the feelings, you cannot ignore the human warmness, whatever kind of emotions. You cannot. So anyway, return to human life again, and then pay attention to it. [That] means don’t be carried away so much, but don’t stay with it, whatever it is. 
 
-But an important point is: you cannot ignore the feelings, you cannot ignore the human warmness, whatever kind of emotions. You cannot. So anyway, return to human life again, and then pay attention to it. [That] means don’t be carried away so much, but don’t stay with it, whatever it is. 
+So all you have to do is, let’s continue [to] practice. What do I mean? Let’s try to move toward [the] destination, so-called *buddha*. In other words, if you want to compose a poem about nature, you have to move toward nature first, you have to convey yourself to nature. And then nature comes up to you, nature teaches you about your life, about the life of nature. That is called continuous practice; Buddhist practice. 
 
-So all you have to do is, let’s continue practice. What do I mean? Let’s try to move toward [the] destination, so-called buddha. In other words, if you want to compose a poem about nature, you have to move toward nature first, you have to convey yourself to nature. And then nature comes up to you, nature teaches you about your life, about the life of nature. That is called continuous practice; Buddhist practice. And then this is really big enlightenment. 
+And then this is really big enlightenment. But sometimes, you don’t know. Not sometimes – always you don’t know, how great it is. But when the time comes, conditions arranged, you can experience something. In a moment of time only. That is experience, religious transformation. 
 
-But sometimes, you don’t know. Not sometimes – always you don’t know, how great it is. But when the time comes, conditions arranged, you can experience something. In a moment of time only. That is experience, religious transformation. 
-
-Sometimes it’s a big shock, but sometimes it’s very sneaking in. You don’t know when, but if you continue to practice, very naturally, that great enlightenment penetrates your life. 
+Sometimes it’s a big shock, but sometimes it’s very “sneaking in.” You don’t know when, but if you continue to practice, very naturally, that great enlightenment penetrates your life. 
 
 All right... do you have questions?
 
