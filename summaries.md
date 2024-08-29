@@ -30,7 +30,7 @@ Katagiri Roshi expands on the six-component system for understanding zazen that 
 ##### [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
 ###### June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle. He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
+Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle, discussing Hashimoto Roshi’s statement that “if you sit down even for a moment, you become Buddha.” He talks about three different kinds of zazen (sitting meditation), and why shikantaza is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
 
 ---
 
