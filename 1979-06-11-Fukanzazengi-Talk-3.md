@@ -18,19 +18,19 @@ Katagiri Roshi examines the meaning of the line “from the first, dullness and 
 
 #### 0:00
 
-**Katagiri Roshi:** [I want to] say something a little bit more about the subject I talked about yesterday. The subject was, “You must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.” I would like to explain a little more about the same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called [*shikantaza*](glossary#shikantaza).
+**Katagiri Roshi:** [I want to] say something a little bit more about the subject I talked about yesterday. The subject was, “You must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” I would like to explain a little more about the same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called *shikantaza*.
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become [Buddha](glossary#buddha). This was the first impression for me when I was at [Eiheiji](glossary#eiheiji) monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn’t understand the meaning, but I was moved very much by this point: if you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[He chuckles, and there is some mild laughter.]* I was lucky, anyway. If I had had a big head, I couldn’t have accepted it. But I accepted it, totally. I was a lucky guy.
+Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become buddha. This was the first impression for me when I was at Eiheiji monastery, listening to a lecture given by [Hashimoto Roshi](glossary#hashimoto-roshi). I didn’t understand the meaning, but I was moved very much by this point: if you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[He chuckles, and there is some mild laughter.]* I was lucky, anyway. If I had had a big head, I couldn’t have accepted it. But I accepted it, totally. I was a lucky guy.
 
 #### 2:33
 
-Particularly [with regard] to *dullness* and *distraction*: dullness and distraction here are meant to exemplify all kinds of [delusions](glossary#delusion). But according to the [*Abhidharmakosha*](glossary#abhidharmakosha), dullness and distraction are just [two] of the delusions. You can find them [on the list of dharmas] in the *Abhidharmakosha*: thirty-seven and thirty-eight say *dullness* and *distraction*. 
+Particularly [with regard] to *dullness* and *distraction*: dullness and distraction here are meant to exemplify all kinds of delusions. But according to the *Abhidharmakosha*, dullness and distraction are just [two] of the delusions. You can find them [on the list of dharmas] in the *Abhidharmakosha*: thirty-seven and thirty-eight say *dullness* and *distraction*. 
 
-*Dullness* in [Sanskrit](glossary#sanskrit) is [*styāna*](glossary#styāna). The translation says, “torpor, stiffness, or obduracy, stolidity, indifference. [...] Or sluggishness, languor, sloth.” Many translations. 
+*Dullness* in Sanskrit is *styāna*. The translation says, “torpor, stiffness, or obduracy, stolidity, indifference. [...] Or sluggishness, languor, sloth.” Many translations. 
 
-And the other one is *distraction*: they present it in Sanskrit as [*auddhatya*](glossary#auddhatya). That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
+And the other one is *distraction*: they present it in Sanskrit as *auddhatya*. That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
-But in *Fukanzazengi*, the dullness and distraction mentioned by [Dogen](glossary#dogen) are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction [but] all kinds of delusions drop off from the first. This is shikantaza.
+But in *Fukanzazengi*, the dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction [but] all kinds of delusions drop off from the first. This is shikantaza.
 
 First let me say a little bit about the meaning of dullness and distraction. Broadly speaking, dullness and distraction are states where the mind acts reactively, like the swing of a pendulum. The body and mind lose their state of equilibrium in either distraction or dullness, just like a pendulum. 
 
@@ -38,7 +38,7 @@ It is represented as *konsan* in Japanese. *Kon* is dullness. *San* is distracti
 
 The structure of the Chinese letter *kon* consists of two parts: one is *bottom*, the second is the sun. The sun sinks or sets at the bottom: complete darkness. So *kon* or dullness means the state in which the mind becomes gloomy and doesn’t work, as if the sun sets and the surroundings become completely dark. That is the meaning of *kon*, dullness.
 
-*San* is distraction. Distraction is a state in which the mind is [bothered] with troublesome [things] and is entangled. So distraction, broadly speaking, means *relative understanding*: various relative views, relative thoughts, or worldly thoughts. Worldly thoughts means to understand or view something in the [dualistic](glossary#dualistic) world. So if you understand something in the dualistic world, whatever kind of idea or view you can get, it’s a cause of distraction. For instance, good or evil, or neutral; or hard practice, easy practice, or so-so. Whatever kind of idea you get in the dualistic world, it all becomes a cause of distraction. That is the meaning of distraction.
+*San* is distraction. Distraction is a state in which the mind is [bothered] with troublesome [things] and is entangled. So distraction, broadly speaking, means *relative understanding*: various relative views, relative thoughts, or worldly thoughts. Worldly thoughts means to understand or view something in the dualistic world. So if you understand something in the dualistic world, whatever kind of idea or view you can get, it’s a cause of distraction. For instance, good or evil, or neutral; or hard practice, easy practice, or so-so. Whatever kind of idea you get in the dualistic world, it all becomes a cause of distraction. That is the meaning of distraction.
 
 #### 10:27
 
@@ -52,7 +52,7 @@ We can see this kind of practice in the human world – for instance, in busines
 
 But if you reach the other shore, that is [not] the final goal, because even the other shore is also a part of transiency. So the goal you have reached is no longer the goal. Immediately, you have to go back to the first step, you have to do something from *now*. Do you understand? This is very clear; this is human life. We do this. Immediately [the real] goal goes far from you; that’s why the moment that you reach the goal, immediately you don’t feel satisfied; that’s why you want to do something more. So that is [that] desire is endless, just like snowballing. And then finally, we have to die. And then death waits for you. That’s all. This [way] is very common, very common. But I don’t know whether it is [a] real way or not. 
 
-That is one type of zazen. If you do zazen like this, of course, you can attain [enlightenment](glossary#enlightenment). You can completely “weed out.” By arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath, you can reach a certain spiritual stage which is called *calmness* or *tranquility* – which enables you to feel, well, happy, et cetera. 
+That is one type of zazen. If you do zazen like this, of course, you can attain enlightenment. You can completely “weed out.” By arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath, you can reach a certain spiritual stage which is called *calmness* or *tranquility* – which enables you to feel, well, happy, et cetera. 
 
 But, when the circumstances are *changed*, you cannot maintain the calmness and tranquility that you have experienced. Immediately it’s *gone*; so you are very much confused. I know several examples [of this] in the United States. Under certain circumstances, for instance if you are right in the middle of a monastery in Burma, or wherever – you can follow the rules, the strict practice, and you attain enlightenment. But when you come [back] to the United States – it is a completely different situation, okay? A very different situation. And then, the weeds come back. It’s really so. 
 
@@ -60,9 +60,9 @@ Well, I don’t mean it is good or bad, right [or] wrong. We should know that is
 
 #### 19:15
 
-And the second type of zazen is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the [samsaric](glossary#samsara) world in the [Six Realms of Existence](glossary#six-realms-of-existence): hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly on the ground only of *our own property*, and we cherish a feeling of having reached the final goal. In other words, by way of having done our final goal, [we] spent our whole life without considering others’ life.
+And the second type of zazen is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the samsaric world in the Six Realms of Existence: hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly on the ground only of *our own property*, and we cherish a feeling of having reached the final goal. In other words, by way of having done our final goal, [we] spent our whole life without considering others’ life.
 
-So by the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some [Buddhism](glossary#buddhism) says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world. You can stay constantly in heaven. [*Arhats*](glossary#arhat) and many saints in the history of Buddhism showed us [this], they experienced it. That’s why one of the four results of Buddhist practice, what the arhat does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the samsaric world. This is arhat practice. 
+So by the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some Buddhism says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world. You can stay constantly in heaven. *Arhats* and many saints in the history of Buddhism showed us [this], they experienced it. That’s why one of the four results of Buddhist practice, what the arhat does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the samsaric world. This is arhat practice. 
 
 This is also zazen. You can do this. But that is just weeding out on their own territory; that’s all. 
 
@@ -88,7 +88,7 @@ But, if you do shikantaza, dullness and distraction drop off, from the first.
 
 #### 30:12
 
-You know the [karma](glossary#karma) that we did, that we planted in the past. Some karmas were good, some karmas were evil, some karmas were neutral. [There are] many karmas we created in the past. And then those karmas are where? You know pretty well, they are at the bottom of our mind, this body and mind. Karma is here. 
+You know the *karma* that we did, that we planted in the past. Some karmas were good, some karmas were evil, some karmas were neutral. [There are] many karmas we created in the past. And then those karmas are where? You know pretty well, they are at the bottom of our mind, this body and mind. Karma is here. 
 
 So, through your daily living, you can *realize* [that] your present life is influenced by *something else*, which you don’t understand. Well, maybe some people call it karma – [but] only when they realize [that] something [is] wrong. Because only when you realize something [is] wrong, then you really get the chance to reflect upon yourself very seriously. That’s [when] you put a certain label on your life: “That is something wrong. That karma is *wrong*. *Evil* karma.” But actually, the karma [that] exists with you is completely beyond the moral sense of good, bad, or neutral. 
 
@@ -110,7 +110,7 @@ What is “good”? What is a *good* time and occasion, and what is a good condi
 
 This *good* is not the *good* opposed to *evil*. This good is ... *super-good*. The supreme good: beyond good or bad, right or wrong. Such a good seed should be sowed, right now, right here, from day to day. At that time, that good seed is planted in your life, and creates new life. 
 
-We call this [*fukutoku*](glossary#fukutoku) *o tsumu*. *Fukutoku* means “merit and virtue.” *Tsumu* (積む?) means “to accumulate.” So, *to accumulate merit and virtue*: that means sow a good seed. That good seed originates from the intrinsic value of very pure human activities. That is *fukutoku*: merit and virtue. *Fukutoku o tsumu*, we say. 
+We call this *fukutoku o tsumu*. *Fukutoku* means “merit and virtue.” *Tsumu* (積む?) means “to accumulate.” So, *to accumulate merit and virtue*: that means sow a good seed. That good seed originates from the intrinsic value of very pure human activities. That is *fukutoku*: merit and virtue. *Fukutoku o tsumu*, we say. 
 
 But let me say about this, still we don’t understand it. Because, well, why is it that dullness and distraction drop off from the first if you accumulate merit and virtue?
 
@@ -134,7 +134,7 @@ You cannot get the total personality without arranging circumstances or environm
 
 So how can you touch the core of your life, which is called total personality? Total personality is extending to the past, extending to the future; completely beyond human speculation and judgement. How can you touch it? We don’t know, because there are too many [circumstances]: environment, sensory world, movement system, nervous system, brain system, internal organs, and many things.
 
-So, first of all, “let’s sow a good seed” means completely beyond good or bad, right and wrong according to common sense. That means let’s make arrangement of number one, number two, number three, number four, number five. And then finally, there is something left: that is total personality, which is called [buddha nature](glossary#buddha-nature). It appears very naturally. 
+So, first of all, “let’s sow a good seed” means completely beyond good or bad, right and wrong according to common sense. That means let’s make arrangement of number one, number two, number three, number four, number five. And then finally, there is something left: that is total personality, which is called *buddha nature*. It appears very naturally. 
 
 #### 48:46
 
@@ -148,7 +148,7 @@ He has a small passport; that passport is a special passport issued by the gover
 
 And also, if he kills somebody his task is successful, and the government gives asylum to him. He doesn’t want the government, FBI, looking for him, always looking for him. 
 
-But he came here. And I said, “I [would like to] give a Buddha statue [to you].” A statue carved in ivory, from India; so that is wonderful, the Buddha statue. Somebody gave it to me, so I gave it to him: “Please keep this.” And I asked him, “How about this Buddha statue? Can you feel something?” Or, I showed him the [Bodhisattva](glossary#bodhisattva) picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. Because I wanted to know his soft, gentle mind, so I asked, “How do you feel there?” 
+But he came here. And I said, “I [would like to] give a Buddha statue [to you].” A statue carved in ivory, from India; so that is wonderful, the Buddha statue. Somebody gave it to me, so I gave it to him: “Please keep this.” And I asked him, “How about this Buddha statue? Can you feel something?” Or, I showed him the Bodhisattva picture, sitting like this. Do you know, the beautiful picture? Miracle Bodhisattva in Japan, one of the national treasures. Because I wanted to know his soft, gentle mind, so I asked, “How do you feel there?” 
 
 He said, “No. I don’t like it.” 
 
@@ -166,7 +166,7 @@ He said, “No.”
 
 He said, “He’s still suffering.” 
 
-I think so; he’s very sharp! Because Kannon Bodhisattva, [Avalokiteshvara](glossary#avalokiteshvara), is showing Buddha’s compassion. That is completely pure, what is called buddha nature – but we cannot touch it directly. That’s why [we ask] how can we touch that Buddha’s compassion or buddha nature? So let’s touch that Buddha’s compassion through a human shape. That is a bodhisattva. That’s why Avalokiteshvara has a double face: a human body, and also on the other hand, compassion. That’s why he sees suffering. We see suffering in Avalokiteshvara – of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha’s compassion. That is the art of the Buddhist statue. We have to see the double face. 
+I think so; he’s very sharp! Because Kannon Bodhisattva, Avalokiteshvara, is showing Buddha’s compassion. That is completely pure, what is called buddha nature – but we cannot touch it directly. That’s why [we ask] how can we touch that Buddha’s compassion or buddha nature? So let’s touch that Buddha’s compassion through a human shape. That is a bodhisattva. That’s why Avalokiteshvara has a double face: a human body, and also on the other hand, compassion. That’s why he sees suffering. We see suffering in Avalokiteshvara – of course. That is human. But without a human body, a human shape, we cannot find any way to touch the Buddha’s compassion. That is the art of the Buddhist statue. We have to see the double face. 
 
 So, [we find] nothing he likes here. I point out, “How about this,” or, “How about that?” He doesn’t like anything. So finally, right before he left, he stands up here, and he says: “Only this place is very calm. No one sitting here, no one there; only I am here.” He said to me, “Only this place makes me calm, quiet; return to human.” Can you imagine?
 
@@ -178,7 +178,7 @@ For instance, as long as he is standing here, feeling quiet, no one can hit him.
 
 Even [if] you get angry with me, [if] I just sit down here and gassho, can you hit me? Or I smile at you: while I am smiling at you, can you hit me? No. *[He laughs.]* So finally, you smile too. That means anger drops off. Anger drops off while you are smiling.
 
-Little boys in [Green Gulch Farm](glossary#green-gulch): during the mealtime, we shouldn’t say anything, so everybody is quiet. Kids’ delusions drop off very naturally, so the moment when they come into the Green Gulch dining room, all delusions drop off, so they keep quiet. That’s interesting. And then, during the meal, the [Ino](glossary#ino) hit the clapper – *[clap]* – that is the sign of giving permission to talk. So the Ino hit the clapper once, and immediately a little boy said, “Hi!” *[He laughs.]* Immediately he said to me, “Hi!” So I said, “Hi!” *[Laughter.]* This is very interesting.
+Little boys in Green Gulch Farm: during the mealtime, we shouldn’t say anything, so everybody is quiet. Kids’ delusions drop off very naturally, so the moment when they come into the Green Gulch dining room, all delusions drop off, so they keep quiet. That’s interesting. And then, during the meal, the Ino hit the clapper – *[clap]* – that is the sign of giving permission to talk. So the Ino hit the clapper once, and immediately a little boy said, “Hi!” *[He laughs.]* Immediately he said to me, “Hi!” So I said, “Hi!” *[Laughter.]* This is very interesting.
 
 We don’t know how much delusions drop off. No, we don’t realize, we don’t perceive how much they drop away. Because the dropping off is possible only when you feel right now, right here, calm. At that time, no delusions come up – so, immediately you are right in the middle of total personality. You can manifest yourself, just like a lotus flower, blooming. But you don’t perceive [it]. And also, we don’t know how much, we don’t realize what it is – because it’s too quick. Simultaneous. 
 
@@ -200,7 +200,7 @@ That’s why Dogen Zenji says “Universal Recommendation for Zazen” – *Univ
 
 But, when you do it by yourself, it’s pretty hard, because making arrangement is done by your [own] sense, that’s all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. Inwardly means the sensory world, movement system, internal organs, and also the brain and nervous system. We have to arrange them according to a certain [way]. 
 
-And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality – buddha nature. At that time, very naturally, all delusions drop off. Just like a lotus flower blooms through mud water. While the [lotus](glossary#lotus) flower is blooming, mud water exists, but it doesn’t bother us. It’s really appreciated. Lotus flowers just bloom. And then, the mud water drops off, very naturally, and then, whole lotus flowers bloom in the universe. 
+And then if all environments, inwardly and outwardly, are arranged perfectly, immediately there is a blossom which blooms. That is total personality – buddha nature. At that time, very naturally, all delusions drop off. Just like a lotus flower blooms through mud water. While the lotus flower is blooming, mud water exists, but it doesn’t bother us. It’s really appreciated. Lotus flowers just bloom. And then, the mud water drops off, very naturally, and then, whole lotus flowers bloom in the universe. 
 
 That is shikantaza. If you do this, that practice creates merit and virtue, which [will] bloom in the future. In the life after next life, [or] after next, next life, it’s blooming. Yes it is. I promise. Okay? *[He laughs softly.]* I promise.
 
@@ -230,7 +230,7 @@ Okay... Shall I discuss now, or tomorrow, if you have some questions? Tomorrow, 
 
 #### 1:14:57
 
-**Question:** [Roshi](glossary#roshi), what’s the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn’t that the same thing? 
+**Question:** Roshi, what’s the difference between the second kind and the third kind, if our goal becomes to do shikantaza. Isn’t that the same thing? 
 
 **Katagiri:** What is the ... ?
 
@@ -262,7 +262,7 @@ Okay... Shall I discuss now, or tomorrow, if you have some questions? Tomorrow, 
 
 #### 1:18:00
 
-**Question:** Roshi, were you making a distinction between the enlightenment of the arhat versus the enlightenment of the bodhisattva? Doesn’t the arhat attain enlightenment and can then enter [nirvana](glossary#nirvana), but does it for himself or herself, whereas the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it? Is there a distinction there? Sometimes in literature, you see a distinction, [with] the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
+**Question:** Roshi, were you making a distinction between the enlightenment of the arhat versus the enlightenment of the bodhisattva? Doesn’t the arhat attain enlightenment and can then enter *nirvana*, but does it for himself or herself, whereas the bodhisattva, at the point of enlightenment, refuses to enter it unless all sentient beings go along with it? Is there a distinction there? Sometimes in literature, you see a distinction, [with] the bodhisattva ideal being the higher ideal to attain. Was that what you were trying to say? 
 
 **Katagiri:** Uh, bodhisattva practice, yes... Because a bodhisattva says, without re-entering nirvana, they really want to save us, the people, to enter nirvana. That means his practice is really open not only to him, but also to all sentient beings. And also the time [is] not only his present time, but also his past life and his future life, and also his life after next, and after next.
 
@@ -278,7 +278,7 @@ When the Buddha appears, it’s quiet. Nothing – you cannot see it. But a Budd
 
 **Question:** Roshi, is the difference between the second and the third, then, that the second one, there is a goal, and the third, there is in a sense no goal? Is that what you mean?
 
-**Katagiri:** The goal in third type of zazen is *broad*. It’s really broad. That goal is not [only] open to him, his [own] practice, [but] also to others’ practice. [...] It is open to everybody; [it is] everybody’s goal. And also, it’s open to not only the present, but also the past and future – for the long range. The goal is extending through [the three times](glossary#three-times). So it’s huge. We cannot [understand] such a huge goal, because it’s too big. *[He chuckles.]* But, we *are* such a huge goal. So, how can I say it? Let’s [say] that a huge goal blooms with your life. How? By making arrangement of environment. 
+**Katagiri:** The goal in third type of zazen is *broad*. It’s really broad. That goal is not [only] open to him, his [own] practice, [but] also to others’ practice. [...] It is open to everybody; [it is] everybody’s goal. And also, it’s open to not only the present, but also the past and future – for the long range. The goal is extending through the three times. So it’s huge. We cannot [understand] such a huge goal, because it’s too big. *[He chuckles.]* But, we *are* such a huge goal. So, how can I say it? Let’s [say] that a huge goal blooms with your life. How? By making arrangement of environment. 
 
 So finally, we can say the third type of zazen doesn’t have a goal, but it doesn’t mean [there is] no goal. There is a goal, but that goal is *broad*, huge. But in the second type of zazen, the goal is limited by individual views and thoughts. So according to his [own] life, of course, his task, his business, is to succeed. But I don’t know whether it is good for others. So finally, he doesn’t know what to do next. 
  
@@ -324,7 +324,7 @@ So, there are many ways to take one step. Everyone is different and takes one st
 
 Can you see the difference? If you aim at just one step, or if you aim at this shore in the long life, in the time process. From this shore to the other shore, we see this. And then, if you focus on just the goal, and the main purpose of life is to reach this goal, the lifestyle becomes different. Do you understand? It becomes different because you want this goal, and in order to reach this goal, you have to struggle for life. Creating many things, trying to do many things, and [having] successes, failures, and many things. And then you reach the goal, and immediately you have to start to do something again, in order to reach the new goal. So always there is a struggle. While you have *struggling for*, it’s a distraction. This is very common, [the] dualistic world. 
 
-So in modern civilization, we can have a better life. The better life we aim at is sort of a goal. But it’s not a goal, already: it’s still [suffering](glossary#suffering). We suffer from the goal [we have reached]. So still struggling [is] there. That is [really] distraction. 
+So in modern civilization, we can have a better life. The better life we aim at is sort of a goal. But it’s not a goal, already: it’s still suffering. We suffer from the goal [we have reached]. So still struggling [is] there. That is [really] distraction. 
 
 #### 1:31:53
 
@@ -374,7 +374,7 @@ You know that death consists of many moments. Life is the same. Life is also con
 
 But we cannot completely depend on a moment without any name; it’s very difficult, because a moment comes and goes *fast*, that’s why we cannot stand up there. So we *need* cultural background, and we need to know that the beginning of the world, the end of the world, and what’s happened from the beginning of the world are such and such. And then, if our theory is systematized perfectly, we feel relief, because that is something we can depend on. But in the time process, time is not something we can depend on; it’s completely going on. So is life something we have to completely depend on? Yes or no. Life is completely going on. It’s pretty hard.
 
-In [San Francisco](glossary#san-francisco-zen-center), [there was a beautiful lady who] came from England to get married with a young man, a situation where I performed the religious [ceremony] for her. And then they left for their honeymoon. But two weeks later, they died by accident on the freeway. Can you imagine? That was the first funeral service for [Suzuki Roshi](glossary#suzuki-roshi) and I in the United States. Her name is White Rose; he gave the name White Rose....
+In San Francisco, [there was a beautiful lady who] came from England to get married with a young man, a situation where I performed the religious [ceremony] for her. And then they left for their honeymoon. But two weeks later, they died by accident on the freeway. Can you imagine? That was the first funeral service for Suzuki Roshi and I in the United States. Her name is White Rose; he gave the name White Rose....
 
 So of course, life is something you can depend on – but it’s temporary. We cannot depend on it completely. But we cannot ignore life. So temporarily, we have to take care of life, with our best. “With our best” means, temporarily, we have to deal with life. No excuse to escape. 
 
@@ -400,7 +400,7 @@ You don’t like death. But death says, “I will take care of you.” *[He laug
 
 So finally I say, “Okay, okay; that’s up to you.” *[He laughs.]* Completely give up. *[Unintelligible]* Because I, and death, and life, are all the same. Come and go, just the same. 
 
-So, maybe for an arhat, his life is very peaceful, his death is very peaceful. But for a [Zen Master](glossary#zen-master) maybe someone says, “Would you give me some wonderful message for the disciples, because you are dying, please? Leave final words for us.” [The Zen Master] says, “I don’t want to die.” *[He laughs.]* These are the final words for him. That means, *watch out* – you should know the flickering lights, right in the middle of death, tapping your back, always. But it is not bad, it is your life. So, all you have to do is, please die. [Death is] always tapping your back. That’s what [the Zen Master] expressed to him. There is kind of humor, but it is really true.
+So, maybe for an arhat, his life is very peaceful, his death is very peaceful. But for a Zen Master, maybe someone says, “Would you give me some wonderful message for the disciples, because you are dying, please? Leave final words for us.” [The Zen Master] says, “I don’t want to die.” *[He laughs.]* These are the final words for him. That means, *watch out* – you should know the flickering lights, right in the middle of death, tapping your back, always. But it is not bad, it is your life. So, all you have to do is, please die. [Death is] always tapping your back. That’s what [the Zen Master] expressed to him. There is kind of humor, but it is really true.
 
 So, there is no time [to know] whether I can die in peace, or pain and confusion. I don’t know what will happen right before I die. Maybe I will scream, “Help!” *[He laughs, and the group laughs.]* Maybe I will scream, *[unintelligible]* *[Laughter.]* So, no guarantee, no guarantee. But *I know* that; that’s why I cannot ignore my life, my death. But I have to, anyway, move – *[he taps on the lecturn repeatedly]* – take one step, forward, one by one. That’s all I have to do. But even though I take one step, there is no guarantee before and after. That’s all I have to do. 
 
@@ -431,7 +431,6 @@ Well, I pay the money for the life insurance. I really appreciate it. But I don�
 Such delusions come up, always. This is really flickering. But whatever you say – take the insurance or not take the insurance – death comes.
 
 #### 1:51:05 end of recording
-
 
 ---
 

@@ -897,10 +897,6 @@ Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Do
 
 - [Fukanzazengi – Talk 3 (19:15)](1979-06-11-Fukanzazengi-Talk-3#1915)
 
-External links:
-
-- [Wheel of Life Infographic by Kikan](Wheel-of-Life-Infographic.pdf) (20MB PDF File)
-
 ## Skandha
 
 - [Save All Sentient Beings (1:54)](1980-03-15-Save-All-Sentient-Beings#154)
