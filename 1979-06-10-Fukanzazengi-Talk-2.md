@@ -92,7 +92,7 @@ So if you concentrate on *body* and *breath*, that is samadhi. By the help of sa
 
 That egolessness is what is called “having no design of having reward.” [That’s why,] finally, something is left. That something is just activity. That is called *shikantaza*. 
 
-So, this regulation of the mind doesn’t connect with this (*shikantaza*). Of course, it connects, because regulation of the mind is really closely related with number three, regulation of the body. The body and mind are one; that’s why it’s very close. But if you completely practice the regulation of the mind based on *samadhi* and *egolessness* and *no design on having any reward* – at that time, you don’t know; you cannot perceive what total personality is, what [...] buddha nature is. You can experience it, but you don’t know what it is. It doesn’t connect. In a sense it connects, but it doesn’t connect [totally]. So you don’t know what it is.
+So, this regulation of the mind doesn’t connect with this (*shikantaza*). Of course, it connects, because regulation of the mind is really closely related with number three, regulation of the body. The body and mind are one; that’s why it’s very close. But if you completely practice the regulation of the mind based on *samadhi* and *egolessness* and *no design on having any reward* – at that time, you don’t know. You cannot perceive what total personality is, what [...] buddha nature is. You can experience it, but you don’t know what it is. It doesn’t connect. In a sense it connects, but it doesn’t connect [totally]. So you don’t know what it is.
 
 #### 22:51
 
@@ -128,7 +128,7 @@ Although, there are lots of environments. Some environments are connected with y
 
 For instance, we are in America. We don’t know what’s happening in Japan. But Japan is an environment – connected indirectly. Or consciously or unconsciously, everything is connected. 
 
-That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? For instance, Paris? I have never been in Paris. But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
+That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? For instance: Paris? I have never been in Paris. But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
 
 So cut off all things. “Cut off” means put them aside. You cannot destroy them. 
 
@@ -162,7 +162,7 @@ So that’s why the regulation of the mind is very important.
 
 **Question:** Roshi? We talk about and we chant that the natural condition of mind is to be free from clinging. Sometimes I wonder, I’m not clear about, if it’s our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it’s almost impossible to attain it. Why is this called the natural condition in life?
 
-**Katagiri:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience [the] natural [condition], or the basis of ego consciousness, et cetera. But usually, I told you, total personality: through this person, through this *you*, we can see the total personality. 
+**Katagiri:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience [the] natural [condition], or the basis of ego consciousness, et cetera. But usually, I told you, *total personality*: through this person, through this *you*, we can see the total personality. 
 
 In a sense, according to the common sense – you know, consciousness, our sense, our mind – I can “smell” you. Or, I can smell myself. That is a “stink,” in a bad sense; but in a good sense, it’s pretty good. So the total personality shows you the judgement, good or bad. But that good or bad is something you understand through consciousness. 
 
@@ -174,9 +174,11 @@ So it’s pretty easy, in a sense. But in a sense, according to the six consciou
 
 So basically, it’s very easy: just do it. Just, proper posture. But it’s not easy, because you already have your own posture, and also you already have your [own] sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why, if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
 
-**Same person:** In terms of the senses, it seems like zazen is *not* natural. It seems like [...] when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. *[Katagiri Roshi laughs.]*
+**Same person:** In terms of the senses, it seems like zazen is *not* natural. It seems like [...] when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. 
 
-**Katagiri:** It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. Physical pain is in the mind, up here. Even though it is natural.
+**Katagiri:** *[Laughs.]*
+
+It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. Physical pain is in the mind, up here. Even though it is natural.
 
 #### 40:42
 
@@ -184,7 +186,7 @@ So basically, it’s very easy: just do it. Just, proper posture. But it’s not
 
 **Katagiri:** Well, if you see the sleep, it’s not right, but it’s not wrong. 
 
-**Same person:** (This is still mostly unintelligible on the recording.) But I mean, in terms of regulation... If it seems as if you are experiencing something that’s tranquil ... There’s some effects of that... You want to have that happen again. But isn’t that the purpose of regulating everything, in order to have everything working smoothly?
+**Same person:** *(This is still mostly unintelligible on the recording.)* But I mean, in terms of regulation... If it seems as if you are experiencing something that’s tranquil ... There’s some effects of that... You want to have that happen again. But isn’t that the purpose of regulating everything, in order to have everything working smoothly?
 
 **Katagiri:** Regulating is not to control. Basically, we have to regulate what? Body and breath. These are something that have to do to the minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, many things. But they are just a [bump]. Our mind attaches to it, if you see that “oh, that’s good,” “that’s bad.” But without mind, if you let it go, just [a bump]. Come back. If you see the sleep, just sleep: “Oh, it’s sleep.” If you realize. Awareness is important, okay? And then, [adjust]. That’s why there is number three, regulation of the body: sitting in the proper way, immobile. It means, sitting with the body and also mind, which leads you to awaken totally [to anything].
 
@@ -248,7 +250,7 @@ That’s a point, but in daily living, it’s a little different. For instance, 
 
 **Question:** Well, how does this compare with... Let’s say if you read Kapleau Roshi’s books, and a Rinzai approach is to just force yourself continually to break through and find some kind of enlightenment. Do you see any merit in that, or are you saying that that isn’t necessary? 
 
-**Katagiri:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, [this and that], samadhi, you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen: through zazen you have to attain enlightenment, that’s why the teachers push you so hard. That means, you are Buddha but you are not Buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the dualistic world. And also zazen is seen in the dualistic world. 
+**Katagiri:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, [this and that], samadhi, you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen: through zazen you have to attain enlightenment, that’s why the teachers push you so hard. That means, you are buddha but you are not buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the dualistic world. And also zazen is seen in the dualistic world. 
 
 Of course, it is okay. But the final stage is not that zazen and subject and object should be seen in the dualistic world. We have to take care of subject and object according to *total personality*. We have to settle ourselves in total personality, from the beginning to end. 
 
@@ -374,7 +376,7 @@ I don’t know other teachers, so, I just follow the, well, Buddhistic sense. Th
 
 **Another person:** You just get used to it because you’re [up there]...
 
-**Katagiri:** That’s why I told you, well, “open to everybody” is not always good – because you cannot say it in that way. Katagiri is a different teacher from others – it seems to be good, but it seems to be not good. I don’t know, *really*, what to do. So, whatever you say: “okay”. But I have to do it.
+**Katagiri:** That’s why I told you, well, “open to everybody” is not always good – because you cannot say it in that way. Katagiri is a different teacher from others – it seems to be good, but it seems to be not good. I don’t know, *really*, what to do. So, whatever you say: “okay.” But I have to do it.
 
 #### 1:12:12
 
@@ -420,11 +422,11 @@ That’s why we have to [continually] practice *no design of having reward*. It�
 
 For instance, if you sit zazen *[strain in voice]* *too hard*, like this – you can’t breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe; immediately, it influences your breath. So you have to check: your body, your posture, and also your mind. Is that okay?
 
-**Same person:** Well what if you check them all out and you still can’t breathe and don’t know why...
+**Same person:** Well, what if you check them all out and you still can’t breathe and don’t know why...
 
 **Katagiri:** For instance, what happens with your breath? You can’t breathe? You mean smoothly, or ... ?
 
-**Same person:** Well I can breathe enough to stay alive, I just can’t breathe from here up. It just – doesn’t come. So it’s very hard to find any equilibrium for a long time. You know, it doesn’t expand, it just goes “bleh” ...
+**Same person:** Well, I can breathe enough to stay alive, I just can’t breathe from here up. It just – doesn’t come. So it’s very hard to find any equilibrium for a long time. You know, it doesn’t expand, it just goes “bleh” ...
 
 **Katagiri:** Hmm. Did you check your posture? If you change the posture: sometimes relax, sometimes a little tension; sometimes straighten more your back and straighten more your head; or sometimes, a little bit adjust your lower abdomen, et cetera. And then take a breath. In many ways, change the posture a little bit, and then breathe. Try, okay? 
 
@@ -444,13 +446,13 @@ For instance, if you sit zazen *[strain in voice]* *too hard*, like this – you
 
 **Different person:** If you have a very good teacher, always you feel like there’s something lacking in yourself. You are living up to that great calligraphy. 
 
-**Katagiri:** Ah, ah. I see. Right, right. Dogen Zenji says that in [*Genjokoan*](topics#genjokoan), he always says [that]. So that’s why you don’t understand this. So, lack of “achievement.”
+**Katagiri:** Ah, I see. Right, right. Dogen Zenji says that in [*Genjokoan*](topics#genjokoan), he always says [that]. So that’s why you don’t understand this. So, lack of “achievement.”
 
 **Question:** You’d rather keep doing... 
 
 **Katagiri:** Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* But how do you keep doing? That [depends on your] practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens [...] then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally, in the practice of calligraphy? That is very important.  
 
-For instance in my life at the temple, the circumstances [in] my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of calligraphy.” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D”; always. Well he [didn’t] always say that to me, but I had *nothing*, no idea of Buddhism as a monk or as a priest. So if I thought of the future, I was very scared. I wondered, “Can I do that? No, I can’t do it.” 
+For instance, in my life at the temple, the circumstances [in] my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of calligraphy.” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D...” always. Well he [didn’t] always say that to me, but I had *nothing*, no idea of Buddhism as a monk or as a priest. So if I thought of the future, I was very scared. I wondered, “Can I do that? No – I can’t do it.” 
 
 But, no way, I could not escape, so [I thought,] “Let’s do it.” So I started to practice calligraphy by myself. My teachers took a nap from twelve to one, because in the summer it was very hot and humid. At noon, everybody took a nap, in the country. So instead of taking a nap, I practiced, by myself. [I thought], “Continue; it’s good for me.”
 
