@@ -57,9 +57,9 @@ That is what Dogen Zenji says. So [the first point is], if you do zazen accordin
 
 But actually, we don't do zazen like this. Zazen is used as a means. 
 
-At that time, you accept yourself as an immature person. And then through zazen you want to reach a certain higher level, which is called a mature level of human life, seen in the future. At that time, the present life is immature or unhappy. That's why you want to practice zazen. 
+At that time, you accept yourself as an immature person. And then through zazen you want to reach a certain higher level, which is called *a mature level of human life*, seen in the future. At that time, the present life is immature or unhappy. That's why you want to practice zazen. 
 
-So at that time, zazen is completely a means to an end. That means you already accept your life [as] not sublime. Your life is unhappy. [...] If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. 
+So at that time, zazen is completely a means to an end. That means you already accept your life [as] not sublime, your life [as] unhappy. [...] If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. 
 
 But no matter how long you do zazen like *this*, it's very difficult to realize real peaceful, harmonious life. Because at that time zazen is a means. *Means* means you are already creating something as a fixed idea. But [the] end itself is just actual movement-activity, which is called zazen. 
 
@@ -73,15 +73,15 @@ That is *shikantaza* – very naturally.
 
 Psychologically speaking, there are several component factors in living. 
 
-One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts. We have lots of guts. (*Transcriber’s Note:* In subsequent talks, this is referred to as the *internal organ system*.) And also, the *brain-nerve system*.
+One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts. We have lots of guts. And also, the *brain-nerve system*. (*Transcriber’s Note:* In subsequent talks, the *gut system* is referred to as the *internal organ system*.)
 
-So [there are] circumstances and also the sensory system. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
+So [there are] *circumstances* and also the *sensory system*. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
 
-The movement system is [that] through your body and mind, by getting the lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
+The *movement system* is [that] through your body and mind, by getting the lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
 
-And also, the gut system: you have lots of guts. 
+And also, the *gut system*: you have lots of guts. 
 
-And next is the brain-nerve system. 
+And next is the *brain-nerve system*. 
 
 And one more thing: that is *total personality*. 
 
@@ -111,13 +111,13 @@ Karma is completely beyond good or bad, right and wrong, but simultaneously karm
 
 When I became a monk and went to a monastery, at that time monastic life was completely blooming for me. So it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. Some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] But for me, it was wonderful. 
 
-And on the other hand, I felt wonderful, but on the other hand, people called me crazy. Of course, maybe so! According to indulgence, maybe the [hard practice] was crazy, it [might be] crazy. But I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
+And on the other hand, I felt wonderful, but people called me crazy. Of course, maybe so! According to indulgence, maybe the [hard practice] was crazy, it [might be] crazy. But I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
 
 On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it in that way? Why are you in the monastery? You want to be lazy in the monastery? You want to learn laziness? Well of course it's okay, but what is the purpose? *Why*? Why are you here?” I didn't understand why they didn’t care.
 
-On the other hand, the same applied to me: “Why are you practicing hard in that way?” I don't know.
+[And] on the other hand, the same applied to me: “Why are you practicing hard in that way?” I don't know.
 
-From this point, in everyday life, we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense not understandable. So, life is pretty [big]. 
+From this point, in everyday life, we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense *not* understandable. So, life is pretty [big]. 
 
 That is called *karma*; that is called *buddha nature*. We don't understand, because the present – your life – comes from beginningless past, endless future. [We should be there]. And finally, we should accept this and we must be *present* there, constantly on the big tree. This is [the] core. Psychologically speaking, this is *total personality*.
 
@@ -167,7 +167,7 @@ Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, 
 
 (*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe; see [*The Heart of Dogen's Shobogenzo* (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
 
-That is the brain-nerve system. According to the brain-nerve system, we have to regulate the mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
+That is the brain-nerve system. According to the brain-nerve system, we have to regulate mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
 
 *[Tape change.]*
 
@@ -185,27 +185,27 @@ So finally, you don't know what to do. Whatever kind of delusion, [either] dulln
 
 So finally, we have to practice regulating the mind. That regulation of the mind is the practice of *egolessness*. 
 
-But how can you practice egolessness? Dogen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of Buddha.” That means, you should throw yourself away to... something. That *to something* is to your object. But this object is not merely an object, this is the house of the Buddha. 
+But how can you practice egolessness? Dogen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of buddha.” That means, you should throw yourself away to... something. That *to something* is to your object. But this object is not merely an object, this is the house of the buddha. 
 
-So first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is Buddha. So to throw away yourself into this book means to throw away yourself into the house of Buddha. That means deal with the book as well as dealing with your life. So you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something. 
+So first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is buddha. So to throw away yourself into this book means to throw away yourself into the house of buddha. That means deal with the book as well as dealing with your life. So you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something. 
 
 So that is egolessness. 
 
-And also, if you throw yourself away, your body and mind, into the house of the Buddha, at that time, Dogen Zen Master says:
+And also, if you throw yourself away, your body and mind, into the house of the buddha, at that time, Dogen Zen Master says:
 
-> When functioning comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.
+> When functioning comes from the direction of the buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become buddha. Then there can be no obstacle in any one's mind.
 
-[That] means if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very naturally; simultaneous. 
+[That] means if you throw away yourself into the house of buddha, that is nothing but expressing the original nature of existence. Very naturally; simultaneous. 
 
 So, here is zazen. If you see zazen and you separately, that is a situation in which you can create the discriminatory world, the dualistic world. “I like zazen,” “I don't like zazen,” whatever you say – that is the dualistic world. So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, [as I told you], you should take care of zazen, with egolessness.
 
 At that time, the practice of egolessness is to throw away yourself into zazen, perfectly in the [flow of] zazen. Offer your body and mind to zazen completely. At that time, there is no-self. No self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
 
-So that egolessness, based on the spirit of throwing away, offering yourself into zazen, is based on the help of *samadhi*. [You can only] throw away into zazen; at that time, you cannot do it without samadhi: one-pointedness.
+So that egolessness, based on the spirit of throwing away, offering yourself into zazen, is based on the help of *samadhi*. [You can only] throw away into zazen; at that time, you cannot do it without *samadhi*: one-pointedness.
 
 If you want to practice samadhi, one-pointedness, you have to arrange circumstances. Cease all affairs, and all involvements. There is no chance to *involve* in the sound of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is samadhi. If you practice samadhi, if you are right in the middle of samadhi, very naturally there is the practice of egolessness, because you can offer yourself to zazen. 
 
-So, it’s a very simple practice. And then, if you offer yourself, and then after that there is no design on becoming a Buddha or expecting a reward, et cetera, at that time this practice is exactly to manifest the original nature of the Buddha: [existence].
+So, it’s a very simple practice. And then, if you offer yourself, and then after that there is no design on becoming a Buddha or expecting a reward, et cetera, at that time this practice is exactly to manifest the original nature of the buddha: [existence].
 
 #### 56:36
 
@@ -219,7 +219,7 @@ The young kids are listening to the radio and also studying and also trying to a
 
 How can you throw away? *Simplify*. You should simplify your activity, [simplify the relationship with] yourself and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. [...] How can you simplify? Let's practice *samadhi*. Samadhi is one-pointedness. If you practice one-pointedness, there is *egolessness*. Let egolessness simplify your life. [Manifest simplicity,] simplify your life. Because [then] you can offer yourself into the object: zazen, and study, et cetera. 
 
-And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha nature. And then this total personality, which is called Buddha, is completely perfect and all-pervading. Dogen Zenji says, “The origin of the way is perfect and all-pervading.” 
+And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha nature. And then this total personality, which is called buddha, is completely perfect and all-pervading. Dogen Zenji says, “The origin of the way is perfect and all-pervading.” 
 
 And also, “manifesting the original nature of existence.” If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain [and] nervous system, very naturally you can practice samadhi, you can offer yourself into [zazen], and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
