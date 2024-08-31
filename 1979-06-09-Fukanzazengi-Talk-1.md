@@ -17,25 +17,25 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s 
 
 #### 0:00
 
-**Katagiri Roshi:** The last sentence of the main subject of [*Fukanzazengi* – Universal Recommendation for Zazen](glossary#fukanzazengi) – says:
+**Katagiri Roshi:** The last sentence of the main subject of *Fukanzazengi* – Universal Recommendation for Zazen – says:
 
-> For you must know that just there, in [zazen](glossary#zazen), the right [dharma](glossary#dharma) is manifesting itself, and that from the first, [dullness](glossary#dullness) and [distraction](glossary#distraction) are struck aside.
+> For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.
 
 This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means [that if you do zazen,] the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside.” From the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. 
 
-This is [the real] meaning of [shikantaza](glossary#shikantaza). It is pretty difficult to understand, but this is really true, which you experience in your daily living. [...] Life is really based on this teaching. 
+This is [the real] meaning of *shikantaza*. It is pretty difficult to understand, but this is really true, which you experience in your daily living. [...] Life is really based on this teaching. 
 
 When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside.” Because you are manifesting yourself as you really are, from moment to moment – in other words, you can stand up straight, right now, right here. But that means you can manifest *yourself*, so if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
 
 Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion in your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. 
 
-If you really want anger to go away very naturally, all you have to do is, you must be [...] a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the [Bodhisattvas](glossary#bodhisattva), you pray to [Avalokiteshvara](glossary#avalokiteshvara): “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the [Buddha](glossary#buddha), or Bodhisattva Avalokiteshvara, [Manjushri](glossary#manjushri), or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
+If you really want anger to go away very naturally, all you have to do is, you must be [...] a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the Bodhisattvas, you pray to Avalokiteshvara: “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the Buddha, or Bodhisattva Avalokiteshvara, Manjushri, or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
 
 But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
 
 But when you do zazen, or when you pray to the gods, “Please help me” – even though you don't know how to deal with anger, you pray to the gods, “Please help me” – why do you pray to the gods? Does God help you? Does God take away your anger? I don't think so. 
 
-Or, [maybe] you believe God really takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, [a] buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
+Or, [maybe] you believe God really takes away your anger. Well, in a sense you believe it, but actually, intellectually, you don't believe it, because anger is still anger even though you pray to the gods, even though you pray to the bodhisattvas. Avalokiteshvara is very nice, a bodhisattva expressing compassion, Buddha's compassion. But even though you pray to the gods or bodhisattvas, still there is anger. 
 
 So you don't believe – but in a sense you believe. Finally you don't know why you are doing it in that way. Finally you say, “I just pray, because I don't know what to do.” So you pray to the bodhisattvas: “Avalokiteshvara, please.” Sit down in front of Avalokiteshvara, make your mind calm, and pray. 
 
@@ -47,13 +47,13 @@ That is our life, okay?
 
 So we have a practice of bowing [to] Buddha. Bowing [to] Buddha is to express the deepest appreciation to your existence: how sublime life is, how important your life is. 
 
-But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. Even if you understand, that is just a speck of dust of understanding of the human world. So actually, you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? Let’s bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
+But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. Even if you understand, that is just a speck of dust of understanding of the human world, so actually, you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? Let’s bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
 
-Before you bow, you must be *you* who has already accepted your life, how sublime [your life] is. And then that's why you can bow. There is no ego understanding, [ego consciousness](glossary#ego-consciousness), or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
+Before you bow, you must be *you* who has already accepted your life, how sublime [your life] is. And then that's why you can bow. There is no ego understanding, ego consciousness, or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
 
 So to bow is simultaneously to accept the sublimity of life. So very naturally, ego consciousness from the first is struck aside. 
 
-That is what [Dogen Zenji](glossary#dogen) says. So [the first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
+That is what Dogen Zenji says. So [the first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
 
 But actually, we don't do zazen like this. Zazen is used as a means. 
 
@@ -63,7 +63,7 @@ So at that time, zazen is completely a means to an end. That means you already a
 
 But no matter how long you do zazen like *this*, it's very difficult to realize real peaceful, harmonious life. Because at that time zazen is a means. *Means* means you are already creating something as a fixed idea. But [the] end itself is just actual movement-activity, which is called zazen. 
 
-So just *do* zazen. *Do zazen* means you are present from moment to moment within the actual dynamic working which is called *doing zazen*. Becoming one with doing zazen, not seeing zazen [...] objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the [dualistic](glossary#dualistic) world. 
+So just *do* zazen. *Do zazen* means you are present from moment to moment within the actual dynamic working which is called *doing zazen*. Becoming one with doing zazen, not seeing zazen [...] objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the dualistic world. 
 
 The important point is, you must accept zazen as total activity, which is vividly alive from moment to moment. Even though you don't understand what zazen is, accept zazen, which means, *do* zazen. Even though you don't understand how sublime your life is, anyway, bow to the Buddha. If you bow to the Buddha, selfish understanding from the first is struck aside. 
 
@@ -85,7 +85,7 @@ And next is the brain-nerve system.
 
 And one more thing: that is *total personality*. 
 
-*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. There is [Katagiri](glossary#katagiri): that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is *total* personality. 
+*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. There is Katagiri: that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is *total* personality. 
 
 But *my* personality is something *I* can create, after my birth. But this is kind of *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can’t] create. So I have carried my personality from before my birth; this is maybe my parents, and also maybe I have carried [it] from [...] my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
@@ -103,9 +103,9 @@ That is really a “stink.” [...] But where does that stink of Katagiri come f
 
 You have to believe this. Well – believe it or not, your life is really there.
 
-So that is [that] we are called [buddha nature](glossary#buddha-nature). And also, what is buddha nature? If you want to know psychologically, that is called [*alayavijñāna*](glossary#alayavijñāna) in Buddhist psychology. Or sometimes, [primitive Buddhism](glossary#primitive-buddhism ) says that is [*karma*](glossary#karma). 
+So that is [that] we are called *buddha nature*. And also, what is buddha nature? If you want to know psychologically, that is called *alayavijñāna* in Buddhist psychology. Or sometimes, primitive Buddhism says that is *karma*. 
 
-Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life \[in the] [samsaric](glossary#samsara) world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do you know? In your daily living, you can know. 
+Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life \[in the] samsaric world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do you know? In your daily living, you can know. 
 
 #### 30:00
 
@@ -175,13 +175,13 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 #### 46:44
 
-So Dogen says “do not think good or bad, right and wrong” because we have to regulate [the] mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of [*egolessness*](glossary#egolessness); selflessness. 
+So Dogen says “do not think good or bad, right and wrong” because we have to regulate [the] mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of *egolessness*; selflessness. 
 
 If your mind really attaches to good or bad, or neutral, immediately here are thoughts, views, wishes. And thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, [stopping]. [But] even though you can stop for a while, you cannot stop always, so you start to move to the right, to the left again. That is the dualistic world. 
 
 Finally, you don't know *what* to do; and you are really disappointed [in your life]. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, [Dogen Zenji says,] there is *distraction*. Distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. 
 
-So finally, you don't know what to do. Whatever kind of [delusion](glossary#delusion), [either] dullness or distraction, both distract your activities, [...] your life. Settling yourself in the self is very difficult. 
+So finally, you don't know what to do. Whatever kind of delusion, [either] dullness or distraction, both distract your activities, [...] your life. Settling yourself in the self is very difficult. 
 
 So finally, we have to practice regulating the mind. That regulation of the mind is the practice of *egolessness*. 
 
@@ -199,9 +199,9 @@ And also, if you throw yourself away, your body and mind, into the house of the 
 
 So, here is zazen. If you see zazen and you separately, that is a situation in which you can create the discriminatory world, the dualistic world. “I like zazen,” “I don't like zazen,” whatever you say – that is the dualistic world. So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, [as I told you], you should take care of zazen, with egolessness.
 
-At that time, the practice of egolessness is to throw away yourself into zazen, perfectly in the [flow of] zazen. Offer your body and mind to zazen completely. At that time, there is [no-self](glossary#no-self). No self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
+At that time, the practice of egolessness is to throw away yourself into zazen, perfectly in the [flow of] zazen. Offer your body and mind to zazen completely. At that time, there is no-self. No self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
 
-So that egolessness, based on the spirit of throwing away, offering yourself into zazen, is based on the help of [*samadhi*](glossary#samadhi). [You can only] throw away into zazen; at that time, you cannot do it without samadhi: one-pointedness.
+So that egolessness, based on the spirit of throwing away, offering yourself into zazen, is based on the help of *samadhi*. [You can only] throw away into zazen; at that time, you cannot do it without samadhi: one-pointedness.
 
 If you want to practice samadhi, one-pointedness, you have to arrange circumstances. Cease all affairs, and all involvements. There is no chance to *involve* in the sound of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is samadhi. If you practice samadhi, if you are right in the middle of samadhi, very naturally there is the practice of egolessness, because you can offer yourself to zazen. 
 
@@ -227,7 +227,7 @@ And then, even though you don't understand, [that] total personality is perfectl
 
 So I told you three important points, but there are four important points. First, *belief*. That is *faith*. Faith is total acceptance that your original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
 
-And then, if you are under the huge tree, and saved, at that time that is called *salvation*. If salvation is experienced directly, that is [enlightenment](glossary#enlightenment). 
+And then, if you are under the huge tree, and saved, at that time that is called *salvation*. If salvation is experienced directly, that is enlightenment. 
 
 How can you experience enlightenment? Well, first, practice egolessness. How can you practice egolessness? Samadhi; one-pointedness. And then, just do it. And then if you just do it, there is no design on expecting any reward. Just do it. That is *shikantaza*. 
 
