@@ -128,7 +128,7 @@ And also, finally, regulating mind. That means, no [design] of having a reward, 
 
 *[Tape change.]*
 
-... regulation of the body and regulation of breath. That is what is called [samadhi](glossary#samadhi), perfect samadhi. Often at that time, there is no chance to insert [any] sign of becoming Buddha or having rewards. So, [it is] very pure. There is something left, which is called *intrinsic value of pure human activities*: just do. Psychologically speaking, that is *total personality*.
+... regulation of the body and regulation of breath. That is what is called *samadhi*, perfect samadhi. Often at that time, there is no chance to insert [any] sign of becoming Buddha or having rewards. So, [it is] very pure. There is something left, which is called *intrinsic value of pure human activities*: just do. Psychologically speaking, that is *total personality*.
 
 You cannot get the total personality without arranging circumstances or environment, and sensory world, and movement system, and brain and nervous system, and internal organs. Without this, you cannot do it! 
 
