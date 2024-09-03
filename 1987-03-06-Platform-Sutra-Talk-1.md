@@ -132,7 +132,7 @@ The next page:
 
 Anyway, here is the conversation between Hui Neng and the Fifth Patriarch. I think you can see this conversation in the chapter “Buddha Nature” also. 
 
-And here it says, “From where do you come?” And Hui Neng said he comes from Ling Nan. Ling Nan in China. And also the teacher says, “If you come from Ling Nan, I think the people in Ling Nan don’t have buddha nature. How can you become buddha nature?” Because, I don’t know exactly, but people in Ling Nan were pretty poor, and commoners, not educated so much. So Hui Neng in this story I think was not an educated person. So he couldn’t read sutras, he couldn’t write [...] But on the other hand, in the Fifth Patriarch’s monastery, I think [Jin Shu], which is constructed, who was the *shuso*, the head monk of the monastery, was very educated and sharp person. So [Jin Shu] \[was] *shuso* and head monk, and Hui Neng, are very contrasting persons. So anyway, that’s why he mentioned, “If you come from Ling Nan, they are barbarians, they don’t have buddha nature. How can you become buddha nature?”
+And here it says, “From where do you come?” And Hui Neng said he comes from Ling Nan. Ling Nan in China. And also the teacher says, “If you come from Ling Nan, I think the people in Ling Nan don’t have buddha nature. How can you become buddha nature?” Because, I don’t know exactly, but people in Ling Nan were pretty poor, and commoners, not educated so much. So Hui Neng in this story I think was not an educated person. So he couldn’t read sutras, he couldn’t write [...] But on the other hand, in the Fifth Patriarch’s monastery, I think Shen Hsiu, which is constructed, who was the *shuso*, the head monk of the monastery, was very educated and sharp person. So Shen Hsiu \[was] *shuso* and head monk, and Hui Neng, are very contrasting persons. So anyway, that’s why he mentioned, “If you come from Ling Nan, they are barbarians, they don’t have buddha nature. How can you become buddha nature?”
 
 But Dogen Zenji comments on this [store] conversation in the chapter on “Buddha Nature”; you should read this carefully. That’s an interesting commentary there. The point he really comments on this is, the people in Ling Nan don’t have buddha nature, means no buddha nature. It is not something wrong which the fifth patriarch mentions, but it is nothing but expression of what real buddha nature is. So that real nature of the truth, buddha nature, is expressed as no buddha nature. Because it is nothing but the function and activities. 
 
@@ -172,7 +172,7 @@ Next page,
 >
 > “Shen Hsiu is our senior instructor and teaching transmitter...”
 
-Shen Hsiu was the head monk at that time. That person was pretty smart and sharp, that’s why the monks trusted him and considered him as the successtor. 
+Shen Hsiu was the head monk at that time. That person was pretty smart and sharp, that’s why the monks trusted him and considered him as the successor. 
 
 > “... Certainly he should be the one to obtain it. It would be not only improper for us to compose a verse, but a waste of effort as well.”
 > 
@@ -241,11 +241,113 @@ And later, I think Hui Neng wrote the ... I think page 56, Hui Neng also wrote h
 
 Sometimes people deal with the two poems separately, and evaluate which is right, which is wrong. But I don’t think [that] is the right understanding. Both poems work together in our practice. I think you cannot separate them.
 
-(51:29)
+So, according to Shen Hsiu, I think he stands always in the dualistic world, and looking at himself, and try to reach buddha nature. So from this point, the body is a bodhi tree: we are buddha nature, but we are not buddha nature, so we have to realize, we have to see into our own nature. So the “the body is a bodhi tree, the mind like a bright mirror stand.” This is exactly the same as the teaching of nirvana. So, we are buddha. “Time and again brush it clean.” But we are living in the human world, so it’s easy for us to get dusty. That’s why we have to always brush it clean. “And let no dust alight.” This is a point of our practice. So constantly practice. This is one aspect of the practice: seeking for the truth. Constantly.
 
+“From the beginning to end,” even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
 
+And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings. Because there is no particular... because the Hui Neng’s spirit of his poem. “Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha nature. So, there is no particular thing, to discuss, to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
 
-#### 1:09:46 end of recording
+So [we need] both, both work together in our practice. 
+
+Okay. *Hai*. 
+
+Do you have questions?
+
+#### 54:25
+
+**Question**: So Dogen considered this a forgery?
+
+**Katagiri**: Uh, not only Dogen. I think the introduction, written by [Echu], who was one of Hui Neng’s disciples, mentions about this *Platform Sutra*. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples. But he didn’t publish it, and then other monks, other disciples, carried it always. And then passages which other disciples had listened to the Sixth Patriarch’s teaching directly were added to this original version. That’s why [it’s] mixed up. 
+
+That’s is a general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. But we are disappointed if we listen to that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
+
+So that’s why Dogen Zenji criticizes this... Criticism is [not the right word,] Dogen Zenji tries to let me know what is the real teaching of the Sixth Patriarch, instead of putting it down. 
+
+So that’s why the most important point is always Zen, but the key point of Zen practice is to see into one’s own nature and become buddha. But that is pretty dualistic. That is the point Dogen Zenji tries to [say] in the *Shobogenzo*.
+
+Another question? 
+
+I think next, please read the [chapter] “Prajna,” it’s number two, page eighty-nine. 
+
+#### 58:10
+
+**Question**: Hojo-san? Could you please clarify again what’s meant by causes and conditions, time and occasion? 
+
+**Katagiri**: Time and occasion is – how can I say it. This is a very technical term we use. If you read *Ocean Seal Samadhi,* Dogen Zenji [talks] about *time*. And everything is produced by various dharma. Various dharma means conditioned origination, conditional factors. And also, he mentions about time. What are conditional factors? Conditional factors are nothing but time and occasion. And what is time and occasion? It’s just arising, only. 
+
+So time is sort of something, some kind of energy in action. That’s “arising only” he mentions. 
+
+But it’s pretty difficult to know what time is through *arising only*. So that’s why temporarily we say, “It’s time.” But real time is arising only. It is working. This *is*, temporarily, called buddha nature, we say. 
+
+But if you use *buddha nature*, immediately we have a preconception that buddha nature is something eternal, or absolute, et cetera. That’s why Dogen Zenji says, no buddha nature is pretty close, appropriate term, to express that arising only, regarded as function itself, activity itself. 
+
+That is *time and occasion*, and *cause and conditions*.
+
+But because everything is produced by conditional factors. So, nothing particular thing you can believe... Of course you can believe, but to *get* particularly. Even life, even this body and mind, always changing, constantly. 
+
+But if so, is there nothing to see? Of course, there are lots of things we can see. This is a form of your five skandhas, form of your activities, and time and opportunities we create, we face every day. So there is something. But if we see something, immediately we believe, “This is something *real*.” But it’s not something real we can depend on constantly, because it is nothing but functioning, activities. 
+
+So constantly our foundation must be found there. And then you can deal with what phenomenal world are. 
+
+#### 1:02:08
+
+**Question**: Hojo-san? If Shen Hsiu’s poem speaks to one aspect of our life reality, and Hui Neng’s poem speaks to another aspect, is real reality beyond both of them? 
+
+**Katagiri**: Yes. And they work together. 
+
+#### 1:02:46 
+
+**Question**: Hojo-san? When you get to the place where you’re not supported by anything – then you really are supported by all things. Is that right? 
+
+**Katagiri**: [...] What do you mean? One is, everything is supported, on the other hand, everything is not supported? That’s what you mean? 
+
+Actually, no supported. Nothing to support. 
+
+So if you want to know something supported by something, maybe you are supported by nowhere supported. There is a true factor. 
+
+In other words, your life is supported by impermanence. That is the true picture of existence. 
+
+Impermanence means function, activities. So as long as you’re active, you can create form, opportunity, time. 
+
+Sleep. Even though you sleep, this is a form, this is an opportunity. Because, you are acting. Body and mind acting constantly.
+
+So that is called impermanence, we say.
+
+So impermanence *is* buddha nature, Dogen Zenji [says this]. Because *impermanent* is constantly changing. Changing doesn’t mean nothing in vain, no. There is something always to create. 
+
+**Same person**: You say, if you are active. Is there anything other than activity, though? Is it possible to not be active?
+
+**Katagiri**: No. It’s impossible. Whatever you do, always there is active. 
+
+**Same person:** Even if you’re dead, would there be activity?
+
+**Katagiri**: Sure! Even though you die, it’s active. 
+
+**Same person**: Even if there were a nuclear holocaust, there would be activity? 
+
+**Katagiri**: Sure. Wherever you may go. Our foundation is very active, dynamism. 
+
+**Same person**: So buddha nature can’t be destroyed.
+
+**Katagiri**: No. 
+
+#### 1:05:55
+
+**Question**: Hojo-san, if in the two poems, one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them? *[He chuckles.]* 
+
+**Katagiri**: Because, as Dogen Zenji mentions, “no buddha nature” is *pretty close* to pointing out what the truth is. 
+
+It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (*Shoji*)? Dogen Zenji quotes two sentences: “If there is a buddha, you are not confused by life and death itself.” In the chapter “Life and Death.” “If there is no buddha, life and death never be confused.” Something like that. I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong. Which is close to the truth. And then Kassan mentions to the teachers, “Which of us is pretty close to the truth?” And then he says, “Maybe next day, please come again.” He didn’t answer. And then next day, Kassan [comes] again to see the teacher and ask the same question. And then he says, “One who don’t ask is closer to the truth.” One who tried to know which is close, is not close. 
+
+[It means,] “no buddha nature.” “No buddha nature” is *pretty* close. *[He chuckles slightly.]* Pretty close to the buddha nature. [That’s the same thing.]
+
+So Hui Neng says, “Originally Bodhi has no tree, the bright mirror has no stand.” So always mentions about what the foundation is. 
+
+And then, “Originally there is not a single thing: where can dust alight?” So constantly his basic foundation is found in no buddha nature, there. 
+
+I think you can read the book of *No Mind*, written by D.T. Suzuki. [He] mentions about [this] story, in terms of this poem.
+
+#### 1:09:33 end of recording
 
 ---
 
