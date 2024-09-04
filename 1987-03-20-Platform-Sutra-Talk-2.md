@@ -63,11 +63,14 @@ So, that is *prajna*. That’s why prajna is very profound wisdom to look at the
 
 That wisdom illuminates. In other words, if you want to be peaceful, *you* must be peaceful right now. How? Be peaceful. Peace is not outside. Peace is not you can get now in your hand. So with your whole body and mind, demonstrate peace, right now, right here. And then, peace illuminates peace. 
 
-So that is called “turn yourself inwardly to illuminate.”
+So that is called “turn yourself inwardly to illuminate.” 
 
+When you don’t come back to the peace, peace never illuminates you. Because always you seek the peace outside. So when you come back to peace, right now right here, peace illuminates you. That is “inwardly.”
 
+So you have to see the human like this, so. And then that is why peace illuminates *us*. In other words, why human beings emerge from the peace, when you sit down right in the middle of peace. Because it’s based on teaching of nondualism. Peace and you are not two: one. But not one. Because you demonstrate. If you demonstrate with wholeheartedness, you are not you, separate from wisdom, separate from peace. You are peace. So they are one. But not they are one, because you and peace is there. 
 
-(12:41)
+Well, in the conceptual world, they are two. But in 
+(16:00)
 
 
 
