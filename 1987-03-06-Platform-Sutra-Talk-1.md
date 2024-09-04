@@ -3,10 +3,7 @@ title: "Platform Sutra – Talk 1"
 ---
 ## March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1987-05-23-Karma-in-Buddhism)
-
-### Summary
-
+#### [List](list#1980) \| [Previous](1986-11-22-Bowing) \| [Next](1987-03-20-Platform-Sutra-Talk-2)
 
 ### Transcript
 
@@ -353,4 +350,4 @@ I think you can read the book of *No Mind*, written by D.T. Suzuki. [He] mention
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1987-05-23-Karma-in-Buddhism)
+#### [List](list#1980) \| [Previous](1986-11-22-Bowing) \| [Next](1987-03-20-Platform-Sutra-Talk-2)
