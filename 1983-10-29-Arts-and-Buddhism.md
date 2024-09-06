@@ -16,7 +16,7 @@ title: "Arts and Buddhism"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29369181" target="_blank">Listen to Part 1 on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi:** [I went through] Customs, and the officer asked me, “What is the purpose of going to the United States?” 
+**Katagiri Roshi:** [I went through] Customs, and the officer asked me, “What is [your] purpose of going to the United States?” 
 
 *[Laughter.]*
 
@@ -26,9 +26,9 @@ She asked me, “Are you a citizen of America?”
 
 I said, “No. I have permanent residence.”
 
-But still I am a foreigner, so she continued to ask me, “You should write down what the purpose of going to the United States.” 
+But still I am a foreigner, so she continued to ask me, “You should write down what [is your] purpose of going to the United States.” 
 
-I wrote down in Japanese, “[*kikyō*],” which means going back to the home. 
+So I wrote down in Japanese, “[*unintelligible*],” which means going back home. 
 
 *[Pause, followed by laughter.]*
 
@@ -40,75 +40,73 @@ Anyway. I don’t know which is my home, but I am coming back. I am already in t
 
 #### 1 - 2:05
 
-This time, when I came back, I felt many things from Buddhism in Japan [and] the United States. When I went back to Japan, there are lots of things I would have to think, how or what I should deal with Buddhism in the United States or in Japan. I don’t know exactly what to do, but very naturally I realized that there are many problems, many questions, in American Buddhism. But not only in American Buddhism – in Japanese Buddhism, too. 
+This time, when I [went] back [to Japan], I felt many things [about] Buddhism in Japan [and] the United States. [...] There are lots of things I would have to think [about]; how [...] I should deal with Buddhism in the United States or in Japan. I don’t know exactly what to do. But very naturally I realized that there are many problems, many questions, in American Buddhism. But not only in American Buddhism – in Japanese Buddhism, too. 
 
-Dogen Zenji continually mentions *bendo*, [which] means literally “transaction of the way,” or, what would you say... *Bendo* is usually translated as “practice,” but *bendo* is something more than practice, because [it is] something you have to do, practically. So *bendo* means literally “transaction of the way,” or sometimes people translate it as “negotiation with the way.” But [this] transaction of the way or negotiation of the way means to expend one’s every possible effort or energy into the way. Constantly the focus of your effort or energy should be on the way. 
+Dogen Zenji continually mentions *bendo*, [which] means literally “transaction of the way,” or, what would you say... *bendo* is usually translated as “practice,” but *bendo* is something more than practice, because [it is] something you have to do, practically. So *bendo* means literally “transaction of the way,” or sometimes people translate it as “negotiation with the way.” But [this] transaction of the way or negotiation of the way means to expend one’s every possible effort or energy into the way. Constantly the focus of your effort or energy should be on the way. 
 
 So Dogen Zenji [says that] this *bendo* shouldn’t be seen in terms of life and death, but life and death should be in terms of *bendo*. This is a very important point [that] Dogen Zenji mentions. 
 
-Buddhism is nothing but religion. [...] I don’t know the meaning of this term *religion* in English, but anyway... [...] well, let me say [that] Buddhism is religion in the common sense. So if Buddhism is religion, Buddhism [should be something giving] perfect peace or harmony to human beings. This human being shouldn’t be considered in the realm of human desires, but [rather] this human being should be considered in terms of the equal level of all sentient beings, including trees, birds, et cetera. At that time, human beings can live in peace and harmony. Okay? 
+Buddhism is nothing but religion, but I don’t know the meaning of this term *religion* in English. But anyway... well, let me say [that] Buddhism is religion in the common sense. So if Buddhism is religion, Buddhism [should be something giving] perfect peace or harmony to human beings. This *human being* shouldn’t be considered in the realm of human desires, but [rather] this human being should be considered in terms of the equal level of all sentient beings, including trees, birds, et cetera. At that time, human beings can live in peace and harmony.
 
-If you think human beings just in terms of human beings, so-called human beings have lots of desires, lot of greediness. So if you consider human beings just in terms of human being, very naturally the rest of the beings are separate from human beings, so very naturally, you cannot live in peace and harmony. So in Buddhism we always think [of] *human being* in terms of [the] perfect equal level with all sentient beings; at that time we are called human being. So human beings are what? Human beings are not human beings, human beings are *all beings*. Then you can live in peace and harmony. 
+If you think [of] human beings just in terms of human beings, so-called human beings have lots of desires, lot of greediness. If you consider human beings just in terms of human being, very naturally the rest of the beings are separate from human beings, so very naturally, you cannot live in peace and harmony. So in Buddhism we always think [of] human being in terms of [the] perfect equal level with all sentient beings; at that time we are called *human being*. So human beings [are] what? Human beings are not human beings, human beings are *all beings*. Then you can live in peace and harmony. 
 
-So for this, you cannot consider human beings always in terms of human desires. Human desire means always we want to satisfy. We want to satisfy the human desire, human feelings, always, wherever you may be. At that time, even though you get something which seems to make your life happy, it’s not real peace, real harmony. 
+So for this, you cannot consider human beings always in terms of human desires. Human desire means always we want to satisfy. We want to satisfy the human desire, human feelings, always, wherever you may be. At that time, even [if] you get something which seems to make your life happy, it’s not *real* peace, real harmony. 
 
-So at any cost, if you want to live in peace and harmony, we have to see human beings in terms of Buddha’s teaching, or the Way, going beyond [the] conscious or unconscious attempt [to satisfy] human desire. 
+So at any cost, if you want to live in peace and harmony, we have to see human beings in terms of Buddha’s teaching, or *the Way*, going beyond [the] conscious or unconscious attempt [to satisfy] human desire. 
 
 So that’s why Buddhism always emphasizes *emptiness*. Or *egolessness*. 
 
-But if you look at Buddhism in the United States or in Japan: it seems to be very active. Particularly in the United States, Buddhism seems to be very active, helping human beings. It seems to be good. But I don’t know; it is questionable. I really feel it’s questionable. Because Buddhism is used always for the sake of [the] conscious or unconscious attempt [to satisfy] human desire. If Buddhism doesn’t help, or if Buddhism satisfies your human desire, you don’t pay attention to it. 
+But if you look at Buddhism in the United States or in Japan: it seems to be very active. Particularly in the United States, Buddhism seems to be very active, helping human beings. It seems to be good. But I don’t know; it is questionable. I really feel it’s questionable. Because Buddhism is used always for the sake of [the] conscious or unconscious attempt [to satisfy] human desire. If Buddhism doesn’t help, or if Buddhism [doesn’t] satisfy your human desire, you don’t pay attention to it. 
 
-[...] Look at Buddhism in the United States: Buddhism always tries to be considered in terms of help. In terms of the help [for] human beings, the human world, [seen] from the different angles: philosophy, psychology, and biology, and dance, and arts, et cetera. So that’s why Buddhism in the United States seems to be very active. 
+[...] Look at Buddhism in the United States: Buddhism always tries to be considered in terms of *help*; in terms of the help [for] human beings, the human world. [Seen] from different angles: philosophy, psychology, and biology, and dance, and arts, et cetera. So that’s why Buddhism in the United States seems to be very active. 
 
-And then somebody says Buddhism in the United States is best, rather than Buddhism in Japan. But this is nothing but arrogance. So it’s very dangerous.
+And then somebody says Buddhism in the United States is *best*, rather than Buddhism in Japan. But this is nothing but arrogance. So it’s very dangerous.
 
-But this time I felt [that] Buddhism in United States, Buddhism in Japan [are] no different. The same. 
+But this time [travelling back to Japan,] I felt [that] Buddhism in United States, Buddhism in Japan [are] no different. The same. 
 
-So that’s why Dogen Zenji [says] that from generation to generation, the buddha way, or *bendo* – *bendo* means expending your every possible effort toward the way. The Way means beyond human desires, okay? There is a Way, which [is] feeding you always perfect peace or perfect harmony there, even though you don’t understand. So all we have to do is to expend your every possible energy toward that. 
+So that’s why Dogen Zenji [says] that from generation to generation, the buddha way, or *bendo* – *bendo* means expending your every possible effort toward the Way. The Way means beyond human desires, okay? There is a Way, which [is] feeding you always perfect peace or perfect harmony there, even though you don’t understand. So all we have to do is to expend our every possible effort or energy toward that. 
 
-For this, *bendo* shouldn’t be seen in terms of life and death. Completely opposite; it ought to be, rather, completely reversed. Life and death should be seen in terms of *bendo*. Do you understand that one? It’s very important. 
+For this, *bendo* shouldn’t be seen in terms of life and death. Completely opposite: it ought to be, rather, completely reversed. Life and death should be seen in terms of *bendo*. Do you understand that? It’s *very* important. 
 
-If you see the buddha way in terms of life and death, it means Buddhism is used for the sake of human desire: always checking, evaluating, whether Buddhism is useful or not. In other words, you’re always [pulling] buddha’s way, or the Way, with giving you perfect peace and harmony toward the human world. What is the human world? The human world is full of the attempt of satisfying human desires. In seems to be good, but on the other hand, lots of problems. 
+If you see the buddha way in terms of life and death, it means Buddhism is used for the sake of human desire: always checking, evaluating, whether Buddhism is useful or not. In other words, you’re always [pulled] Buddha’s way, or the Way, [which is] giving you perfect peace and harmony toward the human world. What is the human world? The human world is full of the attempt of satisfying human desires. In seems to be good, but on the other hand, [there are] lots of problems. So that’s why we want to practice zazen and we want to follow the Buddha’s way. Why do you practice Buddha’s way? 
 
-So that’s why we want to practice zazen and we want to follow the Buddha’s way. Why do you practice Buddha’s way? 
-
-So that’s why Dogen Zenji mentions that *bendo* shouldn’t be seen in terms of life and death. If you see *bendo*, buddha way, in terms of life and death, you always try to evaluate, judge, think [about] Buddhism, checking always whether Buddhism is useful or not. 
+So that’s why Dogen Zenji [says] that *bendo* shouldn’t be seen in terms of life and death. If you see *bendo*, [the] buddha way, in terms of life and death, you always try to evaluate, judge, think [about] Buddhism, always checking whether Buddhism is useful or not. 
 
 At that time, such a Buddhism doesn’t last forever. 
 
 For a certain period of time, Buddhism, of course, lasts. Maybe the twentieth century? But not the twenty-first century. If Buddhism is real religion which gives perfect peace, perfect harmony, beyond races, beyond the way of thinking, it should last forever, from age to age. 
 
-For this, even though you don’t feel good from Buddhism, you don’t see anything whether Buddhism is useful or not. We have to continue to expend our every possible effort toward the Way: what [is] real peace, what [is] real harmony. 
+For this, even [if] you don’t feel good from Buddhism, you don’t see anything whether Buddhism is useful or not. We have to continue to expend our every possible effort toward the Way: what [is] real peace, what [is] real harmony. 
 
-It seems to me that *peace* means perfect harmony. *Perfect harmony* means the human world and also something more than human world come together, live together; that is called harmony. Not only the human world. Not only the human beings and tape recorders, trees, birds, nature [that] you can see come together. I don’t mean that. The phenomenal world which you can see and also not-phenomenal world, beyond-phenomenal world, come together, live together in peace. At that time it is called harmony. 
+It seems to me that *peace* means perfect harmony. *Perfect harmony* means the human world and also something more than the human world come together, live together; that is called harmony. Not only the human world. Not only the human beings and tape recorders, trees, birds, nature [that] you can see come together; I don’t mean that. The phenomenal world which you can see and also [the] not-phenomenal world, beyond-phenomenal world, come together, live together in peace. At that time it is called *harmony*. 
 
-Harmony is not to shake each-other’s hand [and say,] “Good morning. You are a good boy. You are a good friend,” et cetera. That is also harmony, but it doesn’t last for long. So we have to shake hands, [but] what kind of hand should we shake? It’s not the human hand. We have to shake with the universal hands. 
+Harmony is not to shake each-other’s hand [and say,] “Good morning. You are a good boy, you are a good friend,” et cetera. That is also harmony, but it doesn’t last for long. So we have to shake hands, [but] what kind of hand should we shake? It’s not the human hands. We have to shake with the universal hands. 
 
 So that’s why Dogen Zenji [says] that life and death should be seen in terms of *bendo*. 
 
-That means that there is a sense of negation of human beings, human desires. You cannot always satisfy your desires. If you want to satisfy your desires, I don’t think it’s necessary to practice the buddha way, you know? Or religions [in general]. Why do you practice religions? In the usual world, there are lots of things which make your life satisfactory, so you’d better practice other things, rather than Buddhism or religion. 
+That means that there is a sense of negation of human beings, human desires. You cannot always satisfy your desires. If you want to satisfy your desires, I don’t think it’s necessary to practice the buddha way, you know? Or religions [in general]. Why [would] you practice religions? In the usual world, there are lots of things which make your life satisfactory. So [you’d be better practicing] other things, rather than Buddhism or religion. 
 
-Anyway, Buddhism as a religion, I told you before, gives you perfect peace and harmony, which means something beyond what you have thought [or] you think. So this is maybe a little bit against your human desires, because you don’t understand it. If you don’t understand it, you don’t want to do it, you don’t want to follow. So even though I emphasize that just sitting is perfect peace, why don’t you sit down... if you don’t feel good, you don’t want to do that. Don’t you think so? 
+Anyway, Buddhism as a religion, I told you before, gives you perfect peace and harmony, which means something beyond what you have thought [or] you think. So this is maybe a little bit against your human desires, because you don’t understand it. If you don’t understand it, you don’t want to do it, you don’t want to follow [it]. So even though I emphasize that, “Just sitting is perfect peace; why don’t you sit down,” ... if you don’t feel good, you don’t want to do that. Don’t you think so? 
 
 #### 1 - 20:30
 
 Well, not only Buddhism as a religion, but whatever you do. 
 
-Here is a very interesting article, written by [a] Japanese philosopher. The title of this article is “The Practice of Sunyata.” *Sunyata* means emptiness. Let me read this [...] one paragraph, [where] he [talks] about the Japanese literary arts or Japanese art. 
+Here is a very interesting article, written by [a] Japanese philosopher. The title of this article is “The Practice of *Sunyata*.” *Sunyata* means *emptiness*. Let me read this one paragraph, [where] he [talks] about the Japanese literary arts or Japanese art. 
 
-> The inference of the Zen sect lay rather in permeating the life of the age with its Zen spirit, and from here, in intellectually influenced the form of art. As arts under its influence we can site the Noh drama, gardening, tea ceremony, *sumi-e* painting, and so forth. Every one of these arts has a common point that the moment of negation lies at its core. 
+> The inference of the Zen sect lay rather in permeating the life of the age with its Zen spirit, and from here, in intellectually influenced the form of art. As arts under its influence we can cite the Noh drama, gardening, tea ceremony, *sumi-e* painting, and so forth. Every one of these arts has a common point that the moment of negation lies at its core. 
 
-Well, not only art! *Being* – human being, or your presence, lies in continuous negation. At its core, underlying essence, [there is] always negation, because it’s emptiness. *Emptiness* means full function; nothing to *import* your ideas, your feeling into it. This is the basic picture of *being*. So philosophically, we say *emptiness*. 
+Well, not only art! *Being* – human being, or your presence, lies in continuous negation. At its core, underlying essence, [there is] always negation, because it’s emptiness. *Emptiness* means *full function*; nothing to *import* your ideas, your feeling into it. This is a basic picture of *being*. So philosophically, we say *emptiness*. 
 
-So broadly speaking, *emptiness* means to give perfect freedom toward human being. Because basically emptiness means you are free.
+So broadly speaking, *emptiness* means to give perfect freedom toward human being. Because basically, emptiness means you are free.
 
-So that is negation. Negation means, whatever you think, good or bad, right or wrong, all are negated. At its core, underlying essence, always it’s negated. That means it is *emptied*, by something. We don’t know what it is. But we call [it] *dharma*, or et cetera. 
+So that is negation. Negation means [that] whatever you think, good or bad, right or wrong, all are negated. At its core, underlying essence, always it’s negated. That means it is *emptied*, by something. We don’t know what it is. But we call [it] *dharma*, or et cetera. 
 
 So, “Every one of these arts has a common point that the moment of negation lies at its core...” 
 
 > The action of the Noh drama has the foundation of its distinctive form on the point that it snatches away every human peculiarity from the movement of men. That is the actor. 
 
-You know the Noh drama? If you see the Noh drama, it’s kind of dance, but the dance is moving very slow. So [there is a] human actor as a human being acting, but there is no particular human peculiarity. 
+You know the Noh drama? If you see the Noh drama, it’s kind of [a] dance, but the dance is moving very slow. So [there is a] human actor as a human being acting, but there is no particular human peculiarity. 
 
 The same applies to ballet, or other dance. The dancer should be human, but if you really want to represent perfect beauty of ballet, the human peculiarity must be negated, right in the middle of the action of the dance. At that time, you can really represent perfect beauty of dance. That is ballet. 
 
