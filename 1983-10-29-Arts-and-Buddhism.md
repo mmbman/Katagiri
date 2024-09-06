@@ -108,61 +108,57 @@ So, “Every one of these arts has a common point that the moment of negation li
 
 You know the Noh drama? If you see the Noh drama, it’s kind of [a] dance, but the dance is moving very slow. So [there is a] human actor as a human being acting, but there is no particular human peculiarity. 
 
-The same applies to ballet, or other dance. The dancer should be human, but if you really want to represent perfect beauty of ballet, the human peculiarity must be negated, right in the middle of the action of the dance. At that time, you can really represent perfect beauty of dance. That is ballet. 
+The same applies to ballet, or other dance. The dancer should be human, but if you really want to represent the perfect beauty of ballet, the human peculiarity must be negated, right in the middle of the action of the dance. At that time, you can really represent perfect beauty of dance. That is ballet. 
 
-So if you see the Noh drama, the actor moves very slowly. So in common sense, it makes you bored. It’s really boring – just like a tea ceremony. You don’t like a tea ceremony, because there is no particular movement, and [it is] very quiet. Nothing to expect as a reward. *[He chuckles.]* If you drink [the] tea, it’s really bitter, not sweet. And also you must practice patience, sitting calmly. And then what you can see or hear is just the sound of a carol, and also activities of the host, nothing else. And the place is very small; nothing to excite you. 
+So, if you see the Noh drama, the actor moves very slowly. In common sense, [...] it’s really boring – just like a tea ceremony. You don’t like a tea ceremony because there is no particular movement, and [it is] very quiet. Nothing to expect as a reward. *[He chuckles.]* If you drink [the] tea, it’s really bitter, not sweet. And also you must practice patience, sitting calmly. And then what you can see or hear is just the sound of the kettle, and the activities of the host, nothing else. And the place is very small. Nothing to excite you. 
 
 And also, 
 
-> ... hence, as its’ opposite form, it was possible to bring about later the puppet theater, in which all the peculiarities of man were exaggerated and instilled into the movement of the puppets, which were the actors. 
+> ... hence, as its opposite form, it was possible to bring about later the puppet theater, in which all the peculiarities of man were exaggerated and instilled into the movement of the puppets, which were the actors. 
 
-You understand this, okay? Actor is completely perfect. But if you just deal with the puppet as a puppet, you are not a puppet, you are not a real actor. So the actor is a puppet, but puppet is not puppet, puppet is completely negated at its core. There is no certain form which is called *puppet*. So it must be represented as a human being. At that time, puppet really acts on the stage, which is very attractive. 
+You understand this one, okay? Actor is completely perfect. But if you just deal with the puppet as a puppet, you are not a real puppet, you are not a real actor. So the actor is a puppet, but puppet is not puppet, puppet is completely negated at its core. There is no certain form which is called *puppet*. It must be represented as a human being. At that time, the puppet really acts on the stage, which is very attractive. 
 
-So, always there is a puppet which seems to be dead, but it’s not *puppet*. It’s negated at the core. 
+So, always there is a puppet, which seems to be dead, but it’s not *puppet*, it’s negated at the core. 
 
-If you act as a human being on the stage, you mustn’t act as a human being. Human being as actor should be negated. And then, you can manifest the perfect beauty of the dance there. So always there is a contradiction there. But this is very true. 
+If you act as a human being on the stage, you mustn’t act as a human being. Human being as actor should be negated. And then, you can manifest the perfect beauty of the dance there. 
 
-So if you want to seek for perfect peace, or the Way – in Buddhist terminology it is called Way – the Way means harmony, perfect harmony. If you want to seek for the Way, you must be [an] actor, as a human being. But you mustn’t be human.
+So always there is a contradiction there. But this is very true. 
 
-But look at Buddhism in the United States, in Japan. We are always acting as a human being. We don’t see anything else. So that’s why it makes you busy every day, ... human beings. Human beings are always just like a wild pig, rushing into a certain destination to satisfy their desires. So, no peace. 
+So if you want to seek for perfect peace, or the Way – in Buddhistic terminology it is called *Way* – *the Way* means perfect harmony. If you want to seek for the Way, you must be [an] actor as a human being, but you mustn’t be human.
 
-> ... Similarly, the form of *sumi-e*, black ink painting, has as its essence for its essence that negation of all colors which nature possesses. 
+But look at Buddhism in the United States, in Japan. We are always acting as a human being. We don’t see anything else. So that’s why it makes you *busy* every day. [...] Human beings are always just like a wild pig, rushing into a certain destination to satisfy their desires. So, no peace. 
 
-This is *sumi-e* paining. Or even Western painting. What would you say, famous painter in the Middle Ages in Europe, what’s his name... Renoir? Look at his painting. It’s very bright, beautiful color there. But, he doesn’t use color which nature possesses. He completely digested the natural colors. So maybe dim colors. But within the dim colors or mixed colors, there is a perfect bright, natural color there. So he seems to be an expert how to use the color which nature possesses. Don’t you think so? I felt [so], anyway, from his painting. 
+> Similarly, the form of *sumi-e*, black ink painting, has for its essence that negation of all colors which nature possesses. 
 
-So if you alway express natural color which you can see, it’s not alive, it’s dead. But he knew how to represent natural color. That’s why his painting is beautiful. 
+This is *sumi-e* paining. Or even Western painting. What would you say, the famous painter in the Middle Ages in Europe, what’s his name... Renoir? Look at his painting. It’s very bright, beautiful color there. But, he doesn’t use color which nature possesses. He completely digested the natural colors. So maybe [there are] dim colors, but within the dim colors or mixed colors, there is a perfect bright, natural color there. So he seems to be an expert [on] how to use the color which nature possesses. Don’t you think so? I felt [so], anyway, from his painting. So if you alway express natural color which you can see, it’s not alive, it’s dead. But he knew how to represent natural color. That’s why his painting is beautiful. 
 
-So I am talking about not only the Japanese arts. I am talking about general art, in Europe, in the United States, wherever you may go. This is real truth, anyway. 
+So I am talking about not only the Japanese arts. Through the Japanese arts, I am talking about general art, in Europe, in the United States, wherever you may go. This is real [truth]. 
 
-> ... This also produced it’s opposite form in the Momoyama Period ...
+> This also produced it’s opposite form in the Momoyama Period ... 
 
 That is almost the 16th century.
 
-> ... as for gardening, it’s acme lies in the complete erasement of artificiality. 
+> As for gardening, it’s acme lies in the complete erasement of artificiality. 
 
-It’s very interesting. So, somebody said the Japanese garden is a miniature of nature. So, if you say Japanese garden is a miniature garden of nature, well, that miniature nature is something artificial. Don’t you think so? Artificial. But it’s artificial because it’s made by human, but it’s not artificial. That’s why it is difficult how to represent in a small area. It’s very difficult. 
-
-Because you must be human being, but you shouldn’t be human being, because you must be trees, birds – whole nature. You’re completely negated. When you are negated, you become nature. When you become nature, very naturally there is very smooth communication there. Before you think, anyway. This is the practice of gardeners. 
+It’s very interesting. Somebody said the Japanese garden is a miniature of nature. [...] So if you say the Japanese garden is a miniature of nature, well, that miniature of nature is something artificial, don’t you think so? Artificial. But it’s artificial because it’s made by humans, but it’s not artificial. That’s why it is difficult [...] to represent nature in a small area. It’s very difficult, because you must be [a] human being, but you shouldn’t be [a] human being, because you must be trees, birds, whole nature. You’re completely negated. When you are negated, you become nature. When you become nature, very naturally there is very smooth communication there, before you think. This is the practice of gardeners. 
 
 > And the tea ceremony attempts to make the men’s life egoless. 
 
-Yes [it does]. First of all, anyone, if you are interested in – or even if you are not interested – let’s participate in a tea ceremony. Immediately you think, “What’s that?” *[He chuckles.]* Because [there is] nothing to satisfy your feeling. So that is already your egoistic sense is erased. When you sit down there, immediately your egoistic sense is erased. Just like zazen. *[He chuckles.]* Sit down. Then you don’t feel anything. That is pretty good, because egoistic sense is erased, perfectly, before you think. Whether you want it erased or you don’t want it erased, it’s erased, the moment when you sit down there. That is called *shikan*.
+Yes [it does]. First of all, [for] anyone – if you are interested in [it] or even if you are not interested – let’s participate in a tea ceremony. Immediately you think, “What’s that?” *[He chuckles.]* Because [there is] nothing to satisfy your feeling. So that is already [that] your egoistic sense is erased. When you sit down there, immediately your egoistic sense is erased. Just like zazen. *[He chuckles.]* Sit down. Then you don’t feel anything. That is pretty good, because egoistic sense is erased, perfectly, before you think. Whether you want it erased or you don’t want it erased, it’s erased, the moment when you sit down there. That is called *shikan*.
 
-So you cannot *try* to erase [the] egoistic sense, because you have [it] already. So the more you try to erase the egoistic sense, the more you create the egoistic sense. So how can you erase ego? 
+So you cannot *try* to erase [the] egoistic sense, because you have [it] already. So the more you try to erase the egoistic sense, the more you create the egoistic sense. So how can you erase ego? That is a most important question you have to take into account in your whole life. 
 
-That is a most important question you have to take into account in your whole life. 
+And also he says, continuing about the tea ceremony:
 
-And also he says, continuing about the tea ceremony,
+> This can also be said about the tea ceremony. The guests at the tea ceremony will not experience the art of tea if they merely appreciate the decorations of the tea room or the host activities in the tea ceremony. Unless the guests live together in the tea room, the creation itself of the tea ceremony will not be accomplished. The charm of the tea ceremony can be realized by the participation of the guests, as well [as] in it’s creation. 
 
-> This can also be said about the tea ceremony. The guests at the tea ceremony will not experience the art of tea if they merely appreciate the decorations of the tea room or the host activities in the tea ceremony. Unless the guests live together in the tea room, the creation itself of the tea ceremony will not be accomplished. The charm of the tea ceremony can be realized by the participation of the guests, as well in it’s creation. 
+*Creation* means... you cannot create your own life, confining in your small territory, so-called *I*. You cannot create. *Creation* means you have to realize your own life, which is fully alive *with* all sentient beings. At that time, it is called creation, creating life. You are there, but you are not *you*. Your life must be one with all nature, all sentient beings. At that time, your life is called *creative*. Very creative life. 
 
-Creation means ... you cannot create your own life, confining in your small territory, so-called *I*. You cannot create. Creation means you have to realize your own life, which is fully alive *with* all sentient beings. At that time, it is called creation, creating life. You are there, but you are not *you*. Your life must be one with all nature, all sentient beings. At that time, your life is called *creative*. Very creative life. 
+So, to attend the tea ceremony is to create your own life. But your own life [is] not your own life, because your life is *harmonized* – with the host, tea kettle, tatamis, [the] small area of the room, and nature – through which you can see one flower in the altar alcove. You can see nature, the fully alive rhythm of the seasons, so-called autumn, through the one flower in the alcove. 
 
-So, to attend the tea ceremony is to create your own life. But your own life [is] not your own life, because your life is *harmonized* – with the host, tea kettle, tatons, small area of the room, and nature. Through which you can see one flower at the altar alcove. You can see the nature, fully alive rhythm of the seasons, so-called autumn, through the one flower in the alcove. 
+And he says:
 
-And he says, 
-
-> Therefor, there must be sympathetic consideration [...] on the part of the host, to make the guests forget all worldly affairs. 
+> Therefor, there must be very sympathetic, compassionate consideration made on the part of the host, to make the guests forget all worldly affairs. 
 
 That’s pretty good, you know? 
 
@@ -172,45 +168,53 @@ That’s pretty good, you know?
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-22069116" target="_blank">Listen to Part 2 on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi:** ... guests, to be immersed in the host. Yes it is. 
+> At the same time there must be readiness on the part of the guests to be immersed in the heart of the host.
+
+**Katagiri Roshi:** [...] Yes it is. 
 
 The practice of zazen is to make you forget all worldly affairs. That’s why in *Fukanzazengi*, Dogen Zenji [says], “Throw away all affairs.” Even good and bad, right and wrong – anyway, sit down. This is the total picture of zazen; just like a tea ceremony. 
 
-So tea ceremony is the ... what would you say ... artistic expression of religion. Not [the] religious expression of art. Do you understand that difference?
+So the tea ceremony is... what would you say... the artistic expression of religion. *Not* the religious expression of art. Do you understand that difference?
 
-So the purpose of zazen is to make you completely forget all worldly affairs, and simultaneously there must be a very compassionate consideration, which there must be the readiness on the part of you to be immersed in the heart of zazen. If you just be there, it’s not good enough. Because still you cannot be immersed in the real heart of zazen or tea ceremony. 
+So the purpose of zazen is to make you completely forget all worldly affairs, and simultaneously there must be a very compassionate consideration, [in] which there must be readiness on [your part] to be immersed in the heart of zazen. If you just be there, it’s not good enough, because still you cannot be immersed in the real heart of zazen or the tea ceremony. 
 
-For instance, nature. If you go to the wilderness, if you are just right in the middle of the wilderness, you completely forget, you know? Forget the worldly affairs. Completely beyond you try to forget or you don’t try to forget. So what is nature, real nature? What is the heart of nature? Heart of nature is to forget you, completely worldly affairs. 
+For instance, nature. If you go to the wilderness, if you are just right in the middle of the wilderness, you completely forget [...] worldly affairs. Completely beyond [whether] you try to forget or you don’t try to forget. So what is real nature? What is the heart of nature? The heart of nature is [for you to completely forget] worldly affairs. 
 
-But forget doesn’t mean ignore. To forget worldly affairs means you can see the worldly affairs from a completely different angle. This is called *to forget*. Not [to] destroy; not to keep away from worldly affairs. Because your body and mind are already nothing but the worldly affairs. So to forget worldly affairs, what does it mean by forgetting the worldly affairs? If you see worldly affairs in terms of worldly affairs, you never have a chance to see the depth of the worldly affairs, how sublime it is. So you have to see worldly affairs from a completely different angle. That is somewhere, something beyond your attempt of satisfying your desires. That is the total picture of nature. So, just be there. 
+But forget doesn’t mean *ignore*. To forget worldly affairs means you can see the worldly affairs from a completely different angle; this is called *to forget*. Not [to] destroy, not to keep away from worldly affairs. Because your body and mind are already nothing but the worldly affairs. So what does it mean [to forget] worldly affairs? If you see worldly affairs in terms of worldly affairs, you never have a chance to see the depth of the worldly affairs, how sublime it is. So you have to see worldly affairs from a completely different angle. That is something beyond your attempt of satisfying your desires. That is the total picture of nature. 
 
-Go. Sit down there. 
+So, just be there. Go. Sit down there. 
 
-That’s nature, wildernes. Just like zazen. 
+That’s nature, wilderness. Just like zazen. 
 
-But is that enough for us, just be there? No. Still there must be compassionate consideration that there must be readiness. You must be ready to be immersed in the heart of the nature. Because, if you just be there, very naturally your desire appears and disappears, appears and disappears. So very naturally, you mishandle nature. Because you are already worldly affairs. So worldly affairs always demonstrates yourself as good or bad, right or wrong... failure or success, et cetera. So if you don’t feel good, you can destroy the nature. So nature is always used by your desires. This is human beings. 
+But is that enough for us, *just be there*? No. Still there must be compassionate consideration, that [...] you must be ready to be immersed in the heart of nature. Because, if you just be there, very naturally your desire appears and disappears, appears and disappears, so very naturally, you mishandle nature. Because you are already worldly affairs, so worldly affairs always demonstrates yourself as good or bad, right and wrong, failure or success, et cetera. So if you don’t feel good, you can destroy the nature. So nature is always used by your desires. This is human beings. 
 
-So very naturally, you cannot hurt the heart of the nature, if you are there. As much as possible, you must bring the harmony to your life, and to the rhythm of nature. For this, you should accept the rhythm of nature, which it possesses, in itself. 
+So very naturally, you cannot hurt the heart of nature if you are there. As much as possible, you must bring the harmony to your life, and to the rhythm of nature. For this, you should accept the rhythm of nature, which it possesses in itself. 
 
-And also you must always try to tune into the rhythm of real nature, what the real nature is. You have to tune in. That is human effort. That is called *bendo*, okay? *Bendo*; we say *practice*. Bendo means expend your every possible effort or energy toward the way. Not for the purpose of satisfying your desires. Toward the Way. Way means perfect harmonious rhythm of nature, wilderness. So you cannot hurt. 
+And also you must always try to tune into the rhythm of *real* nature, what the real nature is. You have to tune in. That is human effort. 
 
-So that’s why here it says, “At the same time there must be readiness on the part of the guests to be immersed in the heart of the host. That is, a sympathetic frame of mind must exist.” 
+That is called *bendo*, okay? *Bendo*; we say *practice*. *Bendo* means [to] expend your every possible effort or energy toward the way, not for the purpose of satisfying your desires. Toward the Way. *The Way* means perfect harmonious rhythm of nature, wilderness. So you cannot hurt [it].
 
-So there how can you tune into the heart of the wilderness? That is by your sympathetic consideration, compassionate consideration. From moment to moment, constantly. In other words, it is called *bendo*. That’s why bendo is translated “negotiating.” Dancing, or making suits, or making a dress, whatever it is. There is no particular pattern, “this is perfect dance,” or “this is perfect pattern to create your dress.” No. Completely you should forget it, that human desires. And then all you have to do is keep your eyes open always figuring out the way how to make, how to create fashion, or dance, from moment to moment. 
+So that’s why here it says, “At the same time there must be readiness on the part of the guests to be immersed in the heart of the host.”
 
-So creating dance is really alive; not [the] idea of dance. And then after creation of dance, then the people see it and think it or consider it, and then we can make a frame, of “what is creative dance you have practiced.” That is something written in words, in a book. Instruction of dance. 
+> That is, a sympathetic frame of mind must exist. 
 
-But real dance must be creative. So your life is creative. 
+So how can you tune into the heart of the wilderness? That is by your sympathetic consideration, compassionate consideration – from moment to moment, constantly. 
 
-So not only the Buddhistic practice. Whatever you do, or whatever occupation you follow, always underlying essence, there is negation. The negation is not to destroy you, or to reduce, or to make yourself small. No. To enhance you, to make yourself *bigger*, in a sense. But according to common sense, if your ego is negated, you don’t feel good, because self is not accepted. But if you really want to be something – photographer, or whatever it is – as a human being, if you really want to be a real human being from moment to moment, as a student, as a teacher, as a zazen practice, as a housewife or janitor, whatever. You must be actors, but you are not human actors.
+In other words, it is called *bendo*. That’s why *bendo* is translated [as] “negotiating” with the Way. Dancing, or making suits, or making a dress – whatever it is. There is no particular pattern, [like] “this is perfect dance,” or “this is perfect pattern to create your dress.” No. Completely you should forget it. [That is] human desires. And then all you have to do is keep your eyes open always figuring out the way, how to make, how to create – fashion, or dance – from moment to moment. So creating dance is really alive; not [the] idea of dance. 
 
-You must be a puppet, in a sense. But if you become a puppet, it’s not a puppet. You have to instill the all human spirit into the puppet. At that time, puppet is really alive. 
+And then after creation of dance, then the people see it and think it or consider it, and then we can make a frame, of “what is the creative dance you have practiced.” That is something written in words, in a book. Instruction of dance. But real dance must be creative. 
 
-*Puppet* means your object. Your object, in a sense, in your everyday life. Broom, cushions, vacuum cleaners, toilet paper. Just like a puppet. 
+So your life is creative. Not only the Buddhistic practice. Whatever you do, or whatever occupation you follow, always underlying essence there is negation. The negation is not to destroy you, or to reduce, or to make yourself small. No. To enhance you, to make yourself *bigger*, in a sense. But according to common sense, if your ego is negated, you don’t feel good, because [the] self is not accepted. But if you really want to be something – photographer, or whatever it is – as a human being, if you really want to be a real human being from moment to moment – as a student, as a teacher, as a zazen practice, as a housewife or janitor, whatever – you must be actors, but you are not human actors.
 
-So you have to deal with a puppet in toilet paper, but toilet paper is not real puppet, you know? You are dealing with. Do toilet paper must be something you install your spirit into it. At that time, toilet paper as a puppet really acts [on] the stage. That is called beauty of the puppet show. 
+You must be a puppet, in a sense. But if you become a puppet, it’s not a puppet: you have to instill the all human spirit into the puppet. At that time, the puppet is really alive. 
 
-That’s why Dogen Zenji always [says], not only doing zazen but everyday life, how to deal with everyday life. 
+*Puppet* means your object, in a sense, in your everyday life. Broom, cushions, vacuum cleaners, toilet paper: just like a puppet. 
+
+So you have to deal with a puppet in toilet paper, but toilet paper is not a real puppet you are dealing with. So toilet paper must be something you install your spirit into. At that time, toilet paper as a puppet really acts [on] the stage. That is called *beauty of the puppet show*. 
+
+That’s why Dogen Zenji always [talks about] not only doing zazen but everyday life, how to deal with everyday life. 
+
+#### 2 - 12:28
 
 So while I [was] in Japan, after coming back from Japan, I have to think [about] Buddhism in the United States again and again. I don’t know what to do; I cannot find *yet* concrete aspect. Have to deal with. What I can tell you is, that Buddhism in the United States in Japan, which is always used for the sake of attempt of satisfying human desires. That’s why it’s growing big. But I don’t know if it is good or not. It’s really questionable. 
 
