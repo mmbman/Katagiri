@@ -216,19 +216,19 @@ That’s why Dogen Zenji always [talks about] not only doing zazen but everyday 
 
 #### 2 - 12:28
 
-So while I [was] in Japan, after coming back from Japan, I have to think [about] Buddhism in the United States again and again. I don’t know what to do; I cannot find *yet* concrete aspect. Have to deal with. What I can tell you is, that Buddhism in the United States in Japan, which is always used for the sake of attempt of satisfying human desires. That’s why it’s growing big. But I don’t know if it is good or not. It’s really questionable. 
+So while I [was] in Japan, [and] after coming back from Japan, I have to think [about] Buddhism in the United States again and again. I don’t know what to do; I cannot find *yet* [a] concrete aspect how to deal with [it]. But what I can tell you is, the Buddhism in the United States in Japan, which is always used for the sake of [attempting to satisfy] human desires – that’s why it’s growing big. But I don’t know if it is good or not. It’s really questionable. 
 
-So that’s why Dogen Zenji [says] *bendo* mustn’t be seen in terms of life and death. Anyway, your life and death must be seen in terms of *bendo*. So Buddhism mustn’t be seen in terms of life and death. Life and death must be seen in terms of [the] Buddha Way; perfect harmony. At that time, we have to consider Buddhist practice more seriously. So far, we haven’t considered Buddhist practice seriously, as a whole. 
+That’s why Dogen Zenji [says] *bendo* mustn’t be seen in terms of life and death, your life and death must be seen in terms of *bendo*. So Buddhism mustn’t be seen in terms of life and death. Life and death must be seen in terms of [the] buddha way; perfect harmony. At that time, we have to consider Buddhist practice more seriously. So far, we haven’t considered Buddhist practice seriously, as a whole. 
 
-For instance, becoming a priest, or lay Buddhist. It’s questionable. We don’t know what to do, but I have to think about this. What’s the difference between becoming a priest or not becoming a priest? 
+For instance, becoming a priest, or lay Buddhist: it’s questionable, anyway. We don’t know what to do, but I have to think about this. What’s the difference between becoming a priest or not becoming a priest? 
 
-We always emphasize the practice of zazen. If you emphasize only the practice of zazen, it’s not the total picture of Buddhist practice. It’s kind of [like] pizza without [the crust]. *[He laughs.]* You can call it pizza, but there is no crust. If you always emphasize zazen as a Buddhist practice, you know? It seems to be good, but it’s nothing but pizza without the crust. It’s a little bit crooked. 
+We always emphasize this practice of zazen. If you emphasize only the practice of zazen, it’s not the total picture of Buddhist practice. It’s kind of [like] pizza without [the crust]. *[He laughs.]* You can call it pizza, but there is no crust. If you always emphasize zazen as a Buddhist practice, you know? It seems to be good, but it’s nothing but pizza without the crust. So it is a little bit crooked. 
 
-We say with with the red rice, *sekihan* means red rice, used for the celebration of something. Japanese people cook the rice with red beans in it, which is used for the celebration of something. So we say, just like red rice with no red beans. Do you understand? Just like a pizza without crust. 
+We say with the red rice, *sekihan* means red rice, used for the celebration of something. Japanese people cook the rice with red beans in it, which is used for the celebration of something. So we say, “just like red rice with no red beans.” Do you understand? Just like a pizza without crust. 
 
-So very naturally you become *zazenitis*. *[There are a couple laughs.]* If you become a zazenitist, it’s pretty difficult to get out from that. And you don’t understand what real zazen is. And on the other hand, if all you emphasize is daily life, it’s also daily life-itis. So you don’t understand why you practice zazen. 
+So very naturally you become [*zazen-itis*]. *[There are a couple laughs.]* If you become [a zazenitist], it’s pretty difficult to get out from that, and you don’t understand what real zazen is. And on the other hand, if you always emphasize daily life, it’s also daily-life-itis. So you don’t understand why you practice zazen. 
 
-You have to think once more again about what daily life is. Zen students always emphasize daily life, you should consider once again what the daily life is. Dogen Zenji [talks] in *Shobogenzo* about daily life. You can see it in the book *How to Raise an Ox*. The idea of everyday life Dogen Zenji mentions is completely different from [what] you have thought. *[He laughs.]* 
+You have to think once more again about what daily life is. Zen students always emphasize daily life, but you should consider once again what the daily life is. Dogen Zenji [talks] in *Shobogenzo* about daily life. You can see it in the book *How to Raise an Ox*. The idea of everyday life Dogen Zenji mentions is completely different from [what] you have thought. *[He laughs.]* 
 
 So lots of questions in Buddhism in the United States. And in Japan too. 
 
@@ -238,69 +238,67 @@ Do you have questions?
 
 **Question:** Hojo-san? Is the desire for perfect peace and harmony a human desire? 
 
-**Katagiri:** Yes... You mean seeking for perfect peace and harmony? Yes, it is also human desire. So you have to deal with [it] carefully, okay? What is *real* peace, real harmony? Without your desire, you cannot seek. 
+**Katagiri:** Yes... You mean seeking for perfect peace and harmony? Yes, it is also human desire. So you have to deal with [it] carefully, okay? What is *real* peace, *real* harmony? But without your desire, you cannot seek. 
 
 But [...] constantly your effort must be focused on real peace. That is called *bendo*. 
 
-But real peace, real harmony shouldn’t be seen in terms of life and death, so-called desire. Satisfying desires constantly. Whatever it is, good or bad, right or wrong. We always do it like this. That’s why human civilization is developing pretty well. But I don’t know [if] development of human civilization is good for human beings or not. I don’t know. You can see very naturally – what is it? Do you understand that? 
+But real peace, real harmony shouldn’t be seen in terms of life and death, so-called desire. Satisfying desires constantly, whatever it is – good or bad, right or wrong – we always do it like this. That’s why human civilization is developing pretty well. But I don’t know [if] development of human civilization is good for human beings or not. I don’t know. You can see very naturally, what is it? Do you understand that? 
 
-**Same person:** My question is, if Buddhism wanted to satisfy human desires, is that the real Buddhism.
+**Same person:** My question has to do with, if Buddhism wanted to satisfy human desires, is that the real Buddhism.
 
-**Katagiri:** It’s not the main purpose. You have to go through [it], but it’s not the main purpose. 
+**Katagiri:** No, it’s not the main purpose. You have to go through [it], but it’s not the main purpose. 
 
 **Same person:** But to know that we are not different from trees and birds. To know the truth of that. 
 
-**Katagiri:** Sure... “To know” is already questionable, because to know which we are not different from trees, birds, et cetera, means already you see the trees, birds objectively. That is called “to know”. Alright? It’s not something to know; you must be trees and birds, okay? *[He laughs.]* That’s why it’s very difficult. That’s why we have to continually practice, in your whole life. Otherwise, you always... Buddhism which you have known, or you have felt. It’s pretty good, because you practice it, or you feel it, so being very naturally can be experienced. But it’s not the *real* one. 
+**Katagiri:** Sure... “To know” is already questionable, because to know that we are not different from trees, birds, et cetera, means already you see the trees, birds objectively. That is called *to know*. Alright? It’s not something *to know*: you must be trees and birds. Alright? *[He laughs.]* That’s why it’s very difficult, that’s why we have to continually practice, in your whole life. Otherwise, you always [have] Buddhism *which you have known*, or you have felt. It’s pretty good, because you practice it, or you feel it, so feeling very naturally can be experienced. But it’s not the *real* one. 
 
 #### 2 - 22:13
 
-**Question:** Roshi? I have a small message. I talked to C.J. Liu (Chun-Jo Liu) recently, and she’s returned recently from China. Her special interest is the study of Buddhist chants. She’s travelled widely in China over a number of years and on several trips for this purpose. And this time when she was in China she went to western China, and she met there a priest who told her that the Buddhist community in China today is self-supporting, that they are not having to depend on government support now. But what I wanted to mention in particular is that he said that he would like her to convey a message of peace to American Buddhists. 
+**Question:** Roshi? I have a small message. I talked to C.J. Liu (Chun-Jo Liu) recently, she teaches Chinese at the University of Minnesota, and she’s returned recently from China. Her special interest is the study of Buddhist chants. She’s travelled widely in China over a number of years and on several trips for this purpose. And this time when she was in China she went to western China, and she met there a priest who told her that the Buddhist community in China today is self-supporting, that they are not having to depend on government support now. But what I wanted to mention in particular is that he said that he would like her to convey a message of peace to American Buddhists. 
 
 *[Pause.]*
 
-**Katagiri:** We have to think about Buddhism giving constantly real peace. 
+**Katagiri:** [Yes,] we have to think about Buddhism giving constantly real peace. 
 
 But it’s very easy for us to misuse Buddhism. If you misuse Buddhism, immediately you cannot give real peace. 
 
-*Misuse* means Buddhism is used for human excitement. Human satisfaction. 
+*Misuse* means Buddhism is used for human excitement, human satisfaction. 
 
 I don’t know whether it is real peace or not. We have to think of it. 
 
-Science is physics and biology. Are modern physics and modern biology developing very well and developing human life? Yes they are... but still it’s questionable. Because we are always using physics and other sciences for the sake of attempt of satisfying human desires constantly. “Better life, better life,” constantly. Yes, it’s very helpful for us, but it’s really questionable. 
-
-#### 2 - 25:36
+Science is physics and biology. Are modern physics and modern biology developing very well and helping human life? Yes they are... but still it’s questionable. Because we are always using physics and other sciences for the sake of attempting to satisfy human desires, constantly. “Better life, better life,” constantly. Yes, it’s very helpful for us, but it’s really questionable. 
 
 **Question:** But do the two have to be in contradiction?
 
-**Katagiri:** Yes, it seems to be contradiction, but it’s not contradiction. But when you think two, immediately our thinking creates contradiction, the idea of contradiction.
+**Katagiri:** Yes, it seems to be contradiction, but it’s not contradiction. But when you think two, immediately our thinking creates the idea of contradiction.
 
-**Same person:** I’ve always had this idea of an ideal society that would both have our egos happy and yet at the same time we would find *bendo*...
+**Same person:** Well, I’ve always had this idea of an ideal society that would both make our egos happy, and yet at the same time we would find *bendo*...
 
-**Katagiri:** Sure; it’s very naturally there. That’s why we have to consider carefully what egoistic happiness. 
+**Katagiri:** Sure; it’s very naturally there. That’s why we have to consider carefully what egoistic happiness [is]. 
 
-I don’t mean you should ignore; I don’t mean egoistic happiness should be combined with not-egoistic happiness. I don’t mean that; not mixed-up. Egoistic happy, not-egoistic happy. Egoistic happy, something more than egoistic happiness there. Very naturally, if you say egoistic happiness, and then something more than egoistic happiness there. 
+I don’t mean you should ignore; I don’t mean egoistic happiness should be combined with not-egoistic happiness. I don’t mean that; [not] mixed-up. Egoistic happy, not-egoistic happy. Egoistic happy: something more than egoistic happiness there. Very naturally, if you say egoistic happiness, [then] something more than egoistic happiness [is] there. 
 
-For instance, if I’m sick. Well, maybe in terms of egoistic, I don’t feel happy, because I am sick. But on the other hand, there is happiness, more than the egoistic happiness. So what is this? This is all I have to do is sit down there and take care of sickness, et cetera. That is really something you have to practice. 
+For instance, if I’m sick. Well, maybe in terms of [the] egoistic, I don’t feel happy, because I am sick. But on the other hand, there is a happiness, more than the egoistic happiness. So what is this? This is [that] all I have to do is sit down there and take care of sickness, et cetera. That is really something you have to practice. 
 
-So maybe there is happiness something more than egoistic happiness. 
+So maybe there is a happiness something more than egoistic happiness. So [...] if you say egoistic happiness, there is something more than that. 
 
-So always if you say egoistic happiness, there is something more than that. 
+So I don’t mean you should ignore either one of them – or you cannot combine [them], mix them up – because you can see either one of them in the process of time. When you see egoistic happiness, egoistic happiness appears, not anything else. You cannot see other things. Do you understand? If I feel sad, sadness is there, and the whole world becomes sadness. *[He laughs.]* When the autumn comes; today is a very nice, fine autumn day, so it makes you feel good, don’t you think so? But completely opposite weather: storm and autumn – everyone feels melancholy. Don’t you think so? Not only you; I feel too. So when you feel melancholy, you feel the whole world becomes melancholy. So when you feel melancholy, melancholy appears, nothing else. 
 
-I don’t mean you should ignore either one of them. Or, you cannot combine [them], mix them up. Because you can see either one of them in the process of time. When you see egoistic happiness, egoistic happiness appears, not anything else. You cannot see other things. Do you understand? If I feel sad, sadness is there, and the whole world becomes sadness. *[He laughs.]* When the autumn comes; today is a very nice, fine autumn day, so it make you feel good, don’t you think so? But completely opposite weather: storm and autumn – everyone feels melancholy. Don’t you think so? Not only you; I feel too. 
+So, I don’t mean you [can] ignore this. So I say, you have to consider this melancholy you have felt once more, carefully. What [is the] melancholy? From where [does it] come? The first step when you start to consider or realize it once again with careful attention, [is] turning your new leaf. Realization, to realize something, leads you to enter a new life. So when you realize once again egoistic happiness, then you can enter. This is the first step which you can enter into new life, which is called *not-egoistic happiness*. So that is our actual practice we have to do every day. 
 
-So when you feel melancholy, you feel the whole world becomes melancholy. So when you feel melancholy, melancholy appears, nothing else. 
+But it’s pretty easy for us always to be bogged down with one side, a one-sided idea. That’s why be patient, and don’t rush into it: think of it, and deal with the problem which you have faced with calm mind. That practical aspect. 
 
-I don’t mean you [can] ignore this. So I say, you have to consider this melancholy you have felt once more, carefully. What is melancholy? From where [does it] come? The first step when you start to consider or realize it once again with careful attention, [is] turning your new leaf. To realize something leads you to enter a new life. 
-
-So when you realize once again egoistic happiness, then you can enter. This is the first step which you can enter into new life, which is called not-egoistic happiness. So that is our actual practice we have to do every day. 
-
-But it’s pretty easy for us always to be bogged down with one side, one-sided idea. That’s why be patient, and don’t rush into it. Think of it, and deal with the problem which you have faced with calm mind. That practical aspect. 
-
-So two contradictory aspects means, when you think in the level of human consciousness, everything becomes contradictory. But each of them, basically it’s not contradictory. It’s very harmonious. Trees, birds, wilderness, nature – American, Japanese – the underlying essence is very harmonious. That’s why when we see the human world, why are we always fighting? Why are we fighting each other, killing each other? Just now, you know? 
+So two contradictory aspects means, when you think in the level of human consciousness, everything becomes contradictory. But each of them, basically it’s not contradictory, it’s very harmonious. Trees, birds, wilderness, nature – American, Japanese – the underlying essence is very harmonious. That’s why when we see the human world, why are we always fighting? Why are we fighting each other, killing each other’s life? Just now. 
 
 #### 2 - 32:35
 
-**Question:** Hojo-san? I would like to relate a little story which relates to most of what Roshi has talked about today. It’s had a profound affect on me. About three months ago, when I was bowing in South Dakota, I had an experience that was really quite unusual for me. It was a very hot day, and I was very angry. I was bowing in a state where about a total of four people had spoken to me. And I really questioned why I was doing all of this, and I was getting angry, because nobody was paying attention to me. Well, one day this old dirty farmer, who drove up in this old dirty car, came up, and he watched me bow for maybe a couple minutes. And then, when I got up from a bow I looked at him, and he spit out his tobacco onto the road, and he looked at me very angrily and said, “What are you doing?” In much harsher words than that. With my infinite arrogance, I told him that I was bowing for world peace. And he spit out some more tobacco and he looked at me again, and he said, “Why?” My infinite arrogance kicked in again, and I said, “So everyone will be peaceful, and the world won’t blow up.” And as soon as those words came out of my mouth, I knew I had made a mistake. And he looked at me, with the sharpest eyes that I’ve ever seen, and said, “*Who said* they’re going to blow up the world?” And I sat back, like an old car that you see when its tires went flat. And it was *me* who said they were going to blow up the world. Nobody else. I was bowing, not to bow, but for a desire. Call it spiritual olympics, call it world peace, call it what you want to, but it’s still a big desire, not just to bow. 
+**Question:** Hojo-san? 
+
+**Katagiri**: *Hai*.
+
+**Same person**: I would like to relate a little story which relates to most of what Roshi has talked about today. It’s had a profound affect on me. 
+
+About three months ago, when I was bowing in South Dakota, I had an experience that was really quite unusual for me. It was a very hot day, and I was very angry. I was bowing in a state where about a total of four people had spoken to me. And I really questioned why I was doing all of this, and I was getting angry, because nobody was paying attention to me. Well, one day this old dirty farmer, who drove up in this old dirty car, came up, and he watched me bow for maybe a couple of minutes. And then, when I got up from a bow I looked at him, and he spit out his tobacco onto the road, and he looked at me very angrily and said, “What are you doing?” In much harsher words than that. With my infinite arrogance, I told him that I was bowing for world peace. And he spit out some more tobacco and he looked at me again, and he said, “Why?” My infinite arrogance kicked in again, and I said, “So everyone will be peaceful, and the world won’t blow up.” And as soon as those words came out of my mouth, I knew I had made a mistake. And he looked at me, with the sharpest eyes that I’ve ever seen, and said, “*Who said* they’re going to blow up the world?” And I sat back, like an old car that you see when its tires went flat. And it was *me* who said they were going to blow up the world. Nobody else. I was bowing, not to bow, but for a desire. Call it spiritual olympics, call it world peace, call it what you want to, but it’s still a big desire, not just to bow. 
 
 I don’t really want to explain any more about that story, but I think it relates greatly to what Roshi talked about today. Thank you. 
 
