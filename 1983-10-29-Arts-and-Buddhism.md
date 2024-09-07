@@ -6,9 +6,12 @@ title: "Arts and Buddhism"
 
 #### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
 
-### Transcript
 
-**This transcript is in draft stage.**
+### Summary 
+
+Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects with a discussion of Buddhistic art. *Bendo* means to expend our every possible effort toward *the way*, not for the purpose of satisfying our desires. 
+
+### Transcript
 
 #### Part 1
 
