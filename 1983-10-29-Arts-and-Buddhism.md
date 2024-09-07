@@ -4,7 +4,7 @@ title: "Arts and Buddhism"
 
 ## October 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
+#### [List](list#1983) \| [Previous](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
 
 
 ### Summary 
@@ -311,4 +311,4 @@ I don’t really want to explain any more about that story, but I think it relat
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
+#### [List](list#1983) \| [Previous](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: None
