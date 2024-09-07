@@ -132,7 +132,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1)
 1. [*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
 
-1. Arts and Buddhism
+1. [Arts and Buddhism](https://katagiritranscripts.net/1983-10-29-Arts-and-Buddhism)
+
 1. Westerners' Reluctance Toward Bowing – Part 1
 1. Westerners' Reluctance Toward Bowing – Part 2
 

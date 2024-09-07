@@ -391,6 +391,13 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 
 ---
 
+##### [Arts and Buddhism](https://katagiritranscripts.net/1983-10-29-Arts-and-Buddhism)
+###### October 29, 1983 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
 ##### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 ###### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
