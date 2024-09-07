@@ -229,7 +229,7 @@ We always emphasize this practice of zazen. If you emphasize only the practice o
 
 We say with the red rice, *sekihan* means red rice, used for the celebration of something. Japanese people cook the rice with red beans in it, which is used for the celebration of something. So we say, “just like red rice with no red beans.” Do you understand? Just like a pizza without crust. 
 
-So very naturally you become [*zazen-itis*]. *[There are a couple laughs.]* If you become [a zazenitist], it’s pretty difficult to get out from that, and you don’t understand what real zazen is. And on the other hand, if you always emphasize daily life, it’s also daily-life-itis. So you don’t understand why you practice zazen. 
+So very naturally you become [*zazen-itis*]. *[There are a couple laughs.]* If you become [a zazenitist], it’s pretty difficult to get out from that, and you don’t understand what real zazen is. And on the other hand, if you always emphasize daily life, it’s also *daily-life-itis*. So you don’t understand why you practice zazen. 
 
 You have to think once more again about what daily life is. Zen students always emphasize daily life, but you should consider once again what the daily life is. Dogen Zenji [talks] in *Shobogenzo* about daily life. You can see it in the book *How to Raise an Ox*. The idea of everyday life Dogen Zenji mentions is completely different from [what] you have thought. *[He laughs.]* 
 
