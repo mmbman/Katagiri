@@ -22,6 +22,8 @@ Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these se
 
 ## Latest Updates
 
+**September 7, 2024:** Posted draft of [“Arts and Buddhism”](https://katagiritranscripts.net/1983-10-29-Arts-and-Buddhism).
+
 **August 27, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4).
 
 **August 23, 2024:** Updated [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 3”](1979-06-11-Fukanzazengi-Talk-3).
