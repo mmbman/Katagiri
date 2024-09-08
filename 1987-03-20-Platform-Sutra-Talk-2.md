@@ -45,8 +45,6 @@ So, many kinds of experience. But more or less, people can turn over their lives
 
 That is “turn your light inwardly to illuminate yourself” that Dogen Zenji mentions in [*Fukanzazengi*].
 
-#### 7:48
-
 And the third point is, *essential principle*. Essential principle of prajna is *nondualism*. Nondualism is there are two, but not two, they are one. But not one exactly – they are two. So you cannot say anything. They are two, but it’s not two, it’s one. 
 
 So if you explore thoroughly anything – human beings, human mind, or tables, floors – I think you cannot pin down anything at all. You cannot put that name on it. So very naturally if you touch *A*, *A* turns into *B*, simultaneously. So just like a quark: I mention, quarks are tiny, tiny beings – atoms, the particles. It has five “flavors”. But one flavor is not the usual flavor: if you say “ugly,” it immediately turns in “beauty.” So a scientist says, “it’s ugly,” but if you touch it, immediately it’s beautiful. So it’s the front, simultaneously it’s the back. So you cannot say. There are two? No – it’s one. But it’s not one, it’s two. 
@@ -69,12 +67,75 @@ When you don’t come back to the peace, peace never illuminates you. Because al
 
 So you have to see the human like this, so. And then that is why peace illuminates *us*. In other words, why human beings emerge from the peace, when you sit down right in the middle of peace. Because it’s based on teaching of nondualism. Peace and you are not two: one. But not one. Because you demonstrate. If you demonstrate with wholeheartedness, you are not you, separate from wisdom, separate from peace. You are peace. So they are one. But not they are one, because you and peace is there. 
 
-Well, in the conceptual world, they are two. But in 
-(16:00)
+Well, in the conceptual world, they are two. But in terms of reality, true reality, they are not two, they are one, exactly. 
+
+That is wisdom. And then all three: the essence and function and essential discipline, all three work together: that is called *prajna*, wisdom.
+
+So wisdom is what? That is to be resolute, to do something. *Resolute* means “yes, I will.” Whoever you are, whatever you think, right now: yes, I will. That’s all you can do. And *then*, [...] you can really take care of in the best way, as a buddha. That is *prajna*. 
+
+#### 17:07
+
+[...] The other time I mentioned “Good Knowing Advistors”; that means here, I think the audience, all the assembly. Assembly called “good knowing advisors.” The other day I mentioned, this is the meaning of the teacher. But sometimes it is used as a teacher, I think the people of the assembly. 
+
+(Returning to the beginning of Chapter 2:)
+
+> He then said, “Good Knowing Advisors, the wisdom of Bodhi and Prajna is originally possessed by worldly people themselves. 
+
+That means everyone is buddha nature. Everyone is, based on everyone is amply present in original nature of the self is pure and clean, exactly, beyond human speculation. That is called buddha nature. So that original nature, which is pure and clean, is not conceptual world, it is actions. The world of activities. Because there is nothing to pin down. But there is something there. 
+
+> It is only because their minds are confused that they are unable to enlighten themselves and must rely on a great Good Knowing Advisor who can lead them to see their Buddha-nature. 
+
+The difference between the Buddha and ordinary people is that ordinary people are confused, it says here. Ordinary people’s mind are confused means, one of the five hinderances is called doubt. *Doubt* means the people doubt the Three Treasures: buddha, dharma, sangha. In other words, we don’t accept straightforwardly the truth that we are buddha, but still doubt. That doubt makes you confused – simultaneously. 
+
+For instance, the samurai asked the Zen teacher, “Do you believe there is a hell in this world?” 
+
+*[There is some discussion to get the story right.]*
+
+The Zen master says, “You are a coward!” 
+
+Because the samurai doesn’t like hell, so that’s why he doubts whether the hell exists or not. That is, he doesn’t want to accept it. 
+
+Then immediately the samurai is mad at him, because that statement really insults the samurai. So immediately he was mad at the Zen master and took out his sword and tried to kill him. 
+
+And then the Zen master said, “Oh, oh, wait... that is hell.” Hell exists. 
+
+Do you understand this story? 
+
+So if you doubt, doubt simultaneously to cause confusion, bewilderment, to exist. 
+
+So that is confusion. That’s why nondualism is not a teaching which makes you blind, because nondualism takes you to the real nature of existence which is pure and clean. So you have to use your knowledge through and through; otherwise, you become blind. So you have to use your knowledge through and through: go into it deeply, go deeply in human beings. And then, if you explore human beings thoroughly, then something compels you turn over at one hundred eighty degrees. When you reach the terminal station, it’s not your business. Something compels you to go somewhere. You cannot stay there. So immediately, you turn over. 
+
+So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then, that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that is, it’s not your business, [it’s] universal business. That’s why Dogen Zenji mentions, “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.” Something like that. 
+
+For instance, if you sit down here, whatever your mind is thinking, well, as long as you are sitting right in the middle of zazen, zazen takes you, always. Zazen takes you to zazen.
+
+Zazen doesn’t take you somewhere. As long you’re sitting, right now. Even though you’re thinking; your mind may always think of something else. Japan, or fascinating, whatever you think, your body and mind is exactly there. 
+
+So, zazen takes you to zazen. So it’s not your business. Two situations happen: if you do it, and then that is analyzed by you, so-called “I do it.” But on the other hand, you don’t do it; zazen does it. If you sit down in zazen. 
+
+That is most important. If you really do it: something makes your life. But people don’t pay attention to it. Always intellectual sense becomes stronger and stronger, and analyzing the situation, and always we say, “We do it.” So that’s why self comes first. That’s really egoistic. 
+
+So that attitude is really a narrow way of taking care of human beings. Because you always see the human world in terms of the self-centeredness: “I do it, I want to do it,” always. Because you always ignore the other side, which is the bigger scale of the world. Is that clear? 
+
+So you should accept both. You do it; but you don’t do it. And then, your attitude becomes magnanimous, generous. Otherwise, you always become egoistic, and fighting, always bumping [into] each other. You’re hurting yourself and others. 
+
+So that is the difference between the Buddha and ordinary people. So, “It is only because their minds are confused that they are unable to enlighten themselves and must rely on a great Good Knowing Advisor who can lead them to see their Buddha-nature.” 
+
+> You should know that the Buddha-nature of stupid and wise people is basically not different. 
+
+Basically, not different. But the difference is that sometimes people are very selfish, not generous. That’s why confusion comes up. 
+
+> It is only because confusion and enlightenment are different that some are stupid and some are wise. 
+
+*Wise* means to make your life generous – tolerant, magnanimous. That is a wise [person]. 
+
+(29:06)
 
 
 
-#### 1:09:33 end of recording
+
+
+#### end of recording
 
 ---
 
