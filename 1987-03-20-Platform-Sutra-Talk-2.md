@@ -15,6 +15,8 @@ title: "Platform Sutra – Talk 2"
 
 #### 0:00
 
+**Katagiri Roshi:** 
+
 ... Page 89, Chapter 2: *Prajna*. 
 
 > The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajna Paramita.”
@@ -25,7 +27,7 @@ Look at page 40 in the sutra:
 
 I think it here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish” the buddha way, that teaching is connected with this first paragraph of the sutra in Chapter 2, Prajna: “the Master took his seat and said to the great assembly, ‘All of you purify your minds...’”
 
-“Purify your minds” means own being, means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straighforwardly, “straighaway,” without inserting any defilement. And then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. 
+“Purify your minds” means own being, means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement. And then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. 
 
 I think *prajna* can be considered in terms of three points. 
 
@@ -75,7 +77,7 @@ So wisdom is what? That is to be resolute, to do something. *Resolute* means “
 
 #### 17:07
 
-[...] The other time I mentioned “Good Knowing Advistors”; that means here, I think the audience, all the assembly. Assembly called “good knowing advisors.” The other day I mentioned, this is the meaning of the teacher. But sometimes it is used as a teacher, I think the people of the assembly. 
+[...] The other time I mentioned “Good Knowing Advisors”; that means here, I think the audience, all the assembly. Assembly called “good knowing advisors.” The other day I mentioned, this is the meaning of the teacher. But sometimes it is used as a teacher, I think the people of the assembly. 
 
 (Returning to the beginning of Chapter 2:)
 
@@ -161,9 +163,189 @@ That is the explanation of the meaning of maha prajna paramita. As a whole, it m
 
 I think you can read *The Perfect Wisdom Sutra* by Doctor Conze; you can see the commentary on the *Diamond Sutra* and *Heart Sutra*. In that book, I think you can find the explanation of *prajna paramita* in Sanskrit. He mentions it a little bit in that book. 
 
-(34:45)
+Prajna is wisdom, [...] perfect wisdom. *Pra* means perfect, completion. *Jna* is wisdom. So prajna, perfect wisdom. *Paramita*: *param* means “gone beyond.” *Ita* means she or he who has gone. In other words, she or he who has arrived. In other words, you who are present right here. That’s it. You are a person who has arrived, already. That is, we are buddha. “We are buddha” means you are a person who has gone. 
 
-#### end of recording
+Next, *param* means “gone beyond.” [That] means gone beyond the world of conceptualization. Gone beyond, already. That is the meaning of the truth that we are buddha. 
+
+So that is *prajna.* You have to see this truth with your deep knowledge; that is *prajna paramita*. 
+
+But here, in Chinese, we say “great wisdom which has arrived at the other shore.” The other shore is *nirvana*; nirvana is the nondualistic world. And [accept] perfect peace, right now. That is the other shore. So you are already arrived at the other shore, this is called great wisdom, perfect wisdom, which guides you to demonstrate your life as nirvana, peace and harmony. 
+
+So here it says like this, okay? Next,
+
+> “It must be practiced in the mind, and not just recited in words. 
+
+Here [...] *mind* means body and mind. So in Buddhism, always emphasizes the oneness of the body and mind: not separated. That’s why here it says, “It must be practiced in the mind, and not just recited in words.” So mind means mind *and* body. 
+
+> “When the mouth recites and the mind does not practice, it is like an illusion, a transformation, dew drops, or lightning.
+
+So if you don’t do that – when the mouth recites and the mind doesn’t practice – it is like an illusion, because you never know what the fire is, but you can know fire as a concept. But *that* fire doesn’t work in your everyday life. It’s something separate from you. So that’s why, no matter how long you do, your life becomes illusions. 
+
+> “However, when the mouth recites and the mind practices, then mind and mouth are in mutual accord.
+
+Exactly body and mind and mouth all come together, and working. 
+
+> “One’s own original nature is Buddha; apart from the nature there is no other Buddha.”
+
+So, the truth that we are buddha is not a teaching separate from us. You have to practice it with body and mind and word. 
+
+#### 
+
+And next, page 91, this explanation, 
+
+> “What is meant by Maha?
+
+... and then next I think it explains the meaning of *maha*:
+
+> “Maha means ‘great.’ The capacity of the mind is vast and great like empty space, and has no boundaries. 
+
+No boundaries. *Maha* means *boundless*; *vast*.
+
+> “It is not square or round, great or small. Neither is it blue, yellow, red or white. It is not above or below, or long or short. It is without anger, without joy, without right, without wrong, without good, without evil, and it has no head or tail.
+
+This is the meaning of vastness. Or *eternity*, we say. Or if you really touch the depths of existence, you can get *faith*. But *faith* is exactly like this; faith is not square, or round, not great, not small. Or faith is not blue or yellow or red or white, not above nor below. And not big, not small. And not anger; no delusions, no confusions, no misunderstandings. This is *faith*. If you really accept this original nature, your life becomes very stable. That is called *faith*. 
+
+So faith is what? Faith is very pure, and clean... *limpid*, like clear water, to the bottom. 
+
+So *manifest* this. That is faith. 
+
+Dogen Zenji always [talks about] this: When you want to practice the buddha way, you should believe that there is no confusion, no delusions, no misunderstanding. You are already amply present in the dharma world. 
+
+You should believe this. I always mention, “belief” is not to make you “blind.” Buddhist belief is [that] you have to still go deep into the bottom of existence. Using your knowledge, and using your body ...
+
+*[Tape change.]*
+
+... that is belief in Buddhism. 
+
+#### 43:23
+
+Next:
+
+> “All Buddha-lands are ultimately the same as empty space. 
+
+[...] “All Buddha-lands” is *phenomena*. Buddha-lands means all living beings, all sentient beings, all beings. [The four marks] of all beings are empty. Nothing to pin down: that is one *empty*, [for form] empty. Emptiness of form. 
+
+> “The wonderful nature of worldly people is originally empty, ...
+
+So that is the mind of all living beings is also empty. That means the emptiness of original nature.
+
+Emptiness [does not] mean *in vain*, okay? So, that is *full function*; the full function is called *emptiness*. The full function of your life; the full function of the rock, with all sentient beings. [The] full function of the mountain, working, interpenetrated with clouds and sky, human beings and trees, rain... Then, it is called *emptiness*: full function of the mountain. 
+
+That is called emptiness. So everything has this nature. So original nature is emptiness.
+
+> “... and there is not a single dharma which can be obtained. The true emptiness of the self-nature is also like this.
+
+So emptiness itself is emptiness. So emptiness is not something you can *get*. So emptiness is not something which exists in the world of conceptualization. Emptiness *is* exactly empty. 
+
+That is called *emptiness of the emptiness*.
+
+> “Good Knowing Advisors, do not listen to my explanation of emptiness and then become attached to emptiness. The most important thing is to avoid becoming attached to emptiness. If you sit still with an empty mind you will become attached to undifferentiated emptiness.”
+
+Do you understand? 
+
+**Someone**: No.
+
+**Katagiri**: It means, you do always. Usually people believe sitting is just sitting still, with empty mind. And then you believe this is a real understanding of emptiness. No. It’s delusion. Because you attach to emptiness. 
+
+So real emptiness is nothing but total, full function. That’s it. Total, full function appears: when total full function appears, under certain circumstances, it is put the name on it called *zazen*, or *gassho*. Is that clear? But we don’t do it. First, we attach to the form, and then we mold our life into the form. And then we say, “I did zazen.” You know? But actually, it’s reverse. You have to first, your life must be fully functioning. And then that fully functioning appears from moment to moment, under certain circumstances, so-called *zazen*, [or] *gassho*. And *then*, we call it zazen. Do you see the little difference? [It’s] quite different. 
+
+That’s why here it says, “If you sit still with an empty mind you will become attached to undifferentiated emptiness.” So constantly you must be in emptiness. That is full function, constant full function. 
+
+#### 
+
+Let me finish to the explanation of *maha*, okay? 
+
+> “Good Knowing Advisors, the emptiness of the universe is able to contain the forms and shapes of the ten thousand things: the sun, moon, and stars; the mountains, rivers, and the great earth; the fountains, springs, streams, torrents, grasses, trees, thickets, and forests; good and bad people, good and bad dharmas, the heavens and the hells, all the great seas, Sumeru and all mountains – all are contained within emptiness. The emptiness of the nature of worldly men is also like this.
+
+So emptiness itself is also exactly emptiness. 
+
+> “Good Knowing Advisors, the ability of one’s own nature to contain the ten thousand dharmas is what is meant by ‘great.’ 
+
+So, all sentient beings exactly emptiness. All sentient beings demonstrating constantly emptiness. Including all without exception, exactly. Animate or inanimate. And then if you look at your life, your life is nothing but a speck of dust; if you see your life in terms of the whole universe, your life is just a speck of dust. But if you really understand deeply speck of dust, within that speck of dust called your life, there are many, many, myriad beings exist. That’s why (the Lotus Sutra says) “Three Thousand Worlds in a Moment of Thought.” More than three thousand. That is, here it says, “the ability of one’s own nature to contain the ten thousand dharmas is what is meant by ‘great.’” That is called *great*; *boundlessness*. That is called *buddha nature*.
+
+And then if you decide, [steadily], “Yes, I’ll accept it.”  Then, that is called *wisdom*. Then next, you do it. That is called *wisdom*; *buddha nature*, we can say. 
+
+Or, generally speaking, you become generous, and tolerant, compassionate. This is called *great*. 
+
+This is called *wisdom*. Or, this is called *emptiness*.
+
+> The myriad dharmas are within the nature of all people. If you regard all people, the bad as well as the good, without grasping or rejecting, without producing a defiling attachment, your mind will be like empty space. Therefore it is said to be ‘great,’ ‘Maha.’”
+
+So, Dogen Zenji [says], “You shouldn’t hate life and death; you shouldn’t love nirvana. You must be free from life and death, you must be free from nirvana.” But it doesn’t mean ignoring nirvana; it’s not ignoring life and death. So, “you must be free from life and death and nirvana” means you yourself must be generous, magnanimous, beyond the concept of life and death which you have thought, or beyond the concept of nirvana which you have thought. You must be generous and compassionate, tolerant. Take a deep breath. Don’t judge immediately. Don’t be ... indulgent, lazy. 
+
+Well, in Soto Zen, we say, “Just sit down; that’s enough.” That is really lazy. *[He laughs.]* Or, the other school says, “Attain enlightenment! If you don’t, you are not a good student of Zen.” So, there is another technique which is giving blows [on] your hip, just like a cow or horse, you know, to get enlightenment. On the other hand, Soto Zen says, “Sit down. That’s enough.” Both are not *right* understanding of the buddha way. 
+
+So, “just sit down”: within that “just sit down,” there is sincerity, and sincere heart, and great effort there, full devotion there. On the other hand, no attachment. Because if you do *fully*, there is no attachment. You can be free. Generous. 
+
+That is, “Therefore it is said to be ‘great.’” That is called *maha*. So first of all, you must be generous and magnanimous. That is your attitude. And then, magnanimity or generosity as a full functioning appears in a certain situation: it is called *gassho*, or *bow*. 
+
+Then you see the *form* of gassho. And then people attach to the form. While we attachment is very strong in our life, because our life is taken care of in terms of *form* seen by us first. And then put our life in the form first. And then try to take care of it. This is one way; but it is not appropriate way to see your life which is fully functioning. 
+
+So very naturally, you fall into attachment. Because we’re there, in the world of conceptualization always. In language, and sense of value, created by human beings, human society. And always there is lots of form and regulations, and always we put ourselves into it, and then people judge. How are you? Are you a good boy? Or are you not a good boy? So always people are judged, evaluated, in terms of the form “frame.” So most people are really suffocated, to death, in such a situation. So they don’t respect completely human beings as buddhas. 
+
+[...]
+
+Do you have questions? 
+
+Before you come here, please read this and study a little bit; otherwise, just coming here and listening is not good for you. So even though you don’t understand it, you should read on your own. 
+
+There is a commentary. I don’t read the commentary; so, you should read the commentary. 
+
+#### 58:32
+
+**Question:** Where can we buy that edition? 
+
+*[There is some advisement from the audience.]*
+
+#### 59:25
+
+**Question:** So, Hojo-san? To get from doubt to faith, you’re saying you sit zazen? Is that how you do it? I missed the link from getting to doubt to faith. 
+
+**Katagiri:** What is your question? 
+
+**Same person**: Well you were talking about doubt as a hindrance. And then later on you were talking about faith. 
+
+**Katagiri**: Mmm-hmm.
+
+**Same person:** And it seemed like there is a progression there, from doubt to faith. Is that correct?
+
+**Katagiri**: Progression of doubt and faith?
+
+**Same person:** Mmm-hmm. Or, how do you get from doubt to faith? If you start out doubting, how do you get faith?
+
+**Katagiri**: Well, when you find yourself in the faith, and then it is called faith. Even though you have doubt. So you have to demonstrate faith; then, your life becomes faith, based on the faith. 
+
+If you see [...] doubt, and then doubt takes your life to the doubt, always there is doubt. But the bottom of the doubt has no root, so very naturally, the bottom of the doubt is emptiness. So naturally you’re confused, because you don’t know what to do in the realm of the doubt. So that’s why even though you see the doubt, I don’t think you should always depend on your doubt. So you have to demonstrate right in the middle of doubt.
+
+So a simple way is zazen, [which] buddhas and ancestors mention. 
+
+Generally speaking – in terms of general Buddhism – I think three points of practice: [*mon see shu*] \[...] *Mon* means listening. Listening, and also contemplation [of] what you have listened [to of] Buddha’s teaching, and *shu* is practice. Practice is meditation, zazen; *djana*. So listening to Buddha’s teaching, and contemplation – contemplation means very deep understanding, [it] means “nurturing wisdom.” Because already we are wisdom, so we have to nurture to grow. We have a buddha, so we have to nurture the buddha nature, which means to let it grow. 
+
+So that is contemplation. Listening to Buddha’s teaching, and contemplation, and *shu* means practice. That is zazen. We have to practice [the] three. 
+
+**Same person:** Thank you, hojo-san. 
+
+#### 1:03:12
+
+**Question:** Hojo-san, you talked about *paramita* meaning crossing over, kind of a crossing over. And I wonder ... is that everyday activity, when we have to do something? Because I can see two views: one is just that whatever you do, if you have a job you have to do, then just do it. Then that’s crossing over; it’s not a matter of if you do the job in order to cross over. 
+
+**Katagiri:** *Cross over* means already the explanation of nirvana in words. *Cross over* means already cross over; this shore, the other shore. So [it’s] dualistic. Real nirvana, “crossing over to the other shore,” doesn’t mean handle your life with the dualistic sense. That is *the other shore*. Because you have to show, demonstrate, the other shore day-to-day. From moment-to-moment basic, you have to do it. Because we are already buddha, means we are a person who has gone beyond, that’s it. So you have already arrived at the other shore. But if we explain, we say “the great wisdom which lets you be on the other shore,” something like that. That’s what you mean? What is your question? 
+
+**Same person:** I ... you were talking about going moment by moment, and then that is a sense of crossing, from moment to moment?
+
+**Katagiri:** Yes. That’s [right]. But it doesn’t mean that blindly you just do it. No. Okay? Because you cannot ignore the world of conceptualization, because we are always there, in the world of conceptualization. In other words, society is what? Society is a form of beings fabricated by human language, cultures. So already the form of society is conceptualization. We live there. Word; thought. Evaluation, judgement; all are form. So you cannot ignore this. So that’s why you have to *understand* it. 
+
+Understand the form of kindness: what kindness is. But you cannot understand kindness in terms of the world of the conceptualization only, no. Because still you don’t know what kindness is. So kindness should be tasted by your practice. [That] means you have to directly, straight away, taste the kindness among the people. Sharing your life with people. People give you kindness, sometimes. *Then*, you understand kindness. 
+
+In other words, you have to make your life alive, day to day, sharing with the people, sharing with kindness, compassion, generosity. Anyway, share. And then, your full function sometimes appears between you and all sentient beings. Then it is called compassion, or kindness, we say. And then you can get *accord with* all beings. And then it is called kindness; it really touches your heart. 
+
+But on the other hand, you have to understand the kindness in terms of the world of conceptualizations. Okay? So *just do it* is not always “just do it,” ignoring the other side, conceptualization. Because if you ignore the world of conceptualization, it means that you ignore life and death. So if you ignore, the other is attached by you. So ignoring is already attachment. So already you are taking care of human life in dualism. 
+
+So do you believe in God? “Yes.” Then, you believe in God, but you don’t believe in something else. [So a] person who doesn’t believe is “bad”; a person who believe is “good.” So people ask me, “Do you believe in God?” If I say “Yes”: “You’re a good boy!” If I don’t: “You’re a bad boy.” You know? This is really dualistic. Dualistic means you already attach to only one, and throw away the other. This is dualistic. 
+
+Consciously and unconsciously you handle like this. So this is the dualistic world. But you have to see clearly what the dualistic way of thinking, way of life. You have to see it. That is [what] Zen practice always say, “See the life and death”; “It is a great matter of life and death.” So you have to see clearly what’s going on in the dualistic sense. 
+
+#### 1:09:54 end of recording
 
 ---
 
