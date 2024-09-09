@@ -129,11 +129,39 @@ Basically, not different. But the difference is that sometimes people are very s
 
 *Wise* means to make your life generous – tolerant, magnanimous. That is a wise [person]. 
 
-(29:06)
+But if you are not wise, you really become short-tempered. Short-tempered? You are pretty easy to get mad at somebody. 
 
+> I will now explain for you the Maha Prajna Paramita Dharma in order that each of you may become wise. 
 
+That’s why Buddha expresses his compassion over all sentient beings: to let you know what wisdom is. So that is the explanation of wisdom, now. 
 
+> Pay careful attention, and I will explain it to you.
 
+Then, from now, it starts to explain wisdom. Maha prajna paramita. 
+
+> “Good Knowing Advisors, worldly people recite ‘Prajna’ with their mouths all day long and yet do not recognize the Prajna of their self-nature.”
+
+“Recite ‘prajna’ with their mouth”: I think in Buddhism you have to recite, or read, or practice, whatever you have to do, with the three categories of human actions: the mouth and words, and mind. Mind means mind and body. So mind, mouth, and body. You have to do this. So here it says that most people recite ‘prajna’ with the mouth. That is just talking. Just talking about wisdom. If you know something, we always just talk, discuss. But they don’t practice. Here it says they don’t practice prajna with the mind. That mind means mind and body. 
+
+So here it says, “... and yet do not recognize the Prajna of their self-nature.” *Self-nature* and *prajna* are the same thing. Wisdom and self-nature, exactly the same. So they don’t see true state of existence in terms of wisdom. Always there is a separation. The word wisdom is non-separation. But if you recite prajna with just words, you can always see your life just in terms of separation of the world. So that’s why here it says they don’t recognize the prajna of their self-nature. 
+
+> “Just as talking about food will not make you full...
+
+Just like talking about fire [...] you say, “fire,” but no matter how long you say about fire with your mouth, it doesn’t make sense for us. 
+
+> “... so, too, if you only speak of emptiness you will not see your own nature in ten thousand ages.
+
+It means no matter how long you do it, it doesn’t penetrate you. So,
+
+> “In the end you will not have obtained any benefit.
+> 
+> “Good Knowing Advisors, Maha Prajna Paramita is a Sanskrit word which means ‘great wisdom which has arrived at the other shore.’”
+
+That is the explanation of the meaning of maha prajna paramita. As a whole, it means “great wisdom which has arrived at the other shore.” 
+
+I think you can read *The Perfect Wisdom Sutra* by Doctor Conze; you can see the commentary on the *Diamond Sutra* and *Heart Sutra*. In that book, I think you can find the explanation of *prajna paramita* in Sanskrit. He mentions it a little bit in that book. 
+
+(34:45)
 
 #### end of recording
 
