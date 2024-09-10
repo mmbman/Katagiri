@@ -6,8 +6,8 @@ These are talks in extreme rough draft state. This page is not meant to be publi
 
 ### 1983
 
-- [Arts and Buddhism](1983-10-29-Arts-and-Buddhism)
 - [*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 1](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1)
+
 ### 1984
 
 - [*The Awakening of Faith* Talk 1](1984-03-16-The-Awakening-of-Faith)
@@ -23,6 +23,7 @@ These are talks in extreme rough draft state. This page is not meant to be publi
 
 - [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 - [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
+- [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)
 
 
 <a name="end">
