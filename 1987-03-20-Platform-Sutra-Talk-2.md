@@ -20,6 +20,9 @@ title: "Platform Sutra – Talk 2"
 ... Page 89, Chapter 2: *Prajna*. 
 
 > The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajna Paramita.”
+>
+> (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
+
 
 Look at page 40 in the sutra: 
 

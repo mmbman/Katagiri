@@ -24,6 +24,7 @@ These are talks in extreme rough draft state. This page is not meant to be publi
 - [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 - [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
 - [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)
+- [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
 
 
 <a name="end">

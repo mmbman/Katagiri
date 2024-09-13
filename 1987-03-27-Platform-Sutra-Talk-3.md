@@ -32,6 +32,8 @@ I think this is, how can I say: in this sutra I think emptiness of emptiness mea
 Then Prajna. [...]
 
 > “Good Knowing Advisors, all Prajna wisdom is produced from one’s own nature; it does not enter from the outside. Using the intellect correctly is called the natural function of one’s true nature. One truth is all truth. The mind has the capacity for great things, and is not meant for practicing petty ways. Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of. That would be like a common person calling himself the king of a country, which cannot be. People like that are not my disciples.”
+>
+> (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
 This paragraph mentions the general meaning of *prajna*, wisdom. So the general meaning of wisdom characterized by two meanings: one is self-functioning of the true nature. Wisdom means the self-functioning of the true nature, the original ultimate nature of existence. So *prajna* is not human knowledge only, but prajna is knowledge open to all living beings, because wisdom is the self-functioning of the ultimate nature of existence. This is called wisdom, because it is a kind of principle. But not only the principle, but also it is functioning, helping all sentient beings. That’s why it is called sometimes *dharma*. That dharma is “that which supports or upholds, maintains, all living beings.” So, that is characteristic of ultimate nature of existence. 
 
@@ -197,28 +199,25 @@ It is not something... If we say “your life is wisdom,” so, we try to know, 
 
 So wisdom means you should accept yourself right now, right here, and you should behave, you should do it. That means you have to forget yourself, then next, go beyond time. 
 
-That means, who are you? You come from past, you come from present, you are going to the future? “Yes.” But it is a part; that is a concept. You are living in the world of conceptualizations. But reality is something more than that. So you have to do it. 
+That means, who are you? You come from past, you come from present, you are going to the future? “Yes.” But it is a *part*; that is a concept. You are living in the world of conceptualizations. But reality is something more than that. So you have to do it. 
 
-So that is, here it says, “All Buddhas of the three periods of time emerge from it.” (57:41)
+So that is, here it says, “All Buddhas of the three periods of time emerge from it.” This is [that] then you can have, what would you say, spiritual communion among you and the universe. That [is the meaning of] “all buddhas of the three periods of time emerge from it.” 
 
+So if you do this, if you forget yourself and go beyond time, *then*, you can taste wondrous energy between you and buddha, you and the universe. That is called *kanno-doko* in Japanese: spiritual communion among you and the universe. Not among you and some person in particular: you and the universe. That is, here it says, “all buddhas of the three periods of time emerge from it.” This is a Buddhistic expression, talking about great energy. Feedback, in and out, between you and the universe. If you play the piano, naturally you can feel special, particular energies between the concert and you, music and you. We don’t know what it is. But if you forget yourself, and go beyond time, naturally you experience this. 
 
+“You should use great wisdom to destroy affliction, defilement, ...” Then, naturally, there is no affliction, defilement. Even though you go through the complicated procedure – rules and regulations, customs, habits, and your vibration of consciousness – you go through that stuff, but your body and mind [are never] confused, your body and mind just go. Not by your effort. Something. So you cannot stop it, finally. So that is [where] here it says, “You should use great wisdom to destroy affliction and defilement.”
 
+And then, how can you destroy afflictions and defilement? *You* cannot do it. You cannot destroy. If you behave according to the Buddha’s way, according to this way, *then* you can destroy, naturally. Afflictions [and] defilement drop away, are struck aside, from the beginning. That is called [the] *shikantaza* we do. 
 
+In other words, you should put your body and mind in the form, and then, you become straight. 
 
+“With such cultivation as that you will certainly realize the Buddha Way, transforming the three poisons into morality, concentration, and wisdom.” Then, finally, this practice is to have three poisons. To have great greed – not the usual greed. Greed turns into the Precepts. Usually greed is to use our life and others’ life in order to satisfy individual desire. But *great* greed means to satisfy all sentient beings. 
 
+Then, naturally, you cannot ignore others, because others are exactly the quality of your life. So you have to share your life with all living with all living beings. In order to share your life with all sentient beings, naturally there is discipline. Otherwise you cannot share. Even though you want to help somebody, there is a certain form, regulations, rules. You know, you cannot anybody recklessly. 
 
+So very naturally, your great greed turns into the Precepts. That’s why it says here the three poisons are transformed into morality, concentration, and wisdom. 
 
-
-
-
-
-
-
-
-
-
-
-
+#### 1:03:14 end of recording
 
 ---
 
