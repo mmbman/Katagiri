@@ -107,8 +107,35 @@ Well, I think the Sadharma Pundarika Sutra mentions about this point. Because th
 
 So where you may go, you as a bohdisattva build up Buddha’s land. This is a point [which] many Buddhist scriptures mention about this. Do you know that? 
 
-So we believe, “Yes, that’s it. That is a point we should believe as the purpose of Buddhist practice.” Wherever you may go, build up the truth. Even Dogen Zenji [talks about] this point. So what is the point of Dogen Zenji’s teaching? Dogen Zenji’s teaching, ancestors’ teaching, and Buddha’s teaching? It is to build up the truth wherever you may go – standing, walking, gassho, and zazen, eating breakfast, whatever you do, all you have to do is to build up the truth. It means, buddha land. Even though many people create wars, killing, and producing nuclear weapons, all you can do is to build up the truth, buddha’s land, day by day, from moment to moment, wherever you may go. Don’t be disappointed, because saha world is the buddha land. 
+So we believe, “Yes, that’s it. That is a point we should believe as the purpose of Buddhist practice.” Wherever you may go, build up the truth. Even Dogen Zenji [talks about] this point. So what is the point of Dogen Zenji’s teaching? Dogen Zenji’s teaching, ancestors’ teaching, and Buddha’s teaching? It is to build up the truth wherever you may go – standing, walking, gassho, and zazen, eating breakfast, whatever you do, all you have to do is to build up the truth. It means, buddha land. Even though many people create wars, killing, and producing nuclear weapons, all you can do is to build up the truth, buddha’s land, day by day, from moment to moment, wherever you may go. Don’t be disappointed, because saha world is the buddha land. Saha world is the unique place chosen by Buddha Shakyamuni where he should live. That’s always what they [say]. 
 
+I think that seems to be true, okay? *[He chuckles.]* But still, it is questionable. That’s why Dogen Zenji [says] here, “Even if we attain the summit of seeing manifestation of being as the inconceivable qualities of the buddhas, reality as it is in not like this.” No. Reality is what? If you believe like this – is the reality as it is just like that? No. Your life in reality is what? Full of suffering. 
+
+So you say, “No, it’s not true.” But on the other hand, we are seeking for that buddha land. And also, it is possible for us to build up buddha land wherever we may go. Because saha world is the unique place chosen by buddhas and ancestors where they can live. 
+
+*[Tape change.]*
+
+... No, it’s not, because reality is not like this. 
+
+So what is the point of practice? Finally, no answer. 
+
+So four kinds of understanding, four-fold viewpoints, outlook on the world, seems to be right. Or not necessarily Buddhism, but also other religions [talk] about this. 
+
+So I think the point is: the saha world is Buddha’s place. So I think according to the Triple Treasure we should completely believe, we should devote ourselves into buddha. The Triple Treasure. And then, on the other hand: if you look at your life very closely, the life in reality is not like life based on the Triple Treasure, buddha, dharma, sangha. It’s always full of suffering. 
+
+So, where do you live? You live in the sangha. What is the sangha? Is the sangha a peaceful place? Yes; the meaning of the sangha is a peaceful place. But, full of suffering. Because sangha is human beings who seek for the buddha and dharma. But as best as we can, try to build up buddha land, and the human world based on Buddha’s teaching. Because everyone who practices in the sangha is seeking for the same things. That’s why we try to believe and trust buddha dharma, and then practice it. 
+
+So [the] important point is, we should devote ourselves to buddha and sangha. It means, buddha and saha world. Where is it you want to practice? Buddha land. Where do you build up buddha land? In dharma? No. In sangha. Filled with suffering. So right in the middle of suffering, so-called saha world, we have to build up buddha land. So naturally, you can see a contradictory situation. 
+
+So you cannot be the first grade child, you cannot be the second grade child, or you cannot be the third grade child. Fourth grade: if you graduate from university, you seem to be wise, clever. But still, questionable. Because practically, life in reality is full of suffering. Even though you get a Ph.D., even though you practice zazen for many year, still your five skandhas: what’s going on around the five skandhas, still? And also what’s going on around the people? 
+
+#### 48:35
+
+So, I think if you read the *agamas* – you should read this *agama*, it’s very interesting. The title of this *agama* is, I think, [Digha Nikaya]: “Dialog of the Buddha, part 1.” Page 65, there is a sutra called [*Samaññaphala Sutta*]. Sutta means sutra. *Samañña* means shaman or monks. [*Phala*] means result – result which the monks can have through the practice of the buddha way. This sutra talks about this: result of the monks’ practice. That is called *Samaññaphala Sutta*. You should read this one. It’s not so long [a] sutra. 
+
+I think the point is, the four kind of views: first grade, second grade, third grade, fourth grade. 
+
+(51:07)
 
 
 
