@@ -2,7 +2,7 @@
 title: "Drafts"
 ---
 
-These are talks in extreme rough draft state. This page is not meant to be public.
+These transcripts are in early rough draft state. This page is not meant to be public.
 
 ### 1983
 
