@@ -93,7 +93,7 @@ So that is the second point Dogen Zenji mentions here.
 
 #### 31:39
 
-The third: “Even if various manifestation of being is seen as the realm of the buddhas, practice of the way, it is not necessarily something to love.” This is the people who follow the Distinctive Doctrines, according to Tendai. 
+The third: “Even if there is *manifestation of being* seen as the realm of the Buddhas’ practice of the way, it is not necessarily something to love.” This is the people who follow the Distinctive Doctrines, according to Tendai. 
 
 In other words, how can I say: you know the story of the outlook on the world in India? They believe right in the middle of the universe there is Mount Sumeru. And at the top of Mount Sumeru is a place where [...] shakra, the gods live. Around this top of the mountain there are four corners; in each corner, gods as guardians live. And also around the bottom of the mountain, there are eight mountains, nine kinds of oceans. That is according to the stories of the outlook on the world in India: primitive understanding. Mount Sumeru is just like [a] Himalaya Mountain. 
 
@@ -107,7 +107,7 @@ So we love saha world so much, because there is no other way to live. But Dogen 
 
 #### 37:53
 
-The fourth: “Even if we attain the summit of seeing manifestation of being as inconceivable qualities of the buddhas, reality as it is is not only like this.” 
+The fourth: “Even if we attain the summit of *seeing manifestation of being* as the inconceivable qualities of the Buddhas, reality as it is is not only like this.” 
 
 So fourth grade children, who follow the Complete Doctrine according to Tendai, which means *Sadharma Pundarika Sutra* and *Nirvana Sutra*, et cetera. Anyway, they believe that the saha world is the inconceivable merit of buddhas. 
 
