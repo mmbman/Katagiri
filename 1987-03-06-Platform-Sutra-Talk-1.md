@@ -46,7 +46,15 @@ But I think this is a little bit questionable. Dogen Zenji [talks about this]. I
 
 ... Something like that. 
 
-And in the “Sutra of the Mountains and Waters” (in *Shobogenzo*), Dogen Zenji [says] also, “Transforming the environment, transforming the mind, is something scorned by great sages. Speaking of mind, speaking of nature” – *speaking of nature* means speaking of one’s original nature – “is something not approved by buddhas and Zen adepts. Seeing into the mind, seeing into one’s own nature, is the livelihood of heretics. Sticking to words and phrases is not the explanation of liberation.” 
+And in the “Sutra of the Mountains and Waters”, Dogen Zenji [says] also,
+
+> *Transforming the environment*, *transforming the mind* is something scorned by great sages; *speaking of mind*, *speaking of nature* ...
+
+– *speaking of nature* means speaking of one’s original nature –
+
+> ... is something not approved by Buddhas and Zen adepts; *seeing into the mind*, *seeing into one’s own nature* is the livelihood of heretics; *sticking to words and phrases* is not the expression of liberation.
+>
+> (From *Shobogenzo: Zen Essays by Dogen*, translated by Thomas Cleary, page 91.)
 
 So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
 
