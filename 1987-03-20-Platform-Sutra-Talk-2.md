@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 2"
 ---
 ## March 20, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-27-Platform-Sutra-Talk-3) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Transcript
 
@@ -17,7 +17,7 @@ title: "Platform Sutra – Talk 2"
 
 **Katagiri Roshi:** 
 
-... Page 89, Chapter 2: *Prajna*. 
+... Page 89. Chapter 2: *Prajna*. 
 
 > The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajna Paramita.”
 >
@@ -354,4 +354,4 @@ Consciously and unconsciously you handle like this. So this is the dualistic wor
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-27-Platform-Sutra-Talk-3) | Series: [*Platform Sutra*](platform-sutra)

@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 4"
 ---
 ## April 3, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-04-10-Platform-Sutra-Talk-5) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Transcript
 
@@ -199,4 +199,4 @@ But if I [say], “You should do it. [It’s] not discussion. Keep your mouth sh
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-04-10-Platform-Sutra-Talk-5) | Series: [*Platform Sutra*](platform-sutra)
