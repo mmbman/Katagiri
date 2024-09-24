@@ -322,7 +322,7 @@ If you see [...] doubt, and then doubt takes your life to the doubt, always ther
 
 So a simple way is zazen, [which] buddhas and ancestors mention. 
 
-Generally speaking – in terms of general Buddhism – I think three points of practice: [*mon see shu*] \[...] *Mon* means listening. Listening, and also contemplation [of] what you have listened [to of] Buddha’s teaching, and *shu* is practice. Practice is meditation, zazen; *djana*. So listening to Buddha’s teaching, and contemplation – contemplation means very deep understanding, [it] means “nurturing wisdom.” Because already we are wisdom, so we have to nurture to grow. We have a buddha, so we have to nurture the buddha nature, which means to let it grow. 
+Generally speaking – in terms of general Buddhism – I think three points of practice: [*mon see shu*] \[...] *Mon* means listening. Listening, and also contemplation [of] what you have listened [to of] Buddha’s teaching, and *shu* is practice. Practice is meditation, zazen; *dhyāna*. So listening to Buddha’s teaching, and contemplation – contemplation means very deep understanding, [it] means “nurturing wisdom.” Because already we are wisdom, so we have to nurture to grow. We have a buddha, so we have to nurture the buddha nature, which means to let it grow. 
 
 So that is contemplation. Listening to Buddha’s teaching, and contemplation, and *shu* means practice. That is zazen. We have to practice [the] three. 
 

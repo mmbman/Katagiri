@@ -205,7 +205,7 @@ If you’re interested in that story, that’s pretty good, so you should study 
 
 **Katagiri:** Yes. Including thinking means also action. 
 
-So the definition of mindfulness is not to forget dharma. That is the definition of mindfulness. And the definition of *shamata*, *samadhi*, is to dwell in dharma. Do you understand the difference between shamata, djana, samadhi, and also mindfulness? Idealistically, okay? Idealistically, if you want to know the definition of mindfulness, it is not to forget the dharma. So you have to move toward dharma, constantly, in many ways. But very often you are backsliding. So that’s when we need that practice of mindfulness. But dyana, samadhi, is to dwell in, to be present constantly there. That is samadhi. We say shamata. 
+So the definition of mindfulness is not to forget dharma. That is the definition of mindfulness. And the definition of *shamata*, *samadhi*, is to dwell in dharma. Do you understand the difference between *shamata*, *dhyāna*, *samadhi*, and also *mindfulness*? Idealistically, okay? Idealistically, if you want to know the definition of mindfulness, it is not to forget the dharma. So you have to move toward dharma, constantly, in many ways. But very often you are backsliding. So that’s when we need that practice of mindfulness. But dyana, samadhi, is to dwell in, to be present constantly there. That is samadhi. We say shamata. 
 
 #### 2 - 33:00
 
