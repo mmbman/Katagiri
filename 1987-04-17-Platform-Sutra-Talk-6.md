@@ -21,15 +21,19 @@ title: "Platform Sutra – Talk 6"
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
-“The ability to cultivate the conduct of not dwelling inwardly or outwardly”: In this book, *inwardly* means seeing one's own nature. *Outwardly* means the Buddhist scripture written in words.
+“The ability to cultivate the conduct of not dwelling inwardly or outwardly”: In this book, *inwardly* means seeing one's own nature. *Outwardly* means the Buddhist scripture written in words. 
 
-So, [...] the ability to cultivate the conduct of not dwelling inwardly or outwardly. This is the meaning of the *prajna paramita* I think in the *Diamond Sutra*. In this book also, the Sixth Patriarch attained enlightenment when he heard the passage of sutra saying a bodhisattva has his thought awakened without abiding anything whatever. Then he attained enlightenment. And in *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary he says the Lankavatara Sutra page 95:
+So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajna paramita* [...] in the *Diamond Sutra*. In this book also, the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever; then he attained enlightenment. 
 
-> The Tathagata has no dwelling place in the sense that all his thoughts and doings have no exterior or outerior objects in view to which he desires to adapt himself, and therefore that he is like like the sun that shines on everybody, just and unjust, or like the lily in the field that gleams in its best, even when there is nobody around to admire its [super-]solomonic array?
+And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary says, page 95:
 
-[...]
+> The Tathagata has no dwelling place in the sense that all his thoughts and doings have no exterior or ulterior objects in view to which he desires to adapt himself, and therefore that he is like the sun that shines on everybody just and unjust, or like the lily in the field that blooms in its best even when there is nobody around to admire its supra-Solomonic array.
+>
+> (From *Studies in the Lankavatara Sutra* by Daisetz Teitaro Suzuki, page 95.)
 
-So that without doing abiding anything or whatever, that means purity, one's nature, original nature of the self is clean and pure, when it is working in one's life. It is not dwelling, it is working without abiding anything whatever.
+*[There is some discussion about what “supra-Solomonic array” might mean. No one knows.]*
+
+So that *without abiding anything whatever*, that means purity: one's original nature, the original nature of the self is clean and pure when it is working in one's life. It is not dwelling, it is working without abiding anything whatever.
 
 D.T. Suzuki says, “All his thoughts and doings have no exterior and [ulterior] objects in view to which he desires to adapt himself.” [...] This is very common, usual attitude, usual tendency towards human life. We always do it. Very strongly, sometimes unconsciously, we do [this]. Is that clear?
 
@@ -39,13 +43,13 @@ D.T. Suzuki says, “All his thoughts and doings have no exterior and [ulterior]
 
 **Same person:** Belief systems about ourselves what we can do we can and can’t do. 
 
-**Katagiri Roshi:** I think if you read the *agama*, I think Buddha's life is just like that. You know, not everyone respected him. Some tried to hurt him, or tried to interrupt his life, in many ways, religiously or [...]. But Buddha Shakyamuni always dealt with the situation without staying for long. “Without staying for long” doesn’t mean escaping; just [to] deal with the situation simply.
+**Katagiri Roshi:** I think if you read the *agamas*, I think Buddha's life is just like that. You know, not everyone respected him. Some tried to hurt him, or tried to interrupt his life, in many ways, religiously or [...]. But Buddha Shakyamuni always dealt with the situation without staying for long. *Without staying for long* doesn’t mean escaping; just [to] deal with the situation simply. But inside, I think that he seemed to suffer a lot in the sutras. [But] his behavior [or] doings are very simple.
 
-But inside, I think the he seemed to suffer a lot in the sutra, his behavior [or] doings are very simple.
+For example, when he practiced *takuhatsu*, begging [in one village], and from the beginning to end, he walked, but at that time the village people [were celebrating] something, so all the people decided not to give any offerings to the Buddha Shakyamuni. He walked the village, but nobody gave anything. So at the end of the village, he was a little bit hesitating to leave there, because he didn't have anything to eat. So he thought he’d try to come back once more again, but anyway, he decided [to leave] there. So that’s human feeling, human suffering there. He is a buddha, but he is also human. 
 
-For example, when he practiced *takuhatsu*, begging [one bridge], and from the beginning to end, he walked, but at that time the village people [were celebrating] something, so all the people decided not to give for any offerings to the Buddha Shakyamuni. He walked the village, but nobody gave anything. So in the end of the village, he was a little bit hesitating to leave there, because he didn't have anything to eat. So he thought he’d try to come back once more again, but anyway, he decided [to leave] there. So that’s the human feeling, human suffering there. He is a buddha, but he is also human. 
+“... dwelling inwardly and outwardly, of coming and going freely, of casting away...” 
 
-Dwelling inwardly and outwardly, coming and going freely, of casting away, coming and going freely. My teacher said to me, when I went down to the village to perform Buddhist service, after the service the village people wanted to talk with me, so finally I stayed long after performing services. Sometimes all morning staying at the one person's house. So he [said], “If you finish performing Buddhist service, you should leave as soon as possible.” And that is also pretty important for us: “of coming and going freely.” It seems to be easy, but it’s not so easy.
+“Coming and going freely”: My teacher said to me, when I went down to the village to perform Buddhist service, after the service the village people wanted to talk with me, so finally I stayed long after performing services. Sometimes all morning staying at the one person's house. So he [said], “If you finish performing Buddhist service, you should leave as soon as possible.” And that is also pretty important for us: “of coming and going freely.” It seems to be easy, but it’s not so easy.
 
 “of casting away the grasping mind”: this is also very strongly, minutely, this grasping mind is always working in individual life. [...] This is our everyday practice, casting away the grasping mind. I think you cannot cast away, you cannot take out grasping mind and throw it away. You cannot do it. So in order to do this, I think from moment to moment you must be just present there, and then next moment you have to do it with wholeheartedness. That [way], naturally, grasping mind drops off. 
 
