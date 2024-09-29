@@ -162,7 +162,7 @@ Do you have any questions?
 
 **Another person:** Is it by the Western calendar?
 
-**Katagiri:** Oh, yes – of course. I am talking about [the Western calendar], yes.
+**Katagiri Roshi:** Oh, yes – of course. I am talking about [the Western calendar], yes.
 
 #### 54:13
 
@@ -170,11 +170,11 @@ Do you have any questions?
 
 *[Laughter.]*
 
-**Katagiri:** Uh... before that, what did I say? 
+**Katagiri Roshi:** Uh... before that, what did I say? 
 
 **Same person:** Well, you were talking – I think it was about sitting [zazen](glossary#zazen) just to sit zazen, and not to have expectations or goals, or... I’m not sure, I’d have to listen to be sure. But that sentence really struck me. 
 
-**Katagiri:** *[Quietly:]* Yeah... 
+**Katagiri Roshi:** *[Quietly:]* Yeah... 
 
 *[Laughter.]*
 

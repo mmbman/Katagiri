@@ -204,7 +204,7 @@ Okay. Do you have a question?
 
 **Question:** Roshi, when you talked about Katagiri and the universe being born, do you mean that’s continuously happening all the time, or do you mean that as a historic event, a one-time event?
 
-**Katagiri:** I think the universe cannot be seen easily. Because it’s vast. What you can see is now, and moment, and present time. So through the present time, what you can do is to take care of the present time. But that present time is not the present only. It is exactly connected with the universe. In other words, it is backed by the whole universe. 
+**Katagiri Roshi:** I think the universe cannot be seen easily. Because it’s vast. What you can see is now, and moment, and present time. So through the present time, what you can do is to take care of the present time. But that present time is not the present only. It is exactly connected with the universe. In other words, it is backed by the whole universe. 
 
 So that’s why ... how can you see that universe? That’s why you have to penetrate the present time, with clear mind. So with your mind, you have to research deeply [the] microphone, Katagiri, in the present, and then see something behind me, above me, something more than to the right, to the left, something more than beneath my feet. So, the whole space, vast and open space around me. And then, very naturally, with your mind you have to research this. That is the teaching always mentions about this. 
 
@@ -218,7 +218,7 @@ Is that alright?
 
 **Question:** Roshi, when you talked the parent ... the child. Isn’t it also reversed, the child [seeing] the parent? 
 
-**Katagiri:** Mm-hm. Sure. The child must be deal with the parents exactly as the messenger of the world we knew. 
+**Katagiri Roshi:** Mm-hm. Sure. The child must be deal with the parents exactly as the messenger of the world we knew. 
 
 Particularly the parents and children’s relationship are very deep, you know? 
 

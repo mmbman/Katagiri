@@ -48,7 +48,7 @@ So those are the three characteristics.
 
 **Question:** You said discipline under essence. The three characteristics are essence, attribute, and function. Where did you get discipline in there? 
 
-**Katagiri:** Discipline means reason why, the reason for the existence. (Principle.)
+**Katagiri Roshi:** Discipline means reason why, the reason for the existence. (Principle.)
 
 The one mind, its two aspects, its three characteristics in a sense describe about the maha, in this case. We say Mahayana, what is maha. But in this book, maha is described by one mind, its two aspects, and its three characteristics. And also part 4, there are four faiths and five practices. And excellent skillfulness – something like this. That is the meaning of maha. 
 
@@ -72,17 +72,17 @@ Do you have questions?
 
 **Question:** Hojo-san, when you say that this book has to do with awakening Mahayana faith as opposed to Hinayana, what is it? 
 
-**Katagiri:** Yes. I said Hinayana, but Maha doesn’t mean great as opposed to small. No. I don’t mean this. But the term Mahayana is used very naturally opposed to Hinayana. So Mahayana is the understanding Buddha’s Way in a broad perspective. But in this case, the term maha doesn’t mean great opposed to small.
+**Katagiri Roshi:** Yes. I said Hinayana, but Maha doesn’t mean great as opposed to small. No. I don’t mean this. But the term Mahayana is used very naturally opposed to Hinayana. So Mahayana is the understanding Buddha’s Way in a broad perspective. But in this case, the term maha doesn’t mean great opposed to small.
 
 **Question:** Okay. Does Hinayana mean just like cultivating ones own psychological...
 
-**Katagiri:** Yes, that is a very common understanding of this. 
+**Katagiri Roshi:** Yes, that is a very common understanding of this. 
 
 #### 32:48
 
 **Question:** Hojo-san, you said there are different practices for those with non-backsliding faith and those with backsliding faith. How do you know if you have backsliding faith or non-backsliding faith? 
 
-**Katagiri:** *[Chuckles.]* Well, I think you can know pretty well in your everyday life. In spiritual life, you can’t always stay in strong spiritual faith. Even though you believe that you have strong spiritual faith, still within the faith, you can see the up and down slide. Sometimes you don’t want, sometimes you want. Sometimes you have doubt, you become very skeptical. Apparently you do zazen strongly, you believe Buddhism, but still there is skeptical doubt. So doubt and skepticism are kind of, this is kind of backsliding your faith. 
+**Katagiri Roshi:** *[Chuckles.]* Well, I think you can know pretty well in your everyday life. In spiritual life, you can’t always stay in strong spiritual faith. Even though you believe that you have strong spiritual faith, still within the faith, you can see the up and down slide. Sometimes you don’t want, sometimes you want. Sometimes you have doubt, you become very skeptical. Apparently you do zazen strongly, you believe Buddhism, but still there is skeptical doubt. So doubt and skepticism are kind of, this is kind of backsliding your faith. 
 
 So more or less, you have this kind of backsliding faith. In order to have not-backsliding faith, you have to practice for a long time. But basically, we are already living in the realm of unbacksliding faith, because we are already embraced by the essence of existence, being. Even though you realize or you don’t realize, you are embraced by the universe. So from this point, wherever you may go, you are always at the stage of not-backsliding faith already. But we don’t see it. That’s a problem for us. That’s why we have to notice, we have to realize it, and we have to practice it. 
 
@@ -90,13 +90,13 @@ So more or less, you have this kind of backsliding faith. In order to have not-b
 
 **Question:** Why are there different kinds of practices? If everybody is both backsliding and non-backsliding, why do they [have] different kinds of practices?
 
-**Katagiri:** Because everyone has different kinds of lifestyles. I think basically all sentient beings live in the same and one ground, from this point all sentient beings become equal. But each one is different. Tree is different, bird is different. So very naturally many kinds of human beings there. But through the different characteristics, different personalities, different lifestyles, different form of beings, we have to realize the same and one ground, so-called faith, the essence of the universe. We have to find it. That’s why there are many practices.
+**Katagiri Roshi:** Because everyone has different kinds of lifestyles. I think basically all sentient beings live in the same and one ground, from this point all sentient beings become equal. But each one is different. Tree is different, bird is different. So very naturally many kinds of human beings there. But through the different characteristics, different personalities, different lifestyles, different form of beings, we have to realize the same and one ground, so-called faith, the essence of the universe. We have to find it. That’s why there are many practices.
 
 #### 39:15
 
 **Question:** ... faith, does that mean faith in dharma? What is it faith in? 
 
-**Katagiri:** Sure, we can say dharma. Because dharma is the essence of being; three meanings, essence of being, and phenomena, and ... teaching. That is called dharma. So what we should believe in, generally speaking, we say dharma, we can believe dharma. So we can believe in the essence of beings as dharma, we can believe in the phenomenal world as dharma. We can believe in the dharma as the phenomenal world, because phenomenal world is not something different from essence of existence. So that’s why we believe the dharma as the essence of beings and as the phenomenal world, and also we believe in the teaching. That is belief. 
+**Katagiri Roshi:** Sure, we can say dharma. Because dharma is the essence of being; three meanings, essence of being, and phenomena, and ... teaching. That is called dharma. So what we should believe in, generally speaking, we say dharma, we can believe dharma. So we can believe in the essence of beings as dharma, we can believe in the phenomenal world as dharma. We can believe in the dharma as the phenomenal world, because phenomenal world is not something different from essence of existence. So that’s why we believe the dharma as the essence of beings and as the phenomenal world, and also we believe in the teaching. That is belief. 
 
 In this book, faith is described in more detail .... 
 
@@ -164,11 +164,11 @@ Okay, do you have questions?
 
 **Question:** Hojo-san? You said “we’re already Buddha, so we need to act like Buddha.” We’re already Buddha, and everything we do is the action of Buddha. Is that right? If we’re already Buddha, then everything we do is already the action of Buddha. 
 
-**Katagiri:** Mmm-hmm. 
+**Katagiri Roshi:** Mmm-hmm. 
 
 **Question:** So what do we need to try to do?
 
-**Katagiri:** Well that’s why we have to do it. But human beings don’t do it. Don’t you think so? Tree, birds, and sky, winter, work pretty well as buddha. But human beings don’t work in that way. Do you understand? 
+**Katagiri Roshi:** Well that’s why we have to do it. But human beings don’t do it. Don’t you think so? Tree, birds, and sky, winter, work pretty well as buddha. But human beings don’t work in that way. Do you understand? 
 
 For instance, when you do zazen, that is simple zazen. Buddha means, if you are buddha, and then you should act as a buddha in zazen means ... what do you mean by this? Zazen and you are not separated, zazen and you are interconnected, interpenetrated, having great, wonderful created world, created life there, between zazen and you. Very nice creation there, created life. But we don’t do it. But look at the trees and winter. Wonderful creation there. But we don’t do it. We always doing zazen, we’re always complaining, and daydreaming, always thinking, chasing after thoughts. Don’t you think so? We are always creating a gap between zazen and you, always. So it’s very difficult to create universal life, created life. I say group creation, okay? *[He laughs.]* By the sangha you have to have group creation, wonderful creation in life. That means each person must communicate very closely; don’t create a gap. But that is very difficult. If you live like this, very naturally you are fighting, you know? In many ways. Competing, always. But look at the trees and birds, and winter. Very naturally, there is wonderful creation there. That’s why we are really caught by the beauty of nature. Completely beyond human speculation: why do you like nature? You like it. Because we can see it. That’s a beautiful scene. We have [it] already, that’s why we can see that something beautiful which nature has. But actually we don’t do it, that’s why we are really caught by nature and dream that nature. At that time, we forget completely how to practice this. So always dreaming, and exciting the beauty of nature. That’s why people want to go to nature, et cetera. Well we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha.”
 

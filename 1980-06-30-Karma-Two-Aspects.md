@@ -141,21 +141,21 @@ That is [what I will have to explain] with my best effort. Do you have some ques
 
 **Question:** Roshi, it seems that when people use the word karma in popular talk, they mean either the collection of your good and bad deeds, which will give you a higher or lower life next time, or else they mean your past deeds that ordain what happens now. Is that your understanding?
 
-**Katagiri:** That is one aspect of karma. I’m suggesting that is a misunderstanding. Well, it’s not exactly a misunderstanding; that is one aspect of karma. Karma continues from the past, through the present, to the future; this is karma.
+**Katagiri Roshi:** That is one aspect of karma. I’m suggesting that is a misunderstanding. Well, it’s not exactly a misunderstanding; that is one aspect of karma. Karma continues from the past, through the present, to the future; this is karma.
 
 #### 47:28
 
 **Question:** Roshi, are all things that happen to me [karma]? Say I go walk outside of this building and trip and fall down. Is that karma, or are there things that happen that are simply action?
 
-**Katagiri:** Yes, it is also called karma. In the scripture[s] those things happen, and those things are included as karma.
+**Katagiri Roshi:** Yes, it is also called karma. In the scripture[s] those things happen, and those things are included as karma.
 
 **Same person:** Are they included as karma in that second sense, though? Remember, you mentioned first there was karma that was just action, and then the sense that we were talking about was retributive karma. 
 
-**Katagiri:** Well, just actions, and also natural disasters; sometimes you have to die by natural events. Or if you walk on the street and someone hits you, or someone stabs you – those things happen. […] Those events are also karma.
+**Katagiri Roshi:** Well, just actions, and also natural disasters; sometimes you have to die by natural events. Or if you walk on the street and someone hits you, or someone stabs you – those things happen. […] Those events are also karma.
 
 **Same person:** Are they connected with your past, though?
 
-**Katagiri:** Yes, I’d say so. 
+**Katagiri Roshi:** Yes, I’d say so. 
 
 For instance, [one] Buddhist scripture says karma is one of the mysterious [things], okay? [In] another Buddhist scripture Buddha says karma is very powerful, [you have] no control [over it]. Well, this is always happening, don’t you think so? 
 
@@ -169,11 +169,11 @@ When I was in college, I [studied] western novels and literature. A person in a 
 
 **Question:** Roshi? The second understanding of karma, where you have a place to experience, does that give you more control over the first aspect of it? 
 
-**Katagiri:** What?
+**Katagiri Roshi:** What?
 
 **Same Person:** Does practice have an impact on the *no control*? Does the effort and practice of doing zazen, et cetera, does that have the power to influence whatever the karma is? 
 
-**Katagiri:** Yes. Sure. Right. I will talk about that point too. 
+**Katagiri Roshi:** Yes. Sure. Right. I will talk about that point too. 
 
 Broadly speaking, the purpose of Buddhist practice is that we should accumulate the power of good customs, in order to reach the beautiful, ideal image of human life. Continue to accumulate power of habit, and then this is really what is called karma, and in the future it [shoots]. When the time is right, conditions arranged, it [grows]. 
 
@@ -187,7 +187,7 @@ So even with such a thing, we try to accumulate that power of habit, and then [t
 
 **Question:** Hojo-san? How does [aiming at the long range] exist with zazen as an end and not as a means, and not having any goals in zazen?
 
-**Katagiri:** *No goal* of zazen is not no *goal* of zazen, okay? *No goal* means *samadhi*, exactly samadhi. You have to experience samadhi itself; that *is* what is called *no goal*. 
+**Katagiri Roshi:** *No goal* of zazen is not no *goal* of zazen, okay? *No goal* means *samadhi*, exactly samadhi. You have to experience samadhi itself; that *is* what is called *no goal*. 
 
 If you say “here is a goal,” it’s already the object. But the main purpose is, if you want to live in peace and harmony, or what is called freedom or happiness, we have to experience samadhi itself. In the samadhi there is no object. That is what we temporarily call *no goal* in practice, or *no merit*, whatever it is. 
 

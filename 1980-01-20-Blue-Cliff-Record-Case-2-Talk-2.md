@@ -240,15 +240,15 @@ Do you have some questions?
 
 **Question:** *[Unintelligible.]*
 
-**Katagiri:** Well that is that love and hate, for all those people, those are affective preferences, many emotional things. But we already have love and hate and many emotional things. We don’t ignore them. We cannot throw them away, okay? [So] where does that [phrase come from], “avoid love and hate”? Because we have them already. We have them already means that we have to take care. We shouldn’t obsess with them, and, well, we shouldn’t be confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
+**Katagiri Roshi:** Well that is that love and hate, for all those people, those are affective preferences, many emotional things. But we already have love and hate and many emotional things. We don’t ignore them. We cannot throw them away, okay? [So] where does that [phrase come from], “avoid love and hate”? Because we have them already. We have them already means that we have to take care. We shouldn’t obsess with them, and, well, we shouldn’t be confused. Finally we must be free from them. In other words, what is the *true* love? You cannot say. While you can explain what love is, that is not real love. Don’t you think so?
 
 **Same Person:** What I was wondering was do we have a choice, to hate or not to hate.
 
-**Katagiri:** Of course, we should choose. But you cannot always be hanging on. Sooner or later, you must be free. Even though love is good, you cannot always be hanging on.
+**Katagiri Roshi:** Of course, we should choose. But you cannot always be hanging on. Sooner or later, you must be free. Even though love is good, you cannot always be hanging on.
 
 **Same Person:** We get to choose not to love or not to hate?
 
-**Katagiri:** First choose, but we must be free from it, finally. That means we should understand what real love is, real hate is. Do you understand? 
+**Katagiri Roshi:** First choose, but we must be free from it, finally. That means we should understand what real love is, real hate is. Do you understand? 
 
 Well anyway, you have to reach the third stage. *[He laughs.]* But you should choose. That’s why *you* have to choose, you have to pick. By what? By you. That’s why we have to be careful of choosing and picking, every day. 
 

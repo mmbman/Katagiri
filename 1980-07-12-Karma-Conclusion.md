@@ -134,7 +134,7 @@ Do you have any questions?
 
 **Question:** Hojo-san? Do you remember in Huston Smith’s Dogen lectures, I think it was the last one, he compared Saint John of the Cross and Dogen. And he talked about grace being always present; the general grace in Buddhism. It’s his idea that there were similarities between Saint John and Dogen in this way. I wonder if maybe that concept of the right conditions and time would be a way of staying in contact with that grace, or even maybe not wanting to use that term.
 
-**Katagiri:** Grace is not something coming from heaven, or from some other person, or from something else, okay? Grace in Buddhism is actual practice, practice itself. 
+**Katagiri Roshi:** Grace is not something coming from heaven, or from some other person, or from something else, okay? Grace in Buddhism is actual practice, practice itself. 
 
 When you do gassho, gassho is human action. One point is [karma] as inheritance: maybe you did [something] in the past, as a Buddhist or not; maybe you were one of the Indians related with Buddhism, and that’s why you can do this now. Maybe you can understand it in that way. On the other hand, gassho is nothing but energy... 
 
@@ -152,7 +152,7 @@ So if grace doesn’t come from somebody, or from heaven, or from hell – nowhe
 
 **Question:** Could you say that grace is interdependence?
 
-**Katagiri:** Yes... or not. *[He laughs.]* Interdependent co-origination is ideas, okay? Grace is not ideas. Grace is your life, which is fully alive, vividly, don’t you think? This is grace. Even though you say, “I experience grace,” and then if your life is messy, “That’s not grace.” If you experience grace from heaven or somewhere, grace is supposed to be something to help your life, not messy, confused. Maybe a little bit messy, but not much.
+**Katagiri Roshi:** Yes... or not. *[He laughs.]* Interdependent co-origination is ideas, okay? Grace is not ideas. Grace is your life, which is fully alive, vividly, don’t you think? This is grace. Even though you say, “I experience grace,” and then if your life is messy, “That’s not grace.” If you experience grace from heaven or somewhere, grace is supposed to be something to help your life, not messy, confused. Maybe a little bit messy, but not much.
 
 Is that okay? *[He laughs.]* So of course I can say yes, grace is interdependent co-origination. But it’s *not*. You should [be] *right on* interdependent co-origination. Right on.
   

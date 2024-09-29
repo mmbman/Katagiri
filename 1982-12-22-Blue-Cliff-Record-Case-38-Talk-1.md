@@ -271,11 +271,11 @@ Do you have some questions?
 
 **Question:** Hojo-san? The *[unintelligible]*, is that just sort of like “just do it”?
 
-**Katagiri:** Yeah, that is “discussing sudden.”
+**Katagiri Roshi:** Yeah, that is “discussing sudden.”
 
 **Same person:** Ah.
 
-**Katagiri:** This *Blue Cliff Record* always [presents] the sudden and gradual, particularly the sudden, in a dramatic way. Very dramatic, but I don’t think you should imitate the dramatic way. *[He chuckles.]* You can do it in many ways: through words, through silence, you can do it.
+**Katagiri Roshi:** This *Blue Cliff Record* always [presents] the sudden and gradual, particularly the sudden, in a dramatic way. Very dramatic, but I don’t think you should imitate the dramatic way. *[He chuckles.]* You can do it in many ways: through words, through silence, you can do it.
 
 You know I told you before a Zen Master taught a priest who was really proud of his experience, proud of his priest life, because he was completely respected by one of his followers, a very old woman who respected him just like Buddha, you know? [The priest said] to the Zen Master, “I was really respected by one of my followers.” Then immediately [the Zen Master] said, “Don’t think of life roughly. You originally are stupid. So shut up.” *[He laughs.]* In a word, it’s very sharp. Don’t you think so? It means if you are respected by somebody, that’s wonderful, but let it go. What do you mean? You are respected by one of the old women in the village. It is just like karmic life. Just like a lion: lion is strong, [catches] the cats in the lion cage and [eats them]. And then you say, “I am strong.” Lion is respected. So I can talk Buddha’s teaching pretty well, and you respect [that], what does it mean? I cannot think of myself, “I am Buddha.” I don’t think so; this is just like owls, who can see at night. Same thing; what’s the difference? So don’t be bragging. Don’t think of life roughly. You are originally stupid, so shut up. *[He laughs.]* That is exactly *boom*. That’s pretty nice, isn’t it? It’s like hitting him with a whisk. 
 
@@ -283,15 +283,15 @@ You know I told you before a Zen Master taught a priest who was really proud of 
 
 **Question:** When you say that you have to do what you have to do, and you shouldn’t do what you shouldn’t, where does that come from, that *having to do*? And you say in relation to the training period to just follow the schedule, but supposing that what you feel that you have to do is not something that’s necessarily...
 
-**Katagiri:** No. Just you have to do what you have to do. According to the schedule, and... 
+**Katagiri Roshi:** No. Just you have to do what you have to do. According to the schedule, and... 
 
 **Same person:** How do you decide what you have to do? 
 
-**Katagiri:** Well, you already decided your attendance of the training session. So you already decided.
+**Katagiri Roshi:** Well, you already decided your attendance of the training session. So you already decided.
 
 **Same person:** Okay, but does that apply to other things besides training sessions? [Like,] in your life there’s certain things that you feel that you want to do or need to do? 
 
-**Katagiri:** Oh, of course, in your daily life I don’t think you always do something related with training sessions. You cannot [always] do it. So you have to go to work, but in the “go to work,” that still means if you go to school or teach, you have to do something you have to do. Always there is [that] you have to do something you have to do. So how do we know there’s something we have to do? Well, we should learn; we should learn what it is. You can learn. 
+**Katagiri Roshi:** Oh, of course, in your daily life I don’t think you always do something related with training sessions. You cannot [always] do it. So you have to go to work, but in the “go to work,” that still means if you go to school or teach, you have to do something you have to do. Always there is [that] you have to do something you have to do. So how do we know there’s something we have to do? Well, we should learn; we should learn what it is. You can learn. 
 
 If you do something wrong, maybe you bump your head against an electric pole and get a bump. *[He laughs.]* You know? So through this, everyday life, we can learn. But as much as possible, we shouldn’t hit our forehead against an electric pole when we walk down the street. That is a teaching. We have to listen to the teaching, and also we have to practice: less bumps on your head. If you want, you can get lots of bumps on your head, but we should [have] less, we should confine the bumps to the minimum. 
 
@@ -299,17 +299,17 @@ If you do something wrong, maybe you bump your head against an electric pole and
 
 **Question:** Roshi? I still don’t understand where it says, “The Governor said, ‘The Buddhist Law and the Law of Kings are the same.’”
 
-**Katagiri:** The teacher’s understanding is the Buddhist Law. The Buddhist Law doesn’t mean some teaching apart from human life. It’s connected to human life. So Lu P’i, and governors, including Hsueh Zen Master, are nothing but the beings which are in the bustling marketplace. Nevertheless, right in the midst of the bustling marketplace, we have to understand the Buddha Law. So Buddha Law and also the Law of Kings is the same thing. 
+**Katagiri Roshi:** The teacher’s understanding is the Buddhist Law. The Buddhist Law doesn’t mean some teaching apart from human life. It’s connected to human life. So Lu P’i, and governors, including Hsueh Zen Master, are nothing but the beings which are in the bustling marketplace. Nevertheless, right in the midst of the bustling marketplace, we have to understand the Buddha Law. So Buddha Law and also the Law of Kings is the same thing. 
 
 #### 1:05:31
 
 **Question:** Hojo-san, did I understand correctly a phrase which you said a few times, “You need a boss”? 
 
-**Katagiri:** Both.
+**Katagiri Roshi:** Both.
 
 **Question:** Oh, I misheard you.
 
-**Katagiri:** Oh, I see. B-o-t-h, not b-o-s-s. *[Laughter.]*
+**Katagiri Roshi:** Oh, I see. B-o-t-h, not b-o-s-s. *[Laughter.]*
 
 #### 1:58:02 end of recording
 

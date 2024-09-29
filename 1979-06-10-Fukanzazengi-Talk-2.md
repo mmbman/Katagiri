@@ -118,11 +118,11 @@ Do you have any questions?
 
 **Question:** I don’t understand *circumstances*; I don’t quite understand the idea. 
 
-**Katagiri:** Circumstances are outside; outward circumstances. The sound of the car.
+**Katagiri Roshi:** Circumstances are outside; outward circumstances. The sound of the car.
 
 **Question:** Situation? Environment?
 
-**Katagiri:** Situation. Mmm-hmm. Environment.
+**Katagiri Roshi:** Situation. Mmm-hmm. Environment.
 
 Although, there are lots of environments. Some environments are connected with you directly, but some environments are not connected directly; they are indirectly connected. But even though there are some environments connected indirectly, they are also environments; we cannot ignore them. Circumstances includes all things, *all* environments, connected directly or indirectly. 
 
@@ -136,21 +136,21 @@ So cut off all things. “Cut off” means put them aside. You cannot destroy th
 
 **Question:** Roshi, did Pali scriptures or did pre-Mahayana scriptures talk about these six categories?
 
-**Katagiri:** No, I don’t think so.
+**Katagiri Roshi:** No, I don’t think so.
 
 **Same person:** Where do they appear?
 
-**Katagiri:** Well, the regulation of body, regulation of the breath, regulation of mind, is the teaching of Zen Buddhism, the practice of zazen, through regulation. So that’s why I want to explain that. But those six categories are very common categories according to psychology. 
+**Katagiri Roshi:** Well, the regulation of body, regulation of the breath, regulation of mind, is the teaching of Zen Buddhism, the practice of zazen, through regulation. So that’s why I want to explain that. But those six categories are very common categories according to psychology. 
 
 **Same person:** I see.
 
-**Katagiri:** So, you know them pretty well.
+**Katagiri Roshi:** So, you know them pretty well.
 
 If you don’t understand number one, number two, number three, four, five: number one is circumstances, environment; number two is the sensory world; number three is body; number four is internal organs, breath; number five is brain and nerves. Do you understand? 
 
 **Same person:** Oh yes.
 
-**Katagiri:** Well, it’s very easy. So that’s why, according to zazen, we can make arrangement of those five, or at least four. And then immediately, you can get a chance to manifest total personality, because all circumstances are perfectly arranged. 
+**Katagiri Roshi:** Well, it’s very easy. So that’s why, according to zazen, we can make arrangement of those five, or at least four. And then immediately, you can get a chance to manifest total personality, because all circumstances are perfectly arranged. 
 
 For instance, if you want to feel comfortable, you cannot get a comfortable feeling without making arrangement of the environment. That’s the environment: number one, number two, number three, number four. So anyway, first of all make arrangement, that is the point. Instead of escaping, or attaching, or destroying, et cetera. 
 
@@ -162,7 +162,7 @@ So that’s why the regulation of the mind is very important.
 
 **Question:** Roshi? We talk about and we chant that the natural condition of mind is to be free from clinging. Sometimes I wonder, I’m not clear about, if it’s our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it’s almost impossible to attain it. Why is this called the natural condition in life?
 
-**Katagiri:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience [the] natural [condition], or the basis of ego consciousness, et cetera. But usually, I told you, *total personality*: through this person, through this *you*, we can see the total personality. 
+**Katagiri Roshi:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience [the] natural [condition], or the basis of ego consciousness, et cetera. But usually, I told you, *total personality*: through this person, through this *you*, we can see the total personality. 
 
 In a sense, according to the common sense – you know, consciousness, our sense, our mind – I can “smell” you. Or, I can smell myself. That is a “stink,” in a bad sense; but in a good sense, it’s pretty good. So the total personality shows you the judgement, good or bad. But that good or bad is something you understand through consciousness. 
 
@@ -176,7 +176,7 @@ So basically, it’s very easy: just do it. Just, proper posture. But it’s not
 
 **Same person:** In terms of the senses, it seems like zazen is *not* natural. It seems like [...] when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. 
 
-**Katagiri:** *[Laughs.]*
+**Katagiri Roshi:** *[Laughs.]*
 
 It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. Physical pain is in the mind, up here. Even though it is natural.
 
@@ -184,11 +184,11 @@ It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. There i
 
 **Question:** *(Transcriber’s Note: This question is mostly unintelligible on the recording.)* Roshi? ... [about] regulation ... if at some point you’re experiencing something that seems good, pleasant, then there’s a natural tendency to think you’re doing something right in terms of regulating your body ... Then maybe the next moment, you experience something [that seems like suffering], and there’s a natural tendency that you seem to be doing something wrong. Is that the correct way to look at it?
 
-**Katagiri:** Well, if you see the sleep, it’s not right, but it’s not wrong. 
+**Katagiri Roshi:** Well, if you see the sleep, it’s not right, but it’s not wrong. 
 
 **Same person:** *(This is still mostly unintelligible on the recording.)* But I mean, in terms of regulation... If it seems as if you are experiencing something that’s tranquil ... There’s some effects of that... You want to have that happen again. But isn’t that the purpose of regulating everything, in order to have everything working smoothly?
 
-**Katagiri:** Regulating is not to control. Basically, we have to regulate what? Body and breath. These are something that have to do to the minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, many things. But they are just a [bump]. Our mind attaches to it, if you see that “oh, that’s good,” “that’s bad.” But without mind, if you let it go, just [a bump]. Come back. If you see the sleep, just sleep: “Oh, it’s sleep.” If you realize. Awareness is important, okay? And then, [adjust]. That’s why there is number three, regulation of the body: sitting in the proper way, immobile. It means, sitting with the body and also mind, which leads you to awaken totally [to anything].
+**Katagiri Roshi:** Regulating is not to control. Basically, we have to regulate what? Body and breath. These are something that have to do to the minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, many things. But they are just a [bump]. Our mind attaches to it, if you see that “oh, that’s good,” “that’s bad.” But without mind, if you let it go, just [a bump]. Come back. If you see the sleep, just sleep: “Oh, it’s sleep.” If you realize. Awareness is important, okay? And then, [adjust]. That’s why there is number three, regulation of the body: sitting in the proper way, immobile. It means, sitting with the body and also mind, which leads you to awaken totally [to anything].
 
 That’s why at that time, the mind is very sharp. Immediately you catch something which happens – sleep or not sleep, dizzy or some other condition between sleep and waking up, you can realize [it]. If you see the sleep, just awake. All that you have to do is regulate the body; that means, let’s sit down, right now, [totally in your body]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is just to see, and correct, adjust. [That’s] just the total dynamic working. That is awakening, that is wisdom: see, and adjust. Very good. 
 
@@ -198,7 +198,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 **Question:** Roshi? It seems like that adjustment is constantly in the direction of samadhi – you constantly make that adjustment, but how do you – ?
 
-**Katagiri:** Well, maybe it depends on the individual; maybe so. But, constantly adjusting and adjusting – what’s wrong with adjustment? [It’s] just all that adjustment. Just adjustment. But if you adjust and you say, “Oh, constantly I have to adjust” – is there something wrong? ...
+**Katagiri Roshi:** Well, maybe it depends on the individual; maybe so. But, constantly adjusting and adjusting – what’s wrong with adjustment? [It’s] just all that adjustment. Just adjustment. But if you adjust and you say, “Oh, constantly I have to adjust” – is there something wrong? ...
 
 *[Tape change.]*
 
@@ -206,7 +206,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 **Question:** Roshi, I wonder the same thing. I sort of feel like the effort is to follow the breath, and then suddenly I realize I’m getting a little sleepy, or I catch myself thinking about something. And at that time, you’re saying, just return to your effort to follow the breath. 
 
-**Katagiri:** Mmm-hmm... That’s all.
+**Katagiri Roshi:** Mmm-hmm... That’s all.
 
 *[There is a pause.]*
 
@@ -222,7 +222,7 @@ Is that something wrong?
 
 **Question:** Roshi? Sometimes so many things come up, especially the first couple days of *sesshin*, it seems like it takes enormous effort to return to the breath. Should we use that enormous effort?
 
-**Katagiri:** [Use] enormous effort, but we cannot continue *enormous* effort. So, sometimes [use effort]; don’t attach to enormous effort constantly. Sometimes enormous effort makes you exhausted. At that time, forget it! Just *relax*, okay? *[The group laughs.]* Just relax! And then, taking a breath, and a short breath, and a long breath; letting [it] go. 
+**Katagiri Roshi:** [Use] enormous effort, but we cannot continue *enormous* effort. So, sometimes [use effort]; don’t attach to enormous effort constantly. Sometimes enormous effort makes you exhausted. At that time, forget it! Just *relax*, okay? *[The group laughs.]* Just relax! And then, taking a breath, and a short breath, and a long breath; letting [it] go. 
 
 And then [...] you take a breath very naturally, as naturally as you can. And then, your mind can calm. Maybe it takes an hour? Maybe two hours; maybe a day. It’s okay. And then if your mind is very relaxed, let’s return.
 
@@ -230,7 +230,7 @@ And then [...] you take a breath very naturally, as naturally as you can. And th
 
 **Question:** Roshi? Are you saying then that you should just go with whatever amount of effort you feel?
 
-**Katagiri:** Mmm-mm. No. 
+**Katagiri Roshi:** Mmm-mm. No. 
 
 The center is always the center. Okay? You must be in the center. 
 
@@ -238,19 +238,19 @@ So you have to see. [Someone] says many things always happen [in zazen]; and at 
 
 **Same person:** I’m a little confused, I’m not sure I’m understanding you. What I was thinking of is that, sometimes I have enormous effort to put out, or even if I don’t feel it right now, I can get myself to put it out. Other times, I don’t have the effort here; I could try to force myself to find it, but it really feels like I don’t want to put much effort. I thought I understood you saying to [the person] that when we’re feeling not a lot of effort, it’s okay to go with that for a while. 
 
-**Katagiri:** In zazen there is a basic rule, [there is] a basic way of life which is called zazen. Physically, already we have it here. That’s why, even though you forget the enormous effort, still there is an effort, physically. Breathing. 
+**Katagiri Roshi:** In zazen there is a basic rule, [there is] a basic way of life which is called zazen. Physically, already we have it here. That’s why, even though you forget the enormous effort, still there is an effort, physically. Breathing. 
 
 That’s a point, but in daily living, it’s a little different. For instance, a person’s diet may be difficult. But still there is that you must be [in the] center of life. It means, even though you forget enormous effort, it’s not necessary to be confused by [it]. “To be confused by” means you are completely dragged away by the “mess”; lots of questions. So, still there is effort. “Forget enormous effort” doesn’t mean completely throw it away; still there is effort.
 
 **Same person:** So there’s kind of a minimum level, that you always have to...
 
-**Katagiri:** A minimum and maximum; it depends on the situation. 
+**Katagiri Roshi:** A minimum and maximum; it depends on the situation. 
 
 #### 52:56
 
 **Question:** Well, how does this compare with... Let’s say if you read Kapleau Roshi’s books, and a Rinzai approach is to just force yourself continually to break through and find some kind of enlightenment. Do you see any merit in that, or are you saying that that isn’t necessary? 
 
-**Katagiri:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, [this and that], samadhi, you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen: through zazen you have to attain enlightenment, that’s why the teachers push you so hard. That means, you are buddha but you are not buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the dualistic world. And also zazen is seen in the dualistic world. 
+**Katagiri Roshi:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, [this and that], samadhi, you can attain enlightenment. According to Rinzai, maybe that is the main purpose of zazen: through zazen you have to attain enlightenment, that’s why the teachers push you so hard. That means, you are buddha but you are not buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the dualistic world. And also zazen is seen in the dualistic world. 
 
 Of course, it is okay. But the final stage is not that zazen and subject and object should be seen in the dualistic world. We have to take care of subject and object according to *total personality*. We have to settle ourselves in total personality, from the beginning to end. 
 
@@ -260,43 +260,43 @@ That means, finally, we have to do zazen with no design on having any reward. Th
 
 **Same person:** I was reading an account of Tibetan Buddhism, and the author was talking about Zen, and they were talking about the *purity* of Zen. You know, it sounds like you’re talking about Zen in a very pure sense of just entering nondualism. And they were saying that for very rare people, they can go into that very pure practice and get into it, but for say the typical American, who’s completely caught in dualism, they can’t just step into that kind of purity, they have to work on it step by step, and Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that’s what you’re saying, that me as an individual striving for enlightenment is already dualistic, and so you’re being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn’t that awfully hard?
 
-**Katagiri:** Well, that is not only Americans, but also Japanese, or whoever you are. But if you attain enlightenment in dualism, that enlightenment is nothing but dualistic enlightenment; that’s all. Don’t you think so? That means dualistic enlightenment is sort of [the] “dregs.” It’s pretty hard to see those dregs... sort of always a *trace*, or track.
+**Katagiri Roshi:** Well, that is not only Americans, but also Japanese, or whoever you are. But if you attain enlightenment in dualism, that enlightenment is nothing but dualistic enlightenment; that’s all. Don’t you think so? That means dualistic enlightenment is sort of [the] “dregs.” It’s pretty hard to see those dregs... sort of always a *trace*, or track.
 
 **Same person:** You’re saying that it isn’t really the enlightened state of mind? 
 
-**Katagiri:** No, I don’t think so. It seems to be good; wonderful. [In that little] things are encouraging people. But finally, if you attain enlightenment in the dualistic world, it’s nothing but enlightenment in the dualistic world. 
+**Katagiri Roshi:** No, I don’t think so. It seems to be good; wonderful. [In that little] things are encouraging people. But finally, if you attain enlightenment in the dualistic world, it’s nothing but enlightenment in the dualistic world. 
 
 For instance, I will show you calligraphy written by a first grade child who is an expert of calligraphy. So you should look at this and learn calligraphy. And then, this child tells you that you are great: master of calligraphy. Can you imagine? That is enlightenment. Do you understand?
 
 **Same person, and others:** No.
 
-**Katagiri:** A first grade child, who is master of calligraphy. But a first grade child is a first grade child; they’re not a perfect master of calligraphy. So, in the realm of first grade children, he is a master, an expert. But he is still, well, a childish calligrapher. 
+**Katagiri Roshi:** A first grade child, who is master of calligraphy. But a first grade child is a first grade child; they’re not a perfect master of calligraphy. So, in the realm of first grade children, he is a master, an expert. But he is still, well, a childish calligrapher. 
 
 This is *interesting*, so I will give you this example. So you should practice with this; day after day, you should write [calligraphy]. Finally, this professional person says to you, you have reached the highest level of calligraphy. What is that? Do you understand? 
 
 **Same person:** No, I still don’t get your point.
 
-**Katagiri:** So that is the highest level of calligraphy you can reach – that is what? It’s perfect?
+**Katagiri Roshi:** So that is the highest level of calligraphy you can reach – that is what? It’s perfect?
 
 **Same person:** I don’t see it. 
 
 **Another person:** Are you saying the highest calligraphy level is in the first grade?
 
-**Katagiri:** Well... *[The group laughs.]*
+**Katagiri Roshi:** Well... *[The group laughs.]*
 
 **Another person:** He means if a first grade child tells you that you’re a master, that doesn’t necessarily mean you’re a master.
 
-**Katagiri:** No... If I practice, okay? If I practice calligraphy by looking at his calligraphy, written by a first grade child, but he is the best person in the realm of first grade children. Is that clear?
+**Katagiri Roshi:** No... If I practice, okay? If I practice calligraphy by looking at his calligraphy, written by a first grade child, but he is the best person in the realm of first grade children. Is that clear?
 
 **Another person:** Highest in the first grade class?
 
-**Katagiri:** Sure. Mmm hmm. *[Laughter.]* 
+**Katagiri Roshi:** Sure. Mmm hmm. *[Laughter.]* 
 
 So it is different from the great masters’ calligraphy, the second grade and third grade calligraphy. And then, I believe that is interesting calligraphy, I like it. So, I want to practice it, again and again. And then finally, the kid says, “Katagiri, your calligraphy is good, so I will give you a certificate. You are a Master of Calligraphy.” But look at this: this is nothing but the calligraphy written by a first grade child. The same, don’t you think? Do you understand?
 
 **Another person:** And you’re comparing that [to a] teacher ... of meditation.
 
-**Katagiri:** Yes, yes, that’s right. Sure, it’s a wonderful, wonderful calligraphy – but you don’t understand. But it’s universal, everyone understands this is good. [Or] even though you don’t understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don’t like it, you look at this, and write it, again and again. Maybe it takes time. Maybe tomorrow you could be a master, but maybe it takes time, too. But it doesn’t matter. Whatever happens, always we have to look at that kind of example, and we have to write it again and again. 
+**Katagiri Roshi:** Yes, yes, that’s right. Sure, it’s a wonderful, wonderful calligraphy – but you don’t understand. But it’s universal, everyone understands this is good. [Or] even though you don’t understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don’t like it, you look at this, and write it, again and again. Maybe it takes time. Maybe tomorrow you could be a master, but maybe it takes time, too. But it doesn’t matter. Whatever happens, always we have to look at that kind of example, and we have to write it again and again. 
 
 That means, if you attain enlightenment in the dualistic world, that is nothing but dualistic enlightenment; that’s all. 
 
@@ -310,35 +310,35 @@ Is that clear? Is that okay?
 
 **Question:** To carry that analogy further: does that mean that to practice under a teacher, that teacher is like a calligrapher? Then to do zazen with a teacher...
 
-**Katagiri:** A teacher and his teaching.
+**Katagiri Roshi:** A teacher and his teaching.
 
 **Same person:** ... and his teaching – Dogen, Buddha – again and again you’re doing the calligraphy, until it’s like the teacher’s calligraphy?
 
-**Katagiri:** Mmm hmm. I think so; that is the best way. 
+**Katagiri Roshi:** Mmm hmm. I think so; that is the best way. 
 
 **Same person:** So if the teacher is a poor teacher, then there’s no way you could... 
 
-**Katagiri:** Yes. Well, you can attain enlightenment, that is but a poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, there are many kinds of enlightenment. 
+**Katagiri Roshi:** Yes. Well, you can attain enlightenment, that is but a poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, there are many kinds of enlightenment. 
 
 So, the teacher is important, but the teacher is a teacher – that *this* teacher also followed – of real zazen. I have to teach real zazen. I have to *show* [the] real zazen mentioned by Buddha, and Dogen, et cetera.
 
 **Same person:** Our connection to Dogen and Buddha is through you?
 
-**Katagiri:** [Sure.] The teacher is Buddha, and Dogen, and [ancestor], simultaneously. That’s why the teacher is also a student, who is continually learning, every day. Working like Dogen, and buddhas, every day.
+**Katagiri Roshi:** [Sure.] The teacher is Buddha, and Dogen, and [ancestor], simultaneously. That’s why the teacher is also a student, who is continually learning, every day. Working like Dogen, and buddhas, every day.
 
 #### 1:05:15
 
 **Question:** Roshi? Is that why... You don’t see Zen emphasize other realms; you know, like having psychic experiences, or coming in contact with bodhisattvas and buddhas, or demons, things like that? And Tibetan Buddhism, for instance, seems to really emphasize entering these other worlds. Is that because of that; because those other realms still exist in duality?
 
-**Katagiri:** Sure. Even though I don’t emphasize them, we are with them already, don’t you think so?
+**Katagiri Roshi:** Sure. Even though I don’t emphasize them, we are with them already, don’t you think so?
 
 **Same person:** I don’t know. I have no idea. *[Everyone laughs.]*
 
-**Katagiri:** You don’t like them, but you are already present with them. That’s why you suffer, no? Don’t you think so?
+**Katagiri Roshi:** You don’t like them, but you are already present with them. That’s why you suffer, no? Don’t you think so?
 
 **Same person:** Can you ever see them? 
 
-**Katagiri:** Oh, you can see them. *[Katagiri and others laugh.]*
+**Katagiri Roshi:** Oh, you can see them. *[Katagiri and others laugh.]*
 
 Can you see this? I want to ask you. I think so.
 
@@ -346,11 +346,11 @@ Can you see this? I want to ask you. I think so.
 
 **Question:** Roshi? It seems to me that you’re trying to do something a little different than most of the other teachers in the United States. It seems that you’re not so concerned with us fitting *exactly* to the older way of teaching, and that people who won’t fit exactly into it should leave and not participate, and you should either sit or go. It seems more like you’re trying to show us that anybody can practice, and they can fit their lives at least partially to practice; so that you’re more willing to have people fit as much as they can, and if they don’t fit a hundred percent, that’s okay. You know, just fit your life to practice as much as you can; just do that. Is that true? Is that what you see yourself doing?
 
-**Katagiri:** I don’t understand exactly... 
+**Katagiri Roshi:** I don’t understand exactly... 
 
 **Question:** Well, like at other Zen centers, with training periods and sesshins, they’re *very* rigid, and if you don’t fit their schedule exactly, you don’t participate at all. Like, they would kick people out if they left during periods during sesshins, or, if you couldn’t fit to the training period schedule they would say just don’t do the training period. Whereas I see you being much more open and just encouraging people to keep coming even if they can’t do it totally. And it occurred to me that this is true not just for training periods and sesshin, but overall that you really seem to be trying to encourage *everybody* to do as much as possible.
 
-**Katagiri:** Well, I don’t think it is *good*, I don’t think it is right, but what I can do is to see the reality, okay? That’s all. And then, sometimes I give lots of rules; rigid rules, sometimes. Even though I give the rigid rules, the rigid rules are still open. So, again, a rigid rule; but still – *[he laughs]* – something happens within the rigid rule, so someone doesn’t appear. This is a training [situation] that I run into a lot. *[Laughter.]* I don’t say anything to the students, but I look at it every day. [I] say the rules; I say “This is the rule. Do you want to attend a training session?” Yes, you want to. “If you want to, why don’t you follow this?” But – *[he laughs]* – something happens. I know that I don’t know.
+**Katagiri Roshi:** Well, I don’t think it is *good*, I don’t think it is right, but what I can do is to see the reality, okay? That’s all. And then, sometimes I give lots of rules; rigid rules, sometimes. Even though I give the rigid rules, the rigid rules are still open. So, again, a rigid rule; but still – *[he laughs]* – something happens within the rigid rule, so someone doesn’t appear. This is a training [situation] that I run into a lot. *[Laughter.]* I don’t say anything to the students, but I look at it every day. [I] say the rules; I say “This is the rule. Do you want to attend a training session?” Yes, you want to. “If you want to, why don’t you follow this?” But – *[he laughs]* – something happens. I know that I don’t know.
 
 But I didn’t say it’s always good. Or, when I say something rigidly, it’s not always good. So I always look at the situation. I don’t know what it is. Actually, I don’t know *exactly* what to do. *[He laughs, and the group laughs.]* So I always look at the reality, and then: what should I do? I always think about that.
 
@@ -358,7 +358,7 @@ But it doesn’t mean I don’t care about the future, or I don’t care about t
 
 **Same person:** Would you agree that there’s this difference in emphasis? Like, it seems like other teachers almost *don’t care* if people get involved or not. You know, it’s like, “Get involved my way, or we don’t want you.” Whereas your emphasis seems much more humanistic. It’s like, trying to help people get involved. It’s not like saying, “Either do it my way or don’t do it.” 
 
-**Katagiri:** *[Inaudible.]*
+**Katagiri Roshi:** *[Inaudible.]*
 
 *[Katagiri and others laugh.]*
 
@@ -372,25 +372,25 @@ I don’t know other teachers, so, I just follow the, well, Buddhistic sense. Th
 
 *[Laughter.]*
 
-**Katagiri:** Where do you get that? *[Laughter.]* *[Unintelligible]* is still a different person from you, okay? 
+**Katagiri Roshi:** Where do you get that? *[Laughter.]* *[Unintelligible]* is still a different person from you, okay? 
 
 **Another person:** You just get used to it because you’re [up there]...
 
-**Katagiri:** That’s why I told you, well, “open to everybody” is not always good – because you cannot say it in that way. Katagiri is a different teacher from others – it seems to be good, but it seems to be not good. I don’t know, *really*, what to do. So, whatever you say: “okay.” But I have to do it.
+**Katagiri Roshi:** That’s why I told you, well, “open to everybody” is not always good – because you cannot say it in that way. Katagiri is a different teacher from others – it seems to be good, but it seems to be not good. I don’t know, *really*, what to do. So, whatever you say: “okay.” But I have to do it.
 
 #### 1:12:12
 
 **Question:** Can I ask a question about *[unintelligible]*? Does that process happen in certain stages? 
 
-**Katagiri:** No. No stages. Simultaneously happens.
+**Katagiri Roshi:** No. No stages. Simultaneously happens.
 
 **Same person:** What does *samadhi* mean?
 
-**Katagiri:**  *Samadhi* is one-pointedness; to take care of. Dogen Zenji says, [...] “When you get one dharma, you penetrate it; when you encounter one practice, you practice it.” *[Unintelligible]*. That is samadhi. One-pointedness.
+**Katagiri Roshi:**  *Samadhi* is one-pointedness; to take care of. Dogen Zenji says, [...] “When you get one dharma, you penetrate it; when you encounter one practice, you practice it.” *[Unintelligible]*. That is samadhi. One-pointedness.
 
 **Same person:** Is there an arrow going from breath to samadhi?
 
-**Katagiri:**  Samadhi is through the regulation of the body, through the regulation of the breath, you can practice [it]. Okay? You can practice samadhi. But that samadhi should be practiced with the mind, too. That’s why, by the help of samadhi, you can practice *egolessness*. That is because you have to practice samadhi with the mind too, but the mind is always creating a certain kind of attachment, that’s why [you need] egolessness. Simultaneously we do both body and mind. 
+**Katagiri Roshi:**  Samadhi is through the regulation of the body, through the regulation of the breath, you can practice [it]. Okay? You can practice samadhi. But that samadhi should be practiced with the mind, too. That’s why, by the help of samadhi, you can practice *egolessness*. That is because you have to practice samadhi with the mind too, but the mind is always creating a certain kind of attachment, that’s why [you need] egolessness. Simultaneously we do both body and mind. 
 
 So you have to practice samadhi with body and mind. But with the body, it seems to be simple: just to use the body, and just do it. Plunge into it; that’s simple. But the moment when you plunge into it, the mind can see lots of things, and also the mind attaches to [them]. That’s why by the help of samadhi we have to practice egolessness. If you have real samadhi, very naturally, there is egolessness. That means offering yourself completely into your regulating of breath and mind.
 
@@ -414,21 +414,21 @@ That’s why we have to [continually] practice *no design of having reward*. It�
 
 **Question:** Roshi? I have a question about the regulation of the breath. If I feel like I can’t breathe, is that my mind attaching to the difficulty?
 
-**Katagiri:** Yes, in a sense, the mind is connected with your breath and body. So, sometimes when your mind is very agitated and very uneasy, it’s pretty hard to breathe smoothly. But sometimes breath is connected with the body, and also nerves; well, many ways. And also sometimes circumstances, environment. So, we have to check. Okay?
+**Katagiri Roshi:** Yes, in a sense, the mind is connected with your breath and body. So, sometimes when your mind is very agitated and very uneasy, it’s pretty hard to breathe smoothly. But sometimes breath is connected with the body, and also nerves; well, many ways. And also sometimes circumstances, environment. So, we have to check. Okay?
 
 **Question:** Check what?
 
-**Katagiri:** *[Laughing.]* Check what. Your body; and also your mind. 
+**Katagiri Roshi:** *[Laughing.]* Check what. Your body; and also your mind. 
 
 For instance, if you sit zazen *[strain in voice]* *too hard*, like this – you can’t breathe. Or if you sit down like this, also you cannot breathe smoothly. Or even though you are straight, if you have too much tension on your chin, or your shoulder, you cannot breathe; immediately, it influences your breath. So you have to check: your body, your posture, and also your mind. Is that okay?
 
 **Same person:** Well, what if you check them all out and you still can’t breathe and don’t know why...
 
-**Katagiri:** For instance, what happens with your breath? You can’t breathe? You mean smoothly, or ... ?
+**Katagiri Roshi:** For instance, what happens with your breath? You can’t breathe? You mean smoothly, or ... ?
 
 **Same person:** Well, I can breathe enough to stay alive, I just can’t breathe from here up. It just – doesn’t come. So it’s very hard to find any equilibrium for a long time. You know, it doesn’t expand, it just goes “bleh” ...
 
-**Katagiri:** Hmm. Did you check your posture? If you change the posture: sometimes relax, sometimes a little tension; sometimes straighten more your back and straighten more your head; or sometimes, a little bit adjust your lower abdomen, et cetera. And then take a breath. In many ways, change the posture a little bit, and then breathe. Try, okay? 
+**Katagiri Roshi:** Hmm. Did you check your posture? If you change the posture: sometimes relax, sometimes a little tension; sometimes straighten more your back and straighten more your head; or sometimes, a little bit adjust your lower abdomen, et cetera. And then take a breath. In many ways, change the posture a little bit, and then breathe. Try, okay? 
 
 #### 1:20:50
 
@@ -436,21 +436,21 @@ For instance, if you sit zazen *[strain in voice]* *too hard*, like this – you
 
 *[Laughter.]*
 
-**Katagiri:** If you have a great teacher, your calligraphy becomes great. If you have a little, old teacher – *[he laughs]* – your calligraphy is little.
+**Katagiri Roshi:** If you have a great teacher, your calligraphy becomes great. If you have a little, old teacher – *[he laughs]* – your calligraphy is little.
 
 **Same person:** [I said that,] if your teacher of calligraphy is very great, probably you are less likely to feel that you can do calligraphy.
 
-**Katagiri:** Hmm?
+**Katagiri Roshi:** Hmm?
 
 **Same person:** If you have a very great calligraphy teacher, it seems to me that it’s less likely that you feel that you can do calligraphy than if you have a first grade teacher. 
 
 **Different person:** If you have a very good teacher, always you feel like there’s something lacking in yourself. You are living up to that great calligraphy. 
 
-**Katagiri:** Ah, I see. Right, right. Dogen Zenji says that in [*Genjokoan*](topics#genjokoan), he always says [that]. So that’s why you don’t understand this. So, lack of “achievement.”
+**Katagiri Roshi:** Ah, I see. Right, right. Dogen Zenji says that in [*Genjokoan*](topics#genjokoan), he always says [that]. So that’s why you don’t understand this. So, lack of “achievement.”
 
 **Question:** You’d rather keep doing... 
 
-**Katagiri:** Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* But how do you keep doing? That [depends on your] practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens [...] then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally, in the practice of calligraphy? That is very important.  
+**Katagiri Roshi:** Yeah, keep doing. *[He sounds a bit out of breath.]* Keep doing. *[Everyone laughs.]* But how do you keep doing? That [depends on your] practice. If you use too much enormous effort, you exhaust yourself. If your attention slackens [...] then certain signs of laxity appear. So, how can you keep the equilibrium in your life, physically and mentally, in the practice of calligraphy? That is very important.  
 
 For instance, in my life at the temple, the circumstances [in] my teachers and I. The teacher told me that, “You are a monk. A monk has to have a good capability of calligraphy.” But I had no practice, so I was very scared. He always threatened me *[he laughs]*: “You have to do this, and that; A, B, C, D...” always. Well he [didn’t] always say that to me, but I had *nothing*, no idea of Buddhism as a monk or as a priest. So if I thought of the future, I was very scared. I wondered, “Can I do that? No – I can’t do it.” 
 
@@ -466,15 +466,15 @@ So, that’s pretty good. So if you are always with a first grade child who is a
 
 **Question:** Is that true on various levels? Like right now, we’re working at the level of discussion and lecture; but does the Zen teacher work with the students at deeper levels of mind as well? In other words, as we sit and practice with you year after year, are we talking about more subtle and deeper qualities too? 
 
-**Katagiri:** That means...
+**Katagiri Roshi:** That means...
 
 **Same person:** For instance, psychic levels of awareness, or subconscious levels, deeper of levels of mind that we’re also working on. My inclination is to believe that that’s true; but I can’t prove it or I don’t really know that that’s true. 
 
-**Katagiri:** You mean the teacher is always in there? Ah. Otherwise you cannot talk, *[he laughs]* you cannot express. Don’t you think so?
+**Katagiri Roshi:** You mean the teacher is always in there? Ah. Otherwise you cannot talk, *[he laughs]* you cannot express. Don’t you think so?
 
 **Same person:** I mean, just sitting with you in zazen, hour after hour, my feeling is that there are deeper levels of being that also go on during sesshin.
 
-**Katagiri:** Uh, no. You cannot say that the teacher is always having the Zen exactness and wonderful zazen – no. Even the teacher has to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even for the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
+**Katagiri Roshi:** Uh, no. You cannot say that the teacher is always having the Zen exactness and wonderful zazen – no. Even the teacher has to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself, as a master, as a teacher. *No way.* Because, even for the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. So immediately, my mind reacts to the sound the car.
 
 **Same person:** Yeah, I hear you saying that about your own zazen, it sounds like. But I’m asking, I guess, when you’re sitting with thirty of us, doesn’t the Zen teacher also work with the students at deeper levels of mind?
 
@@ -482,17 +482,17 @@ Or is that something that you don’t want to talk about?
 
 *[A few people hesitantly laugh.]*
 
-**Katagiri:** Well, we are already working, okay? 
+**Katagiri Roshi:** Well, we are already working, okay? 
 
 *[Some loud laughter.]*
 
 **Same person:** Oh yeah...
 
-**Katagiri:** Don’t worry. If you sit, we are connected immediately, and working with each other mutually, okay? But the moment when you start to think that, it’s pretty hard to work.
+**Katagiri Roshi:** Don’t worry. If you sit, we are connected immediately, and working with each other mutually, okay? But the moment when you start to think that, it’s pretty hard to work.
 
 **Same person:** It creates confusion.
 
-**Katagiri:** Yeah, confusion. That’s right.
+**Katagiri Roshi:** Yeah, confusion. That’s right.
 
 That’s why that is number six: *total personality*. Let’s be there. 
 

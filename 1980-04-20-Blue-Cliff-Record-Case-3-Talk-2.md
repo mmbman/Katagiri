@@ -261,7 +261,7 @@ Do you have questions?
 
 **Question:** What is the Blue Dragon?
 
-**Katagiri:** In Chinese literature and Buddhist scriptures, there is always a wondrous creature which is called a dragon. It is the king of creatures in this world, because he has all the parts of human beings and also the animals: eyes, nails, hair, scales – he has all the things. The dragon is a symbol of all creatures: human beings, animals, and also fish, et cetera. And also he can create fire: *[fwoosh]*! *[Laughter.]* He can live in the bottom of the ocean in a great palace; that is his place. That is the Blue Cave. We don’t know where it is; the Blue Cave is where dragons exists. The dragon is the symbol of all creatures, it is the beautiful ideal image of a human being.
+**Katagiri Roshi:** In Chinese literature and Buddhist scriptures, there is always a wondrous creature which is called a dragon. It is the king of creatures in this world, because he has all the parts of human beings and also the animals: eyes, nails, hair, scales – he has all the things. The dragon is a symbol of all creatures: human beings, animals, and also fish, et cetera. And also he can create fire: *[fwoosh]*! *[Laughter.]* He can live in the bottom of the ocean in a great palace; that is his place. That is the Blue Cave. We don’t know where it is; the Blue Cave is where dragons exists. The dragon is the symbol of all creatures, it is the beautiful ideal image of a human being.
 
 This dragon also has a jewel. We want to get that jewel. And if you don’t want it, this is also want to *[unintelligible]*. Whatever you say – “I don’t want” – well, if you really don’t want, you cannot say anything. If you say “I don’t want,” “I don’t want” is really something *connected with* “I want”. *[Unintelligible]* It is very true.
 
@@ -275,21 +275,21 @@ This is the Blue Dragon’s cave. The human world.
 
 ... Or shouldn’t that be taken seriously?
 
-**Katagiri:** Well this life and death is not a psychological point of view, psychological *[unintelligible]*. Even though, you mentioned, Ram Daas says he can go to death and come back – I understand, I can go to death. But it is something just like psychological stuff, don’t you think so? Because your body or any body [are] here.
+**Katagiri Roshi:** Well this life and death is not a psychological point of view, psychological *[unintelligible]*. Even though, you mentioned, Ram Daas says he can go to death and come back – I understand, I can go to death. But it is something just like psychological stuff, don’t you think so? Because your body or any body [are] here.
 
 Look at the Indians and yoga. You can get in a certain casket and close the door, and completely you can stop the breathing. Maybe you can go to death. But whatever you say, this is – *[He laughs.]* I don’t know; I read a little article where wires were coming in to his body, checking him, how long he can stop his heart. But it’s not *exactly* stopped; he’s not *exactly* dead. I am talking about *exactly* death. *[Laughter.]* Not psychological stuff! Do you understand? You are talking about something a little bit psychological. I can understand, I can feel psychological stuff.
 
 **Same person:** Yeah, but, it seems like what you’re saying, that’s a little bit different from what he seemed to be talking about.
 
-**Katagiri:** Yes, so if ... something [is] like real, I can say so. Or I can experience not necessarily metaphysically, philosophically; I can experience it before. Sort of like judo, where you can “die” immediately – like this, you know, a choke? I went to death. That’s interesting, right in the moment when you “die”. But it’s very simple, just like a *[unintelligible]* – that’s all. *[Laughter.]* But then immediately the teacher [picks up] and boom, you can come back. *[Laughter.]* *[Unintelligible.]*
+**Katagiri Roshi:** Yes, so if ... something [is] like real, I can say so. Or I can experience not necessarily metaphysically, philosophically; I can experience it before. Sort of like judo, where you can “die” immediately – like this, you know, a choke? I went to death. That’s interesting, right in the moment when you “die”. But it’s very simple, just like a *[unintelligible]* – that’s all. *[Laughter.]* But then immediately the teacher [picks up] and boom, you can come back. *[Laughter.]* *[Unintelligible.]*
 
 **Same person:** I don’t understand that; it sounds like you’re saying death is like getting knocked out or something.
 
-**Katagiri:** Yes, knocked out, just knocked out. Let’s imagine you are on an airplane going down to the ground. You are scared – not just you, everybody is scared, going down. And then *boom* – “What is that?” Just like *[unintelligible]*; that’s all.
+**Katagiri Roshi:** Yes, knocked out, just knocked out. Let’s imagine you are on an airplane going down to the ground. You are scared – not just you, everybody is scared, going down. And then *boom* – “What is that?” Just like *[unintelligible]*; that’s all.
 
 **Same person:** For example, when Ram Daas spoke last Friday, and other stuff I’ve heard from him, he always says that isn’t the end, that there are states of consciousness that continue on.
 
-**Katagiri:** Yes, I understand. That is a metaphysical understanding, okay? Still metaphysical understanding. It’s going on – I understand this. Life is going, of course. But you cannot say “life is constantly going.” What is that? How can you show it? The eternity of life, death and life connected exactly – how can you show it? Well of course we can explain it metaphysically, psychologically, or philosophically – but I am talking about real death itself. I told you before ... all beings, death and life, is something connected with each of us individually, otherwise you cannot say life or death. But death itself and life itself are completely something you have to deal with directly; that is real death. How can you show it? Can you?
+**Katagiri Roshi:** Yes, I understand. That is a metaphysical understanding, okay? Still metaphysical understanding. It’s going on – I understand this. Life is going, of course. But you cannot say “life is constantly going.” What is that? How can you show it? The eternity of life, death and life connected exactly – how can you show it? Well of course we can explain it metaphysically, psychologically, or philosophically – but I am talking about real death itself. I told you before ... all beings, death and life, is something connected with each of us individually, otherwise you cannot say life or death. But death itself and life itself are completely something you have to deal with directly; that is real death. How can you show it? Can you?
 
 Well, I don’t want [you] to understand it completely. So, can you feel this? But never mind. *[Laughter.]*
 
@@ -297,7 +297,7 @@ Of course, I understand. And also I understand – Ram Daas? – I understand th
 
 **Same person:** It’s just like they’ve got, even the Buddhists, like say the Tibetan Buddhists have this whole system for the bardo, what happens when you die. Are we to take that seriously or not? 
 
-**Katagiri:** Yes – but that’s why here it says, “We already become sick.” *[He laughs.]* Finally all you have to do is just to die. [If] you have to die, this is a simple practice, and no sadness, no suffering, nothing. But if you die, people say, “Are you *okay*? How have you been? How are you?” – right in the middle of death. This [question], it makes you *sick*. Because, where are you heading for? After death, what happens? We want to know. This really makes you sick; just like Vimalakirti.
+**Katagiri Roshi:** Yes – but that’s why here it says, “We already become sick.” *[He laughs.]* Finally all you have to do is just to die. [If] you have to die, this is a simple practice, and no sadness, no suffering, nothing. But if you die, people say, “Are you *okay*? How have you been? How are you?” – right in the middle of death. This [question], it makes you *sick*. Because, where are you heading for? After death, what happens? We want to know. This really makes you sick; just like Vimalakirti.
 
 So it is okay, if you are interested in that stuff, you should research it, understand it. But – don’t mix up the psychological, metaphysical, philosophical death and also real death itself. Don’t mix them up. It’s not others’ stories, it’s not the metaphysical death stories; real death is *you*. If I think [about] that, it always opens my eyes: “Who dies? *I* die. Oh my goodness! How can I help? How can I scream?” I am talking about this. And also, when we die, we want to be present in peace and harmony, don’t you think so? 
 
@@ -315,7 +315,7 @@ So he said, “If you take this marijuana, you can go to see a wonderful high, a
 
 *[Raucous laughter.]*
 
-**Katagiri:** You’re great.
+**Katagiri Roshi:** You’re great.
 
 *[Laughter.]*
 
@@ -325,15 +325,15 @@ That’s wonderful. Yes it is.
 
 **Same person:** *[Unintelligible.]*
 
-**Katagiri:** But zazen is very simple: just sit down. It means, just to die, just to live; that’s all. So, no proof – but it’s proof, anyway. *[He laughs.]* Because you can bloom, you can die. It’s real proof; not metaphysical proof, not psychological proof. It’s real proof.
+**Katagiri Roshi:** But zazen is very simple: just sit down. It means, just to die, just to live; that’s all. So, no proof – but it’s proof, anyway. *[He laughs.]* Because you can bloom, you can die. It’s real proof; not metaphysical proof, not psychological proof. It’s real proof.
 
 **Person 3:** It’s physical proof?
 
-**Katagiri:** Oh no. Well, physical – that is part of the proof. Physical, mental proof – that is part of it, not the whole.
+**Katagiri Roshi:** Oh no. Well, physical – that is part of the proof. Physical, mental proof – that is part of it, not the whole.
 
 **Person 3:** What’s the rest? *[Laughter.]*
 
-**Katagiri:** *[He laughs.]* I don’t know what it is. 
+**Katagiri Roshi:** *[He laughs.]* I don’t know what it is. 
 
 Human beings are really interesting. *[Laughter.]*
 
@@ -341,7 +341,7 @@ That’s why *[unintelligible]* is necessary for us. Why don’t you read “The
 
 **Person 3:** I *have* read it. *[Laughter.]*
 
-**Katagiri:** There is no mind. That simple practice, again and again. Answer, question, answer, question – again and again. Finally: “What’s going on here?” Nothing to say. But you have to go through this; that’s why human beings really have a lot of fun.
+**Katagiri Roshi:** There is no mind. That simple practice, again and again. Answer, question, answer, question – again and again. Finally: “What’s going on here?” Nothing to say. But you have to go through this; that’s why human beings really have a lot of fun.
 
 *[Laughter.]*
 

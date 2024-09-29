@@ -65,11 +65,11 @@ This is a little bit questionable; I am not clear [about] “hauls rock”. In E
 
 **Student:** Well, haul rock means to move from one place to another.
 
-**Katagiri:** Yes, I understand that. 
+**Katagiri Roshi:** Yes, I understand that. 
 
 **Student:** “Don’t move the tree in the middle,” I don’t understand. *[Everyone laughs.]*
 
-**Katagiri:** Well, I can’t imagine it from the English translation, but probably this is [like] when I was a child, or in ancient times, grinding wheat or raw soy beans into flour by rubbing between two pieces of very thick, round stone. Two pieces of rock, about this size, this thick, and the two surfaces coming together have a very rough surface, with grooves. *[There is some discussion to arrive at the word “grooves.” Katagiri Roshi laughs.]* And in the center of the bottom of the rock there is an axis of wood, and then the top rock is put [on] there, and when you turn the upper rock, [the bottom] doesn’t move. The handle is on the side of the upper rock; you hold the handle and then you can turn just the upper rock. And then on the opposite side of the upper rock, there is a kind of hole, where you can put the wheat or any kind of grain while you turn. Can you imagine this? *[He chuckles.]* When I was a child, we made flour like this. I think this is [the analogy]. 
+**Katagiri Roshi:** Well, I can’t imagine it from the English translation, but probably this is [like] when I was a child, or in ancient times, grinding wheat or raw soy beans into flour by rubbing between two pieces of very thick, round stone. Two pieces of rock, about this size, this thick, and the two surfaces coming together have a very rough surface, with grooves. *[There is some discussion to arrive at the word “grooves.” Katagiri Roshi laughs.]* And in the center of the bottom of the rock there is an axis of wood, and then the top rock is put [on] there, and when you turn the upper rock, [the bottom] doesn’t move. The handle is on the side of the upper rock; you hold the handle and then you can turn just the upper rock. And then on the opposite side of the upper rock, there is a kind of hole, where you can put the wheat or any kind of grain while you turn. Can you imagine this? *[He chuckles.]* When I was a child, we made flour like this. I think this is [the analogy]. 
 
 (*Transcriber’s Note:* This is called a *rotating millstone*. You can find images online.)
 

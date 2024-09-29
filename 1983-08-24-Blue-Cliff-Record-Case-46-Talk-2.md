@@ -318,11 +318,11 @@ All right... do you have questions?
 
 **Question:** Hojo-san? Why did you say that to advance towards things is delusion, when it’s this essential part of our understanding of life? Why does he say – I don’t know his wording on it, but he says “to advance toward things is delusion, to let things...”
 
-**Katagiri:** Moving toward...
+**Katagiri Roshi:** Moving toward...
 
 **Same person:** Yeah, moving toward. Why does he call that delusion?
 
-**Katagiri:** [It’s delusion] in a good sense. Because delusion also has a reason why it exists. Without delusion, you cannot move toward the destination, so-called buddha. So delusion is nice. 
+**Katagiri Roshi:** [It’s delusion] in a good sense. Because delusion also has a reason why it exists. Without delusion, you cannot move toward the destination, so-called buddha. So delusion is nice. 
 
 So for this, delusion is moving toward. In other words, initiatively, you should act. You should act, you should build up your life. You should take care of your life every day, whatever reason you have. That is delusion. Because you can understand human life. You can understand how strong you are, how weak you are. You understand your life. But it’s delusion because it’s pretty easy for us to be, well, just crushed, or carried away by learning of your life. So in many ways, delusions. 
 
@@ -332,7 +332,7 @@ But delusions are also nothing but entities, as a buddha. So we have to go throu
 
 **Question:** Hojo-san? You mentioned that the beautiful destination that takes place in a moment is “a 360 degree turn.” I’m just curious whether you mean 360 or whether you mean 180.
 
-**Katagiri:** 180 is okay...
+**Katagiri Roshi:** 180 is okay...
 
 *[Laughter.]*
 

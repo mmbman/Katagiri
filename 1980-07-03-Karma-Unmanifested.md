@@ -158,7 +158,7 @@ Do you have questions?
 
 **Question:** When you stopped smoking, did *will* figure into that, as well as all the circumstances being ripe? Or could [it] always come back, at any time, if the time is ripe?
 
-**Katagiri:** Well, you have to use your will, very often. But the perfect situation, when time is right and conditions are arranged, is completely beyond your will. You can just be there – right on. At that time, very naturally you can stop. That was my case. 
+**Katagiri Roshi:** Well, you have to use your will, very often. But the perfect situation, when time is right and conditions are arranged, is completely beyond your will. You can just be there – right on. At that time, very naturally you can stop. That was my case. 
 
 But until this, you have to [repeat] again and again, using your will: “I want to stop.” For two days, three days, for a week, or sometimes two months, three months, et cetera. You start again, but you try to stop again. 
 
@@ -170,17 +170,17 @@ That happened [to me] in San Francisco, at Sokoji temple. That was a seven day s
 
 **Question:** Hojo-san, when you say you had that hope, is it in your mind, like while you’re smoking you have the hope that you won’t smoke?
 
-**Katagiri:** Well, [...] not only the mind and the body, anyway. Mind, well you can think, you know, hope. You can be mindful of hope. 
+**Katagiri Roshi:** Well, [...] not only the mind and the body, anyway. Mind, well you can think, you know, hope. You can be mindful of hope. 
 
 **Same person:** So you envision another...
 
-**Katagiri:** Sure, you can say *envision*, you can [say *imagine*] – *[he laughs with people]* – whatever it is. 
+**Katagiri Roshi:** Sure, you can say *envision*, you can [say *imagine*] – *[he laughs with people]* – whatever it is. 
 
 #### 52:15
 
 **Question:** Roshi, what is the relationship of *will* to *karma*? The first day, you said something about karma being a place of freedom as well, in order to change your life. 
 
-**Katagiri:** Yes. That’s why Buddhism explains the original nature of human structure based on dependent co-origination. It means everything is moving dynamically. 
+**Katagiri Roshi:** Yes. That’s why Buddhism explains the original nature of human structure based on dependent co-origination. It means everything is moving dynamically. 
 
 Do you remember I gave you an example: turning the coins on the bottom of the string? This is the original nature of human existence: this is nothing but movement, which is called energy. And then, if something is really moving, the movement or the function of the energy [will] never be alone without leaving anything; always something is left behind. That is what is called *circle*. [That is] *provisional being* – which seems to be a solid being, but it’s not a solid being. Only when you take a picture with your consciousness, you believe that is a solid being which is called *circle*. But it’s not *really* solid.
 
@@ -202,55 +202,55 @@ So, that is nothing but movement, vitality. So if you understand this karma, com
 
 **Question:** Hojo-san? [You know] the will is futile against karma. You know, you say you vow to quit smoking, yet you continue to smoke. Do you think though that that is necessary in order to reach that point of ...
 
-**Katagiri:** Maybe so. It depends on the individual; it’s different. But anyway, we have to use the will, and your determination, your consciousness, et cetera – because you are already existent, being, okay? So being is constant change, and also beings are always right in the middle of the dualistic world. So we have to use [it].
+**Katagiri Roshi:** Maybe so. It depends on the individual; it’s different. But anyway, we have to use the will, and your determination, your consciousness, et cetera – because you are already existent, being, okay? So being is constant change, and also beings are always right in the middle of the dualistic world. So we have to use [it].
 
 #### 59:58
 
 **Question:** Hojo-san, when you act on your consciousness and your will... unless it’s in your karma, then you will not be able to change your karma, right? You can’t change your karma by your will?
 
-**Katagiri:** The karma which you did in the past is karma stored in your life not as something particular. It’s already quiet. This is your storage. So, if you don’t touch it, it doesn’t appear. Very naturally it disappears, if you don’t touch it. *If you don’t touch it* means if you don’t create a certain time and occasion and conditions by yourself. 
+**Katagiri Roshi:** The karma which you did in the past is karma stored in your life not as something particular. It’s already quiet. This is your storage. So, if you don’t touch it, it doesn’t appear. Very naturally it disappears, if you don’t touch it. *If you don’t touch it* means if you don’t create a certain time and occasion and conditions by yourself. 
 
 For instance, if yesterday I stole a ten dollar bill from someone’s pocket. And then after that, I thought, “I shouldn’t do that.” But today, well, I still shouldn’t. And then if I create the time and occasion and conditions of stealing the ten dollars or five dollars, et cetera, immediately I think, “Oh, would like to.” I can repeat.
 
 **Same person:** But you could also stop and pay somebody back. 
 
-**Katagiri:** Well, sure, sure.
+**Katagiri Roshi:** Well, sure, sure.
 
 **Same person:** And say, “by my will, I did it, but now”...
 
-**Katagiri:** Sure. That is good karma. If you turn it in or give it back, that is good karma, even after this. But this karma is also the unmanifested karmas you can store in your life. Any good karmas or evil karmas [are] stored in your life, which doesn’t appear. Only when the time and conditions are arranged – naturally arranged, or *you* arrange something. And then at that time, it comes up. But if you don’t, very naturally unmanifested karma disappears. And then if you always create good karmas every day, you can store good karmas.
+**Katagiri Roshi:** Sure. That is good karma. If you turn it in or give it back, that is good karma, even after this. But this karma is also the unmanifested karmas you can store in your life. Any good karmas or evil karmas [are] stored in your life, which doesn’t appear. Only when the time and conditions are arranged – naturally arranged, or *you* arrange something. And then at that time, it comes up. But if you don’t, very naturally unmanifested karma disappears. And then if you always create good karmas every day, you can store good karmas.
 
 #### 1:03:00
 
 **Question:** Hojo-san? You were saying how when the time is ripe it happens, like you can let go of smoking. We talk about great determination – how does that fit in? 
 
-**Katagiri:** Well, determination is only all elemental conditions come together, and *then* that creates determination. Your will and all environments come together, and *then* you can have great determination.
+**Katagiri Roshi:** Well, determination is only all elemental conditions come together, and *then* that creates determination. Your will and all environments come together, and *then* you can have great determination.
 
 **Same person:** Oh. So great determination is dependent on the right time and ...
 
-**Katagiri:** Right. That is the right time, right condition.
+**Katagiri Roshi:** Right. That is the right time, right condition.
 
 **Same person:** So when you decided not to smoke during that *sesshin*, that was great determination?
 
-**Katagiri:** Yes, I think so, determination. Environment, and also *sesshin*, and people encouraging me, et cetera. All things put together and just [right]. But if I try by myself, using a little will, that is pretty hard. That’s why we need environment, and friends, and many things. 
+**Katagiri Roshi:** Yes, I think so, determination. Environment, and also *sesshin*, and people encouraging me, et cetera. All things put together and just [right]. But if I try by myself, using a little will, that is pretty hard. That’s why we need environment, and friends, and many things. 
 
 #### 1:04:21
 
 **Question:** Hojo-san? Unmanifested karma carries through from life to life, doesn’t it? 
 
-**Katagiri:** Mmm-hmm. (Yes.)
+**Katagiri Roshi:** Mmm-hmm. (Yes.)
 
 **Same person:** But yet it radically transforms from one life to the next? You know, say, your smoking habit is probably not because you smoked in your last life, but could be because you were in a fire or something like that?
 
-**Katagiri:** I understand your point, but...
+**Katagiri Roshi:** I understand your point, but...
 
 **Same person:** My point was just asking whether it was radically transformed from one life to another. 
 
-**Katagiri:** Will karma transform from one life to another? 
+**Katagiri Roshi:** Will karma transform from one life to another? 
 
 **Same person:** Yes. It’s the same, but yes, it takes on different forms.
 
-**Katagiri:** You mean that your karma can be carried on toward the future? From the past, to the future? Well, sure. Even though I tell you that now I don’t smoke, there is no guarantee! Of course I have quit now, but there is no guarantee. Probably I could smoke again. 
+**Katagiri Roshi:** You mean that your karma can be carried on toward the future? From the past, to the future? Well, sure. Even though I tell you that now I don’t smoke, there is no guarantee! Of course I have quit now, but there is no guarantee. Probably I could smoke again. 
 
 So still I carry my karmas; any time the door is opened. But no one can touch it; only the time and conditions can open that door, [then] they come up. So that’s why if you understand karma and human life very deeply through meditation, you become more careful of taking care of your life. Because time and conditions. 
 
@@ -260,11 +260,11 @@ Even though you say “I am a great person” – a good person, mature person, 
 
 **Question:** Hojo-san? Does the form that you act out your karma in... To take another example, if I don’t have any ability in this life to control my eating, does that mean that in a previous life it was an eating issue? Or could it have been... ? How are the karmas from different lives carried over? Does it mean that my ancestors maybe were starving and they didn’t have enough food, so now in my life I am not able to control my eating and I eat a lot? Is it that connection? Or could it be that they have the same problems, were they overeaters in their lives, and that’s passed on? Is it passed on in the exact same form, or how does it change? 
 
-**Katagiri:** Do you mean, for instance, if you smoke now, that habit is already something you did in the past?
+**Katagiri Roshi:** Do you mean, for instance, if you smoke now, that habit is already something you did in the past?
 
 **Same person:** Is it that or, could it be from – I don’t know what another explanation would be that I would now smoke. Would it come from something else other than that my ancestors smoked? The form that I manifest my karma in, is that the exact form that my ancestors’ had?
 
-**Katagiri:** Well whatever it is, if you *do* whatever, right now, in today’s life – smoking, or not smoking, whatever – probably you can ask why you smoke. You like or you don’t like, or whatever reason it is. But that reason is really just a little understanding of human life, because you want to justify your life. But finally, you realize whatever reason you have, it doesn’t fit to your life. *Why?* Finally you feel that reason is nothing but something you try to protect yourself with. Don’t you think so? 
+**Katagiri Roshi:** Well whatever it is, if you *do* whatever, right now, in today’s life – smoking, or not smoking, whatever – probably you can ask why you smoke. You like or you don’t like, or whatever reason it is. But that reason is really just a little understanding of human life, because you want to justify your life. But finally, you realize whatever reason you have, it doesn’t fit to your life. *Why?* Finally you feel that reason is nothing but something you try to protect yourself with. Don’t you think so? 
 
 So finally, why do you smoke? [...] That’s why finally, very naturally we try to understand a more deep level of human existence, connected with the past and the future, et cetera. *Why?* So very naturally through the present life, we can [peek at the] past life. That is karma. So maybe you did [something] in the past.
 
@@ -276,11 +276,11 @@ Maybe he did something wrong in the past. The person who survived, maybe he did 
 
 **Question:** If you’re constantly subject to the result of your earlier actions, how is it possible to be free from birth and death? 
 
-**Katagiri:** Hmm?
+**Katagiri Roshi:** Hmm?
 
 **Same person:** If any time you’re alive you’re constantly creating karma for the future, and there’s no way to be free from that, how is it that we can be free from birth and death? 
 
-**Katagiri:** That’s why we have to store unmanifested karma toward the future, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves an impression on our life, and we can carry on toward the future. At that time, we can carry this good karma as unmanifested karma, so very naturally you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage, and then good karma is stored in your life for the future. 
+**Katagiri Roshi:** That’s why we have to store unmanifested karma toward the future, okay? Unmanifested karma is very important. So we should do something good, helping people, and then that action leaves an impression on our life, and we can carry on toward the future. At that time, we can carry this good karma as unmanifested karma, so very naturally you cannot create the time and occasion and conditions when you want to do something wrong. So always you would try to do something for the future, so evil karma very naturally disappears in your storage, and then good karma is stored in your life for the future. 
 
 The moment when you store good karma, at that time [it becomes] unmanifested karma. This completely turns into neutral nature. So, there is nothing to say. But, that karma appears when the time and conditions are arranged. So that time and condition are pretty good; then the karma appears. 
 

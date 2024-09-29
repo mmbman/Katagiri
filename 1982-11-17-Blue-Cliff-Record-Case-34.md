@@ -166,17 +166,17 @@ Do you understand?
 
 **Question:** Mm-hm; I have another question. What if you really have a strong feeling about somebody, and you really don’t like that person, or something, and that’s the feeling that you feel. How can you be compassionate then?
 
-**Katagiri:** Compassion is not something you try, but... well, your [conscious] attitude is important. If you see somebody you don’t like, at that time immediately you stumble and fall down on the ground constantly. But still, human nature is not something like that. Human consciousness always catches one thing and evaluates, judges, and then affective preferences come up, and then you stumble, by the affective preferences. On and on like that. So basically, “we have to be compassionate” means that whoever they are, we try to do this, even through consciousness. Consciousness always picks up something, so you have to train your consciousness like this. 
+**Katagiri Roshi:** Compassion is not something you try, but... well, your [conscious] attitude is important. If you see somebody you don’t like, at that time immediately you stumble and fall down on the ground constantly. But still, human nature is not something like that. Human consciousness always catches one thing and evaluates, judges, and then affective preferences come up, and then you stumble, by the affective preferences. On and on like that. So basically, “we have to be compassionate” means that whoever they are, we try to do this, even through consciousness. Consciousness always picks up something, so you have to train your consciousness like this. 
 
 **Same person:** What happens to me is that, maybe it isn’t somebody that I don’t like, but somebody says something to me or does something to me that makes me... It’s almost like it’s not a conscious reaction, it’s like I get very angry, and that something sort of overpowers me. It’s not something that I really think about. When I think about it, and I think, “[Self,] this is really dumb that you’re getting this way,” anyway that feeling still exists. 
 
-**Katagiri:** Sure. What do you think about that? Do you think that is instinct? Maybe you can say it is instinct, but human instinct is a little different from animals’ instinct. Still you can control it, don’t you think so? 
+**Katagiri Roshi:** Sure. What do you think about that? Do you think that is instinct? Maybe you can say it is instinct, but human instinct is a little different from animals’ instinct. Still you can control it, don’t you think so? 
 
 Human instinct appears under certain circumstances. So if you are training your consciousness, your body, your mind, everyday life, then even the instinct doesn’t appear sometimes; you can control it. So you cannot say always there is an unconscious feeling coming up. Most people pay attention to this kind of emotional feeling, which seems to be important. But what would you call this kind of thing? Of course it is important, but it is not completely beyond control, it is still something under your control. *Control* means be intimate with it and take care of it. Whatever kind of name you put on it – *instinct* or *intuition*, *unconscious feeling* or *unconscious emotion*, whatever it is – it is still something under your control. Don’t you think so?
 
 **Same person:** So in other words the way to be compassionate in that situation is really a conscious response, right? You have to kind of consciously process it and say, “Now, [self], shut up.” You know? I mean it seems like it’s a real... it’s not something I feel at a deep level, I just can’t kind of let it go. 
 
-**Katagiri:** If you say, “Shut up, [self],” that is already you are taking it very seriously. It’s not necessary to say “shut up, [self]”. Why don’t you just pass by, anyway? That’s all. You have to do it as simply as you can. You make it bigger by saying something like, “Hey, [self], shut up,” or, “You should shut up because Katagiri said so,” et cetera. That is already extra, you know? If you say so, you already add something to it, making it bigger. So, even though you want to say something, keep your mouth shut. *[He laughs.]* “Quiet.” Pass by, as simple as you can – in many ways. You should find a skillful way. I don’t know how, because it’s case-by-case. 
+**Katagiri Roshi:** If you say, “Shut up, [self],” that is already you are taking it very seriously. It’s not necessary to say “shut up, [self]”. Why don’t you just pass by, anyway? That’s all. You have to do it as simply as you can. You make it bigger by saying something like, “Hey, [self], shut up,” or, “You should shut up because Katagiri said so,” et cetera. That is already extra, you know? If you say so, you already add something to it, making it bigger. So, even though you want to say something, keep your mouth shut. *[He laughs.]* “Quiet.” Pass by, as simple as you can – in many ways. You should find a skillful way. I don’t know how, because it’s case-by-case. 
 
 That means don’t take it so *seriously* sometimes! There are many small things in human life, but we always make them bigger, and by making small things bigger, then we create bigger problems. But if you deal with it as simply as you can, you can keep it small. 
 
@@ -188,7 +188,7 @@ Many times you can see somebody who doesn’t respond; that’s alright. That is
 
 **Question:** Why did Yun Men say it was “a conversation in the weeds”?
 
-**Katagiri:** Oh, the weeds, I am sorry. “Weeds” means the phenomenal world; human life. 
+**Katagiri Roshi:** Oh, the weeds, I am sorry. “Weeds” means the phenomenal world; human life. 
 
 There are two normal ways of practice. One is going up, which means seeking for the truth. Seeking for the truth means to be liberated from any kind of ideas, thoughts, and human life, suffering, et cetera. That is constantly way-seeking mind. That is one way. The other way is that you cannot always do practice just like this, because you have to take care of daily life, so you have to descend to the human world. That means, “conversation in the weeds”. 
 
@@ -200,31 +200,31 @@ Real truth cannot be elucidated directly, but indirectly you can do it. That is 
 
 I guess there are a lot of questions in there. Why was it dangerously steep? Why could only this fellow hold up?
 
-**Katagiri:** Oh, I see here, “It was nevertheless dangerously steep.” Dangerously steep means it’s very tricky… not tricky, very *delicate*. If you attach even a little bit to the form of the dance, it’s already nothing but impermanence, so it’s pretty hard to see the real beauty of the arts in it, because it’s appearing and disappearing. So behind this one you [meet] the real beauty of arts. But how can you know? Without the form of dance, you cannot see it. So that’s why you have to *perform* dance. But if you attach to it, it’s nothing but impermanent. On the other hand, you can see the beauty of performing dance within the impermanence of performing. At that time if you attach to the real beauty of arts, it’s also dangerous, because it is already “formed” by you, by your thought. That is very dangerous, very steep. Wheels like this. *[He indicates something, and chuckles.]*
+**Katagiri Roshi:** Oh, I see here, “It was nevertheless dangerously steep.” Dangerously steep means it’s very tricky… not tricky, very *delicate*. If you attach even a little bit to the form of the dance, it’s already nothing but impermanence, so it’s pretty hard to see the real beauty of the arts in it, because it’s appearing and disappearing. So behind this one you [meet] the real beauty of arts. But how can you know? Without the form of dance, you cannot see it. So that’s why you have to *perform* dance. But if you attach to it, it’s nothing but impermanent. On the other hand, you can see the beauty of performing dance within the impermanence of performing. At that time if you attach to the real beauty of arts, it’s also dangerous, because it is already “formed” by you, by your thought. That is very dangerous, very steep. Wheels like this. *[He indicates something, and chuckles.]*
 
 #### 1:01:37
 
 **Question:** Using the analogy of, let’s say, getting up in the morning and doing common things like brushing your teeth, washing up: it seems like it’s hard if you can’t see it as a dance or as a beautiful leaf turning both ways. Like the times when it’s just drudgery, you know, or the times when you don’t see it that way, at least when I don’t see it that way. And those are the difficult times, because it doesn’t seem like a dance anymore, it doesn’t seem like art. 
 
-**Katagiri:** Sure, it’s really difficult. That’s why we have to do it. 
+**Katagiri Roshi:** Sure, it’s really difficult. That’s why we have to do it. 
 
 **Same Person:** Right, but I guess what I’m… That’s always the most difficult point for me, and I think for a lot of people. It almost seems like when you try to reason it out at that point, it never works. It’s like, sometimes in my mind I go, “I should see this as every moment is something… sparkling.” 
 
-**Katagiri:** But you cannot handle all aspects of your life just like this; understanding completely, seeing the beauty of the dance. You cannot do your life completely in that way. Look at your life so far. How do you get up in the morning so far? Do you see, before you get up in the morning, “the beautiful art of the dance is here”? *[Laughter, clapping.]* You cannot get up in that way. Can you get up in the morning, saying, “It’s a beautiful universe”? It’s too much! *[Laughter.]* So immediately you become an actor. 
+**Katagiri Roshi:** But you cannot handle all aspects of your life just like this; understanding completely, seeing the beauty of the dance. You cannot do your life completely in that way. Look at your life so far. How do you get up in the morning so far? Do you see, before you get up in the morning, “the beautiful art of the dance is here”? *[Laughter, clapping.]* You cannot get up in that way. Can you get up in the morning, saying, “It’s a beautiful universe”? It’s too much! *[Laughter.]* So immediately you become an actor. 
 
 **Same Person:** You mean *[unintelligible]*? *[Laughter.]*
 
-**Katagiri:** “Actor” means you see already... Acting is very interesting, you know? *You* must be *you*, but you cannot be you, you must be some different somebody. Do you understand? 
+**Katagiri Roshi:** “Actor” means you see already... Acting is very interesting, you know? *You* must be *you*, but you cannot be you, you must be some different somebody. Do you understand? 
 
 I experienced being an actor once. I wanted to be Devadatta, you know, who is a very bad boy, trying to kill the Buddha. The teacher asked me to be the Buddha – Siddhartha – but I didn’t want that; I wanted to be Devadatta, because I was very interested in Devadatta. *[He laughs.]* So first of all, I found out how difficult acting is: because *I* have to be *I*, but on the other hand *I* cannot be *I*! I must be Devadata. But I cannot be Devadatta exactly; Katagiri is still Katagiri. So I have to see Devadatta a little bit at a distance. And also you have to see yourself at a little distance. In other words, you have to act. 
 
 **Same Person:** But when you’re seeing yourself at a little distance, is that what causes… Although you can’t help it, you just do it, that’s what happens… 
 
-**Katagiri:** Yeah, I think so.
+**Katagiri Roshi:** Yeah, I think so.
 
 **Same Person:** But is that still not necessarily… I mean when you get to “enlightenment”, you’re not seeing yourself at that distance anymore. Is that…
 
-**Katagiri:** Well you cannot be an actor, anyway. *[He laughs.]* If you become an actor, sometimes you are interested in your life, but sometimes you cannot be an actor, you have to be just you, you know. I mean, if you become an actor you always analyze and synthesize, seeing the beauty of stuff at a distance, whatever it is you have to be. That is an actor. But daily life is not like this; there is no space to be an actor. Before you want to be an actor or not-actor, you already act. This is our life; the so-called present. 
+**Katagiri Roshi:** Well you cannot be an actor, anyway. *[He laughs.]* If you become an actor, sometimes you are interested in your life, but sometimes you cannot be an actor, you have to be just you, you know. I mean, if you become an actor you always analyze and synthesize, seeing the beauty of stuff at a distance, whatever it is you have to be. That is an actor. But daily life is not like this; there is no space to be an actor. Before you want to be an actor or not-actor, you already act. This is our life; the so-called present. 
 
 I understand it’s pretty hard, because getting up in the morning is a very simple practice, but if you get up in the morning at four o’clock, and you carry this practice for thirty days, a hundred days… For instance, if you carry a small bucket of water for ten miles, twelve miles, a hundred miles, then you are really exhausted. I understand that. But anyway, you have to carry it! Still, in simple ways, spiritually, you can carry a small bucket of water every day, [and you feel it].
 

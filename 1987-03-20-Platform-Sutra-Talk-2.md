@@ -304,7 +304,7 @@ There is a commentary. I don’t read the commentary; so, you should read the co
 
 **Question:** So, Hojo-san? To get from doubt to faith, you’re saying you sit zazen? Is that how you do it? I missed the link from getting to doubt to faith. 
 
-**Katagiri:** What is your question? 
+**Katagiri Roshi:** What is your question? 
 
 **Same person**: Well you were talking about doubt as a hindrance. And then later on you were talking about faith. 
 
@@ -332,11 +332,11 @@ So that is contemplation. Listening to Buddha’s teaching, and contemplation, a
 
 **Question:** Hojo-san, you talked about *paramita* meaning crossing over, kind of a crossing over. And I wonder ... is that everyday activity, when we have to do something? Because I can see two views: one is just that whatever you do, if you have a job you have to do, then just do it. Then that’s crossing over; it’s not a matter of if you do the job in order to cross over. 
 
-**Katagiri:** *Cross over* means already the explanation of nirvana in words. *Cross over* means already cross over; this shore, the other shore. So [it’s] dualistic. Real nirvana, “crossing over to the other shore,” doesn’t mean handle your life with the dualistic sense. That is *the other shore*. Because you have to show, demonstrate, the other shore day-to-day. From moment-to-moment basic, you have to do it. Because we are already buddha, means we are a person who has gone beyond, that’s it. So you have already arrived at the other shore. But if we explain, we say “the great wisdom which lets you be on the other shore,” something like that. That’s what you mean? What is your question? 
+**Katagiri Roshi:** *Cross over* means already the explanation of nirvana in words. *Cross over* means already cross over; this shore, the other shore. So [it’s] dualistic. Real nirvana, “crossing over to the other shore,” doesn’t mean handle your life with the dualistic sense. That is *the other shore*. Because you have to show, demonstrate, the other shore day-to-day. From moment-to-moment basic, you have to do it. Because we are already buddha, means we are a person who has gone beyond, that’s it. So you have already arrived at the other shore. But if we explain, we say “the great wisdom which lets you be on the other shore,” something like that. That’s what you mean? What is your question? 
 
 **Same person:** I ... you were talking about going moment by moment, and then that is a sense of crossing, from moment to moment?
 
-**Katagiri:** Yes. That’s [right]. But it doesn’t mean that blindly you just do it. No. Okay? Because you cannot ignore the world of conceptualization, because we are always there, in the world of conceptualization. In other words, society is what? Society is a form of beings fabricated by human language, cultures. So already the form of society is conceptualization. We live there. Word; thought. Evaluation, judgement; all are form. So you cannot ignore this. So that’s why you have to *understand* it. 
+**Katagiri Roshi:** Yes. That’s [right]. But it doesn’t mean that blindly you just do it. No. Okay? Because you cannot ignore the world of conceptualization, because we are always there, in the world of conceptualization. In other words, society is what? Society is a form of beings fabricated by human language, cultures. So already the form of society is conceptualization. We live there. Word; thought. Evaluation, judgement; all are form. So you cannot ignore this. So that’s why you have to *understand* it. 
 
 Understand the form of kindness: what kindness is. But you cannot understand kindness in terms of the world of the conceptualization only, no. Because still you don’t know what kindness is. So kindness should be tasted by your practice. [That] means you have to directly, straight away, taste the kindness among the people. Sharing your life with people. People give you kindness, sometimes. *Then*, you understand kindness. 
 

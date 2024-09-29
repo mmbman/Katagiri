@@ -48,23 +48,23 @@ Are you familiar with salvation? What do you understand [from the word] salvatio
 
 **Person:** Being saved.
 
-**Katagiri:** Being saved. What do you mean, being saved?
+**Katagiri Roshi:** Being saved. What do you mean, being saved?
 
 **Person:** Something will come from outside and save you. 
 
-**Katagiri:** Oh, I see. *[Laughter.]* Alright, okay... that's fine. That is one way. Any other?
+**Katagiri Roshi:** Oh, I see. *[Laughter.]* Alright, okay... that's fine. That is one way. Any other?
 
 **Person:** To be separated from something undesirable.
 
-**Katagiri:** Oh. Do you understand that one?
+**Katagiri Roshi:** Oh. Do you understand that one?
 
 **Person:** To be saved from what you don't like.
 
-**Katagiri:** Oh, what you don't like... I see. That's what she said. Okay, another one?
+**Katagiri Roshi:** Oh, what you don't like... I see. That's what she said. Okay, another one?
 
 **Person:** I see salvation as more positive. Expressing gratitude and joyfulness...
  
-**Katagiri:** Great. That's an interesting point. More positive. Positive life is including the undesirable world or desirable world. Including all, otherwise you cannot express or manifest a positive, productive life. So that's one way. Any other?
+**Katagiri Roshi:** Great. That's an interesting point. More positive. Positive life is including the undesirable world or desirable world. Including all, otherwise you cannot express or manifest a positive, productive life. So that's one way. Any other?
 
 Speak up, that's alright. Anything? How do you understand it? 
 
@@ -74,7 +74,7 @@ Speak up, that's alright. Anything? How do you understand it?
 
 **Person:** *Bought* back. Somebody *bought* you back; you were in slavery and someone paid your price, and bought you back to freedom. 
 
-**Katagiri:** Oh... That's in Christianity...
+**Katagiri Roshi:** Oh... That's in Christianity...
 
 **Person:** Redemption.
 
@@ -84,31 +84,31 @@ Speak up, that's alright. Anything? How do you understand it?
 
 **Person:** No, literally, that's the image!
 
-**Katagiri:** Redemption. Is that okay? Do you understand that? Oh, all of you understand already. *[Laughter.]* 
+**Katagiri Roshi:** Redemption. Is that okay? Do you understand that? Oh, all of you understand already. *[Laughter.]* 
 
 Okay, any other person?
 
 **Person:** It could also be positively being included.
 
-**Katagiri:** Being included ...?
+**Katagiri Roshi:** Being included ...?
 
 **Person 3:** Something desirable.
 
-**Katagiri:** Oh, I see. 
+**Katagiri Roshi:** Oh, I see. 
 
 **Person:** Salvation would imply the meaning of helping all sentient beings escape [suffering](glossary#suffering), avoid suffering. 
 
-**Katagiri:** Would you say that once more? Salvation is what?
+**Katagiri Roshi:** Would you say that once more? Salvation is what?
 
 **Person:** The saving or the rescuing of sentient beings from suffering.
 
-**Katagiri:** Oh, I see. 
+**Katagiri Roshi:** Oh, I see. 
 
 But, at that time, how do you feel, directly, from that? That is the point. I’m not talking about ideal salvation, but salvation which you can feel directly, you can touch directly. Salvation. When you understand salvation as saving all sentient beings from suffering, at that time, how do you feel or touch yourself and all sentient beings, directly? How? This is what I want to say to you. Is that okay? It’s not an idea of salvation. That’s what I want to ask you.
 
 **Person:** Peace.
 
-**Katagiri:** Peace! That’s it. If you use the usual term: peace. 
+**Katagiri Roshi:** Peace! That’s it. If you use the usual term: peace. 
 
 But peace is very popular. The more something is popular, the more people misunderstand it. If something is not popular, then people are more careful to understand it. This is the human world. *[He chuckles.]* 
 
@@ -120,11 +120,11 @@ Of course, strictly speaking, the term *peace* is different from *salvation*, te
  
 **Person:** It seems to me that the word *liberation* or *free* is part of it. 
 
-**Katagiri:** Yes. Yes, that's right.
+**Katagiri Roshi:** Yes. Yes, that's right.
 
 **Person:** And that includes the idea of salvation, in all the senses, too.
 
-**Katagiri:** Right. Let me say it like this. [With wisdom,] salvation means that the overall picture of your life must be liberated from... *anything*. This is one point.
+**Katagiri Roshi:** Right. Let me say it like this. [With wisdom,] salvation means that the overall picture of your life must be liberated from... *anything*. This is one point.
 
 The second point is that such a salvation is not something limited by any idea, any sciences, anything, but it is something alive – peacefully, harmoniously – from which you can take a deep, slow, long breath. In other words, *relief*. Very deep relief there. 
 
@@ -136,13 +136,13 @@ In other words, salvation is – what? Finally salvation is what? How can you ma
 
 **Person:** Celebration.
 
-**Katagiri:** Celebration? I know the term but still I don’t understand.
+**Katagiri Roshi:** Celebration? I know the term but still I don’t understand.
 
 **Person:** To celebrate your life, to live it. 
 
 **Person:** To have joy and appreciation. 
 
-**Katagiri:** Gratitude. That is a *part* of salvation. *[He chuckles.]*
+**Katagiri Roshi:** Gratitude. That is a *part* of salvation. *[He chuckles.]*
 
 From salvation, you can feel this deep gratitude, and celebrating your life, with joy, et cetera. And you can share your life with all sentient beings, something like that, when salvation is really alive in your everyday life. 
 
@@ -154,7 +154,7 @@ For instance: You’re sitting there. Where is the salvation? Where is the salva
 
 **Person:** Everywhere.
 
-**Katagiri:** Everywhere; yes. Only everywhere is very *vague*. *[Laughter.]* Everywhere... Where can you see that everywhere from? *[Laughter.]* When you say *everywhere*, who’s talking about everywhere? *You* are talking about everywhere. *[He laughs.]* 
+**Katagiri Roshi:** Everywhere; yes. Only everywhere is very *vague*. *[Laughter.]* Everywhere... Where can you see that everywhere from? *[Laughter.]* When you say *everywhere*, who’s talking about everywhere? *You* are talking about everywhere. *[He laughs.]* 
 
 So everywhere comes from here; but if you are not there, you cannot say everywhere. Do you understand? When you say *everywhere*, at that time, you are [a] really important pivot, [the] pivotal position of existence. And then with that pivotal position of your life, it is very peaceful and harmonious. At that time, you can see everywhere. But when you are very confused, you cannot see the everywhere. You are limited; that’s why you are very confused. Is that clear?
 
@@ -242,7 +242,7 @@ Do you have a question?
 
 **Question:** It seems to me that what you're saying is that wisdom and compassion, or enlightenment and salvation, are aspects of the same thing. You cannot have wisdom without having compassion; you can't have compassion without experience of ... Is that correct?
 
-**Katagiri:** No. It's the same, working together. Compassion is understood usually whereby people are living with kindness, sharing our life with people. That's fine. Because, there is nothing else for us to do; that's why [it is to] be kind, be compassionate to everyone, sharing your life with all sentient beings. It is true; but it is not *all*. Compassion is that you must be saved. In other words, you must be based on deep relief. Do you understand? That is compassion: *relief*. Total relief. 
+**Katagiri Roshi:** No. It's the same, working together. Compassion is understood usually whereby people are living with kindness, sharing our life with people. That's fine. Because, there is nothing else for us to do; that's why [it is to] be kind, be compassionate to everyone, sharing your life with all sentient beings. It is true; but it is not *all*. Compassion is that you must be saved. In other words, you must be based on deep relief. Do you understand? That is compassion: *relief*. Total relief. 
 
 That is compassion. So, where is the compassion? Something more than the idea of kindness et cetera. So how can you experience salvation, that is seeing very deeply into the human world with wisdom? How? This is a practice. You know, meditation, and the six paramitas, like that. 
 

@@ -186,7 +186,7 @@ Do you have some questions?
 
 **Question:** Roshi? Isn’t it disturbing, though, that even though one has the realization of impermanence, one keeps having the feeling of *I*?
 
-**Katagiri:** Sure. Yes. 
+**Katagiri Roshi:** Sure. Yes. 
 
 Because [...] if you feel some pessimism from impermanence, et cetera, as a teaching, that is the impermanence you can observe objectively. While you observe it objectively, it makes you pensive, and sometimes nihilistic. This is because this is individual experience. 
 
@@ -202,13 +202,13 @@ Does that answer your question?
 
 **Same person:** Do you mean that depending on the depth of your understanding, your feeling of the ‘I’ is more or less there?
 
-**Katagiri:** Something more than that, yes. More than the six consciousnesses: eyes, ears, nose, et cetera. 
+**Katagiri Roshi:** Something more than that, yes. More than the six consciousnesses: eyes, ears, nose, et cetera. 
 
 But without the six consciousnesses, you cannot experience, you cannot understand the original nature of existence. That’s why we have to experience individually. But it is not good enough; still we have to understand the basic nature of individual experience. What is individual experience?
 
 **Same person:** That’s not what I mean. I mean, what does the feeling of ‘I’ come from? It doesn’t come from the six consciousnesses?
 
-**Katagiri:** Well, of course, six consciousnesses, and also it comes from ignorance, according to the Twelvefold Chain of Causation. Plainly speaking, it comes from the function of consciousness. Consciousness immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
+**Katagiri Roshi:** Well, of course, six consciousnesses, and also it comes from ignorance, according to the Twelvefold Chain of Causation. Plainly speaking, it comes from the function of consciousness. Consciousness immediately separates, analyzes, and gets it immediately. That is individual feeling, individual understanding. Without this, we cannot exist. 
 
 So that’s why everything becomes observed and called in question, whatever it is. Science fiction is beings, *all dharmas*, even though you don’t believe it, because you can think it, you can observe it. That’s why many years ago, someone wrote science fiction, and maybe recently, one by one, it comes to be true! You can go to the Moon! I had never thought... When I was a child, it was impossible for me to go to the Moon. But now, we can go to the Moon. And we can know Mars and other planets. And you can see the very interesting stories on the TV; relations with human beings and creatures on another planet. Well, it’s possible, yes.
 
@@ -216,21 +216,21 @@ So that’s why everything becomes observed and called in question, whatever it 
 
 **Question:** Roshi? I’m not sure what you mean when you say “called in question.” 
 
-**Katagiri:** Called in question means it becomes in question. Thinking, what it is. If you see this [tatami](glossary#tatami): the tatami becomes something existent, which you can see as an object. Thinking and acting, what it is, that is “calls in question.” Is that okay?
+**Katagiri Roshi:** Called in question means it becomes in question. Thinking, what it is. If you see this [tatami](glossary#tatami): the tatami becomes something existent, which you can see as an object. Thinking and acting, what it is, that is “calls in question.” Is that okay?
 
 #### 58:24
 
 **Question:** Roshi? Is the word *sentient* in the phrase “save all sentient beings”?
 
-**Katagiri:** That is exactly the same as *all*. 
+**Katagiri Roshi:** That is exactly the same as *all*. 
 
 **Same person:** Is it necessary? From your explanation, it sounded like you were trying to save *all* beings. And the word *sentient* seems unnecessary.
 
-**Katagiri:** When you say *all*, when you use *all*, it is not limited by all living beings. [It is] including animate or inanimate beings. Temporarily we say *all sentient beings*, but in the Chinese term, it is not limited by all living beings. *All beings*.
+**Katagiri Roshi:** When you say *all*, when you use *all*, it is not limited by all living beings. [It is] including animate or inanimate beings. Temporarily we say *all sentient beings*, but in the Chinese term, it is not limited by all living beings. *All beings*.
 
 **Same person:** So is that kind of a translation *[unintelligible]*?
 
-**Katagiri:** I don’t know.
+**Katagiri Roshi:** I don’t know.
 
 *[Some chuckles.]*
 
@@ -238,21 +238,21 @@ So that’s why everything becomes observed and called in question, whatever it 
 
 **Another person:** I think the Buddhist interpretation of living and sentient is different than the American one. Like, to us, a rock isn’t a living being, but to Buddhist point of view, a rock is a living being and is sentient being. Is that right?
 
-**Katagiri:** I don’t know what’s the difference between *all sentient beings* and *all living beings*. It’s completely different?
+**Katagiri Roshi:** I don’t know what’s the difference between *all sentient beings* and *all living beings*. It’s completely different?
 
 **Other person:** No, that’s the same. But you’re talking about non-living things.
 
-**Katagiri:** Oh. Non-living beings.
+**Katagiri Roshi:** Oh. Non-living beings.
 
 **Other person:** Rocks are living beings, they’re not non-living. 
 
 *[Laughter.]*
 
-**Katagiri:** *Not-living beings* means, according to human consciousness, it doesn’t have a brain and thinking, consciousness. That’s why we temporarily analyze, distinguish that it is not *all living beings*. But actually, it’s living.
+**Katagiri Roshi:** *Not-living beings* means, according to human consciousness, it doesn’t have a brain and thinking, consciousness. That’s why we temporarily analyze, distinguish that it is not *all living beings*. But actually, it’s living.
 
 **Other person:** So in Buddhism there is nothing that isn’t alive.
 
-**Katagiri:** No, everything is alive. That’s why we have to take care of it. 
+**Katagiri Roshi:** No, everything is alive. That’s why we have to take care of it. 
 
 But [...] in other words, the thinking, the image you can think. This is also kind of a funny being. I don’t know how to call it, living beings or not living beings – but anyway living beings, because you can think. But when you say *living*, a being becomes connected with you, at that time it becomes *living*. But if you see it objectively, whatever it is, it becomes dead. *[There is a pause, then laughter.]* It’s not *all beings*. In order to accept all beings, it must be something [involved]. At that time, everything becomes living. 
 
@@ -266,7 +266,7 @@ Any others?
 
 *Question*: Hojo, when you say that truth is the same as one of the dharmas, is it the same as saying that truth has to be experienced individually?
 
-**Katagiri:** Mmm-hmm. While you are thinking of the truth, it is nothing but *all beings*, which is impermanent. Okay? But when you say *truth is one*, truth is something which exists, completely beyond human speculation. That means truth is [the] original state of being. 
+**Katagiri Roshi:** Mmm-hmm. While you are thinking of the truth, it is nothing but *all beings*, which is impermanent. Okay? But when you say *truth is one*, truth is something which exists, completely beyond human speculation. That means truth is [the] original state of being. 
 
 So, it must be something we should experience. That is the truth. But real truth is not individual experience. [There is] still something, [some] real meaning of truth, we have to understand.
 
@@ -274,11 +274,11 @@ So, it must be something we should experience. That is the truth. But real truth
 
 **Question:** Roshi? Would you please explain the statement by the Sixth Patriarch when he said that distinguishing mind is permanent, and [enlightenment] is impermanent?
 
-**Katagiri:** Distinguishing mind is impermanent?
+**Katagiri Roshi:** Distinguishing mind is impermanent?
 
 **Same person:** Permanent.
 
-**Katagiri:** Permanent? Oh. *[He laughs.]*
+**Katagiri Roshi:** Permanent? Oh. *[He laughs.]*
 
 “Distinguishing mind is permanent.” Oh. Let me think about that. *[He laughs. Laughter.]*
 
@@ -302,7 +302,7 @@ Without distinguishing mind, you cannot experience the truth, or Buddha Nature, 
 
 **Person:** “The distinguishing mind is permanent, and enlightenment is impermanent.”
  
-**Katagiri:** That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is a human desire; that’s why you want to practice. But that is the individual understanding, when you see dharma from an individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, [...] let your eyes open to see another aspect. That’s why he said the opposite.
+**Katagiri Roshi:** That is completely opposite, okay? Usually we hate distinguishing mind, and we like truth very much. This is a human desire; that’s why you want to practice. But that is the individual understanding, when you see dharma from an individual point of view. But it is not real dharma. Real dharma is deeper, like the ocean. So, [...] let your eyes open to see another aspect. That’s why he said the opposite.
 
 For instance, the first koan a Rinzai Zen master gives you is “nothing.” Well, *nothing* is completely something you are amazed by, because we don’t believe in that way. We believe everything exists, everything is real. But Zen says, “*Nothing*: think this.” That is a really big shock. That’s all.
 

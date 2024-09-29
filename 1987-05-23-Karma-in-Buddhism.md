@@ -208,7 +208,7 @@ Do you have some questions?
 
 **Question:** You said two things that I wanted to hear more about. I don’t remember them exactly. One of them was something like trusting your life. And the other one, you said when we die there is nothing left, and before we die, you were saying we can touch it, and I wanted to know if what you’re saying we can touch is *nothing left*. 
 
-**Katagiri:** That is not an idea, okay? It’s really something you can touch practically and deeply. 
+**Katagiri Roshi:** That is not an idea, okay? It’s really something you can touch practically and deeply. 
 
 For instance, [if] I believe strongly the other world exists. Well, someone says, “I don’t believe it.” And then, let’s try to find a certain middle way, [where] we can compromise through discussion. But that goes endlessly. Finally what I have to do is, to face the fact that I have to die. *[He laughs.]*
 
@@ -224,7 +224,7 @@ So finally, what you have to do is what? Researching awareness? Yes! But day-to-
 
 **Question:** Hojo-san, there are so many references in traditional practice to “evil karma.” And when you talk, you’re talking about something much more basic, about acts and deeds that just *are*, and it’s very much broader than [that]. But then at the very end, almost the last thing you said, when you came back to talk about karma, I thought you said “maybe it’s not so good,” or something like that. What do you mean? [...]
 
-**Katagiri:** Well, the “not something good” of your life which you have understood is just the picture of your life through the intellectual world. Don’t you think so? But the overall picture of your life in the dispassionate and imperturbable perspective: what is life? Is that life understood only by the intellectual [sense]? No, by something more than intellectual. 
+**Katagiri Roshi:** Well, the “not something good” of your life which you have understood is just the picture of your life through the intellectual world. Don’t you think so? But the overall picture of your life in the dispassionate and imperturbable perspective: what is life? Is that life understood only by the intellectual [sense]? No, by something more than intellectual. 
 
 So I think karma is not only the bad. If you say, “I have bad karma,” that means simultaneously you have good karma too. That is the overall picture of karma you use. 
 
@@ -236,17 +236,17 @@ I don’t know what karma is. But I can feel practically, deeply, something abou
 
 **Question:** I understand how there can be an individual karma and a non-individual karma, but I wondered if you could say any more about how non-individual karma can apply to a certain group, like a Japanese karma, or an American karma, or a Brazilian karma. I don’t understand how there can be a non-individual karma that applies to a group, rather than to all things. 
 
-**Katagiri:** Excuse me, I’m not clear. 
+**Katagiri Roshi:** Excuse me, I’m not clear. 
 
 **Another person:** I think I have the same question, but I’m looking at it more personally. I’m wondering, do you ever wonder why you’re here... with us? 
 
-**Katagiri:** *[Cackles.]* I don’t know.
+**Katagiri Roshi:** *[Cackles.]* I don’t know.
 
 **Same person:** And why it’s us, this group here, and not somebody else, you know? 
 
 **Another person:** Sometimes I look around at our group and I think, there’s nobody really super-exceptional here, we’re all kind of average people, but what are we doing here? You know, with this Japanese teacher. Because I think we have a particular American karma, we have American history and world view, and yours is quite different. 
 
-**Katagiri:** Yes, I am different, so-called Japanese. But on the other hand, I think individual karma is not separate from non-individual karma. Individual karma cannot be developed in the vast expanse of the human world, the so-called non-individual world, [...] if you ignore society or nations. In other words, if you ignore belonging to or participating in nations or society, you can develop your own character, but it really develops based on ego. So in order to develop different individual character, I think it must develop in the broader perspective, in other words by belonging to or participating in peoples, groups, or society, nations. And then, your personality develops very gently, in a humble way.
+**Katagiri Roshi:** Yes, I am different, so-called Japanese. But on the other hand, I think individual karma is not separate from non-individual karma. Individual karma cannot be developed in the vast expanse of the human world, the so-called non-individual world, [...] if you ignore society or nations. In other words, if you ignore belonging to or participating in nations or society, you can develop your own character, but it really develops based on ego. So in order to develop different individual character, I think it must develop in the broader perspective, in other words by belonging to or participating in peoples, groups, or society, nations. And then, your personality develops very gently, in a humble way.
 
 That’s [what I said] a couple years ago to the Zen Center in San Francisco. They don’t want to look at the Japanese custom of Zen Buddhism, so they try to escape or ignore [it], and then they want to develop their own Buddhism. Yes, it is [your own]! But *I* say, if you want to [have an] American way of Buddhism developing naturally, I think you should pay attention to American Buddhism connected not only to the American situation, but also [to the whole] cosmic situation, including Japan, and Europe. How can you understand America separate from Europe and the East? No way. 
 
@@ -264,11 +264,11 @@ For instance, if you live together with someone, for instance boyfriend or girlf
 
 **First person:** I’m not sure my question was clear. I guess what I meant was that it seems sufficient that there should be a global karma, a cosmic karma, rather than one that adheres to certain groups. 
 
-**Katagiri:** Yes. 
+**Katagiri Roshi:** Yes. 
 
 **Same person:** But maybe as there is a karma that applies specifically to, say, Japanese culture, or to American culture, there’s one that applies to individuals, and that they depend on the whole. So that there can be a global karma, [...]
 
-**Katagiri:** Yes, that’s right. So, it’s very complicated. All things [are] interconnected. So [those are] very simple entities which you can see, practically, but the contents of the simple entities are very complicated, consisting of many situations. 
+**Katagiri Roshi:** Yes, that’s right. So, it’s very complicated. All things [are] interconnected. So [those are] very simple entities which you can see, practically, but the contents of the simple entities are very complicated, consisting of many situations. 
 
 The global or cosmic state of existence is very complicated. [There is] the individual character of a nation, but also the common character of humans. Wherever you are, American, or Japanese, or European, [you] are human beings. If so, if you say *human beings*, human beings really have something stinky. And also peaceful being. So that is very common. You are American, which is different from others, but on the other hand, you are human, which is the same as I. 
 

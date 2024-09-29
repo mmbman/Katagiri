@@ -134,7 +134,7 @@ If you have something to say, or if you want to send a card to him, I am willing
 
 **Question:** When are you leaving?
 
-**Katagiri:** Next week. The twelfth.
+**Katagiri Roshi:** Next week. The twelfth.
 
 **Question:** Thank you.
 

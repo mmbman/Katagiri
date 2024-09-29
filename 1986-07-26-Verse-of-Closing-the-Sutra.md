@@ -154,11 +154,11 @@ Do you have questions?
 
 **Question:** Hojo-san? 
 
-**Katagiri:** *Hai*.
+**Katagiri Roshi:** *Hai*.
 
 **Question:** I realize that I thought I was putting my whole heart into something, but I wasn’t, and I don’t know... how do you know?
 
-**Katagiri:** Well, with your [six] senses, it’s very difficult to know. But if you do it, if think there must ... it manifests itself naturally. That’s why all you have to do is you really have to devote yourself to practice every day. If you want to master dance, as a dancer, you have to practice. Completely beyond your emotional situation, beyond your like or dislike, every day you have to practice. And then, this practice, if you think of the future, we don’t know the guarantee, whether you become a great dancer or not. But all you have to do is, every day you have to practice like this.
+**Katagiri Roshi:** Well, with your [six] senses, it’s very difficult to know. But if you do it, if think there must ... it manifests itself naturally. That’s why all you have to do is you really have to devote yourself to practice every day. If you want to master dance, as a dancer, you have to practice. Completely beyond your emotional situation, beyond your like or dislike, every day you have to practice. And then, this practice, if you think of the future, we don’t know the guarantee, whether you become a great dancer or not. But all you have to do is, every day you have to practice like this.
 
 And then, it’s progress, naturally. 
 
@@ -198,27 +198,27 @@ Are there any other questions?
 
 **Question:** Hojo-san, what you would you say is functionally happening when this chant is recited?
 
-**Katagiri:** Function? 
+**Katagiri Roshi:** Function? 
 
 **Same person:** Right. What I’m thinking about is, in terms of, I mean there’s a conceptual level...
 
-**Katagiri:** Mm-hm.
+**Katagiri Roshi:** Mm-hm.
 
 **Same person:** ... in which you could say it’s a very fine concept, to transfer the merit. But then now I’m wondering specifically about what happens functionality when this is recited. What is the intention here? For a particular experience to happen to in the person reciting it? 
 
 Do you understand my question at all? 
 
-**Katagiri:** Mmmm... Yeah, I feel a little bit, but not exactly. 
+**Katagiri Roshi:** Mmmm... Yeah, I feel a little bit, but not exactly. 
 
 **Same person:** Yeah, that’s what I feel too. *[Laughter.]*
 
 One thing you could say here... In other words... I guess I’m looking at this from the point of a view of a practice that someone does, who’s chanting this. I’m not talking about it from the point of view of the philosophy expressed in the eko, but as an activity that someone does, chanting this eko, or reciting it mentally. 
 
-**Katagiri:** Reciting a dharani or short verse, whatever. Okay. 
+**Katagiri Roshi:** Reciting a dharani or short verse, whatever. Okay. 
 
 **Same person:** So functionally, what happens? ...
 
-**Katagiri:** I think... it’s very difficult to... There are not so much opportunity to know what happened when you do exactly. The opportunity is very rare to know it. Okay? But beyond whether you know or you cannot know, I think functioning is always functioning. And also you can always experience something. 
+**Katagiri Roshi:** I think... it’s very difficult to... There are not so much opportunity to know what happened when you do exactly. The opportunity is very rare to know it. Okay? But beyond whether you know or you cannot know, I think functioning is always functioning. And also you can always experience something. 
 
 But sometimes the great opportunity is very rare to touch your heart. So always pass by, always pass by. But some day, something touches your heart. Because always we pass by, pass by experiencing. That’s why finally some day we can touch the heart.
 
@@ -234,11 +234,11 @@ Is that alright?
 
 **Same person:** So that seems to suggest that you accept practice as it is given to you. 
 
-**Katagiri:** Mmm-hm. Yes.
+**Katagiri Roshi:** Mmm-hm. Yes.
 
 **Same person:** So, is there any area where there is choice in the practice? 
 
-**Katagiri:** Well, choice is already the conscious world. But thoroughgoing practice is not in the realm of *alternative*. Because if you participate in the alternative world, very naturally you have to involve in many things, philosophy, psychology, et cetera. And the material world. Or, you have to participate in the spiritual world. You have to research the mind, what’s going on there. So very naturally you start to research what’s going on. But the more you research or analyze your consciousness, what’s going on in the process of zazen, whatever you do – it makes you confused, very much. Because you don’t know what’s going on there. Because sometimes *many* things happen. Okay?
+**Katagiri Roshi:** Well, choice is already the conscious world. But thoroughgoing practice is not in the realm of *alternative*. Because if you participate in the alternative world, very naturally you have to involve in many things, philosophy, psychology, et cetera. And the material world. Or, you have to participate in the spiritual world. You have to research the mind, what’s going on there. So very naturally you start to research what’s going on. But the more you research or analyze your consciousness, what’s going on in the process of zazen, whatever you do – it makes you confused, very much. Because you don’t know what’s going on there. Because sometimes *many* things happen. Okay?
 
 So the more you study intellectually, or if you try to find some space you can make a choice of, in order to know something in a better way – I think it seems to be good, but I think finally you are very confused, because no conclusions. So final thing which you come to the end is, right now, right here, how you live. That’s it. How you live, now. In peace, in harmony... steadfast. How do you *be* present? That’s the question. This is the final goal that you have to do. 
 
@@ -252,7 +252,7 @@ Is that alright?
 
 **Same person:** Well, what was that very last point? 
 
-**Katagiri:** *[Laughs.]*
+**Katagiri Roshi:** *[Laughs.]*
 
 After making a choice, by the alternative sense. And then, you try to find the best way how to live. You cannot do it. First, you have to really do how to live, right now, right here, constantly. And then from that, alternative coming up. Flower blooms. Spring comes, and the whole world becomes warm, the whole world becomes spring. And *then* the flower blooms, okay? But human beings are always interested in the flower blooming, analysis of flowers, trees, and spring, et cetera, completely separately. We don’t believe oneness of spring and blooming flowers. 
 

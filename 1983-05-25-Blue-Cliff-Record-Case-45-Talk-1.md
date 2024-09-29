@@ -299,11 +299,11 @@ Do you have some questions?
 
 **Same person:** ... about that? I know Thich Nhat Hanh said that he goes very slowly, and when I asked him if it’s possible to be mindful when you’re going very fast, he said *maybe* it is, but it’s much harder. 
 
-**Katagiri:** Yeah, I’m not talking about this one. That is already something expressed by him.
+**Katagiri Roshi:** Yeah, I’m not talking about this one. That is already something expressed by him.
 
 **Same person:** Ah. 
 
-**Katagiri:** Slow, for him, it is a kind of stability. Very stable. Do you understand what I mean? Slow action. Slow action is, in this case, kind of total security there. 
+**Katagiri Roshi:** Slow, for him, it is a kind of stability. Very stable. Do you understand what I mean? Slow action. Slow action is, in this case, kind of total security there. 
 
 And then if we see that total security in terms of speed, or slow or fast, then we say *slow motion*. But that is a name, a concept. [It is] completely beyond slow motion, because his life is exactly fitting from moment to moment, so [it’s] very quick. So his slowness is not slow; his slowness is very quick, hitting the point. 
 
@@ -325,7 +325,7 @@ But in order to be one, we have to create certain circumstances. If you become a
 
 **Question:** Is there a difference between concentration and mindfulness?
 
-**Katagiri:** Mindfulness is not forgetting the dharma. Concentration is sometimes not forgetting *you*. *[He laughs. The questioner laughs.]* But real concentration is not forgetting you but simultaneously not forgetting others. That is called mindfulness. 
+**Katagiri Roshi:** Mindfulness is not forgetting the dharma. Concentration is sometimes not forgetting *you*. *[He laughs. The questioner laughs.]* But real concentration is not forgetting you but simultaneously not forgetting others. That is called mindfulness. 
 
 So traditionally, we understand mindfulness is constantly not to forget the dharma. And then, *dhyana*, meditation, or sometimes we say concentration. But I told [you] the very usual [kind of] concentration, alright? But *dhyana* means zazen; let’s [look at] zazen. Mindfulness is not forgetting the dharma, and in zazen, *dhyana*, you *dwell in* dharma. Do you understand the difference? Mindfulness is not forgetting dharma; in other words, still you can see dharma objectively, so you try to approach to dharma. That is the practice of mindfulness. But *dhyana*, so-called zazen, is [that] you’re always present *in* dharma. That means total security. You have to be present in security there, exactly, from moment to moment. Not try [not] to forget, okay? *[He laughs.]* Completely beyond. Because you already do it. 
 
@@ -335,17 +335,17 @@ That is called concentration, we say concentration. That is really deep. But usu
 
 **Same person:** So mindfulness is like being aware of two things: what I’m doing, and dharma. As if there were two. 
 
-**Katagiri:** Through your actions, through your body, through your object. Because dharma is nothing but your body and object. 
+**Katagiri Roshi:** Through your actions, through your body, through your object. Because dharma is nothing but your body and object. 
 
 **Same person:** Right. And concentration is even more complete oneness.
 
-**Katagiri:** Right. 
+**Katagiri Roshi:** Right. 
 
 #### 1:14:28
 
 **Question:** Do you say that *dhyana* is deeper than mindfulness? Or ...
 
-**Katagiri:** Well, I don’t think it’s necessary to compare like that. But temporarily, if you look at the experience separately, so-called mindfulness and zazen, *dhyana*, maybe we can find a certain definition [of] the difference between. So that’s why mindfulness is “try not to forget the dharma.” Dharma means the universe; truth. Anyway, we try to approach; not forget. Whatever you do, you should do with the universe. 
+**Katagiri Roshi:** Well, I don’t think it’s necessary to compare like that. But temporarily, if you look at the experience separately, so-called mindfulness and zazen, *dhyana*, maybe we can find a certain definition [of] the difference between. So that’s why mindfulness is “try not to forget the dharma.” Dharma means the universe; truth. Anyway, we try to approach; not forget. Whatever you do, you should do with the universe. 
 
 But usually in our daily life, always *I* comes first. So we pretty easily forget the universe, others. So “[we should] try not to forget the universe” means try to do something with the universe. That means keep your mind calm, because your mind always brings yourself first, so-called ego. That’s why *make your mind calm* means taking care of your mind in [the] proper way first. 
 

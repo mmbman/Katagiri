@@ -172,7 +172,7 @@ Do you have a question?
 
 **Question:** When you were talking about entering the life of the brambles and cutting down the sandalwood: why do you have to cut down the sandalwood?
 
-**Katagiri:** Because, particularly when you take care of your own life seriously, with great effort, very naturally you will see a good life, which you can show as a good example to others. Very naturally, you attach that good example you have demonstrated. So that’s why you have to pass through, instead of holding fast. “This is my own good example; everyone should learn from this” – you cannot say so. 
+**Katagiri Roshi:** Because, particularly when you take care of your own life seriously, with great effort, very naturally you will see a good life, which you can show as a good example to others. Very naturally, you attach that good example you have demonstrated. So that’s why you have to pass through, instead of holding fast. “This is my own good example; everyone should learn from this” – you cannot say so. 
 
 For instance, if I become a teacher, very naturally I say, “I am a teacher, who is different from beginners, so you should follow me.” At that time, this is pretty nice in a sense. If you want to use human “manpower”, or authorities, it’s pretty good, because everyone likes authorities. But on the other hand, everyone hates authorities. *[Some laughter.]* Hatred of authority means you should understand how much you love authority. That’s why you hate it! You know? Simultaneously both exist within your mind. 
 

@@ -84,7 +84,7 @@ First, let me read it. Or Cliff, will you read it?
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
-**Katagiri:** Okay, thank you. 
+**Katagiri Roshi:** Okay, thank you. 
 
 #### 24:05
 

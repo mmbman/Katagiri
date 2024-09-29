@@ -265,7 +265,7 @@ Okay, do you have questions? I’m sorry I didn’t finish.
 
 **Question:** Could you go back to this last point, “When you witness one side, the other side is obscure”? I didn’t understand...
 
-**Katagiri:** Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about the oneness with the rock face and the climber’s body and mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
+**Katagiri Roshi:** Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about the oneness with the rock face and the climber’s body and mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
 
 *(Transcriber’s Note: The book* Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition *by Mihaly Csikszentmihalyi is available but expensive. The more recent update by the same author,* Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)*
 
@@ -277,11 +277,11 @@ That is what? Just practice. The total manifestation of perpetual flow of activi
 
 **Question:** When one side is obscure - that’s when all things are sentient beings. 
 
-**Katagiri:** Yes.
+**Katagiri Roshi:** Yes.
 
 **Question:** When no side is obscure - that’s when all things are Buddhas. 
 
-**Katagiri:** Yes. In other words, all sentient beings are *behind* you, always supporting. 
+**Katagiri Roshi:** Yes. In other words, all sentient beings are *behind* you, always supporting. 
 
 We are always going in front. But we have a back. But we don’t see the back, you know? We always see the front, what’s going on. We always ignore the back. [But] the back is huge. So, “the other sentient beings are obscure” means “with a back” – in other words, behind you, and then supporting. Even though you don’t like [it]. [We are] crying, “go ahead, go ahead,” in many ways, you know? *[Laughter.]*
 

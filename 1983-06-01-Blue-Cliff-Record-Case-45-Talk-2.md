@@ -242,7 +242,7 @@ Well. *[He clears his throat.]* Do you have questions?
 
 **Question:** Hojo-san? How does one stop being *tanpankan*? ... I mean, [according to] Zen.
 
-**Katagiri:** Well, [there is] no particular way to stop *tanpankan*, because you are already *tanpankan*, anyway. So every day, you have to go beyond *tanpankan*. Because you are, already. But every day, understand it, and deepen, practice it, get it, let it go. Anyway, get it, let it go... get it, let it go. That is *tanpankan*: [getting rid] of it. 
+**Katagiri Roshi:** Well, [there is] no particular way to stop *tanpankan*, because you are already *tanpankan*, anyway. So every day, you have to go beyond *tanpankan*. Because you are, already. But every day, understand it, and deepen, practice it, get it, let it go. Anyway, get it, let it go... get it, let it go. That is *tanpankan*: [getting rid] of it. 
 
 So you are screaming, and that is already *tanpankan*. And then when you feel good, you’re really happy: that is also *tanpankan*. You feel good; well, get it. You can get it, in that way. But let it go. That means, practice. Practice living with all sentient beings. Understanding deeply, anyway. 
 
@@ -250,7 +250,7 @@ Okay?
 
 **Question:** Hojo-san? Is that the same as having square, sharp edges? 
 
-**Katagiri:** Mmm-hm. That is deepening, or maturing. That is the best way to make your life mature. 
+**Katagiri Roshi:** Mmm-hm. That is deepening, or maturing. That is the best way to make your life mature. 
 
 #### 1:01:10 end of recording
 

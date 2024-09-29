@@ -241,7 +241,7 @@ Do you have questions?
 
 **Question:** Hojo-san? Is the desire for perfect peace and harmony a human desire? 
 
-**Katagiri:** Yes... You mean seeking for perfect peace and harmony? Yes, it is also human desire. So you have to deal with [it] carefully, okay? What is *real* peace, *real* harmony? But without your desire, you cannot seek. 
+**Katagiri Roshi:** Yes... You mean seeking for perfect peace and harmony? Yes, it is also human desire. So you have to deal with [it] carefully, okay? What is *real* peace, *real* harmony? But without your desire, you cannot seek. 
 
 But [...] constantly your effort must be focused on real peace. That is called *bendo*. 
 
@@ -249,11 +249,11 @@ But real peace, real harmony shouldn’t be seen in terms of life and death, so-
 
 **Same person:** My question has to do with, if Buddhism wanted to satisfy human desires, is that the real Buddhism.
 
-**Katagiri:** No, it’s not the main purpose. You have to go through [it], but it’s not the main purpose. 
+**Katagiri Roshi:** No, it’s not the main purpose. You have to go through [it], but it’s not the main purpose. 
 
 **Same person:** But to know that we are not different from trees and birds. To know the truth of that. 
 
-**Katagiri:** Sure... “To know” is already questionable, because to know that we are not different from trees, birds, et cetera, means already you see the trees, birds objectively. That is called *to know*. Alright? It’s not something *to know*: you must be trees and birds. Alright? *[He laughs.]* That’s why it’s very difficult, that’s why we have to continually practice, in your whole life. Otherwise, you always [have] Buddhism *which you have known*, or you have felt. It’s pretty good, because you practice it, or you feel it, so feeling very naturally can be experienced. But it’s not the *real* one. 
+**Katagiri Roshi:** Sure... “To know” is already questionable, because to know that we are not different from trees, birds, et cetera, means already you see the trees, birds objectively. That is called *to know*. Alright? It’s not something *to know*: you must be trees and birds. Alright? *[He laughs.]* That’s why it’s very difficult, that’s why we have to continually practice, in your whole life. Otherwise, you always [have] Buddhism *which you have known*, or you have felt. It’s pretty good, because you practice it, or you feel it, so feeling very naturally can be experienced. But it’s not the *real* one. 
 
 #### 2 - 22:13
 
@@ -261,7 +261,7 @@ But real peace, real harmony shouldn’t be seen in terms of life and death, so-
 
 *[Pause.]*
 
-**Katagiri:** [Yes,] we have to think about Buddhism giving constantly real peace. 
+**Katagiri Roshi:** [Yes,] we have to think about Buddhism giving constantly real peace. 
 
 But it’s very easy for us to misuse Buddhism. If you misuse Buddhism, immediately you cannot give real peace. 
 
@@ -273,11 +273,11 @@ Science is physics and biology. Are modern physics and modern biology developing
 
 **Question:** But do the two have to be in contradiction?
 
-**Katagiri:** Yes, it seems to be contradiction, but it’s not contradiction. But when you think two, immediately our thinking creates the idea of contradiction.
+**Katagiri Roshi:** Yes, it seems to be contradiction, but it’s not contradiction. But when you think two, immediately our thinking creates the idea of contradiction.
 
 **Same person:** Well, I’ve always had this idea of an ideal society that would both make our egos happy, and yet at the same time we would find *bendo*...
 
-**Katagiri:** Sure; it’s very naturally there. That’s why we have to consider carefully what egoistic happiness [is]. 
+**Katagiri Roshi:** Sure; it’s very naturally there. That’s why we have to consider carefully what egoistic happiness [is]. 
 
 I don’t mean you should ignore; I don’t mean egoistic happiness should be combined with not-egoistic happiness. I don’t mean that; [not] mixed-up. Egoistic happy, not-egoistic happy. Egoistic happy: something more than egoistic happiness there. Very naturally, if you say egoistic happiness, [then] something more than egoistic happiness [is] there. 
 

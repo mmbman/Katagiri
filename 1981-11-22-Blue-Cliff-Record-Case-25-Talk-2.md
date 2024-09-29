@@ -162,11 +162,11 @@ Do you have any questions?
 
 **Question:** When you are talking about following the rhythm of our life in the truth ... how deeply are you talking about? On what level?
 
-**Katagiri:** That is the absolute self. Absolute reality means taking care of the big scale, of the big self. 
+**Katagiri Roshi:** That is the absolute self. Absolute reality means taking care of the big scale, of the big self. 
 
 **Same person:** *[Unintelligible.]*
 
-**Katagiri:** That’s why I gave the example about sickness. If you face sickness or death, if you are about to die, there is the self in absolute reality. That is the absolute self, big self. That big self, the absolute self, is not completely “should I die or should I live a long life,” don’t you think? 
+**Katagiri Roshi:** That’s why I gave the example about sickness. If you face sickness or death, if you are about to die, there is the self in absolute reality. That is the absolute self, big self. That big self, the absolute self, is not completely “should I die or should I live a long life,” don’t you think? 
 
 Completely there is the absolute self going on. All we have to do is to tune the dial into this rhythm of the absolute self, day by day. But the mind is always screaming, crying, shouting, and [asking for help] – trying to get something. I understand this is being human, but all we have to do is to tune in the dial to *this*, listen to the absolute self, the self in absolute reality. That is called the truth, we say. Truth is not something far from us, truth is just focusing on the rhythm of self in absolute reality. It’s not so easy, but from now on, particularly in the 21st century, we have to live in this way, because human beings are more complicated, everything is done in a way we can be civilized. Your intellectual sense is very sharp, you can go any place, and you cannot make your rational sense of life blind. So we have to know, we have to use our rational sense of human life, and the emotional [sense], and many things, and then we have to think how to live. In order to do this, we have to realize the self in absolute reality, [so] everyone can live. Not *can*; everyone already *is* in a such a way. 
 
@@ -176,11 +176,11 @@ I took care of a young man who was about to die. At that time he screamed and sh
 
 **Question:** Hojo-san? Yesterday when you talked about the abbot of the Asian monastery who became paralyzed, and he said, “Well, it’s my karma.” Had he become a dead fish or a dry fish, in saying that? 
 
-**Katagiri:** I don’t know. We should invite him to ask. *[Laughter.]* Well, it doesn’t matter, anyway; he already died. 
+**Katagiri Roshi:** I don’t know. We should invite him to ask. *[Laughter.]* Well, it doesn’t matter, anyway; he already died. 
 
 **Same person:** I guess I didn’t understand your point yesterday. I wasn’t quite clear about your criticism. 
 
-**Katagiri:** Oh. One point that I wanted to tell you yesterday was that for many, many years we don’t realize the rhythm of nature, the sun coming up in the east and setting in the west. For many, many years, we don’t realize just becoming one with it, without any doubt. But we have a mind, and sooner or later we start to think, “Why is the sun coming up in the east? What is the earth?” [And so on.] And then we try to explain that rhythm of nature, which human beings completely became one with, without any questions. But when you have mind, you have to think, and then explain. That is myths, stories, philosophy, psychology, et cetera. And then finally, we really enjoy creating the story of myths endlessly. If we explain, endlessly we can go on like this. There is no end [to it].
+**Katagiri Roshi:** Oh. One point that I wanted to tell you yesterday was that for many, many years we don’t realize the rhythm of nature, the sun coming up in the east and setting in the west. For many, many years, we don’t realize just becoming one with it, without any doubt. But we have a mind, and sooner or later we start to think, “Why is the sun coming up in the east? What is the earth?” [And so on.] And then we try to explain that rhythm of nature, which human beings completely became one with, without any questions. But when you have mind, you have to think, and then explain. That is myths, stories, philosophy, psychology, et cetera. And then finally, we really enjoy creating the story of myths endlessly. If we explain, endlessly we can go on like this. There is no end [to it].
 
 This is a wonderful world, depending on the myths and philosophy, psychology, but they are nothing but explanations of oneness with nature, the rhythm of nature. The rhythm of nature is exactly one with us, so it’s not necessary to think [about it]. Primitive people don’t have any ideas to think, they just tune in constantly, just like animals do. Animals are instinctively tuning in, so they’re happy, you know, compared to human beings anyway. Or completely beyond happy or unhappy – just tuning in, day by day. Human beings can do that, but human beings have consciousness, so we always tune in just like the animals but immediately we have to think and explain. That is culture coming up. And then we depend on just the culture, and myths, and philosophy, psychology, forgetting oneness with the rhythm of nature.
 
@@ -196,7 +196,7 @@ The Zen terms *your original face*, *Buddha Nature*, *the original face of the s
 
 **Question:** Yesterday you talked about the importance of having hopes ... and earlier this week you talked about less desire being full absorption in the present ... How do you have a big hope without having lots of desire and lots of distraction and lots of suffering? *[Laughter.]*
 
-**Katagiri:** If you have a big hope, you should have a big trouble, anyway. *[Laughter.]* You should be prepared for the possibility of troubles, if you have a big hope. If you want to have a big business, there is lots of trouble there. You should accept [that]. 
+**Katagiri Roshi:** If you have a big hope, you should have a big trouble, anyway. *[Laughter.]* You should be prepared for the possibility of troubles, if you have a big hope. If you want to have a big business, there is lots of trouble there. You should accept [that]. 
 
 *[Tape change]*
 
@@ -210,27 +210,27 @@ So if you want to run a big business and make big money, you have to have big mo
 
 **Question:** Hojo-san, in your example of yourself, you said in your mind you would like to sleep in, you said screaming I think. But it’s not your whole mind that screams, is it? Only part of your mind? *[Laughter.]*
 
-**Katagiri:** Because I am the teacher? [What do you expect?] *[Laughter.]* 
+**Katagiri Roshi:** Because I am the teacher? [What do you expect?] *[Laughter.]* 
 
 **Same person:** Alright, here’s the question, Hojo-san: if the whole mind is screaming, what do we tune into? And who does the tuning?
 
-**Katagiri:** Well, *you* do. *I* have to do it. 
+**Katagiri Roshi:** Well, *you* do. *I* have to do it. 
 
 **Same person:** Well, that’s the problem.
 
-**Katagiri:** Sure.
+**Katagiri Roshi:** Sure.
 
 **Same person:** So it’s not your whole mind screaming. 
 
-**Katagiri:** Not the whole mind, no; just a part of my mind. As a whole, all I have to do is to kill my life or to give life. Do you understand? To give life in the light of a flashing light. So *[unintelligible]*. But life is going, so get up, and wash your face. If you feel sleepy, pour cold water on yourself. *[He laughs.]* Sometimes I don’t like it – but, just do it. From moment to moment, that’s all. Is that okay?
+**Katagiri Roshi:** Not the whole mind, no; just a part of my mind. As a whole, all I have to do is to kill my life or to give life. Do you understand? To give life in the light of a flashing light. So *[unintelligible]*. But life is going, so get up, and wash your face. If you feel sleepy, pour cold water on yourself. *[He laughs.]* Sometimes I don’t like it – but, just do it. From moment to moment, that’s all. Is that okay?
 
 **Same person:** I was thinking that, when I was sick for a couple weeks, or other people I have seen, some part resists very much, you know? Sickness, or getting up, or anything. But another part doesn’t seem to care either way, it’s just always the same. Just calm; you used the term calm or quiet. And I’ve experienced that, and I’ve seen that with some people. For example, I worked a bit with the Indian people in Alaska. In their tradition they had no religion, they were just hunters and fishermen. And when I got there there was lots of trouble: no work for the men, and there was pain, and not enough food. But one thing that was striking was, I came from Berkeley California, and one big difference was these people were as unhappy as people I’d left in the cities, but they didn’t seem to be as upset. I mean they were unhappy, but they were much calmer. I don’t know how to explain it exactly. 
 
-**Katagiri:** I understand. 
+**Katagiri Roshi:** I understand. 
 
 **Same person:** So I mean, they were hungry, but they didn’t seem to care so much. Or you know, somebody died, but it wasn’t such a big deal as with people in the city. So some part was always just quiet. And I have also seen that in sick people: on the one hand they scream, but on the other hand some part of the mind just goes. That’s what my question to you was about.
 
-**Katagiri:** Yes. But for instance, in Japan when I was at a temple, and the temple was very cold; the temperature was exactly the same as outside in the winter, no heating system. I didn’t feel happy or unhappy, because I had never experienced a wonderful house with perfect heating – I believed this is my life, so just accept it. So, no trouble. But if I *know* this... *[Laughter.]* My goodness! Just two days ago, [the power goes out]: *Argh*! *[Laughter.]* 
+**Katagiri Roshi:** Yes. But for instance, in Japan when I was at a temple, and the temple was very cold; the temperature was exactly the same as outside in the winter, no heating system. I didn’t feel happy or unhappy, because I had never experienced a wonderful house with perfect heating – I believed this is my life, so just accept it. So, no trouble. But if I *know* this... *[Laughter.]* My goodness! Just two days ago, [the power goes out]: *Argh*! *[Laughter.]* 
 
 So if you don’t know there is something different from the situation where you are, at that time there are no troubles, because you don’t know. But if you know, it’s big trouble. 
 

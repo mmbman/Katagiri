@@ -103,7 +103,7 @@ Do you have some questions?
 
 **Question:** Hojo-san? Were you making a point that 21st century human beings maybe are becoming more obstinate or stubborn because technology spoils [us], because technology promises that it can control the universe?
 
-**Katagiri:** Yes, they may become more stubborn, more arrogant. That’s why we have to offer certain circumstances where they can manifest or they can realize the bigger scale of the world through their own research. Because even though they become more and more stubborn by the strong belief of their accomplishments, but reality [...] would rather be [the] reverse sometimes: by stubbornness they can realize the bigger scale of the world. So as best as we can, we try to give compassion to them, and offer certain circumstances where they can feel the bigger scale of the world. That is living together in peace and harmony. 
+**Katagiri Roshi:** Yes, they may become more stubborn, more arrogant. That’s why we have to offer certain circumstances where they can manifest or they can realize the bigger scale of the world through their own research. Because even though they become more and more stubborn by the strong belief of their accomplishments, but reality [...] would rather be [the] reverse sometimes: by stubbornness they can realize the bigger scale of the world. So as best as we can, we try to give compassion to them, and offer certain circumstances where they can feel the bigger scale of the world. That is living together in peace and harmony. 
 
 #### 54:15
 
@@ -111,29 +111,29 @@ Do you have some questions?
 
 **Another person:** [Did you say] that was wisdom?
 
-**Katagiri:** You can see it with wisdom. I think your breath is a good analogy. You always breath every day. Even though you sleep, even though you don’t pay attention to it, always breathing is going and your heart is working. Who takes care of this? Is it your effort? Well yes, your effort, because you try to keep your body in good shape, exercising, et cetera – that is your effort. But on the other hand, there is something more than your effort, [by which] your heart is moving. That is, I say, the heart is *caused to be alive*. Is that clear? 
+**Katagiri Roshi:** You can see it with wisdom. I think your breath is a good analogy. You always breath every day. Even though you sleep, even though you don’t pay attention to it, always breathing is going and your heart is working. Who takes care of this? Is it your effort? Well yes, your effort, because you try to keep your body in good shape, exercising, et cetera – that is your effort. But on the other hand, there is something more than your effort, [by which] your heart is moving. That is, I say, the heart is *caused to be alive*. Is that clear? 
 
 So as a whole, not only human beings, but trees, birds, all sentient beings, are caused to be alive. That is called Buddha’s life.
 
 **Question:** Is that understanding interdependence? 
 
-**Katagiri:** Yes, according to the teaching, dependent co-origination. But that is a teaching. Practically, we should do it. That is everyday life, we have to do it. That is appreciation: this table is a being as well as our life. 
+**Katagiri Roshi:** Yes, according to the teaching, dependent co-origination. But that is a teaching. Practically, we should do it. That is everyday life, we have to do it. That is appreciation: this table is a being as well as our life. 
 
 **Question:** You mean acknowledge it? 
 
-**Katagiri:** Yes, acknowledge it. So deal with this table with kindness, and being considerate and charitable to it. That is handling this table carefully. Carefully [doesn’t] mean slowly, or what would you say, meticulously. 
+**Katagiri Roshi:** Yes, acknowledge it. So deal with this table with kindness, and being considerate and charitable to it. That is handling this table carefully. Carefully [doesn’t] mean slowly, or what would you say, meticulously. 
 
 **Question:** What *does* carefully mean? 
 
-**Katagiri:** With concentration. Careful attention means with full concentration. You try to deal with it with wholeheartedness. 
+**Katagiri Roshi:** With concentration. Careful attention means with full concentration. You try to deal with it with wholeheartedness. 
 
 **Question:** It’s seems that concentration is involved in thought process, it seems that what you’re talking about is more an awareness than ...
 
-**Katagiri:** Awareness, and simultaneously it becomes practice. Of course with concentration, consciousness is involved. When you want to deal with this table, consciousness is already involved, because consciousness sees this table. But consciousness is very complicated, not simple work, because it’s connected with your heredity and education, and emotions, and judgement, evaluation... connected with many things. That’s why when you see it, immediately you judge it, and then next emotional judgement [or] feeling is coming up. So finally we don’t use this table with wholeheartedness. Do you understand what I mean? So consciousness is already involved. Without consciousness, you cannot live in this world. 
+**Katagiri Roshi:** Awareness, and simultaneously it becomes practice. Of course with concentration, consciousness is involved. When you want to deal with this table, consciousness is already involved, because consciousness sees this table. But consciousness is very complicated, not simple work, because it’s connected with your heredity and education, and emotions, and judgement, evaluation... connected with many things. That’s why when you see it, immediately you judge it, and then next emotional judgement [or] feeling is coming up. So finally we don’t use this table with wholeheartedness. Do you understand what I mean? So consciousness is already involved. Without consciousness, you cannot live in this world. 
 
 **Question:** It seems to me like if you concentrate too much, if you think too much about being careful, then *more* judgements come up.
 
-**Katagiri:** That is you playing with your consciousness. So you have to let it go. You have to use consciousness as simply as you can: you should do it and then let it go. That’s practice. 
+**Katagiri Roshi:** That is you playing with your consciousness. So you have to let it go. You have to use consciousness as simply as you can: you should do it and then let it go. That’s practice. 
 
 But usually we do it with wholeheartedness and then we judge the result. And then, what should we do, we should work harder, and then we do that, and then we judge it. That kind of thing always happens. So [with] that, finally we are very confused, nervous, you know? Exhausted. So all you can do is, with wholeheartedness, deal with this *now*, and then let it go. You should open; and then next moment, you just do it, with a [new, fresh] feeling. 
 
@@ -141,27 +141,27 @@ So always there are two practices: holding, and letting it go. *Holding* means s
 
 **Question:** So when you talk about concentration, you’re just talking about a *momentary* kind of thing? 
 
-**Katagiri:** Momentary? Yes. Momentary concentration must be alive. So momentary concentration is always new.
+**Katagiri Roshi:** Momentary? Yes. Momentary concentration must be alive. So momentary concentration is always new.
 
 #### 1:00:38
 
 **Question:** When you’re talking about renewing... A general Buddhist person, would you say their life is a little more involved around ceremonies, and not so much ... *[unintelligible]*
 
-**Katagiri:** Well, that is a little bit complicated, and I cannot know, exactly. But it is important that life be simple. If a human being is renewed, then we can handle Buddhism as simply as we can. So I think first the important thing is that we should be renewed. Don’t you think so? 
+**Katagiri Roshi:** Well, that is a little bit complicated, and I cannot know, exactly. But it is important that life be simple. If a human being is renewed, then we can handle Buddhism as simply as we can. So I think first the important thing is that we should be renewed. Don’t you think so? 
 
 **Same person:** So not really criticizing Buddhist ceremony or something [...] but ...
 
-**Katagiri:** No. In Japan, funeral services and memorial services are criticized by many people, because the memorial service becomes more and more “the business,” so they don’t like it. So recently, they have funeral services without a priest, and using a hotel instead of a temple. More than [in Christianity]; they don’t use *anything*, just putting flowers around, decorating, and having pictures there, that’s it. That kind of thing happens in Japan. But a funeral service is a funeral service; I think the point is how to use this funeral service. Because one hundred thousand years ago, already our ancestors started to do burial services. I don’t think it’s necessary to maintain [the funeral service], but I want to maintain that spirit of being considerate of others. That is most important. Because it’s very difficult to manifest this consideration or charitable [feeling]. That’s why [we have] the service and rituals, [so through them] we can manifest [it]. 
+**Katagiri Roshi:** No. In Japan, funeral services and memorial services are criticized by many people, because the memorial service becomes more and more “the business,” so they don’t like it. So recently, they have funeral services without a priest, and using a hotel instead of a temple. More than [in Christianity]; they don’t use *anything*, just putting flowers around, decorating, and having pictures there, that’s it. That kind of thing happens in Japan. But a funeral service is a funeral service; I think the point is how to use this funeral service. Because one hundred thousand years ago, already our ancestors started to do burial services. I don’t think it’s necessary to maintain [the funeral service], but I want to maintain that spirit of being considerate of others. That is most important. Because it’s very difficult to manifest this consideration or charitable [feeling]. That’s why [we have] the service and rituals, [so through them] we can manifest [it]. 
 
 #### 1:03:50
 
 **Question:** What do you mean when you talk about longevity?
 
-**Katagiri:** Longevity is continuation. 
+**Katagiri Roshi:** Longevity is continuation. 
 
 **Question:** Forever?
 
-**Katagiri:** Forever. That is longevity. *[He laughs.]* 
+**Katagiri Roshi:** Forever. That is longevity. *[He laughs.]* 
 
 That is called *jumyō* in Japanese: lifespan. If you use the word lifespan, it’s a little bit limited, but jumyō is not [really] lifespan, [it is] endless life. *Ju* is longevity, *myō* is life. So, something continuous from past to the present to the future. This is longevity; eternity. Eternal continuation. 
 

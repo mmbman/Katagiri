@@ -33,7 +33,7 @@ But this agreement is also important for us, okay? Don’t misunderstand. I don�
 
 **Question:** Are there any stories in the *Abhidharma* about the beginning of time and space, and ignorance?
 
-**Katagiri:** The beginning of time and space... *[He laughs.]* It’s already ignorance. *[Laughter.]* 
+**Katagiri Roshi:** The beginning of time and space... *[He laughs.]* It’s already ignorance. *[Laughter.]* 
 
 *The beginning of time and space* is already ignorance, coming from your consciousness, don’t you think so? If you say *before*, already there is *after*, don’t you think? So already you think something – “time and space” – in the [dualistic](glossary#dualistic) sense: before and after, separated. But what is *before*? What is *after*? That is a very interesting, huge, system: *[unintelligible]* and theology. 
 

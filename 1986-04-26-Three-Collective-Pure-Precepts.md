@@ -94,27 +94,27 @@ Do you have some questions?
 
 **Question:** Hojo-san? Recently, you gave the name for this temple, Living in Vow Temple, *Ganshoji*. Is that that same notion of *precept* that you say there? 
 
-**Katagiri:** Yes. That’s my hope. 
+**Katagiri Roshi:** Yes. That’s my hope. 
 
 Vow is a big hope, huge hope. 
 
 **Question:** Your hope meaning that kind of continuity. 
 
-**Katagiri:** Continuity.
+**Katagiri Roshi:** Continuity.
 
 #### 38:17
 
 **Question:** I didn’t understand “aspiring to the vow.” What ... ?
 
-**Katagiri:** Uh, I used [the word] aspiration, but that is not usual aspiration, [it is] profound aspiration. It’s exactly the same as vow; I [just] used a different term.
+**Katagiri Roshi:** Uh, I used [the word] aspiration, but that is not usual aspiration, [it is] profound aspiration. It’s exactly the same as vow; I [just] used a different term.
 
 **Question:** Would you explain that point again? You said that most people don’t understand vow and that’s fine. But you said that the problem was that most people didn’t – what you said was, have an aspiration for the vow. 
 
-**Katagiri:** Mmm-hmm.
+**Katagiri Roshi:** Mmm-hmm.
 
 **Question:** So, how does that work? 
 
-**Katagiri:** I think... if you don’t understand the vow, most people ignore the vow. “It’s not my business,” you know? Something like that. In other words, you don’t want to do it because you don’t understand it. And also you don’t understand what to do, how to practice it, so you don’t have any intention to aspire for it under the guidance of a teacher; you don’t seek for it. That’s a problem. In other words, such a person has a very narrow point of view, always seeing the world which he can see, he can understand, that’s all. But he doesn’t see what he cannot see [in] the world. Is that clear? Because you cannot judge the world and your life in terms of what you have understood, or what you have seen. No. There is something which you don’t know; there are many beings ...
+**Katagiri Roshi:** I think... if you don’t understand the vow, most people ignore the vow. “It’s not my business,” you know? Something like that. In other words, you don’t want to do it because you don’t understand it. And also you don’t understand what to do, how to practice it, so you don’t have any intention to aspire for it under the guidance of a teacher; you don’t seek for it. That’s a problem. In other words, such a person has a very narrow point of view, always seeing the world which he can see, he can understand, that’s all. But he doesn’t see what he cannot see [in] the world. Is that clear? Because you cannot judge the world and your life in terms of what you have understood, or what you have seen. No. There is something which you don’t know; there are many beings ...
 
 **(Archive Issue: the audio ends unexpectedly at this point.)**
 

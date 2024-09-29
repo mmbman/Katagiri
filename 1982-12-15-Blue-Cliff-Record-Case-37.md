@@ -122,7 +122,7 @@ Do you have questions?
 
 **Question:** In the first note, he says, “He ought to have been hit before he finished talking.” And then on the next page he said, “Why do I say I would have hit him before he finished speaking? Just because he was wearing stocks, giving evidence of his crimes.” I don’t understand what he’s trying to say there at all. 
 
-**Katagiri:** [Engo’s first note says,]
+**Katagiri Roshi:** [Engo’s first note says,]
 
 > Once the arrow has left the bowstring, it has no power to come back. The moon’s brightness shines, revealing the night traveller. He has hit the mark. One who knows the law fears it. He ought to have been hit before he finished talking.
 

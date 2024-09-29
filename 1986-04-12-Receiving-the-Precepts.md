@@ -133,11 +133,11 @@ Do you have questions?
 
 **Question:** At Hokyoji last summer, Narasaki Roshi ... we had a full moon ceremony, taking the Precepts, which maybe they do every month [...] in Japan?
 
-**Katagiri:** Twice a month. 
+**Katagiri Roshi:** Twice a month. 
 
 **Question:** Could you say a little bit about that, and say if we’ll ever do that here? 
 
-**Katagiri:** Yeah, I am thinking of practicing that one in Hokyoji. Someday.
+**Katagiri Roshi:** Yeah, I am thinking of practicing that one in Hokyoji. Someday.
 
 #### 57:56 end of recording
 

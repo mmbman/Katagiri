@@ -97,11 +97,11 @@ Do you have questions about the meaning of *prajna*?
 
 **Question:** When it says, “prajna is cut off,” I would have thought prajna goes on. 
 
-**Katagiri:** Mm-hm, yes, prajna is going constantly.
+**Katagiri Roshi:** Mm-hm, yes, prajna is going constantly.
 
 **Same person:** And so in what sense is it cut off?
 
-**Katagiri:** Because it is with you, but it doesn’t work with your everyday life. It’s *with* you, but it doesn’t work; it doesn’t appear. Just like a diamond, wild, natural diamond. 
+**Katagiri Roshi:** Because it is with you, but it doesn’t work with your everyday life. It’s *with* you, but it doesn’t work; it doesn’t appear. Just like a diamond, wild, natural diamond. 
 
 The same applies to your everyday life. I think you have many, many things at your house: furniture, and closets, and toilet space, pictures on the wall. Many things. But I think they are functioning always. Otherwise, picture on the wall doesn’t make sense, space of the house doesn’t make sense. So you should understand everything in terms of the functioning of existence. 
 

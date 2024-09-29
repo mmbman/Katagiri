@@ -122,7 +122,7 @@ Do you have any questions?
 
 **Question:** [Roshi](glossary#roshi)? Earlier on, you told us the story of the monk who asked the master, “Do you hear the raindrops?” And he said, “I almost hear the raindrops.” And you just mentioned that Buddha said he didn’t hear the thunder. Are they saying the same thing as ... ?
 
-**Katagiri:** Same. The expression is different, but same situation. 
+**Katagiri Roshi:** Same. The expression is different, but same situation. 
 
 The [Zen Master](glossary#zen-master) is always right in the middle of real rain drops. But, it’s not necessary to stay with it. That’s why any time, anywhere, he can go to the right, to the left. That’s why he said *almost*. Because if you say, “I am to the left; I am this here” – immediately another aspect or side says, “Hey, hey! Why don’t you come this way?” So [you say], “Okay, I will go.” And then if you stay there, and proclaim, “I am here,” another side says, “Why don’t you come here?” That is [dualistic](glossary#dualistic). *[Thunder.]*
 
@@ -136,7 +136,7 @@ That’s why Buddha said he didn’t hear the sound of the thunder. *[Unintellig
 
 **Question:** Is that what we mean by the Middle Way?
 
-**Katagiri:** Yes, the [Middle Way](glossary#middle-way). 
+**Katagiri Roshi:** Yes, the [Middle Way](glossary#middle-way). 
 
 The Middle Way is not to walk in the middle of the street, okay? *[He pauses, then there is some laughter.]* The Middle Way is to walk in the middle with total awareness – of middle, right side, left side, and all beings around it. Then this is the Middle Way. But if you just walk in the middle, you hit your forehead against a streetcar. *[Laughter.]* Watch out! You cannot walk that way. 
 
@@ -148,7 +148,7 @@ Or I always tell you, there is a scale. Why don’t you point out the *middle*? 
 
 *(Transcriber’s Note: The following anecdote, at the end of the seven day sesshin, starts quietly, but quickly becomes difficult to transcribe because it’s hard to hear over all the laughter.)*
 
-**Katagiri:** If you think about zazen for seven days, you become good friends with zazen. How do you like it? Do you hate it? *[Soft laughter.]*
+**Katagiri Roshi:** If you think about zazen for seven days, you become good friends with zazen. How do you like it? Do you hate it? *[Soft laughter.]*
 
 Is there anyone who attained enlightenment? No one? *[Laughter.]*
 

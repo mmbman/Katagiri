@@ -183,25 +183,25 @@ Please read the verse; maybe next time I can say a little bit about the verse. D
 
 **Question:** Roshi? I find Ch’ang Sha’s remark, “First I went pursuing the fragrant grasses; then I returned following the falling flowers,” very much like what you told us Tathāgata means in Japanese: just going, just coming. I find a similarity there. 
 
-**Katagiri:** Mmm-hm. True. That’s why *just going, just coming* is not the *just going, just coming* you can understand according to your common sense. *Just going, just coming* is full attention, full energies there. At that time it becomes *just* coming, *just* going. That is called Tathāgata. 
+**Katagiri Roshi:** Mmm-hm. True. That’s why *just going, just coming* is not the *just going, just coming* you can understand according to your common sense. *Just going, just coming* is full attention, full energies there. At that time it becomes *just* coming, *just* going. That is called Tathāgata. 
 
 #### 1:05:30
 
 **Question:** What does it mean to fall into the weeds? 
 
-**Katagiri:** Falling into the weeds means the implication of descending to the human world. You mean in the notes?
+**Katagiri Roshi:** Falling into the weeds means the implication of descending to the human world. You mean in the notes?
 
 **Same Person:** In the notes he keeps talking about falling into the weeds. Note one, and note three and note four.
 
-**Katagiri:** “At first he was falling into the weeds; later he was still falling in the weeds” means before and after he is walking in the mountains in the vastness of existence. Just walking. That’s why only just walking in the human world. So that means first or later, before and [from], same thing, just walking. 
+**Katagiri Roshi:** “At first he was falling into the weeds; later he was still falling in the weeds” means before and after he is walking in the mountains in the vastness of existence. Just walking. That’s why only just walking in the human world. So that means first or later, before and [from], same thing, just walking. 
 
 **Same person:** Is seeking the truth existing in the vastness of existence? Is that what seeking the truth is?  
 
-**Katagiri:** No. Seeking for the truth is when your energy is manifested totally. In a moment, from moment to moment, when your energy is manifested or revealed, that is seeking for the truth. 
+**Katagiri Roshi:** No. Seeking for the truth is when your energy is manifested totally. In a moment, from moment to moment, when your energy is manifested or revealed, that is seeking for the truth. 
 
 **Same person:** So then descending to the human world, by contrast, how does that ...?
 
-**Katagiri:** Well, simultaneously there. You cannot separate. 
+**Katagiri Roshi:** Well, simultaneously there. You cannot separate. 
 
 For instance, if you teach dance. You can pay attention to each form of dance. Each form of dance is the implication of each aspect of human life: washing your face, talking with someone, bowing, shaking hands, whatever. That is just falling into the weeds. That is coming down to the human world, taking care of daily life. But simultaneously, a form of dance is not merely a form of dance, because you aren’t satisfied if a form of dance is *just* a form of dance. Then you don’t want to be a dancer, because there’s really no artistic beauty and grandeur, et cetera. So finally you have to find the true beauty and grandeur and what is the *real* dance, what is the essence of dance. You have to seek for the essence of dance. But how can you seek for the essence of dance? Every day you have to dance, paying attention to each form of dance. And within this form of dance you are practicing from moment to moment, you have to learn the essence of dance, which is so-called *truth*. So you need enormous energies to take care of each form of dance. Do you think so? 
 
@@ -211,13 +211,13 @@ Learning what the dance is means within the process of dance, you have to have f
 
 **Same person:** So would you say that the form of dance is falling into the weeds? 
 
-**Katagiri:** In a sense, yes, the form of dance is falling into the weeds, yes. 
+**Katagiri Roshi:** In a sense, yes, the form of dance is falling into the weeds, yes. 
 
 And then if you become a master of dance, both are working very smoothly. Without any attention, it’s working together very naturally. At that time you become a teacher of dance. 
 
 **Same person:** When he said *don’t* fall into the weeds, why did he say that?
 
-**Katagiri:** This is ironic commentary. If you emphasize falling into the weeds, in other words if you emphasize always the human aspect of life, it’s pretty easy to be saddened. 
+**Katagiri Roshi:** This is ironic commentary. If you emphasize falling into the weeds, in other words if you emphasize always the human aspect of life, it’s pretty easy to be saddened. 
 
 **Same person:** Thank you.
 
@@ -225,11 +225,11 @@ And then if you become a master of dance, both are working very smoothly. Withou
 
 **Question:** Hojo-san? When you explained that mountain is mountain, you said that we can have total communication with the mountain. Is it possible in the same way to have total communication with human society? 
 
-**Katagiri:** Human society? It is. 
+**Katagiri Roshi:** Human society? It is. 
 
 **Same person:** [When it’s human society,] it seems a lot harder.
 
-**Katagiri:** But I don’t think so. [It’s the] same thing as climbing the mountains. 
+**Katagiri Roshi:** But I don’t think so. [It’s the] same thing as climbing the mountains. 
 
 *(Archive Issue: At this point, an earlier part of the recording is repeated for some reason. The remainer of the talk seems to be lost.)*
 

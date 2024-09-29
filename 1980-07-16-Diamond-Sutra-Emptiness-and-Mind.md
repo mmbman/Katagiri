@@ -100,29 +100,29 @@ Do you have questions?
 
 **Question:** Would you say that mind is consciousness? 
 
-**Katagiri:** Yes, mind is consciousness. 
+**Katagiri Roshi:** Yes, mind is consciousness. 
 
 **Same person:** Okay, well, some of the people that I work with, when they get old, maybe they have a stroke, and it affects the left side or the right side their brain, and it changes their consciousness. For some people, you can’t connect with them at all.
 
-**Katagiri:** [I think so.]
+**Katagiri Roshi:** [I think so.]
 
 **Same person:** What happens to their mind? 
 
-**Katagiri:** If you have something wrong with the brain, biologically, physiologically – that is the sense organs. The sense organs meet [their] object, but already the sense organ [has] something wrong. At that time, it’s very difficult to [face] in the proper way. 
+**Katagiri Roshi:** If you have something wrong with the brain, biologically, physiologically – that is the sense organs. The sense organs meet [their] object, but already the sense organ [has] something wrong. At that time, it’s very difficult to [face] in the proper way. 
 
 **Same person:** But Buddha Nature still exists.
 
-**Katagiri:** Oh sure. It’s Buddha Nature. Buddha Nature [exists]. 
+**Katagiri Roshi:** Oh sure. It’s Buddha Nature. Buddha Nature [exists]. 
 
 What is your question?
 
 **Same person:** Well, I have difficulty sometimes relating to some of those people; understanding where their consciousness exists, or if they have any. 
 
-**Katagiri:** I don’t know where. I always tell [you], consciousness is not a solid being. 
+**Katagiri Roshi:** I don’t know where. I always tell [you], consciousness is not a solid being. 
 
 **Same person:** I don’t mean where in the body, but I mean where to [touch] it, [myself].
 
-**Katagiri:** Well, [the] characteristic of consciousness is to know. This is mind; *citta*. But this citta occurs simultaneously with sense organs and objects. Without them, consciousness doesn’t exist. Do you understand? [There are] three things: sense organs, sense objects, and mind. If even one thing is missing, consciousness doesn’t appear. The organ doesn’t make sense, doesn’t function. All three are connected with each other, simultaneously.
+**Katagiri Roshi:** Well, [the] characteristic of consciousness is to know. This is mind; *citta*. But this citta occurs simultaneously with sense organs and objects. Without them, consciousness doesn’t exist. Do you understand? [There are] three things: sense organs, sense objects, and mind. If even one thing is missing, consciousness doesn’t appear. The organ doesn’t make sense, doesn’t function. All three are connected with each other, simultaneously.
 
 So we don’t know where consciousness is. Is consciousness a part of the sense organ? Or is consciousness [the] object? Or is consciousness completely separate from the object or sense organs? We cannot say. Because in Buddhism consciousness is nothing but *action*. The three of those connected with each other, that is called mind. 
 
@@ -130,23 +130,23 @@ And then, in the moment, something happens. *Something happens* means psychologi
 
 **Same person:** ... the attitude of the mind? 
 
-**Katagiri:** Yes, the attitude of the mind.
+**Katagiri Roshi:** Yes, the attitude of the mind.
 
 **Same person:** [Is it] individual? 
 
-**Katagiri:** Yes, individual, everyone. So then always, whatever you do, mind exists. At that time, there is the organ, and the subject and object, and the mind appears. When the mind appears, how can you *know* mind? That is attitude. Through the attitude, you can know mind. That is contact, and feeling, perception, and volition, [et cetera]. This is the attitude of the mind. So those four are exactly the same as the mind. But as a whole, we call it mind. 
+**Katagiri Roshi:** Yes, individual, everyone. So then always, whatever you do, mind exists. At that time, there is the organ, and the subject and object, and the mind appears. When the mind appears, how can you *know* mind? That is attitude. Through the attitude, you can know mind. That is contact, and feeling, perception, and volition, [et cetera]. This is the attitude of the mind. So those four are exactly the same as the mind. But as a whole, we call it mind. 
 
 **Same person:** So if a person loses his will or loses [his mind], part of that would be that they lose consciousness?
 
-**Katagiri:** If think so. If you have something wrong with your brain, maybe *[unintelligible]*, your brain doesn’t work. 
+**Katagiri Roshi:** If think so. If you have something wrong with your brain, maybe *[unintelligible]*, your brain doesn’t work. 
 
 **Same person:** I still don’t understand. These people, some of them have a consciousness of *something*. I mean they’re maybe willing to hold a conversation, [but] no sentence is connected with the next one, they’re all disconnected. But it seems like to her [it connects with something], but to me [it doesn’t]. Does that make sense?
 
-**Katagiri:** [Does the person have a mental disorder?]
+**Katagiri Roshi:** [Does the person have a mental disorder?]
 
 **Same person:** A lot of these people are very old, and I don’t know what particularly happened to them – [where the body is, where the mind is.]
 
-**Katagiri:** Well, that is very natural as you get old. Your brain is getting old, and your nervous system is getting old, it doesn’t work well. At that time, even though you can see the mind, the mind doesn’t work perfectly. In addition to this, everyone has individual stubbornness, okay? [Preconceptions.] That’s why the mind doesn’t work as well as you think.
+**Katagiri Roshi:** Well, that is very natural as you get old. Your brain is getting old, and your nervous system is getting old, it doesn’t work well. At that time, even though you can see the mind, the mind doesn’t work perfectly. In addition to this, everyone has individual stubbornness, okay? [Preconceptions.] That’s why the mind doesn’t work as well as you think.
 
 That’s why we need the practice of training your mind. Thinking is very important for us, okay? 
 
@@ -154,13 +154,13 @@ Thinking is not always thinking using your frontal lobe. Thinking is using your 
 
 **Another person:** Roshi, are you saying that if you practice, your brain will work well when you get old? 
 
-**Katagiri:** Well, no, I don’t mean that. *[Laughter.]* There is no guarantee. But broadly speaking, that is very important for us. Because we have to use our physical bodies, not only the brain. Even though you become old, you have to use the physical body as much as possible. If you’re always lying in bed when you become old, you really get trouble. That means for you whole life, as much as possible, it is necessary to use the physical body, and the mind too. Train your brains. Even if you do it like this, there is no definite guarantee, but we cannot always live without using our body and mind. In our whole life, as best as we can, we should use them.
+**Katagiri Roshi:** Well, no, I don’t mean that. *[Laughter.]* There is no guarantee. But broadly speaking, that is very important for us. Because we have to use our physical bodies, not only the brain. Even though you become old, you have to use the physical body as much as possible. If you’re always lying in bed when you become old, you really get trouble. That means for you whole life, as much as possible, it is necessary to use the physical body, and the mind too. Train your brains. Even if you do it like this, there is no definite guarantee, but we cannot always live without using our body and mind. In our whole life, as best as we can, we should use them.
 
 #### 42:20
 
 **Question:** Hojo-san? When is one plus one zero?
 
-**Katagiri:** That is causation. When you believe the system of causation, that is really why one plus one equals two, two plus two equals four. But sometimes you [can’t] understand human life according to causation. Because even though you practice zazen for two years, there is no guarantee that you can get a good result. Or after practicing for three years, et cetera. So sometimes nothing. So two plus two [sometimes equals zero].
+**Katagiri Roshi:** That is causation. When you believe the system of causation, that is really why one plus one equals two, two plus two equals four. But sometimes you [can’t] understand human life according to causation. Because even though you practice zazen for two years, there is no guarantee that you can get a good result. Or after practicing for three years, et cetera. So sometimes nothing. So two plus two [sometimes equals zero].
 
 In the koan I told you about: not ignoring causation, cause and effect, and not falling into causation. We need both. We shouldn’t ignore one plus one equals two. Of course, one plus one equals two; this is a definite answer. But you cannot depend on this constantly. Deepen your understanding. You should believe some other aspect: one plus one equals two, or sometimes ten.
   

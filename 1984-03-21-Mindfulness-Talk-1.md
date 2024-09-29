@@ -230,49 +230,49 @@ Do you have some questions?
 
 **Question:** Roshi, when you say “no trace,” do you mean no conscious perception?
 
-**Katagiri:** If you have a conscious perception, you are already caught by the process of subject and object, so very naturally you separate. But right in the middle of process or activity, there is no perception of object. 
+**Katagiri Roshi:** If you have a conscious perception, you are already caught by the process of subject and object, so very naturally you separate. But right in the middle of process or activity, there is no perception of object. 
 
 **Same person:** So that’s “no trace”?
 
-**Katagiri:** No trace. Just like sleep. 
+**Katagiri Roshi:** No trace. Just like sleep. 
 
 **Same person:** Also, could you tell me you mean when you use the word “defilement”?
 
-**Katagiri:** *Defilement* is when you see something through discrimination [...] complicated by consciousness. That means you leave a trace of your perception. That is called *defilement*. 
+**Katagiri Roshi:** *Defilement* is when you see something through discrimination [...] complicated by consciousness. That means you leave a trace of your perception. That is called *defilement*. 
 
 **Same person:** So *undefiled* is just being in the activity.
 
-**Katagiri:** Mm-hm. But it’s very clear; there is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, there is no object called “sleeping”. If there is no object called sleeping, very naturally you don’t perceive you who sleeps. For you, there is no subject, no body, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep.
+**Katagiri Roshi:** Mm-hm. But it’s very clear; there is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, there is no object called “sleeping”. If there is no object called sleeping, very naturally you don’t perceive you who sleeps. For you, there is no subject, no body, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep.
 
 The same applies to [all] activities. Zazen is exactly [like] this; you can practice this point. And this zazen practice can be extended into everyday life. That is everyday activities: sweeping the ground, wiping the floor. 
 
 **Same person:** But at some point you can choose what activity you’re going to do?
 
-**Katagiri:** Sure.
+**Katagiri Roshi:** Sure.
 
 **Same person:** So then if you want to sleep rather than do zazen, or if you want to do zazen rather than sleep, at some point it becomes part of the consciousness.
 
-**Katagiri:** Sure.
+**Katagiri Roshi:** Sure.
 
 **Same person:** But then there’s a point at which you lose that choice?
 
-**Katagiri:** You make a choice because we are living in the conscious world, so very naturally there are your objects and subjects. Your life is right in the middle of the conscious world. You must stay there, but nevertheless, you can go beyond. 
+**Katagiri Roshi:** You make a choice because we are living in the conscious world, so very naturally there are your objects and subjects. Your life is right in the middle of the conscious world. You must stay there, but nevertheless, you can go beyond. 
 
 **Same person:** Thank you.
 
-**Katagiri:** That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in Tenzo Kyōkun it says there are three minds: magnanimous mind, parental mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
+**Katagiri Roshi:** That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in Tenzo Kyōkun it says there are three minds: magnanimous mind, parental mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
 
 #### 2 - 30:10
 
 **Question:** *[Unintelligible]* *shikan* *[unintelligible]* is automatically leading to the right way and the bodhisattva way?
 
-**Katagiri:** It is called “right”, but that *right* is not the concept of right opposed to wrong. That is called *sat dharma* in Sanskrit. *Sat* means right or correct, but that *sat* means *supreme* right, beyond our common sense, so-called right or wrong. The same applies to *impure*. So temporarily we can use the term *right*, but it’s not “right” in the usual sense. 
+**Katagiri Roshi:** It is called “right”, but that *right* is not the concept of right opposed to wrong. That is called *sat dharma* in Sanskrit. *Sat* means right or correct, but that *sat* means *supreme* right, beyond our common sense, so-called right or wrong. The same applies to *impure*. So temporarily we can use the term *right*, but it’s not “right” in the usual sense. 
 
 So if you practice continually like this, very naturally it is *right*, it is true human bodies. That’s why very naturally you grow, and your life is deeper. 
 
 **Same person:** If somebody wanted to be a very good thief, and he needed calmness while doing the job robbing the bank or something, then they can do zazen for doing those kind of, in a moral sense, bad things. But is doing shikan zazen, as you explained, or sweeping the floor, is there the same meaning or do you first have to have a direction to doing those?
 
-**Katagiri:** Yeah, it’s a good question. *[He laughs.]* 
+**Katagiri Roshi:** Yeah, it’s a good question. *[He laughs.]* 
 
 That’s why people talk about “cross-country skiing zen”, “zen basketball”, or zen tea ceremony, zen kendo and judo. Or zen business... or zen perfume. *[Laughter.]* Sure, we say so – zen perfume, and zen basketball – because you can experience that *shikan* in every activity. Cross country skiing, or bank robbery... if you want, yes, you can do it. *[He laughs.]* But still it’s different, because real Zen doesn’t emphasize the short range. Zen is for the long range. If you want to do zazen for robbing money from the bank, that means very short range, don’t you think? You use your life in the small scale, you use zazen in the small scale, so [your] zazen becomes very small. That is what is called “zen bank robbery”. You can say so, but it’s not real, total Zen. *[He laughs.]* Don’t misunderstand this one. 
 
@@ -284,7 +284,7 @@ Real Zen penetrates every area of human life; never only a certain area like ste
 
 **Question:** Before you were saying that if we have a [busy] mind, like bank robberies, in doing your zen, that’s short range. How about in taking vows then, too; if we vow to save all sentient beings, is [that] in the short range?
 
-**Katagiri:** No, that’s *big range*. *[Laughter.]* How can you save all sentient beings? You have to [walk] constantly, you have to be right in the middle of *huge* oceans, because [you should be with] all sentient beings, countless number [of them]. It’s not short range, it’s not small oceans; it’s *huge* oceans. That is a vow to save all sentient beings. 
+**Katagiri Roshi:** No, that’s *big range*. *[Laughter.]* How can you save all sentient beings? You have to [walk] constantly, you have to be right in the middle of *huge* oceans, because [you should be with] all sentient beings, countless number [of them]. It’s not short range, it’s not small oceans; it’s *huge* oceans. That is a vow to save all sentient beings. 
 
 I always say that vow is just like to swim in the ocean, which is vast. There is nothing to hold on to. You cannot stop swimming; you have to just keep going. Even though you say “tired,” or “hopeless”, or “hope,” whatever you think, your process, your activity must be going, completely beyond your ideas. That is a vow. It’s a huge range. 
 
@@ -296,7 +296,7 @@ Of course it is encouragement, but that encouragement really is available for a 
 
 **Question:** Can zazen be used as an escape from obligations in life?
 
-**Katagiri:** Maybe in the beginning of doing zazen, you can see certain situations you can “escape” from. So you feel good, in a sense. But if you get into it more deeply, you can realize it’s not true. So next moment, you’re very confused. 
+**Katagiri Roshi:** Maybe in the beginning of doing zazen, you can see certain situations you can “escape” from. So you feel good, in a sense. But if you get into it more deeply, you can realize it’s not true. So next moment, you’re very confused. 
 
 For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never seen before. But gradually you don’t feel good, because you cannot tune into the usual life. You can notice that there is trouble with having a good relationship with your friend ...
 
@@ -308,13 +308,13 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 **Same person:** You mean as a consequence of doing zazen ... ?
 
-**Katagiri:** Maybe so; maybe not. But in a sense you can get in too deeply. So it’s very difficult to live with people who are just right outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: it’s still a little difficult, because you already get in very deep. So the next experience is, you don’t feel good. In the beginning, you feel good, but on the other hand, you don’t. So you have to go beyond this. 
+**Katagiri Roshi:** Maybe so; maybe not. But in a sense you can get in too deeply. So it’s very difficult to live with people who are just right outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: it’s still a little difficult, because you already get in very deep. So the next experience is, you don’t feel good. In the beginning, you feel good, but on the other hand, you don’t. So you have to go beyond this. 
 
 #### 3 - 1:18
  
 **Question:** Roshi? When I was being raised Catholic, the terms *pure* and *impure* had very narrow and guilt-producing connotations. Is there some other word to say the same thing?
 
-**Katagiri:** Mm-hmm!  A narrow idea of purity ... ?
+**Katagiri Roshi:** Mm-hmm!  A narrow idea of purity ... ?
 
 **Same person:** I have still my Catholic definition of “pure” and “impure”, so is there some other word you could use that would say ... *[she laughs.]*
 
@@ -324,59 +324,59 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 **Same person:** At one time during your lecture this morning you said “true”. Is that another word? And I thought you were saying that instead of “pure”.
 
-**Katagiri:** As in true body? Well, maybe. Mm-hm. *[Laughter.]*
+**Katagiri Roshi:** As in true body? Well, maybe. Mm-hm. *[Laughter.]*
 
 Wholesome, unwholesome. It seems to me that wholesome or unwholesome is almost the same as purity or impurity.
 
 **Another person:** Does purity imply some sort of clarity or straightforwardness?
 
-**Katagiri:** Purity in Buddhism is not a result of doing something. Purity is the activity itself of doing something; that is purity. It is going beyond the idea of purity and impurity. The idea of purity is kind of a human sense of value. In terms of the dualistic sense, if you do *this*, then you can get *this*, and then you say purity or impurity. So purity or impurity are given to the result of the human activity. 
+**Katagiri Roshi:** Purity in Buddhism is not a result of doing something. Purity is the activity itself of doing something; that is purity. It is going beyond the idea of purity and impurity. The idea of purity is kind of a human sense of value. In terms of the dualistic sense, if you do *this*, then you can get *this*, and then you say purity or impurity. So purity or impurity are given to the result of the human activity. 
 
 **Another person:** That’s why some translators like *wholesome*, because wholesome implies *whole*, not like it is some result. 
 
 **Another person:** So would you say the spirit of shikantaza [is the same as purity]?
 
-**Katagiri:** Sure. *Shikan* itself, activity of shikan itself, that is purity. 
+**Katagiri Roshi:** Sure. *Shikan* itself, activity of shikan itself, that is purity. 
 
 **Another person:** But it is not only that [in any sense].
 
-**Katagiri:** Anything, if you do it exactly. 
+**Katagiri Roshi:** Anything, if you do it exactly. 
 
 Temporarily, we say purity. *[He chuckles.]* But that is no trace of purity. That is called purity. So that’s why purity is manifested as no purity. In Buddhism we always use negatives: no purity, or no eyes, no ears – that is exactly that you have to see some other aspect, so-called purity. The function of the purity, constantly. At that time, no purity.
 
 **Another person:** Well in a sense, then, what you’re saying is that purity and no-purity are the same thing.
 
-**Katagiri:** Yes, same thing, exactly. No different. But it’s very difficult to say about that activity or process itself. That’s why temporarily we use “no purity”. 
+**Katagiri Roshi:** Yes, same thing, exactly. No different. But it’s very difficult to say about that activity or process itself. That’s why temporarily we use “no purity”. 
 
 **Same person:** So there’s no impurity. 
 
-**Katagiri:** Sure, no impurity, no purity. That is the spirit of *shikan*; you are doing. 
+**Katagiri Roshi:** Sure, no impurity, no purity. That is the spirit of *shikan*; you are doing. 
 
 Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
 
 **Another person:** Is that similar to what Dogen talks about whole-being Buddha nature? No Buddha nature, Buddha nature, whole-being Buddha nature. 
 
-**Katagiri:** [The self] is the entire whole world like this; that is the spirit of *shikan*. That is not an abstract idea, an abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
+**Katagiri Roshi:** [The self] is the entire whole world like this; that is the spirit of *shikan*. That is not an abstract idea, an abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
 
 #### 3 - 7:40
 
 **Question:** Also we say “nothing to attain.” Then it’s like the question always comes up, why do we practice?
 
-**Katagiri:** But you already attain a certain stage; that’s why you have questions, like “why do you have to do it?” Do you understand? You already touch it. “No attainment” means just the one [feeling], nothing around this. So at that time, who touches this [feeling]? Nothing. Just like sleeping. Sleeping as object and sleeper as subject, just one [feeling]. Who touches sleep? I? No. Or, “I am touching sleep” means already you attain. But actually you are really sleeping exactly, so no attainment. 
+**Katagiri Roshi:** But you already attain a certain stage; that’s why you have questions, like “why do you have to do it?” Do you understand? You already touch it. “No attainment” means just the one [feeling], nothing around this. So at that time, who touches this [feeling]? Nothing. Just like sleeping. Sleeping as object and sleeper as subject, just one [feeling]. Who touches sleep? I? No. Or, “I am touching sleep” means already you attain. But actually you are really sleeping exactly, so no attainment. 
 
 **Same person:** So arrogance is to attain.
 
-**Katagiri:** Sure. 
+**Katagiri Roshi:** Sure. 
 
 **Same person:** *[Unintelligible]* subject and object.
 
-**Katagiri:** That is called very pure purity; beyond purity or impurity, beyond idea or trace of subject and object, exactly.
+**Katagiri Roshi:** That is called very pure purity; beyond purity or impurity, beyond idea or trace of subject and object, exactly.
 
 #### 3 - 9:45
 
 **Question:** Instead of saying purity and impurity, could you also say complete and incomplete? 
 
-**Katagiri:** Sure. 
+**Katagiri Roshi:** Sure. 
 
 *[Laughter.]*
 

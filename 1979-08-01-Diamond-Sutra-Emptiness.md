@@ -220,25 +220,25 @@ Do you have any questions?
 
 **Question:** [Roshi](glossary#roshi)? When you talk about the marklessness of all things, of their emptiness, and of their suchness, are those the three aspects of emptiness, or the three aspects of what?
 
-**Katagiri:** Truth.
+**Katagiri Roshi:** Truth.
  
 **Same person:** Of truth. 
 
-**Katagiri:** Dharma. Enlightenment. The ultimate, utmost, right, perfect enlightenment. Okay?
+**Katagiri Roshi:** Dharma. Enlightenment. The ultimate, utmost, right, perfect enlightenment. Okay?
 
 #### 1:06:45
 
 **Question:** Roshi, would one good way of putting it be, everything is within emptiness and emptiness is within everything? 
 
-**Katagiri:** Hmm? Emptiness is everything, everything is emptiness?
+**Katagiri Roshi:** Hmm? Emptiness is everything, everything is emptiness?
 
 **Same person:** No, everything is *within* emptiness and emptiness is within everything. 
 
-**Katagiri:** Not “with”. 
+**Katagiri Roshi:** Not “with”. 
 
 **Same person:** *Within*.
 
-**Katagiri:** Not *within*. Everything is emptiness. 
+**Katagiri Roshi:** Not *within*. Everything is emptiness. 
 
 It is exactly here, but it’s not within, not with, not in, not on. 
 
@@ -248,13 +248,13 @@ That’s why you can [survive] for many years, and you should be appreciative. Y
 
 **Person:** Twenty-seven.
 
-**Katagiri:** Right. And you should be appreciative – because you are already emptiness. 
+**Katagiri Roshi:** Right. And you should be appreciative – because you are already emptiness. 
 
 **Person:** I’m grateful.
 
 *[Long silence.]*
 
-**Katagiri:** More questions?
+**Katagiri Roshi:** More questions?
 
 If you don’t have more questions, I want to tell you one thing. At Omaha Zen Center, they will have the opening ceremony of the new [zendo](glossary#zendo) on September 9th. So they need lots of help. I want to get some volunteers to help Omaha Zen Center before the opening ceremony; there are lots of things. So the sign is already up on the bulletin board in the basement. Really I want to organize two crews of volunteers; one weekend and second weekend. One crew going a certain weekend, the other, another weekend. So please sign up downstairs on the bulletin board. I don’t know when, it depends on the numbers of the volunteers.
  

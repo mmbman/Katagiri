@@ -185,7 +185,7 @@ Okay, that is the simple explanation. The commentary is pretty good. Do you have
 
 Can you just *[unintelligible]*.
 
-**Katagiri:** The purpose of practice is to save all sentient beings. To save all beings is that you have to attain enlightenment simultaneously with all sentient beings. So all sentient beings attain enlightenment with you simultaneously. That means no discrimination between you and all sentient beings. 
+**Katagiri Roshi:** The purpose of practice is to save all sentient beings. To save all beings is that you have to attain enlightenment simultaneously with all sentient beings. So all sentient beings attain enlightenment with you simultaneously. That means no discrimination between you and all sentient beings. 
 
 To save or to help others means just to practice, continuation of practice, which is fully alive, instead of judging or evaluating the result of your doings. Because very naturally you can have a result if you do something. The result is not something you should stay with, the result is something you have to deal with as soon as possible. You have to move, constantly. The current result shouldn’t be something you have to carry on your back as a hint what to do in the next moment, toward the future. All you have to do is, from moment to moment your life must be alive in the Buddha’s realm. That means not to attach to good, not to attach to bad, not to attach to neutral. Anyway, you have to just be alive. 
 
@@ -195,7 +195,7 @@ So that means I attain enlightenment simultaneously with all beings, because in 
 
 **Question:** Roshi, you said that everyone’s life should be based on egolessness even though you starve to death. And sometimes you say, “It’s not necessary to commit suicide.” And it seems to me like those things are opposite.
 
-**Katagiri:** Yes. Because if I say “commit suicide,” you commit suicide, and if you commit suicide, you cannot practice zazen, you cannot help all sentient beings. That’s why I say you shouldn’t commit suicide. But if you say you shouldn’t commit suicide, you always [think of] yourself first; *I* come first. That’s why you should commit suicide with all sentient beings. Whatever we say, always we are running on this side or on that side, and attaching to it, and seeing something completely from this [angle]. But you cannot attach to either one of them. 
+**Katagiri Roshi:** Yes. Because if I say “commit suicide,” you commit suicide, and if you commit suicide, you cannot practice zazen, you cannot help all sentient beings. That’s why I say you shouldn’t commit suicide. But if you say you shouldn’t commit suicide, you always [think of] yourself first; *I* come first. That’s why you should commit suicide with all sentient beings. Whatever we say, always we are running on this side or on that side, and attaching to it, and seeing something completely from this [angle]. But you cannot attach to either one of them. 
 
 In zazen, in a sense you commit suicide with zazen, otherwise you cannot do zazen exactly, as true zazen. If you always bring up yourself first – “I am doing zazen” – you really hate zazen, don’t you think so? So even in zazen, you should commit suicide with zazen. In other words, you kill your “self” in zazen. At that time zazen is really alive, and also you are alive. 
 
@@ -203,29 +203,29 @@ In zazen, in a sense you commit suicide with zazen, otherwise you cannot do zaze
 
 **Question:** Hojo-san, how does that relate to loving yourself first in this world, and also knowing when to put yourself first. Like, are there times when you have to consider yourself first? 
 
-**Katagiri:** Well, even though you don’t think so, you always come first, don’t you think so? 
+**Katagiri Roshi:** Well, even though you don’t think so, you always come first, don’t you think so? 
 
 **Same person:** In a sense...
 
-**Katagiri:** Not “in a sense”; actually you do this always. *[He laughs, and the group laughs.]* You always do that in that way. Because if you want to do zazen, *you* do it first, *you* should come first, you know? And then you do zazen. No one can do zazen for you, so *you* do it. So *you* comes first, in many ways. But that is not the right point that you have to depend on finally. You have to go beyond this: you have to polish *you*, who does [zazen]. Because you have to be one with zazen. So you cannot say *I* come first and then *I* do zazen: this is dualistic common sense, but at that time always there is a gap between zazen and you, so very naturally you cannot feel intimate with zazen. Always criticizing, feeling good or bad, right or wrong; but they are nothing but impermanent, ups and downs always, so very naturally you become uneasy and restless. In order to settle yourself in the self, in peace and harmony in zazen, *you* come first but *you* don’t come first. Maybe zazen comes first. No, it’s not that zazen comes first. Well, we don’t know which of the two comes first. Anyway, they are one. 
+**Katagiri Roshi:** Not “in a sense”; actually you do this always. *[He laughs, and the group laughs.]* You always do that in that way. Because if you want to do zazen, *you* do it first, *you* should come first, you know? And then you do zazen. No one can do zazen for you, so *you* do it. So *you* comes first, in many ways. But that is not the right point that you have to depend on finally. You have to go beyond this: you have to polish *you*, who does [zazen]. Because you have to be one with zazen. So you cannot say *I* come first and then *I* do zazen: this is dualistic common sense, but at that time always there is a gap between zazen and you, so very naturally you cannot feel intimate with zazen. Always criticizing, feeling good or bad, right or wrong; but they are nothing but impermanent, ups and downs always, so very naturally you become uneasy and restless. In order to settle yourself in the self, in peace and harmony in zazen, *you* come first but *you* don’t come first. Maybe zazen comes first. No, it’s not that zazen comes first. Well, we don’t know which of the two comes first. Anyway, they are one. 
 
 **Same person:** Well, from the passage this morning, is there a time when it would have been right to keep the bolt of silk, rather than give it to the [person], to buy food for the... I don’t know...
 
-**Katagiri:** This is *your* speculation. *[He laughs.]* But at that time, nothing else; Eisai Zen Master gave it. Maybe there was some reason why he gave it. But intellectually it doesn’t make sense, because you are very poor, you don’t have enough food to support all the monks, but you give it anyway. 
+**Katagiri Roshi:** This is *your* speculation. *[He laughs.]* But at that time, nothing else; Eisai Zen Master gave it. Maybe there was some reason why he gave it. But intellectually it doesn’t make sense, because you are very poor, you don’t have enough food to support all the monks, but you give it anyway. 
 
 #### 1:04:48
 
 **Question:** Hojo-san? The four conclusions that I drew this morning were all ways of intellectually trying to understand whether you [get] something or not. Are you saying that that whole process is wrong, basically?
 
-**Katagiri:** *[He laughs.]* [Not] wrong. But actually, what is the practice of egolessness? Even though you analyze and think, understanding much better by your analysis, it is still [just] your understanding. But actually practicing egolessness is not so easy, particularly under difficult conditions. So that is nothing but practice.
+**Katagiri Roshi:** *[He laughs.]* [Not] wrong. But actually, what is the practice of egolessness? Even though you analyze and think, understanding much better by your analysis, it is still [just] your understanding. But actually practicing egolessness is not so easy, particularly under difficult conditions. So that is nothing but practice.
 
 **Same person:** But it seems like the result – I mean if you can even do it, it is difficult. But if you can see it from that kind of place, still, what about the result that it has on the way other people interpret it, or what it does to them?
 
-**Katagiri:** Well it’s not necessary to interpret *why*, sometimes. Sometimes people by themselves will understand. 
+**Katagiri Roshi:** Well it’s not necessary to interpret *why*, sometimes. Sometimes people by themselves will understand. 
 
 **Same person:** But what about the people who *don’t*, and actually...
 
-**Katagiri:** Well that’s alright. Even though they understand it, it’s still the same as the people who don’t understand, you know. Understanding or not understanding is exactly the same, because we are looking at a certain situation from our telescope, and then someone says, “I understand,” or “I don’t understand.” But both are what? For instance, look at zazen. “I understand zazen; you don’t understand zazen.” Which of the two is best? Understanding is best? I don’t think so. It’s still nothing but karmic life. Sooner or later, I don’t understand what I have understood. So finally all I have to do is ... just zazen.
+**Katagiri Roshi:** Well that’s alright. Even though they understand it, it’s still the same as the people who don’t understand, you know. Understanding or not understanding is exactly the same, because we are looking at a certain situation from our telescope, and then someone says, “I understand,” or “I don’t understand.” But both are what? For instance, look at zazen. “I understand zazen; you don’t understand zazen.” Which of the two is best? Understanding is best? I don’t think so. It’s still nothing but karmic life. Sooner or later, I don’t understand what I have understood. So finally all I have to do is ... just zazen.
 
 You love yourself best in this world, more than others. But you don’t love others, or you don’t love yourself? Well even though you say you don’t love [others] best, or you don’t love yourself best, whatever you say, you are you. So who are you? Are you the person who loves yourself best? No. Sometimes right in the middle of your love, you really hate yourself. So, who are you? Are you a person whom you hate? No, you love [yourself] so much. Even including hatred, including suffering, you love it. So, who are you?
 

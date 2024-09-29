@@ -250,25 +250,25 @@ Do you have some questions? Anything is fine.
 
 **Question:** The point of the community building working workshop is to try to build up our peaceful sangha.
 
-**Katagiri:** Right.
+**Katagiri Roshi:** Right.
 
 **Same person:** Most of what you said sounds very negative, but actually we don’t know what’s going to happen there.
 
-**Katagiri:** Yeah, we don’t know. “We don’t know” means there are negative and positive possibilities there. 
+**Katagiri Roshi:** Yeah, we don’t know. “We don’t know” means there are negative and positive possibilities there. 
 
 **Same person:** Yes, so you should not emphasize the negative possibilities only.
 
-**Katagiri:** No. But actually, negative thoughts are coming up.
+**Katagiri Roshi:** No. But actually, negative thoughts are coming up.
 
 **Same person:** Maybe; we don’t know.
 
-**Katagiri:** May be; but that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this “family workshop”, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this particular kind of workshop. Most of those who are asked see a little more the negative aspect of the sangha than the positive. That’s why we try to have the workshop. So if you have this workshop, I think the negative is coming up. But I don’t think we’re always negative; positive things come up. If positive things are always coming up, that’s lucky – real lucky. I hope for that.
+**Katagiri Roshi:** May be; but that is pretty common. In order to build up a new style of community, very naturally you have to bring up negative stuff, you know? That’s why you have this “family workshop”, something like that. If you don’t have a negative aspect of community, it’s not necessary to have this particular kind of workshop. Most of those who are asked see a little more the negative aspect of the sangha than the positive. That’s why we try to have the workshop. So if you have this workshop, I think the negative is coming up. But I don’t think we’re always negative; positive things come up. If positive things are always coming up, that’s lucky – real lucky. I hope for that.
 
 #### 1:12:11
 
 **Question:** You were talking about criticism earlier. How does one criticize without criticism leading to conflict? Because sometimes it’s probably necessary to criticize, let’s say somebody you’re working with. How can you do that without that leading to a conflict? 
 
-**Katagiri:** Criticism is not necessary, broadly speaking. No – we don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma; so there is no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetera. Then, what color is your life? You are black? Yes, sir. Then the black color sees the white; and then, white cannot be accepted as white; white is always accepted in terms of black. That is conflict coming up. 
+**Katagiri Roshi:** Criticism is not necessary, broadly speaking. No – we don’t know whether we should criticize or not. Basically, we have to walk in the universal aspect of the world, which is called dharma; so there is no criticism at that place. Okay? But that universal world arises constantly in a different moment, or in other words, in different circumstances. So very naturally, you can see *A* color, *B* color, *C* color, et cetera. Then, what color is your life? You are black? Yes, sir. Then the black color sees the white; and then, white cannot be accepted as white; white is always accepted in terms of black. That is conflict coming up. 
 
 I think it is not necessary to criticize, basically. If it is necessary, I think you should walk with that person, sharing your good aspect, instead of criticizing. If you see something lacking, give them your hands. [...] Try to walk with him or her, and give a hand to them. 
 
