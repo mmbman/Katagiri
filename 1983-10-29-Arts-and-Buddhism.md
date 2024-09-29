@@ -297,7 +297,7 @@ So two contradictory aspects means, when you think in the level of human conscio
 
 **Question:** Hojo-san? 
 
-**Katagiri**: *Hai*.
+**Katagiri Roshi:** *Hai*.
 
 **Same person**: I would like to relate a little story which relates to most of what Roshi has talked about today. It’s had a profound affect on me. 
 

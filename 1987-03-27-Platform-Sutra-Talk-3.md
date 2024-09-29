@@ -155,7 +155,7 @@ It’s not a concept. That is mentioned here. Is that okay?
 
 **Question**: So Hojo-san, when he says, like, “In a single thought of cultivation,” he’s not talking about a concept? 
 
-**Katagiri**: Not concept. There are cultivation; cultivation means, in this paragraph it [says], “Cultivate this *conduct*.” Cultivate this conduct means the conduct of wisdom. You have to cultivate, you have to nurture your doings of wisdom. In other words, you must behave as a person who has arrived at the other shore. Because we are buddha. So we exist in the realm of buddhaland, so we have to cultivate, we have to nurture. That is conduct or activity of wisdom. 
+**Katagiri Roshi:** Not concept. There are cultivation; cultivation means, in this paragraph it [says], “Cultivate this *conduct*.” Cultivate this conduct means the conduct of wisdom. You have to cultivate, you have to nurture your doings of wisdom. In other words, you must behave as a person who has arrived at the other shore. Because we are buddha. So we exist in the realm of buddhaland, so we have to cultivate, we have to nurture. That is conduct or activity of wisdom. 
 
 So that is cultivation. So in the single moment of cultivation, in other words in the single moment of thought, we have to cultivate wisdom means we have to see the single thought, because each single thought has its own form, its own characteristics. So you cannot ignore. But each characteristic is based on no root. So emptiness. So you have to see it, but next, in terms of emptiness of dharma, you just touch [it], but the basic nature of existence is like swift water. So if you think it, it is just like throwing a ball into the stream of swift water. So it goes. 
 

@@ -340,7 +340,9 @@ So very naturally what you can do is, through and through, we have to go deeply 
 
 I’m sorry; still [...] *[he laughs softly]*.
 
-If you have something you can tell him, okay? Do you have something?
+If you have something you can tell him, okay? 
+
+Do you have something?
 
 #### 1:08:12
 

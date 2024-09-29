@@ -2,7 +2,7 @@
 title: "Platform Sutra"
 ---
 
-Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in 1987.
+Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March and April of 1987.
 
 ---
 

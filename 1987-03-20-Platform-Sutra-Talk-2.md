@@ -248,7 +248,7 @@ Do you understand?
 
 **Someone**: No.
 
-**Katagiri**: It means, you do always. Usually people believe sitting is just sitting still, with empty mind. And then you believe this is a real understanding of emptiness. No. It’s delusion. Because you attach to emptiness. 
+**Katagiri Roshi:** It means, you do always. Usually people believe sitting is just sitting still, with empty mind. And then you believe this is a real understanding of emptiness. No. It’s delusion. Because you attach to emptiness. 
 
 So real emptiness is nothing but total, full function. That’s it. Total, full function appears: when total full function appears, under certain circumstances, it is put the name on it called *zazen*, or *gassho*. Is that clear? But we don’t do it. First, we attach to the form, and then we mold our life into the form. And then we say, “I did zazen.” You know? But actually, it’s reverse. You have to first, your life must be fully functioning. And then that fully functioning appears from moment to moment, under certain circumstances, so-called *zazen*, [or] *gassho*. And *then*, we call it zazen. Do you see the little difference? [It’s] quite different. 
 
@@ -308,15 +308,15 @@ There is a commentary. I don’t read the commentary; so, you should read the co
 
 **Same person**: Well you were talking about doubt as a hindrance. And then later on you were talking about faith. 
 
-**Katagiri**: Mmm-hmm.
+**Katagiri Roshi:** Mmm-hmm.
 
 **Same person:** And it seemed like there is a progression there, from doubt to faith. Is that correct?
 
-**Katagiri**: Progression of doubt and faith?
+**Katagiri Roshi:** Progression of doubt and faith?
 
 **Same person:** Mmm-hmm. Or, how do you get from doubt to faith? If you start out doubting, how do you get faith?
 
-**Katagiri**: Well, when you find yourself in the faith, and then it is called faith. Even though you have doubt. So you have to demonstrate faith; then, your life becomes faith, based on the faith. 
+**Katagiri Roshi:** Well, when you find yourself in the faith, and then it is called faith. Even though you have doubt. So you have to demonstrate faith; then, your life becomes faith, based on the faith. 
 
 If you see [...] doubt, and then doubt takes your life to the doubt, always there is doubt. But the bottom of the doubt has no root, so very naturally, the bottom of the doubt is emptiness. So naturally you’re confused, because you don’t know what to do in the realm of the doubt. So that’s why even though you see the doubt, I don’t think you should always depend on your doubt. So you have to demonstrate right in the middle of doubt.
 
