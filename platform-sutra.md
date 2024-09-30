@@ -12,4 +12,4 @@ Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March 
 - [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
 - [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
 - [*Platform Sutra* – Talk 6](1987-04-17-Platform-Sutra-Talk-6)
-- *Platform Sutra* – Talk 7
+- [*Platform Sutra* – Talk 7](1987-04-24-Platform-Sutra-Talk-7)

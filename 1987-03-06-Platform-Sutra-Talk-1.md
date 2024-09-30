@@ -251,7 +251,7 @@ Okay. Do you have questions?
 
 #### 54:25
 
-**Question**: So Dogen considered this a forgery?
+**Question:** So Dogen considered this a forgery?
 
 **Katagiri Roshi:** Uh, not only Dogen. I think the introduction, written by *[unintelligible]*, who was one of Hui Neng’s disciples, mentions about this *Platform Sutra*. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it. And then other monks, other disciples, carried it always, and then passages which other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] mixed up. 
 
@@ -267,31 +267,31 @@ I think next, please read the [chapter] “Prajna.” It’s [chapter] two, page
 
 #### 58:10
 
-**Question**: Hojo-san? Could you please clarify again what’s meant by causes and conditions, time and occasion? 
+**Question:** Hojo-san? Could you please clarify again what’s meant by causes and conditions, time and occasion? 
 
 **Katagiri Roshi:** Time and occasion is... how can I say it. This is a very technical term we use. If you read “Ocean Seal Samadhi,” Dogen Zenji [talks] about *time*, and everything is produced by various dharma. *Various dharma* means conditioned origination, conditional factors, and also he [talks] about time. What are conditional factors? Conditional factors are nothing but time and occasion. And what is time and occasion? He says it’s just arising, only. So time is [...] some kind of energies in action. That is arising only, he [says]. 
 
 But it’s pretty difficult to know what time is through “arising only.” So that’s why temporarily we say, “It’s *time*.” But real time is arising only. So it is working. This *is* temporarily called *buddha-nature*, we say. 
 
-But if [we say] *buddha-nature*, immediately we have a preconception that buddha-nature is something eternal, or absolute, et cetera. That’s why Dogen Zenji says *no buddha-nature* is pretty close, [an] appropriate term, to express that *arising only*, regarded as function itself, activity itself. 
+But if [we say] *buddha-nature*, immediately we have a preconception that buddha-nature is something eternal, or absolute, et cetera. That’s why Dogen Zenji says *no buddha-nature* is pretty close, [an] appropriate term to express that *arising only* regarded as function itself, activity itself. 
 
-That is *time and occasion*, and *cause and conditions*.
+That is *time and occasion* and *cause and conditions*.
 
-But because everything is produced by conditional factors, [there is] no particular thing you can believe... Of course you can believe, but to *get* particular things. Even life, even this body and mind, is always changing, constantly. 
+But because everything is produced by conditional factors, [there is] no particular thing you can believe... Of course you can believe, but [no way] to *get* particular things. Even life, even this body and mind, is always changing, constantly. 
 
-But if so, is there nothing to see? Of course, there are lots of things we can see. This is a form of your five skandhas, form of your activities, and time and opportunities we create, we face every day. So, there is something. But if we see something, immediately we believe, “This is something *real*.” But it’s not something real we can depend on constantly, because it is nothing but function, activities. 
+But if so, is there nothing to see? Of course, there are lots of things we can see. This is a form of your five skandhas, form of your activities, and time and opportunities we create, we face every day. So, there is something. But if we see something, immediately we believe, “This is something *real*.” But it’s not something real [that] we can depend on constantly, because it is nothing but function, activities. 
 
 So constantly our foundation must be found there. And then, you can deal with what [the] phenomenal world [is]. 
 
 #### 1:02:08
 
-**Question**: Hojo-san? If Shen Hsiu’s poem speaks to one aspect of our life reality, and Hui Neng’s poem speaks to another aspect, is real reality beyond both of them? 
+**Question:** Hojo-san? If Shen Hsiu’s poem speaks to one aspect of our life reality, and Hui Neng’s poem speaks to another aspect, is real reality beyond both of them? 
 
 **Katagiri Roshi:** Yes. And they work together. 
 
 #### 1:02:46 
 
-**Question**: Hojo-san? When you get to the place where you’re not supported by anything – then you really are supported by all things. Is that right? 
+**Question:** Hojo-san? When you get to the place where you’re not supported by anything – then you really are supported by all things. Is that right? 
 
 **Katagiri Roshi:** Supported. Well, what do you mean? One is, you said, everything is supported. On the other hand, everything is not supported? That’s what you mean? 
 
@@ -321,7 +321,7 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 #### 1:05:55
 
-**Question**: Hojo-san, if in the two poems, one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them, you know? *[He chuckles.]* 
+**Question:** Hojo-san, if in the two poems, one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them, you know? *[He chuckles.]* 
 
 **Katagiri Roshi:** Because, as Dogen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
 

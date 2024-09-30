@@ -153,7 +153,7 @@ It’s not a concept. That is mentioned here. Is that okay?
 
 #### 37:22
 
-**Question**: So Hojo-san, when he says, like, “In a single thought of cultivation,” he’s not talking about a concept? 
+**Question:** So Hojo-san, when he says, like, “In a single thought of cultivation,” he’s not talking about a concept? 
 
 **Katagiri Roshi:** Not concept. There are cultivation; cultivation means, in this paragraph it [says], “Cultivate this *conduct*.” Cultivate this conduct means the conduct of wisdom. You have to cultivate, you have to nurture your doings of wisdom. In other words, you must behave as a person who has arrived at the other shore. Because we are buddha. So we exist in the realm of buddhaland, so we have to cultivate, we have to nurture. That is conduct or activity of wisdom. 
 
