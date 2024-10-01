@@ -148,9 +148,9 @@ So next, page 47...
 
 Here it says, “‘I have something to say to you: for people in the world, the matter of birth and death is a great one.’” That is a main point we have to always pay attention to in monastic life: the matter of birth and death is [the] most important [thing]. So on the wooden gong, the *han*, [there are] several characters there that say, “Life and death is a great matter.”
 
-And also he says, “All day long you seek fields of blessings only...” That means your original nature is already blessed, already *gifted* with buddha-nature, [the] field of blessing. Your nature is buddha-nature. So you should seek fields of blessings only: “... you do not try to get out of the bitter sea of birth and death.” Because if you try to get out of this bitter sea of birth and death, already you are standing at [a] dualistic place, so your basic nature and foundation is very shaky. If the foundation of your life is not stable, at that time, how can you realize the field of blessing? How can you take care of the phenomenal world, which seems to be confused? So that’s why he says, “If you are confused about your self-nature, how can blessings save you?”
+And also he says, “All day long you seek fields of blessings only...” That means your original nature is already blessed, already *gifted* with buddha-nature, [the] field of blessing. Your nature is buddha-nature. So you should seek fields of blessings only: “... you do not try to get out of the bitter sea of birth and death.” Because if you try to get out of this bitter sea of birth and death, already you are standing [in a] dualistic place, so your basic nature and foundation is very shaky. If the foundation of your life is not stable, at that time, how can you realize the field of blessing? How can you take care of the phenomenal world, which seems to be confused? So that’s why he says, “If you are confused about your self-nature, how can blessings save you?”
 
-I think, strictly speaking, your self-nature is never confused. So Dogen Zenji says in *[unintelligible]*, “If you want to study the buddha way, you should believe that there is no confusion, no misunderstand, no delusions,” et cetera. So your life is always going in the path of the true nature, the path of *dharma*, Dogen Zenji [says]. And then, we can practice buddha-nature, we can practice the buddha way. But if the foundation is always found in the dualistic world, your life becomes very uneasy, so you never taste spiritual peace and harmony. 
+I think, strictly speaking, your self-nature is never confused. So Dogen Zenji says in *[unintelligible]*, “If you want to study the buddha way, you should believe that there is no confusion, no misunderstand, no delusions,” et cetera. Your life is always going in the path of the true nature, the path of *dharma*, Dogen Zenji [says]. And then, we can practice buddha-nature, we can practice the buddha way. But if the foundation is always found in the dualistic world, your life becomes very uneasy, so you never taste spiritual peace and harmony. 
 
 But usually the foundation is found in the dualistic way. Even in religion, we practice in that way. 
 
@@ -176,7 +176,7 @@ Shen Hsiu was the head monk at that time. That person was pretty smart and sharp
 > 
 > Hearing this, everyone put his mind to rest, and said, “Henceforth, we will rely on Master Shen Hsiu. Why vex ourselves writing verses?”
 
-*[He laughs.]* So the other monks, they don’t want to make a verse and submit it to the teacher, because here is the great head monk, regarded as the next successor. So even [if] the monks try to make a verse, it [would be] useless. 
+*[He laughs.]* So the other monks, they don’t want to make a verse and submit it to the teacher, because here is the great head monk, regarded as the next successor – so even [if] the monks try to make a verse, it [would be] useless. 
 
 So next, 
 
@@ -186,21 +186,23 @@ So next,
 >
 > “If my intention in submitting the verse is to seek the Dharma, that is good. But if it is to grasp the patriarchate, that is bad, for how would that be different from the mind of a common person coveting the holy position? But, if I do not submit a verse, in the end I will not obtain the Dharma. This is a terrible difficulty!”
 
-This is Shen Hsiu’s very honest reflection upon himself. Very honest; thinking, “Should I write a poem and submit it to the teacher? For what?” The Fifth Patriarch [says] if you compose great things, you could be successor of his lineage as the Sixth Patriarch. If [Shen Hsiu] commanded respect from the other monks, already it was very clear for him to become the successor. So he started to reflect upon himself: “Why do you want to write a poem and submit it to him? Do you want to be the successor? Is this your purpose? Or, [is it] to seek for the dharma?” 
+This is Shen Hsiu’s very honest reflection upon himself. Very honest, thinking, “Should I write a poem and submit it to the teacher? For what?” The Fifth Patriarch [says] if you compose great things, you could be successor of his lineage as the Sixth Patriarch. If [Shen Hsiu] commanded respect from the other monks, already it was very clear for him to become the successor. So he started to reflect upon himself: “Why do you want to write a poem and submit it to him? Do you want to be the successor? Is this your purpose? Or, [is it] to seek for the dharma?” 
 
 [This is] just like the *Vimalakirti Sutra*. Shariputra went to see Vimalakirti, who was sick. His room was very small, and there were five hundred bodhisattvas already there, but no chair. Pretty small room, so Shariputra asked him, “How can we get into this small room, and no chair?” And then Vimalakirti said, “What do you want? Do you come here to seek for the dharma, or to get the chair?” Shariputra says, “Oh, yes, we try to get the dharma.” And then, five hundred monks and bodhisattvas can get into that room. 
 
-[...] Shen Hsiu’s reflection is just like this. Very honest and very nice reflection here. That’s why he says, “If my intention in submitting the verse is to seek the dharma, that is good. But if it is to grasp the patriarchate” – in other words, to grasp a certain position, or fame, et cetera – “it is not good, for how would that be different from the mind of a common person coveting the holy position?” But on the other hand, if he doesn’t compose a poem, how does the Fifth Patriarch know whether Shen Hsiu is [an] appropriate person to become the Sixth Patriarch or not? So he has to do it. So that’s why here it says, “But, if I do not submit a verse, in the end I will not obtain the Dharma. This is a terrible difficulty!” This is a very difficult situation he honestly faces and reflects upon himself. 
+[...] Shen Hsiu’s reflection is just like this. Very honest and very nice reflection here. That’s why he says, “If my intention in submitting the verse is to seek the dharma, that is good. But if it is to grasp the patriarchate” – in other words, to grasp a certain position, or fame, et cetera – “it is not good, for how would that be different from the mind of a common person coveting the holy position?” 
+
+But on the other hand, if he doesn’t compose a poem, how does the Fifth Patriarch know whether Shen Hsiu is [an] appropriate person to become the Sixth Patriarch or not? So he has to do it. So that’s why here it says, “But, if I do not submit a verse, in the end I will not obtain the Dharma. This is a terrible difficulty!” This is a very difficult situation he honestly faces and reflects upon himself. 
 
 This is pretty nice. So, next, 
 
 > In front of the Fifth Patriarch’s hall were three corridors. Their walls were to be frescoed by Court Artist Lu Chen with stories from the *Lankavatara Sutra* and with pictures portraying in detail the lives of the five patriarchs, so that the patriarchs might be venerated by future generations.
 
-I think on the wall of the corridors, the artist painted the portrait of the Fifth Patriarch and also his lineage, in order to let the monks know what is lineage was, and also [to] respect [it]. 
+I think on the wall of the corridors, the artist painted the portrait of the Fifth Patriarch and also his lineage, in order to let the monks know what is lineage was and also [to] respect [it]. 
 
 > After composing his verse, Shen Hsiu made several attempts to submit it. But whenever he reached the front hall, his mind became agitated and distraught, and his entire body became covered with perspiration. He did not dare submit it, although in the course of four days he made thirteen attempts.
 
-But he couldn’t do it. So, he was very agitated. 
+But he couldn’t do it. He was very agitated. 
 
 > Then he thought, “This is not as good as writing it on the wall so that the High Master might see it suddenly. If he says it is good, I will come forward, bow, and say, ‘Hsiu did it.’ If it does not pass, then I have spent my years on this mountain in vain, receiving veneration from others. And as to further cultivation–what can I say?”
 >
@@ -230,7 +232,7 @@ So his poem is pretty well-known by everyone as one of the Zen stories:
 >> Time and again brush it clean,  
 >> And let no dust alight.  
 
-And later, Hui Neng also wrote his poem... I think page [57]. His poem is, 
+And later, Hui Neng also wrote his poem. I think [it’s on] page [57]. His poem is, 
 
 >> Originally Bodhi has no tree,  
 >> The bright mirror has no stand.  
@@ -239,9 +241,9 @@ And later, Hui Neng also wrote his poem... I think page [57]. His poem is,
 
 Sometimes people deal with the two poems separately, and evaluate which is right, which is wrong. But I don’t think [that] is the right understanding. Both poems work together in our practice. I think you cannot separate them.
 
-So, according to Shen Hsiu, I think he stands always in the dualistic world, and looking at himself, and try to reach the buddha-nature. So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. So “the body is a Bodhi tree, the mind like a bright mirror stand.” This is exactly the same as the teaching of nirvana. So, we are buddha. “Time and again brush it clean.” But we are living in the human world, so it’s easy for us to get “dusty,” that’s why we have to always brush it clean. “And let no dust alight.” This is a point of our practice. So, constantly practice. 
+So, according to Shen Hsiu, I think he stands always in the dualistic world, and looking at himself, and try to reach the buddha-nature. So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. So “the body is a Bodhi tree, the mind like a bright mirror stand.” This is exactly the same as the teaching of nirvana. So, we are buddha. “Time and again brush it clean.” But we are living in the human world, so it’s easy for us to get “dusty,” that’s why we have to always brush it clean. “And let no dust alight.” This is a point of our practice. 
 
-This is one aspect of the practice: seeking for the truth, constantly. “From the beginning to end,” even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
+So, constantly practice. This is one aspect of the practice: seeking for the truth, constantly. “From the beginning to end,” even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
 
 And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings. [This is the spirit of Hui Neng’s poem]: “Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature. So, there is no particular thing to discuss, [or] to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
 
@@ -251,9 +253,9 @@ Okay. Do you have questions?
 
 #### 54:25
 
-**Question:** So Dogen considered this a forgery?
+**Question:** So, Dogen considered this a forgery?
 
-**Katagiri Roshi:** Uh, not only Dogen. I think the introduction, written by *[unintelligible]*, who was one of Hui Neng’s disciples, mentions about this *Platform Sutra*. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it. And then other monks, other disciples, carried it always, and then passages which other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] mixed up. 
+**Katagiri Roshi:** Uh, not only Dogen. I think the introduction, written by *[unintelligible]*, who was one of Hui Neng’s disciples, [says] about this *Platform Sutra* [that] originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it. And then other monks, other disciples, carried it always, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] mixed up. 
 
 That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
 
@@ -267,13 +269,13 @@ I think next, please read the [chapter] “Prajna.” It’s [chapter] two, page
 
 #### 58:10
 
-**Question:** Hojo-san? Could you please clarify again what’s meant by causes and conditions, time and occasion? 
+**Question:** Hojo-san? Could you please clarify again what’s meant by *causes and conditions, time and occasion*? 
 
-**Katagiri Roshi:** Time and occasion is... how can I say it. This is a very technical term we use. If you read “Ocean Seal Samadhi,” Dogen Zenji [talks] about *time*, and everything is produced by various dharma. *Various dharma* means conditioned origination, conditional factors, and also he [talks] about time. What are conditional factors? Conditional factors are nothing but time and occasion. And what is time and occasion? He says it’s just arising, only. So time is [...] some kind of energies in action. That is arising only, he [says]. 
+**Katagiri Roshi:** Time and occasion is... how can I say it. This is a very technical term we use. If you read “Ocean Seal Samadhi,” Dogen Zenji [talks] about *time*, and everything is produced by various dharma. *Various dharma* means conditioned origination, conditional factors, and also he [talks] about time. What are conditional factors? Conditional factors are nothing but time and occasion. And what is time and occasion? He says it’s just arising, only. So time is [...] some kind of energies in action. That is *arising only*, he [says]. 
 
-But it’s pretty difficult to know what time is through “arising only.” So that’s why temporarily we say, “It’s *time*.” But real time is arising only. So it is working. This *is* temporarily called *buddha-nature*, we say. 
+But it’s pretty difficult to know what time is through [the words] “arising only.” So that’s why temporarily we say, “It’s *time*.” But real time is arising only. So it is working. 
 
-But if [we say] *buddha-nature*, immediately we have a preconception that buddha-nature is something eternal, or absolute, et cetera. That’s why Dogen Zenji says *no buddha-nature* is pretty close, [an] appropriate term to express that *arising only* regarded as function itself, activity itself. 
+This *is* temporarily called *buddha-nature*, we say. But if [we say] *buddha-nature*, immediately we have a preconception that buddha-nature is something eternal, or absolute, et cetera. That’s why Dogen Zenji says *no buddha-nature* is pretty close, [an] appropriate term to express that *arising only* regarded as function itself, activity itself. 
 
 That is *time and occasion* and *cause and conditions*.
 
@@ -295,7 +297,7 @@ So constantly our foundation must be found there. And then, you can deal with wh
 
 **Katagiri Roshi:** Supported. Well, what do you mean? One is, you said, everything is supported. On the other hand, everything is not supported? That’s what you mean? 
 
-Actually, no *supported*. Nothing to support. 
+Actually, no “supported.” Nothing to support. 
 
 So if you want to know something *supported by* something, maybe you are supported by *nowhere to [be] supported*. *[He chuckles slightly.]* There is a true factor. In other words, your life is supported by impermanence. That is the true picture of existence. 
 
@@ -325,7 +327,7 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 **Katagiri Roshi:** Because, as Dogen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
 
-It’s not evaluating both of them – which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (*Shoji*)? Dogen Zenji quotes two sentences: “If there is a buddha, you are not confused by life and death itself. If there is no buddha, life and death never be confused.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong; which is close to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And then [the teacher] says, “Maybe next day, please come again.” He didn’t answer. And then the next day, Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close, is not close. 
+It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (*Shoji*)? Dogen Zenji quotes two sentences: “If there is a buddha, you are not confused by life and death itself. If there is no buddha, life and death never be confused.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong; which is close to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And then [the teacher] says, “Maybe next day, please come again.” He didn’t answer. And then the next day, Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
 
 [That is what] “no buddha-nature” [means]. “No buddha-nature” is *pretty* close. *[He chuckles slightly.]* Pretty close to the buddha-nature. [...]
 
