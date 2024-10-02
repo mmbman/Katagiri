@@ -3,11 +3,11 @@ title: "Platform Sutra – Talk 1"
 ---
 ## March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1986-11-22-Bowing) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+**This transcript is in draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/platform-sutra-1-of-7" target="_blank">Listen to this talk on mnzencenter.org</a>
@@ -341,4 +341,4 @@ I think you can read the book of *No Mind*, written by D.T. Suzuki. [He talks] a
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1986-11-22-Bowing) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
