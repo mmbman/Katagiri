@@ -11,13 +11,13 @@ This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as 
 
 Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these series are:
 
+- [***Blue Cliff Record***](blue-cliff-record) (1979-1989)
 - [***Diamond Sutra***](diamond-sutra) (1979-1980)
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi) (1979)
-- [***Blue Cliff Record***](blue-cliff-record) (1979-1989)
+- [***Genjōkōan***](genjokoan) (1987)
 - [**Karma**](karma) (1980, 1987)
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
 - [***Platform Sutra***](platform-sutra) (1987)
-- [***Genjōkōan***](genjokoan) (1987)
 
 This list will be updated as talks are transcribed. Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. 
 
