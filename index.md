@@ -16,6 +16,7 @@ Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these se
 - [***Blue Cliff Record***](blue-cliff-record) (1979-1989)
 - [**Karma**](karma) (1980, 1987)
 - [**Lay Ordination Lectures**](lay-ordination) (1986)
+- [***Platform Sutra***](platform-sutra) (1987)
 - [***Genjōkōan***](genjokoan) (1987)
 
 This list will be updated as talks are transcribed. Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. 
