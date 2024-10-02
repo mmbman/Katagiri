@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 4"
 ---
 ## April 3, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-04-10-Platform-Sutra-Talk-5) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1987) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-04-10-Platform-Sutra-Talk-5) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Transcript
 

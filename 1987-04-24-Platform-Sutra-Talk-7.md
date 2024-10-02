@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 7"
 ---
 ## April 24, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1987-04-17-Platform-Sutra-Talk-6) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1987) \| [Previous](1987-04-17-Platform-Sutra-Talk-6) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Transcript
 
