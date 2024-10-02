@@ -80,7 +80,7 @@ So two meanings. All beings, without exception, are buddha-nature. That means wh
 
 So that is the truth Dogen Zenji constantly mentions. That is *buddha-nature*, we say. 
 
-If so, we immediately think buddha-nature is something like the very basic nature of existence from which [...] all sentient beings [are made] alive. So we think immediately the buddha-nature is something *absolute*, or buddha nature is something *eternal* – so, the very basic nature of existence. But that is not real buddha-nature! That’s why the second point is, “Buddha-nature is time and occasion, cause and conditions.”
+If so, we immediately think buddha-nature is something like the very basic nature of existence from which [...] all sentient beings [are made] alive. So we think immediately the buddha-nature is something *absolute*, or buddha-nature is something *eternal* – so, the very basic nature of existence. But that is not real buddha-nature! That’s why the second point is, “Buddha-nature is time and occasion, cause and conditions.”
 
 So buddha-nature is always [...] that which occurs according to time and occasion, and cause and conditions. That means, when you come here, this is your life. When you walk, this is your life, so-called *walking on the street*. Always there is cause and conditions. *Cause and conditions* means [...] all forms you are confounded with, all opportunities [or chances] you face, day to day, from moment to moment. This is *time and occasion*, we say. 
 
@@ -305,7 +305,7 @@ So if you want to know something *supported by* something, maybe you are support
 
 So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanent* is constantly changing. *Changing* doesn’t mean [everything is] in vain, no. There is something always to create. 
 
-**Different person**: You say, “if you are active.” Is there anything other than activity, though? Is it possible to not be active?
+**Different person:** You say, “if you are active.” Is there anything other than activity, though? Is it possible to not be active?
 
 **Katagiri Roshi:** No, it’s impossible. Whatever you do, always there is [activity]. 
 
@@ -313,11 +313,11 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 **Katagiri Roshi:** Sure! Even though you die, it’s active. 
 
-**Same person**: Even if there were a nuclear holocaust, there would be activity? 
+**Same person:** Even if there were a nuclear holocaust, there would be activity? 
 
 **Katagiri Roshi:** Sure. Wherever you may go. Our foundation is really active, dynamism. 
 
-**Same person**: So buddha-nature can’t be destroyed.
+**Same person:** So buddha-nature can’t be destroyed.
 
 **Katagiri Roshi:** No. 
 

@@ -6,7 +6,7 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1
 
 #### [List](list#1983) \| [Previous](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| [Next](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
-***Archive Issue***: The online audio for this talk is actually from *Blue Cliff Record* Case 43 Talk 2, on the Five Ranks, so this talk is currently not available. However, the next talk sounds like the first talk.
+***Archive Issue:*** The online audio for this talk is actually from *Blue Cliff Record* Case 43 Talk 2, on the Five Ranks, so this talk is currently not available. However, the next talk sounds like the first talk.
 
 *Blue Cliff Record* Case 46 is also covered extensively in [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4).
 

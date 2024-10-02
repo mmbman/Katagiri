@@ -156,7 +156,7 @@ So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] abou
 
 **Different person:** Are you asking that in relation to inwardly and outwardly? 
 
-**Questioner**: Objects. 
+**Questioner:** Objects. 
 
 **Katagiri Roshi:** How do we relate? 
 
