@@ -15,22 +15,19 @@ title: "Platform Sutra – Talk 2"
 
 #### 0:00
 
-**Katagiri Roshi:** 
-
-... Page 89. Chapter 2: *Prajna*. 
+**Katagiri Roshi:** ... Page 89. Chapter 2: “”*Prajna*”. 
 
 > The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajna Paramita.”
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
-
 Look at page 40 in the sutra: 
 
 > The Great Master said to the assembly, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish Buddhahood. Good Knowing Advisors, listen while I tell you about the actions and intentions by which Hui Neng obtained the Dharma.”
 
-I think here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish” the buddha way, that teaching is connected with this first paragraph of the sutra in Chapter 2, Prajna: “the Master took his seat and said to the great assembly, ‘All of you purify your minds...’”
+I think here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish the buddha way,” that teaching is connected with this first paragraph of the sutra in Chapter 2, “Prajna”.
 
-“Purify your minds” means own-being, means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. 
+ “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’” “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. That is what it says here.
 
 I think *prajna* can be considered in terms of three points. 
 
@@ -38,15 +35,15 @@ One point is the *essence* of prajna, the essence of wisdom. The essence of wisd
 
 And the *function* of *prajnaparamita* is... how can I say it. In *Fukanzazengi,* Dogen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the function of the *prajna*. 
 
-[...] The essence of prajna is [that] the self nature is originally clean and pure, [so] that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to original nature of existence, it simultaneously illuminates. If you come back, you illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn over. That is *illuminate*.
+[...] The essence of prajna is [that] the self nature is originally clean and pure, that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to the original nature of existence, it simultaneously illuminates. If you come back, *you* illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn [around]. That is *illuminate*.
 
-So no one helps you. If you practice sincerely, more or less everyone experiences this 180 degree or 360 degree turn-[around]. 
+So no one helps you; you have to do it. If you practice sincerely, more or less everyone experiences this [...] 180 degree or 360 degree turn-[around]. 
 
-Well, there are many kinds of experience. Some experience this very slowly, very slowly. And some experience a little shock. Some experience nothing, but it’s penetrating, soaking through, just like rain soaking through the ceiling, something like that. They don’t realize, but it’s soaking through. 
+Well, there are many kinds of experience. Some experience this very slowly, very slowly. And some experience a *little* shock. Some experience nothing, but it’s penetrating, soaking through just like rain soaking through the ceiling, something like that. So they don’t realize, but it’s soaking through. 
 
-Sometimes, some experience a *big* shock, you know? Like thunder, lightning, exactly. Zen teaching is always talking about such experience, fascinating experience. But not everyone [experiences this], okay? 
+Some experience a *big* shock, you know? Like thunder, lightning, exactly. Zen teaching is always talking about such experience, fascinating experience. But not everyone [experiences this], okay? 
 
-So, many kinds of experience. But more or less, people can turn over their lives 180 degrees, if you really come back to original nature – that is how. This is [the] zazen we do. That is [the] “turn your light inwardly to illuminate yourself” that Dogen Zenji mentions in [*Fukanzazengi*].
+So, many kinds of experience. But more or less, people can turn over their lives 180 degrees, if you really come back to original nature. That is how; this is [the] zazen we do. That is [the] “turn your light inwardly to illuminate yourself” that Dogen Zenji mentions in [*Fukanzazengi*].
 
 And the third point is *essential principle*. [The] essential principle of prajna is *nondualism*. Nondualism is [that] there are two, but not two, they are one. But not *one* exactly – they are two. So you cannot say anything. They are two, but it’s not two, it’s one. 
 
@@ -330,21 +327,23 @@ So that is contemplation. Listening to Buddha’s teaching, and contemplation, a
 
 **Question:** Hojo-san, you talked about *paramita* meaning crossing over, kind of a crossing over. And I wonder ... is that everyday activity, when we have to do something? Because I can see two views: one is just that whatever you do, if you have a job you have to do, then just do it. Then that’s crossing over; it’s not a matter of if you do the job in order to cross over. 
 
-**Katagiri Roshi:** *Cross over* means already the explanation of nirvana in words. *Cross over* means already cross over; this shore, the other shore. So [it’s] dualistic. Real nirvana, “crossing over to the other shore,” doesn’t mean handle your life with the dualistic sense. That is *the other shore*. Because you have to show, demonstrate, the other shore day-to-day. From moment-to-moment basic, you have to do it. Because we are already buddha, means we are a person who has gone beyond, that’s it. So you have already arrived at the other shore. But if we explain, we say “the great wisdom which lets you be on the other shore,” something like that. That’s what you mean? What is your question? 
+**Katagiri Roshi:** *Cross over* means already the explanation of nirvana in words. *Cross over* means already cross over; this shore, the other shore. So [it’s] dualistic. Real nirvana, “crossing over to the other shore,” doesn’t mean handle your life with the dualistic sense; that is *the other shore*. Because you have to show, demonstrate, the other shore day-to-day. From moment-to-moment *basic*, you have to do it. Because *we are already buddha* means we are a person who has gone beyond; that’s it. So you have already arrived at the other shore. But if we explain, we say “the great wisdom which lets you be on the other shore,” something like that. 
 
-**Same person:** I ... you were talking about going moment by moment, and then that is a sense of crossing, from moment to moment?
+Is that what you mean? What is your question? 
 
-**Katagiri Roshi:** Yes. That’s [right]. But it doesn’t mean that blindly you just do it. No. Okay? Because you cannot ignore the world of conceptualization, because we are always there, in the world of conceptualization. In other words, society is what? Society is a form of beings fabricated by human language, cultures. So already the form of society is conceptualization. We live there. Word; thought. Evaluation, judgement; all are form. So you cannot ignore this. So that’s why you have to *understand* it. 
+**Same person:** You were talking about going moment by moment, and then that is a sense of crossing, from moment to moment?
 
-Understand the form of kindness: what kindness is. But you cannot understand kindness in terms of the world of the conceptualization only, no. Because still you don’t know what kindness is. So kindness should be tasted by your practice. [That] means you have to directly, straight away, taste the kindness among the people. Sharing your life with people. People give you kindness, sometimes. *Then*, you understand kindness. 
+**Katagiri Roshi:** Yes. That’s [right]. But it doesn’t mean that blindly you just do it. No. Okay? Because you cannot ignore the world of conceptualization, because we are always there in the world of conceptualization. In other words, society is what? Society is a form of beings fabricated by human language, cultures. So already the form of society is conceptualization. We live there: word, thought. Evaluation, judgement. All are form. You cannot ignore this, so that’s why you have to *understand* it. 
 
-In other words, you have to make your life alive, day to day, sharing with the people, sharing with kindness, compassion, generosity. Anyway, share. And then, your full function sometimes appears between you and all sentient beings. Then it is called compassion, or kindness, we say. And then you can get *accord with* all beings. And then it is called kindness; it really touches your heart. 
+Understand the form of kindness: what kindness is. But you cannot understand kindness in terms of the world of conceptualization only. No, because still you don’t know what kindness is. So kindness should be tasted by your practice. [That] means you have to directly straight away taste the kindness among the people, sharing your life with people. People give you kindness, sometimes. *Then*, you understand kindness. 
 
-But on the other hand, you have to understand the kindness in terms of the world of conceptualizations. Okay? So *just do it* is not always “just do it,” ignoring the other side, conceptualization. Because if you ignore the world of conceptualization, it means that you ignore life and death. So if you ignore, the other is attached by you. So ignoring is already attachment. So already you are taking care of human life in dualism. 
+In other words, you have to make your life alive, day to day, sharing with the people, sharing with kindness, compassion, generosity. Anyway, share. And then, your full function sometimes appears between you and all sentient beings. Then it is called *compassion*, or *kindness*, we say. And then you can get *accord with* all beings. And then it is called kindness. It really touches your heart. 
 
-So do you believe in God? “Yes.” Then, you believe in God, but you don’t believe in something else. [So a] person who doesn’t believe is “bad”; a person who believe is “good.” So people ask me, “Do you believe in God?” If I say “Yes”: “You’re a good boy!” If I don’t: “You’re a bad boy.” You know? This is really dualistic. Dualistic means you already attach to only one, and throw away the other. This is dualistic. 
+But on the other hand, you have to understand the kindness in terms of the world of conceptualizations. Okay? So *just do it* is not always “just do it,” ignoring the other side, conceptualization. Because if you ignore the world of conceptualization, it means that you ignore life and death. If you ignore, the other is attached by you. So ignoring is already attachment. So already you are taking care of human life in dualism. 
 
-Consciously and unconsciously you handle like this. So this is the dualistic world. But you have to see clearly what the dualistic way of thinking, way of life. You have to see it. That is [what] Zen practice always say, “See the life and death”; “It is a great matter of life and death.” So you have to see clearly what’s going on in the dualistic sense. 
+Do you believe in God? “Yes.” Then you believe in God, but you don’t believe in something else. [So a] person who doesn’t believe is “bad”, [and] a person who believes is “good.” So people ask me, “Do you believe in God?” If I say “Yes”, [they say,] “You’re a good boy!” If I don’t: “You’re a bad boy.” You know? This is really dualistic. Dualistic means you already attach to only one, and throw away the other. This is dualistic. 
+
+Consciously and unconsciously you handle like this. So this is the dualistic world. But you have to see clearly [...] the dualistic way of thinking, way of life. You have to see it. That is [what] Zen practice always says, “See the life and death,” [or] “It is a great matter of life and death.” So you have to see clearly what’s going on in the dualistic sense. 
 
 #### 1:09:54 end of recording
 
