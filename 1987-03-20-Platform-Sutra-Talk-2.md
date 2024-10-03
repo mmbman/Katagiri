@@ -43,51 +43,59 @@ Well, there are many kinds of experience. Some experience this very slowly, very
 
 Some experience a *big* shock, you know? Like thunder, lightning, exactly. Zen teaching is always talking about such experience, fascinating experience. But not everyone [experiences this], okay? 
 
-So, many kinds of experience. But more or less, people can turn over their lives 180 degrees, if you really come back to original nature. That is how; this is [the] zazen we do. That is [the] “turn your light inwardly to illuminate yourself” that Dogen Zenji mentions in [*Fukanzazengi*].
+So, many kinds of experience. But more or less, people can turn over their lives 180 degrees, if you really come back to original nature. That is how; this is [the] zazen we do. That is [the] “turn your light inwardly to illuminate yourself” that Dogen Zenji mentions in [*Fukanzazengi*]. Is that clear?
 
-And the third point is *essential principle*. [The] essential principle of prajna is *nondualism*. Nondualism is [that] there are two, but not two, they are one. But not *one* exactly – they are two. So you cannot say anything. They are two, but it’s not two, it’s one. 
+#### 7:48
 
-So if you explore thoroughly anything – human beings, human mind, or tables, floors – I think you cannot pin down anything at all. You cannot put that name on it. So very naturally if you touch *A*, *A* turns into *B*, simultaneously.  Just like a quark: I mention [that] quarks are tiny, tiny beings – the particles [of atoms]. [They have] five “flavors.” But one flavor is not the usual flavor: if you say “ugly,” it immediately turns into “beauty.” So a scientist says, “it’s ugly,” but if you touch it, immediately it’s beautiful. It’s the front [and] simultaneously it’s the back, so you cannot say. There are two? No – it’s one. But it’s not one, it’s two. 
+And the third point is *essential principle*. [The] essential principle of prajna is *nondualism*. 
 
-This is *undefiled state of existence*. Or sometimes we say, “pure and clean.” And philosophically we say *nondualism*. Something like that. Or, truth and the phenomenal world [are] not two, but not one. If you say *one*, it’s dualistic *one*. You [mix] up. 
+Nondualism is [that] there are two, but not two, they are one. But not *one* exactly – they are two. So you cannot say anything. They are two, but it’s not two, it’s one. 
 
-For instance, I was pretty often asked by the Christian people, “Do you believe [in] God?” If I say, “Yes,” already that God is something considered in terms of [dualism]. And if I say “no,” it’s already dualistic understanding, so I accept God dualistically. Because if I say “God is one,” immediately I say “God is one” but that God is already in front of me! Or I say “God and believers,” or, “believers and object.” People can believe. It’s already dualistic. But God is something one with us, or [one with] all beings. So already it’s dualistic. No matter how long you discuss, [it’s endless]. But God is something more than whether you can believe or you don’t believe. Something more than that. 
+So if you explore thoroughly anything – human beings, human mind, or tables, floors – I think you cannot pin down anything at all. You cannot put that name on it. So very naturally if you touch *A*, *A* turns into *B*, simultaneously.  Just like a quark: I mention [that] quarks are tiny, tiny beings – the tiny particles [of atoms]. [They have] five “flavors.” But one flavor is not the usual flavor: if you say “ugly,” it immediately turns into “beauty.” So you cannot say [it’s] “ugly,” but it’s ugly, so a scientist says, “it’s ugly.” But if you touch it, immediately it’s “beautiful.” It’s the front [and] simultaneously it’s the back, so you cannot say. They are two? No – it’s one. But it’s not one, it’s two. 
+
+This is *undefiled state of existence*. Or sometimes we say, “pure and clean.” And philosophically we say *nondualism*. Something like that. 
+
+Or, truth and the phenomenal world [are] not two, but not one. If you say *one*, it’s dualistic *one*. You’re mixed up. 
+
+For instance, I was pretty often asked by the Christian people, “Do you believe [in] God?” If I say, “Yes,” already that God is something considered in terms of [dualism]. And if I say “no,” it’s also dualistic understanding, so I accept God dualistically. Because if I say “God is one,” immediately I say “God is one” but that God is already in front of me! Or I say “God and believers,” or, “believers and object.” People can believe. It’s already dualistic. But God is something one with us, or [one with] all beings. So already it’s dualistic. No matter how long you discuss, [it’s endless]. But God is something more than whether you can believe or you don’t believe. Something more than that. 
 
 So you don’t say anything. But you have to say [something] about God. So, what is a belief? What do you mean by *belief*, believing? 
 
-So nondualism is you have to be very careful to deal with, or to live in the nondualistic world. It really depends on your activities. It’s not ideas. 
+So [...] you have to be very careful to deal with, or to live in the nondualistic world. It really depends on your activities. It’s not ideas. 
 
-So, that is *prajna*. That’s why prajna is very profound wisdom to look at the structure of human beings, in terms of essence, and function, and also essential principle of wisdom. You have to see the human world very clearly, so it’s not an idea or discussion, it really depends on your activity. You have to *do* right now, right here. Because original nature is very pure, and function is turning yourself inwardly to illuminate you. So you have to just come back. In other words, you become you, and you settle yourself – you are *you*-ing, and then you settle down right now. And then, you illuminate. 
+So, that is *prajna*. That’s why prajna is very profound wisdom to look at the structure of human beings, in terms of *essence*, and *function*, and also *essential principle* of wisdom. You have to see the human world very clearly. So it’s not an idea or discussion, it really depends on your activity: you have to *do* right now, right here. Because original nature is very pure, and [the] function is turning yourself inwardly to illuminate [yourself]. So you have to just come back. In other words, you become you, and you settle yourself – you are *you*-ing, and then you settle down right now. Then you illuminate. That wisdom illuminates. 
 
-That wisdom illuminates. In other words, if you want to be peaceful, *you* must be peaceful right now. How? Be peaceful. Peace is not outside. Peace is not [something] you can get now in your hand. So with your whole body and mind, demonstrate peace, right now, right here. And then, peace illuminates peace. 
+In other words, if you want to be peaceful, *you* must be peaceful right now. How? Be peaceful. Peace is not *outside*. Peace is not [something] you can get now in your hand. So with your whole body and mind, demonstrate peace, right now, right here. And then, peace illuminates peace. 
 
 So that is called “turn yourself inwardly to illuminate.” 
 
 When you don’t come back to the peace, peace never illuminates you, because always you seek [for] the peace outside. So when you come back to peace, right now right here, peace illuminates you. That is “inwardly.”
 
-So you have to see the human like this, and then that is why peace illuminates *us* – in other words, why human beings emerge from the peace, when you sit down right in the middle of peace. Because it’s based on [the] teaching of nondualism: peace and you are not-two: one, but not one. Because you demonstrate. If you demonstrate with wholeheartedness, you are not *you* separate from wisdom, separate from peace. You are peace. So they are one. But not *they are one*, because you and peace are there. 
+So you have to see the human world like this, and then that is why peace illuminates *us* – in other words, why human beings emerge from the peace, when you sit down right in the middle of peace. Because it’s based on [the] teaching of nondualism: peace and you are not-two: one, but not one. Because you demonstrate. If you demonstrate with wholeheartedness, you are [not] *you* separate from wisdom, separate from peace. You are peace. So they are one. But not *they are one*, because you and peace are there. 
 
 Well, in the conceptual world, they are two. But in terms of reality, true reality, they are not two, they are one, exactly. 
 
 That is wisdom. And then all three: the *essence* and *function* and *essential discipline* (essential principle?), all three work together: that is called *prajna*, wisdom.
 
-So wisdom is what? That is to be resolute, to do something. *Resolute* means, “Yes, I will.” Whoever you are, whatever you think, right now: yes, I will. That’s all you can do. And *then*, [...] you can really *take care of* in the best way, as a buddha. That is *prajna*. 
+So wisdom is what? That is to be resolute, to do something. *Resolute* means, “Yes, I will.” Whoever you are, whatever you think, right now: yes, I will. That’s all you can do. And *then*, you can do. You can really *take care of* in the best way, as a buddha. That is *prajna*. 
 
 #### 17:07
 
-[...] The other [day] I [talked about] “Good Knowing Advisors”; here I think that means the audience, all the assembly. The assembly [is] called “good knowing advisors.” The other day I mentioned [that] this is the meaning of the *teacher*. But sometimes it is used as a teacher, [sometimes] I think the people of the assembly. 
+Page 90. (Returning to the beginning of Chapter 2.) 
 
-(Returning to the beginning of Chapter 2:)
+> He then said, “Good Knowing Advisors, ...
 
-> He then said, “Good Knowing Advisors, the wisdom of Bodhi and Prajna is originally possessed by worldly people themselves. 
+I’m sorry – the other [day] I [talked about] “Good Knowing Advisors”; here I think that means the audience, all the assembly. The assembly [is] called “good knowing advisors.” The other day I [said that] this is the meaning of the *teacher*. Sometimes it is used as a teacher, but here, I think [it means] the people of the assembly. 
 
-That means everyone is buddha-nature. Everyone is, based on everyone is amply present in original nature of the self is pure and clean, exactly, beyond human speculation. That is called buddha-nature. So that original nature, which is pure and clean, is not [the] conceptual world, it is actions, the world of activities. Because there is nothing to pin down. But there is something there. 
+> “... the wisdom of Bodhi and Prajna is originally possessed by worldly people themselves. 
 
-> It is only because their minds are confused that they are unable to enlighten themselves and must rely on a great Good Knowing Advisor who can lead them to see their Buddha-nature. 
+That means everyone is buddha-nature. Everyone is based on, everyone is amply present in original nature of the self, [which] is pure and clean, exactly, beyond human speculation. That is called buddha-nature. So that original nature, which is pure and clean, is not [the] conceptual world, it is actions, the world of activities. Because there is nothing to pin down. But [there is] something there. 
 
-The difference between the Buddha and ordinary people is that ordinary people are confused, it says here. *Ordinary people’s mind are confused* means [that] one of the five hinderances is called doubt. *Doubt* means the people doubt the Three Treasures: buddha, dharma, sangha. In other words, we don’t accept straightforwardly the truth that we are buddha, but still doubt. That doubt makes you confused – simultaneously. 
+> “It is only because their minds are confused that they are unable to enlighten themselves and must rely on a great Good Knowing Advisor who can lead them to see their Buddha-nature. 
 
-For instance, a samurai asked the Zen teacher, “Do you believe there is a hell in this world?” 
+The difference between the Buddha and ordinary people is that ordinary people are confused, it says here. *Ordinary people’s mind are confused* means one of the five hinderances is called doubt. *Doubt* means people doubt the Three Treasures: buddha, dharma, sangha. In other words, we don’t accept straightforwardly the truth that we are buddha, but still doubt. That doubt makes you confused – simultaneously. 
+
+For instance, a samurai asked the Zen teacher, “Do you believe there is hell in this world?” 
 
 *[There is some discussion to get the story right.]*
 
@@ -95,33 +103,33 @@ The Zen master says, “You are a coward!”
 
 Because the samurai doesn’t like hell, that’s why he doubts whether hell exists or not. That is, he doesn’t want to accept it. 
 
-Then immediately the samurai is mad at him, because that statement really insults the samurai. So immediately he was mad at the Zen master and took out his sword and tried to kill him. 
+Then immediately the samurai is mad at [the Zen teacher], because that statement really insults the samurai. So immediately he [...] took out his sword and tried to kill him. 
 
-And then the Zen master said, “Oh, oh, wait... that is hell.” Hell exists. 
+And then the Zen master said, “Oh, oh, wait a minute... that is hell.” 
 
-Do you understand this story? 
+Hell exists. Do you understand this story? 
 
-So if you doubt, doubt simultaneously causes confusion, bewilderment, to exist. 
+If you doubt, doubt simultaneously [causes] confusion, bewilderment to exist. So that is confusion. That’s why nondualism is not a teaching which makes you *blind*, because nondualism takes you to the real nature of existence which is pure and clean. So you have to use your knowledge through and through; otherwise, you become blind. You have to use your knowledge through and through, and go deeply into *human beings*. And then, if you explore *human beings* thoroughly, then something compels you to turn over at one hundred eighty degrees. It’s not your business. When you reach the terminal station [it’s] not your business. Something compels you to go somewhere; you cannot stay there. So immediately you turn over. 
 
-So that is confusion. That’s why nondualism is not a teaching which makes you blind, because nondualism takes you to the real nature of existence which is pure and clean. So you have to use your knowledge through and through; otherwise, you become blind. You have to use your knowledge through and through: go into it deeply, go deeply in *human beings*. And then, if you explore *human beings* thoroughly, then something compels you turn over at one hundred eighty degrees. When you reach the terminal station, it’s not your business. Something compels you to go somewhere. You cannot stay there, so immediately you turn over. 
-
-So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that is, it’s not your business – [it’s] universal business. That’s why Dogen Zenji [says], “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.” Something like that. 
-
+So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that is, it’s not your business – [it’s] universal business. That’s why Dogen Zenji [says], “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.”
+ 
 For instance, if you sit down here, whatever your mind is thinking, well, as long as you are sitting right in the middle of zazen, zazen takes you, always. Zazen takes you to zazen.
 
-Zazen doesn’t take you somewhere. As long you’re sitting, [it’s] *right now*. Even though you’re thinking. Your mind may always think of something else: Japan, or [something] fascinating. Whatever you think, your body and mind is exactly there. 
+Zazen doesn’t take you somewhere. As long you’re sitting, [it’s] *right now*. Even though you are thinking. Your mind may always think of something else: Japan, or [something] fascinating. Whatever you think, your body and mind is exactly there. So, zazen takes you to zazen. So it’s not your business. 
 
-So, zazen takes you to zazen. So it’s not your business. Two situations happen: if you do it, and then that is analyzed by you, so-called “I do it.” But on the other hand, you don’t do it, zazen does it, if you sit down in zazen. 
+Two situations happen: if you do it, and then that is analyzed by you, so-called *I do it*. But on the other hand, you don’t do it! Zazen does it, if you sit down in zazen. 
 
-That is most important. If you really do it, something makes your life. But people don’t pay attention to it. Always [the] intellectual sense becomes stronger and stronger, and analyzing the situation, and always we say, “*We* do it.” So that’s why self comes first. That’s really egoistic. 
+That is most important. If you really do it, something makes your life. 
 
-That attitude is really a narrow way of taking care of human beings. Because you always see the human world in terms of the self-centeredness: “*I* do it, I want to do it,” always. Because you always ignore the other side, which is the bigger scale of the world. Is that clear? 
+But people don’t pay attention to it. Always [the] intellectual sense gets stronger and stronger, and analyzing the situation, and always we say, “*We* do it.” So that’s why self comes first. That’s really egoistic. 
 
-So you should accept both. You do it; but you don’t do it. And then, your attitude becomes magnanimous, generous. Otherwise, you always become egoistic, and fighting, always bumping [into] each other. You’re hurting yourself and others. 
+So that attitude is really a narrow way of taking care of human beings, because you always see the human world in terms of the self-centeredness: “*I* do it,” “*I* want to do it,” always. Because you always ignore the other side, which is the bigger scale of the world. Is that clear? 
+
+So you should accept *both*. You do it; but you don’t do it. And then, your attitude becomes magnanimous, generous. Otherwise, you always become egoistic, and [you are] fighting, always bumping [into] each other. You’re hurting yourself and others. 
 
 So that is the difference between the Buddha and ordinary people. So, “It is only because their minds are confused that they are unable to enlighten themselves and must rely on a great Good Knowing Advisor who can lead them to see their Buddha-nature.” 
 
-#### 
+#### 28:13
 
 > You should know that the Buddha-nature of stupid and wise people is basically not different. 
 
