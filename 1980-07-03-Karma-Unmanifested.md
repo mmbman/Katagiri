@@ -238,7 +238,7 @@ For instance, if yesterday I stole a ten dollar bill from someone’s pocket. An
 
 **Question:** Hojo-san? Unmanifested karma carries through from life to life, doesn’t it? 
 
-**Katagiri Roshi:** Mmm-hmm. (Yes.)
+**Katagiri Roshi:** Mm-hmm. (Yes.)
 
 **Same person:** But yet it radically transforms from one life to the next? You know, say, your smoking habit is probably not because you smoked in your last life, but could be because you were in a fire or something like that?
 

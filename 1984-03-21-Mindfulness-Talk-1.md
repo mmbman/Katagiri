@@ -242,7 +242,7 @@ Do you have some questions?
 
 **Same person:** So *undefiled* is just being in the activity.
 
-**Katagiri Roshi:** Mm-hm. But it’s very clear; there is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, there is no object called “sleeping”. If there is no object called sleeping, very naturally you don’t perceive you who sleeps. For you, there is no subject, no body, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep.
+**Katagiri Roshi:** Mm-hmm. But it’s very clear; there is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, there is no object called “sleeping”. If there is no object called sleeping, very naturally you don’t perceive you who sleeps. For you, there is no subject, no body, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep.
 
 The same applies to [all] activities. Zazen is exactly [like] this; you can practice this point. And this zazen practice can be extended into everyday life. That is everyday activities: sweeping the ground, wiping the floor. 
 
@@ -324,7 +324,7 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 **Same person:** At one time during your lecture this morning you said “true”. Is that another word? And I thought you were saying that instead of “pure”.
 
-**Katagiri Roshi:** As in true body? Well, maybe. Mm-hm. *[Laughter.]*
+**Katagiri Roshi:** As in true body? Well, maybe. Mm-hmm. *[Laughter.]*
 
 Wholesome, unwholesome. It seems to me that wholesome or unwholesome is almost the same as purity or impurity.
 

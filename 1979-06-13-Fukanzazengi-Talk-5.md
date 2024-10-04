@@ -112,7 +112,7 @@ Do you have some questions?
 
 **Katagiri Roshi:** Do you mean in zazen?
 
-**Same person:** Mmm-hmm.
+**Same person:** Mm-hmm.
 
 **Katagiri Roshi:** What do you think? Do you think of dinner? 
 
@@ -492,7 +492,7 @@ Drop off means, become one with zazen. In other words, absorb into zazen. That i
 
 **Same person:** [At the moment.]
 
-**Katagiri Roshi:** Mmm-hmm. (Yes.)
+**Katagiri Roshi:** Mm-hmm. (Yes.)
 
 #### 1:35:31 end of recording
 

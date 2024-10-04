@@ -183,7 +183,7 @@ Please read the verse; maybe next time I can say a little bit about the verse. D
 
 **Question:** Roshi? I find Ch’ang Sha’s remark, “First I went pursuing the fragrant grasses; then I returned following the falling flowers,” very much like what you told us Tathāgata means in Japanese: just going, just coming. I find a similarity there. 
 
-**Katagiri Roshi:** Mmm-hm. True. That’s why *just going, just coming* is not the *just going, just coming* you can understand according to your common sense. *Just going, just coming* is full attention, full energies there. At that time it becomes *just* coming, *just* going. That is called Tathāgata. 
+**Katagiri Roshi:** Mm-hmm. True. That’s why *just going, just coming* is not the *just going, just coming* you can understand according to your common sense. *Just going, just coming* is full attention, full energies there. At that time it becomes *just* coming, *just* going. That is called Tathāgata. 
 
 #### 1:05:30
 

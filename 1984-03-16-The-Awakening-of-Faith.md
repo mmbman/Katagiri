@@ -164,7 +164,7 @@ Okay, do you have questions?
 
 **Question:** Hojo-san? You said “we’re already Buddha, so we need to act like Buddha.” We’re already Buddha, and everything we do is the action of Buddha. Is that right? If we’re already Buddha, then everything we do is already the action of Buddha. 
 
-**Katagiri Roshi:** Mmm-hmm. 
+**Katagiri Roshi:** Mm-hmm. 
 
 **Question:** So what do we need to try to do?
 

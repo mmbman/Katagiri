@@ -288,7 +288,7 @@ So finally, we can say the third type of zazen doesn’t have a goal, but it doe
 
 **Katagiri Roshi:** *[Quietly:]* Oh, of course. Waiting for death is also practice for you.
 
-**Same person:** Mmm-hmm. Well, I don’t know, of course, but it seems like if a person practices so that he or she becomes an arhat, automatically it must move to the third type.
+**Same person:** Mm-hmm. Well, I don’t know, of course, but it seems like if a person practices so that he or she becomes an arhat, automatically it must move to the third type.
 
 **Katagiri Roshi:** Oh, of course, this is... automatic.
 

@@ -202,7 +202,7 @@ Are there any other questions?
 
 **Same person:** Right. What I’m thinking about is, in terms of, I mean there’s a conceptual level...
 
-**Katagiri Roshi:** Mm-hm.
+**Katagiri Roshi:** Mm-hmm.
 
 **Same person:** ... in which you could say it’s a very fine concept, to transfer the merit. But then now I’m wondering specifically about what happens functionality when this is recited. What is the intention here? For a particular experience to happen to in the person reciting it? 
 
@@ -234,7 +234,7 @@ Is that alright?
 
 **Same person:** So that seems to suggest that you accept practice as it is given to you. 
 
-**Katagiri Roshi:** Mmm-hm. Yes.
+**Katagiri Roshi:** Mm-hmm. Yes.
 
 **Same person:** So, is there any area where there is choice in the practice? 
 

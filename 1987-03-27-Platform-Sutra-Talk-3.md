@@ -97,7 +97,7 @@ Do you have questions about the meaning of *prajna*?
 
 **Question:** When it says, “prajna is cut off,” I would have thought prajna goes on. 
 
-**Katagiri Roshi:** Mm-hm, yes, prajna is going constantly.
+**Katagiri Roshi:** Mm-hmm, yes, prajna is going constantly.
 
 **Same person:** And so in what sense is it cut off?
 

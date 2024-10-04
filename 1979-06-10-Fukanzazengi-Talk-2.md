@@ -122,7 +122,7 @@ Do you have any questions?
 
 **Question:** Situation? Environment?
 
-**Katagiri Roshi:** Situation. Mmm-hmm. Environment.
+**Katagiri Roshi:** Situation. Mm-hmm. Environment.
 
 Although, there are lots of environments. Some environments are connected with you directly, but some environments are not connected directly; they are indirectly connected. But even though there are some environments connected indirectly, they are also environments; we cannot ignore them. Circumstances includes all things, *all* environments, connected directly or indirectly. 
 
@@ -206,7 +206,7 @@ The mind is always there, interfering, judging good or bad. [Enlightenment, prac
 
 **Question:** Roshi, I wonder the same thing. I sort of feel like the effort is to follow the breath, and then suddenly I realize I’m getting a little sleepy, or I catch myself thinking about something. And at that time, you’re saying, just return to your effort to follow the breath. 
 
-**Katagiri Roshi:** Mmm-hmm... That’s all.
+**Katagiri Roshi:** Mm-hmm... That’s all.
 
 *[There is a pause.]*
 
@@ -230,7 +230,7 @@ And then [...] you take a breath very naturally, as naturally as you can. And th
 
 **Question:** Roshi? Are you saying then that you should just go with whatever amount of effort you feel?
 
-**Katagiri Roshi:** Mmm-mm. No. 
+**Katagiri Roshi:** Mm-mm. No. 
 
 The center is always the center. Okay? You must be in the center. 
 

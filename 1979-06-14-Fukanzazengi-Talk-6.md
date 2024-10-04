@@ -278,7 +278,7 @@ And then after that – well, mind associates and attaches.
 
 So, according to my talk yesterday, we are always seeing the *before* zazen and *after* zazen. We miss the *middle*; that is *real* zazen. We always understand zazen before zazen and after zazen, or you before zazen, you after zazen. We always look and check, analyze, et cetera, but we miss the most important zazen and practice [as] the middle. Is that clear?
 
-**Same person:** Mmm-hmm.
+**Same person:** Mm-hmm.
 
 #### 1:06:26
 

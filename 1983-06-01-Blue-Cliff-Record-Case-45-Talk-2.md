@@ -250,7 +250,7 @@ Okay?
 
 **Question:** Hojo-san? Is that the same as having square, sharp edges? 
 
-**Katagiri Roshi:** Mmm-hm. That is deepening, or maturing. That is the best way to make your life mature. 
+**Katagiri Roshi:** Mm-hmm. That is deepening, or maturing. That is the best way to make your life mature. 
 
 #### 1:01:10 end of recording
 

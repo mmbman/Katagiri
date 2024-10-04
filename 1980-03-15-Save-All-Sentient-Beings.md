@@ -266,7 +266,7 @@ Any others?
 
 *Question*: Hojo, when you say that truth is the same as one of the dharmas, is it the same as saying that truth has to be experienced individually?
 
-**Katagiri Roshi:** Mmm-hmm. While you are thinking of the truth, it is nothing but *all beings*, which is impermanent. Okay? But when you say *truth is one*, truth is something which exists, completely beyond human speculation. That means truth is [the] original state of being. 
+**Katagiri Roshi:** Mm-hmm. While you are thinking of the truth, it is nothing but *all beings*, which is impermanent. Okay? But when you say *truth is one*, truth is something which exists, completely beyond human speculation. That means truth is [the] original state of being. 
 
 So, it must be something we should experience. That is the truth. But real truth is not individual experience. [There is] still something, [some] real meaning of truth, we have to understand.
 

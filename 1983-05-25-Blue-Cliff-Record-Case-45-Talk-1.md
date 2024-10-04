@@ -295,7 +295,7 @@ Do you have some questions?
 
 **Question:** Hojo-san? You spoke of speed and slowness. And I’m reminded of Thich Nhat Hanh’s visit, and his teaching of a practice which is far slower than we had seen. Certain practices. And I was asked by someone in San Francisco to ask you, because it has been a serious consideration for many people: what is it in the Japanese tradition, in monasteries, what is the nature of the speed that monks are trained to use in the monastery? Is there a kind of mindfulness ... 
 
-**Katagiri Roshi:** Mmm-hmm.
+**Katagiri Roshi:** Mm-hmm.
 
 **Same person:** ... about that? I know Thich Nhat Hanh said that he goes very slowly, and when I asked him if it’s possible to be mindful when you’re going very fast, he said *maybe* it is, but it’s much harder. 
 

@@ -197,15 +197,15 @@ So I guess for me I don’t quite understand the distinction between dualism and
 
 **Question:** The transparent pyramid, in which we have thinking, non-thinking, and not thinking, are the three sides of the pyramid.
 
-**Katagiri Roshi:** Mmm-hmm. Yes.
+**Katagiri Roshi:** Mm-hmm. Yes.
 
 **Question:** And each is seen through the transparency of the other. 
 
-**Katagiri Roshi:** Mmm-hmm.
+**Katagiri Roshi:** Mm-hmm.
 
 **Question:** That’s how in the moment, we do not lose contact. 
 
-**Katagiri Roshi:** Mmm-hmm. That means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetrating at superspeed. You can see that, if you stand up in this instant world, instant sphere. *Instant* doesn’t mean instant, okay? *[He chuckles.]* *Instant* means eternal world, the vastness of existence. But it is a source of your life. That’s why I say *instant* or *moment*. Let me say *instant*, do you think? *[He laughs.]* Instant: right there. 
+**Katagiri Roshi:** Mm-hmm. That means interdependent, interpenetration, something like that. *A* and *B* are constantly interdependent, interpenetrating at superspeed. You can see that, if you stand up in this instant world, instant sphere. *Instant* doesn’t mean instant, okay? *[He chuckles.]* *Instant* means eternal world, the vastness of existence. But it is a source of your life. That’s why I say *instant* or *moment*. Let me say *instant*, do you think? *[He laughs.]* Instant: right there. 
 
 And if you stand up there, there are two things and more than two, because around the *A* world many beings exist, around the *B* world many beings exist, and those are interdependent, interpenetrating at superspeed. So you can see the really beautiful panoramic pictures. 
 

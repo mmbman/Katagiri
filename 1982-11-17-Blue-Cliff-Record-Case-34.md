@@ -164,7 +164,7 @@ Do you understand?
 
 #### 47:18
 
-**Question:** Mm-hm; I have another question. What if you really have a strong feeling about somebody, and you really don’t like that person, or something, and that’s the feeling that you feel. How can you be compassionate then?
+**Question:** Mm-hmm; I have another question. What if you really have a strong feeling about somebody, and you really don’t like that person, or something, and that’s the feeling that you feel. How can you be compassionate then?
 
 **Katagiri Roshi:** Compassion is not something you try, but... well, your [conscious] attitude is important. If you see somebody you don’t like, at that time immediately you stumble and fall down on the ground constantly. But still, human nature is not something like that. Human consciousness always catches one thing and evaluates, judges, and then affective preferences come up, and then you stumble, by the affective preferences. On and on like that. So basically, “we have to be compassionate” means that whoever they are, we try to do this, even through consciousness. Consciousness always picks up something, so you have to train your consciousness like this. 
 

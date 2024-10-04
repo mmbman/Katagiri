@@ -144,7 +144,7 @@ So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] abou
 
 **Question:** So this double mask is the ongoing need to awaken to a [suchness]. 
 
-**Katagiri Roshi:** Mm-hm.
+**Katagiri Roshi:** Mm-hmm.
 
 **Same person:** So this double mask...
 
@@ -264,7 +264,7 @@ Do you have for something to his question? Is that okay?
 
 **Same person:** Because you see you are interconnected with the floor, that you're supported by the floor. So to take care of the floor means that you really respect it as the Buddha. Is that what you’re saying?
 
-**Katagiri Roshi:** Mm-hm. Sure.
+**Katagiri Roshi:** Mm-hmm. Sure.
 
 So not separated, you know, deluded of floor and purity of the floor are the same. But it's not same, they are not the same, they are different. But they are not different. That is called oneness. That's why if you study Buddhism, always, one is all, all is one – what do you mean? And form is emptiness, emptiness is form. They are not separate, but if you say it in words, there is a separation.
 
@@ -316,7 +316,7 @@ So again and again we have to use a negative term, and to awaken ourself. Is tha
 
 So that is what? That is a practice already. We have to practice, we have to deal [with it]. How can we deal with the floor? That is a point, okay? When you practice, there is a certain form. We need this; it is necessary. Because there are many forms to use to deal with the floor, according to individuals characters and personalities, very different. That's why form is also refined, should be refined, in order to be saved in the world of you and floors, beyond the delusion of object or purity of object. Because where is salvation? Salvation is right there, in the practice.
 
-**Questioner:** Mm-hm. So it's not really possible for you to say what it's like to be exactly in the flow experience, or in the non-discriminating experience, because once you say that you're not there? Is that one thing you’re saying? 
+**Questioner:** Mm-hmm. So it's not really possible for you to say what it's like to be exactly in the flow experience, or in the non-discriminating experience, because once you say that you're not there? Is that one thing you’re saying? 
 
 **Katagiri Roshi:** Beg your pardon? What did you say?
 
@@ -334,7 +334,7 @@ So very naturally what you can do is, through and through, we have to go deeply 
 
 **Question:** Harmoniously diffusing?
 
-**Katagiri Roshi:** Mm-hm. 
+**Katagiri Roshi:** Mm-hmm. 
 
 ... *[pause]*
 
@@ -348,7 +348,7 @@ Do you have something?
 
 **Question:** I have a question, Roshi. Which I think might be related to that, but I'm not sure. But it is related to something Mike said in his talk the other day, about lay practice and priest practice, and how Dogen says in two different places, different things. Is that, you run across those contradictions often, it seems, in Buddhism. Is that to try to take you beyond, to get you to that limitation of knowledge?
 
-**Katagiri Roshi:** Mm-hm. Yes. Dogen Zenji [says], in priest life. Why Dogen Zenji [says] priest life is highest level of spiritual life; on the other hand, no limitation, you know? No limitation. So that is pretty contradictory. But what if you come to the dead-end limitation of lay life? Very naturally you can go beyond this. So you you want to do something. Do you understand?
+**Katagiri Roshi:** Mm-hmm. Yes. Dogen Zenji [says], in priest life. Why Dogen Zenji [says] priest life is highest level of spiritual life; on the other hand, no limitation, you know? No limitation. So that is pretty contradictory. But what if you come to the dead-end limitation of lay life? Very naturally you can go beyond this. So you you want to do something. Do you understand?
 
 The same applies to the realization of limitation of human knowledge, and then you can go beyond. It's not your business, it's not individual business. It’s really Buddha’s business.
 

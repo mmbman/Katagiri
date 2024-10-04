@@ -110,7 +110,7 @@ Vow is a big hope, huge hope.
 
 **Question:** Would you explain that point again? You said that most people don’t understand vow and that’s fine. But you said that the problem was that most people didn’t – what you said was, have an aspiration for the vow. 
 
-**Katagiri Roshi:** Mmm-hmm.
+**Katagiri Roshi:** Mm-hmm.
 
 **Question:** So, how does that work? 
 

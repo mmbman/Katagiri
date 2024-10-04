@@ -321,7 +321,7 @@ So sometimes you’re pretty busy; the schedule is very “jammed,” very busy.
 
 **Person:** If you practice mindfulness to see the situation and you have a chance to calm down and not to create agitated [...]
 
-**Katagiri Roshi:** Mmm-hmm. Is that true? That’s what you want?
+**Katagiri Roshi:** Mm-hmm. Is that true? That’s what you want?
 
 **Person:** That’s what I meant. 
 
@@ -425,7 +425,7 @@ Do you have some questions?
 
 **Person:** Hojo-san? I just wanted to say one point about the mental affliction we were talking about? It seems like that very strong thing that we all have around perfectionism, [to do things] right. So it’s like Buddhist detachment that teaches us to just let it go and stay with the moment and take care of the moment, versus that beating ourselves up.
 
-**Katagiri Roshi:** Mmm-hmm. Sure. That’s why we have to understand human life, human consciousness, et cetera. Because human consciousness operates in a very complicated way. So that is called ignorance, in this book. If you read page fifty, you can see the technical term *[seventy] thoughts arise*. Those thoughts, in other words discriminating mind, is really working in a very complicated way. That’s why we pretty easily create mental afflictions. Through the mental afflictions we can create stress, conflict, and anxiety, fears, et cetera. And then finally people cannot escape from stress and conflict and fear, [so] very naturally we want to do something to express them. And then that expression is sometimes abusive, sometimes violent.
+**Katagiri Roshi:** Mm-hmm. Sure. That’s why we have to understand human life, human consciousness, et cetera. Because human consciousness operates in a very complicated way. So that is called ignorance, in this book. If you read page fifty, you can see the technical term *[seventy] thoughts arise*. Those thoughts, in other words discriminating mind, is really working in a very complicated way. That’s why we pretty easily create mental afflictions. Through the mental afflictions we can create stress, conflict, and anxiety, fears, et cetera. And then finally people cannot escape from stress and conflict and fear, [so] very naturally we want to do something to express them. And then that expression is sometimes abusive, sometimes violent.
 
 [...]
 
@@ -435,7 +435,7 @@ Do you have some questions?
 
 **Person:** So we just have to take care of that.
 
-**Katagiri Roshi:** Mmm-hmm.
+**Katagiri Roshi:** Mm-hmm.
 
 #### 1:30:13 end of recording
 

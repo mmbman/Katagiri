@@ -239,7 +239,7 @@ But anyway, moment is appear and disappear, from this point moment has its begin
 
 **Katagiri Roshi:** Where does freedom come from? 
 
-**Same person:** Mmm-hmm. 
+**Same person:** Mm-hmm. 
 
 **Katagiri Roshi:** Freedom comes from your actions. 
 
@@ -271,7 +271,7 @@ According to the Diamond Sutra, we say, “Awaken the mind without abiding in an
 
 **Same person:** So the freedom is not in the choice of the actions, but in the choice of the mindfulness in the action? So not so much good zazen or bad zazen, or do it or don’t do it, but mindfulness in the total working? No matter what?
 
-**Katagiri Roshi:** Mm-hm. I think so. That means not the idea of mindfulness, okay? Do you understand? 
+**Katagiri Roshi:** Mm-hmm. I think so. That means not the idea of mindfulness, okay? Do you understand? 
 
 **Same person:** Not mindful of anything, but mindful *in* everything. 
 
