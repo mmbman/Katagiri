@@ -17,7 +17,7 @@ Katagiri Roshi comments on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or
 
 #### 0:00
 
-**Katagiri Roshi:** ... Page 89. Chapter 2: “”*Prajna*”. 
+**Katagiri Roshi:** ... Page 89. Chapter 2: “*Prajna*”. 
 
 > The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajna Paramita.”
 >
