@@ -496,52 +496,24 @@ Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour
 
 ---
 
+##### [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
+###### March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, including the famous “poetry contest.” He discusses the controversy of whether the point of Zen is really “to see into one’s own nature.” 
+
+---
+
+##### [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
+###### March 20, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi comments on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or “wisdom.” The discussion includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
+
+---
+
 ##### [Karma in Buddhism](1987-05-23-Karma-in-Buddhism)
 ###### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi summarizes the origins and development of the concept of *karma*, and then explores both its deeper meaning and its practical application. Karma is related both to the problem of whether there is a world after death, and how we should live in the present world. Practically, we can *feel* karma in our lives through *whole personality*. This is connected with the Buddhist concept of *vedanā* (*feeling*). After we *feel* our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the broader perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept; karma includes dynamic energy to move toward the future. We have to develop our individual character, and simultaneously the global character of human beings, in order to build up a peaceful world.
-
----
-
-##### [*Genjokoan*: Talk 1 (Egolessness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
-###### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [*Genjokoan*: Talk 2 (Consciousness)](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
-###### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [*Genjokoan*: Talk 3 (Flow)](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
-###### June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [*Genjokoan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
-###### June 20, 1987 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [*Genjokoan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
-###### June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
-###### October 5, 1988 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
 
 ---
 

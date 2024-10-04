@@ -3,7 +3,11 @@ title: "Platform Sutra – Talk 2"
 ---
 ## March 20, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-27-Platform-Sutra-Talk-3) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+
+### Summary
+
+Katagiri Roshi comments on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or “wisdom.” The discussion includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
 
 ### Transcript
 
@@ -27,13 +31,15 @@ Look at page 40 in the sutra:
 
 I think here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish the buddha way,” that teaching is connected with this first paragraph of the sutra in Chapter 2, “Prajna”.
 
- “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’” “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. That is what it says here.
+ “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’”: “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. That is what it says here.
+
+#### 3:26
 
 I think *prajna* can be considered in terms of three points. 
 
 One point is the *essence* of prajna, the essence of wisdom. The essence of wisdom is [that] the self nature is originally pure and clean. This is the essence of *prajnaparamita*.
 
-And the *function* of *prajnaparamita* is... how can I say it. In *Fukanzazengi,* Dogen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the function of the *prajna*. 
+And the *function* of prajnaparamita is... how can I say it. In *Fukanzazengi,* Dogen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajna. 
 
 [...] The essence of prajna is [that] the self nature is originally clean and pure, that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to the original nature of existence, it simultaneously illuminates. If you come back, *you* illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn [around]. That is *illuminate*.
 
@@ -51,7 +57,7 @@ And the third point is *essential principle*. [The] essential principle of prajn
 
 Nondualism is [that] there are two, but not two, they are one. But not *one* exactly – they are two. So you cannot say anything. They are two, but it’s not two, it’s one. 
 
-So if you explore thoroughly anything – human beings, human mind, or tables, floors – I think you cannot pin down anything at all. You cannot put that name on it. So very naturally if you touch *A*, *A* turns into *B*, simultaneously.  Just like a quark: I mention [that] quarks are tiny, tiny beings – the tiny particles [of atoms]. [They have] five “flavors.” But one flavor is not the usual flavor: if you say “ugly,” it immediately turns into “beauty.” So you cannot say [it’s] “ugly,” but it’s ugly, so a scientist says, “it’s ugly.” But if you touch it, immediately it’s “beautiful.” It’s the front [and] simultaneously it’s the back, so you cannot say. They are two? No – it’s one. But it’s not one, it’s two. 
+So if you explore anything thoroughly – human beings, human mind, or tables, floors – I think you cannot pin down anything at all. You cannot put that name on it. So very naturally if you touch *A*, *A* turns into *B*, simultaneously.  Just like a quark: I mention [that] quarks are tiny, tiny beings – the tiny particles [of atoms]. [They have] five “flavors.” But one flavor is not the usual flavor: if you say “ugly,” it immediately turns into “beauty.” So you cannot say [it’s] “ugly,” but it’s ugly, so a scientist says, “it’s ugly.” But if you touch it, immediately it’s “beautiful.” It’s the front [and] simultaneously it’s the back, so you cannot say. They are two? No – it’s one. But it’s not one, it’s two. 
 
 This is *undefiled state of existence*. Or sometimes we say, “pure and clean.” And philosophically we say *nondualism*. Something like that. 
 
@@ -93,15 +99,13 @@ That means everyone is buddha-nature. Everyone is based on, everyone is amply pr
 
 > “It is only because their minds are confused that they are unable to enlighten themselves and must rely on a great Good Knowing Advisor who can lead them to see their Buddha-nature. 
 
-The difference between the Buddha and ordinary people is that ordinary people are confused, it says here. *Ordinary people’s mind are confused* means one of the five hinderances is called doubt. *Doubt* means people doubt the Three Treasures: buddha, dharma, sangha. In other words, we don’t accept straightforwardly the truth that we are buddha, but still doubt. That doubt makes you confused – simultaneously. 
+The difference between the Buddha and ordinary people is that ordinary people are confused, it says here. *Ordinary people’s mind are confused* means one of the five hinderances is called doubt. *Doubt* means people doubt the Three Treasures: buddha, dharma, sangha. In other words, we don’t accept straightforwardly the truth that we are buddha, but still doubt. That doubt makes you confused, simultaneously. 
 
 For instance, a samurai asked the Zen teacher, “Do you believe there is hell in this world?” 
 
-*[There is some discussion to get the story right.]*
+*[There is some discussion to remember the story.]*
 
-The Zen master says, “You are a coward!” 
-
-Because the samurai doesn’t like hell, that’s why he doubts whether hell exists or not. That is, he doesn’t want to accept it. 
+The Zen master says, “You are a coward!” Because the samurai doesn’t like hell, that’s why he doubts whether hell exists or not. That is, he doesn’t want to accept it. 
 
 Then immediately the samurai is mad at [the Zen teacher], because that statement really insults the samurai. So immediately he [...] took out his sword and tried to kill him. 
 
@@ -109,21 +113,19 @@ And then the Zen master said, “Oh, oh, wait a minute... that is hell.”
 
 Hell exists. Do you understand this story? 
 
-If you doubt, doubt simultaneously [causes] confusion, bewilderment to exist. So that is confusion. That’s why nondualism is not a teaching which makes you *blind*, because nondualism takes you to the real nature of existence which is pure and clean. So you have to use your knowledge through and through; otherwise, you become blind. You have to use your knowledge through and through, and go deeply into *human beings*. And then, if you explore *human beings* thoroughly, then something compels you to turn over at one hundred eighty degrees. It’s not your business. When you reach the terminal station [it’s] not your business. Something compels you to go somewhere; you cannot stay there. So immediately you turn over. 
+If you doubt, doubt simultaneously [causes] confusion, bewilderment to exist. So that is confusion. That’s why nondualism is not a teaching which makes you *blind*, because nondualism takes you to the real nature of existence which is pure and clean. So you have to use your knowledge through and through; otherwise, you become blind. You have to use your knowledge through and through, and go deeply into *human beings*. And then, if you explore *human beings* thoroughly, then something compels you to turn over at one hundred eighty degrees. It’s not your business. When you reach the terminal station, [it’s] not your business. Something compels you to go somewhere; you cannot stay there. So immediately you turn over. 
 
-So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that is, it’s not your business – [it’s] universal business. That’s why Dogen Zenji [says], “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.”
+So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that [means], it’s not your business – [it’s] universal business. That’s why Dogen Zenji [says], “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.”
  
 For instance, if you sit down here, whatever your mind is thinking, well, as long as you are sitting right in the middle of zazen, zazen takes you, always. Zazen takes you to zazen.
 
-Zazen doesn’t take you somewhere. As long you’re sitting, [it’s] *right now*. Even though you are thinking. Your mind may always think of something else: Japan, or [something] fascinating. Whatever you think, your body and mind is exactly there. So, zazen takes you to zazen. So it’s not your business. 
+Zazen doesn’t take you somewhere. As long you’re sitting, [it’s] *right now*. Even [if] you are thinking. Your mind may always think of something else: Japan, or [something] fascinating. Whatever you think, your body and mind is exactly there. So, zazen takes you to zazen. So it’s not your business. 
 
 Two situations happen: if you do it, and then that is analyzed by you, so-called *I do it*. But on the other hand, you don’t do it! Zazen does it, if you sit down in zazen. 
 
 That is most important. If you really do it, something makes your life. 
 
-But people don’t pay attention to it. Always [the] intellectual sense gets stronger and stronger, and analyzing the situation, and always we say, “*We* do it.” So that’s why self comes first. That’s really egoistic. 
-
-So that attitude is really a narrow way of taking care of human beings, because you always see the human world in terms of the self-centeredness: “*I* do it,” “*I* want to do it,” always. Because you always ignore the other side, which is the bigger scale of the world. Is that clear? 
+But people don’t pay attention to it. Always [the] intellectual sense gets stronger and stronger, and analyzing the situation, and always we say, “*We* do it.” So that’s why self comes first. That’s really egoistic. That attitude is really a narrow way of taking care of human beings, because you always see the human world in terms of the self-centeredness: “*I* do it,” “*I* want to do it,” always. Because you always ignore the other side, which is the bigger scale of the world. Is that clear? 
 
 So you should accept *both*. You do it; but you don’t do it. And then, your attitude becomes magnanimous, generous. Otherwise, you always become egoistic, and [you are] fighting, always bumping [into] each other. You’re hurting yourself and others. 
 
@@ -241,9 +243,9 @@ So,
 
 So that is [that] the mind of all living beings is also empty. That means the *emptiness of original nature*.
 
-Emptiness [does not] mean *in vain*, okay? So, that is *full function*; the full function is called *emptiness*. The full function of your life. The full function of the rock, with all sentient beings. [The] full function of the mountain, working, interpenetrated with clouds and sky, human beings and trees, rains... then, it is called *emptiness*. The full function of the mountain. 
+Emptiness [does not] mean *in vain*, okay? So, that is *full function*; the full function is called *emptiness*. The full function of your life. The full function of the rock, with all sentient beings. [The] full function of the mountain, working, interpenetrated with clouds and sky, human beings and trees, rains... Then, it is called *emptiness*. The full function of the mountain. 
 
-That is called *emptiness*. So everything has this nature. So *original nature* is emptiness. And next,
+That is called *emptiness*. Everything has this nature. So *original nature* is emptiness. And next,
 
 > “... there is not a single dharma which can be obtained. The true emptiness of the self-nature is also like this.
 
@@ -259,9 +261,9 @@ Do you understand? [*He chuckles.*]
 
 **Someone:** No.
 
-**Katagiri Roshi:** It means, you *do* always. Usually people believe sitting is just [to] sit still with empty mind. And then you believe this is [a] real understanding of emptiness. No, it’s [a delusion]. Because you attach to emptiness. 
+**Katagiri Roshi:** It means, you *do*, always. Usually people believe sitting is just [to] sit still with empty mind. And then you believe this is [a] real understanding of emptiness. No, it’s [a delusion]. Because you attach to emptiness. 
 
-So real emptiness is nothing but total, full function. That’s it. When total full function appears under certain circumstances, [we] put the name on it called *zazen*, or *gassho*. Is that clear? But we don’t do [this]. First, we attach to the form, and then we mold our life into the form, and then we say, “I did zazen.” You know? But actually, [that’s] reversed. First, your life must be fully functioning. And then that *fully functioning* appears from moment to moment, under certain circumstances, so-called *zazen* [or] *gassho*, and *then* we call it zazen. Do you see the little difference? [It’s] quite different. 
+So real emptiness is nothing but total, full function. That’s it. When total full function appears under certain circumstances, [we] put the name on it called *zazen*, or *gassho*. Is that clear? But we don’t do [this]. First, we attach to the form, and then we mold our life into the form, and then we say, “I did zazen.” But actually, [that’s] reversed. First, your life must be fully functioning. And then that *fully functioning* appears from moment to moment, under certain circumstances, so-called *zazen* [or] *gassho*, and *then* we call it zazen. Do you see the little difference? [It’s] quite different. 
 
 That’s why here it says, “If you sit still with an empty mind you will become attached to undifferentiated emptiness.” So constantly you must be in emptiness – that is full function, constant full function. 
 
@@ -305,7 +307,7 @@ There is a commentary. I don’t read the commentary, so you should read the com
 
 **Question:** Where can we buy that edition? 
 
-*[There is some advisement from the audience.]*
+*[There is some advice from the audience.]*
 
 #### 59:25
 
@@ -325,15 +327,15 @@ There is a commentary. I don’t read the commentary, so you should read the com
 
 **Katagiri Roshi:** Well, when you find yourself in the faith, and then it is called faith, even though you have doubt. So you have to demonstrate faith; and then, your life becomes faith, based on the faith. 
 
-If you see the doubt, and then the doubt takes your life to the doubt, always there is doubt. But the bottom of the doubt has no root, so very naturally the bottom of the doubt is emptiness. So naturally you’re confused, because you don’t know what to do in the realm of the doubt. So that’s why even though you see the doubt, I don’t think you should always depend on your doubt. So you have to demonstrate right in the middle of doubt.
+If you see the doubt, and then the doubt takes your life to the doubt, always there is doubt. But the bottom of the doubt has no root, so very naturally the bottom of the doubt is emptiness. So naturally you’re confused, because you don’t know what to do in the realm of the doubt. That’s why even though you see the doubt, I don’t think you should always depend on your doubt. So you have to demonstrate right in the middle of doubt.
 
-So a simple way is zazen, [which] buddhas and ancestors mention. 
+So a simple way is zazen, [as] buddhas and ancestors mention. 
 
-Generally speaking – in terms of general Buddhism – I think three point practice: *mon, shi, shu*. [...] *Mon* means listening . And also [*shi*,] contemplation [of] what you have listened [to of] Buddha’s teaching. And *shu* is practice. Practice is meditation, zazen – *dhyāna*. 
+Generally speaking – in terms of general Buddhism – I think [there is] three point practice: *mon, shi, shu*. [...] *Mon* means listening . And also [*shi*,] contemplation [of] what you have listened [to of] Buddha’s teaching. And *shu* is practice. Practice is meditation, zazen – *dhyāna*. 
 
-So listening to Buddha’s teaching, and contemplation – contemplation means very deep understanding, [it] means “nurturing wisdom.” Because already we are wisdom, so we have to nurture *shu* to grow. We have a buddha, so we have to nurture the buddha-nature, which means to let it grow. So that is contemplation. Listening to Buddha’s teaching, and contemplation, and *shu* means practice. That is zazen. We have to practice [the] three. 
+So listening to Buddha’s teaching, and contemplation – contemplation means very deep understanding, [it] means “nurturing wisdom.” Because already we are wisdom, so we have to nurture *shu* to grow. We have a buddha, so we have to nurture the buddha-nature, which means to let it grow. So that is contemplation. Listening to Buddha’s teaching, and contemplation, and *shu* means practice; that is zazen. We have to practice [the] three. 
 
-**Same person:** Thank you, hojo-san. 
+**Same person:** Thank you, Hojo-san. 
 
 #### 1:03:12
 
@@ -363,4 +365,4 @@ Unconsciously you handle [things] like this. So this is the dualistic world. But
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-27-Platform-Sutra-Talk-3) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
