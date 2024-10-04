@@ -11,8 +11,6 @@ Katagiri Roshi comments on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
-
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/platform-sutra-2-of-7" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
