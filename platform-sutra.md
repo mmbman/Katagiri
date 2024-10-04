@@ -9,7 +9,7 @@ Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March 
 ##### [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 ###### March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, including the famous “poetry contest.” He discusses the controversy of whether the point of Zen is really “to see into one’s own nature.” 
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, “Action and Intention,” including the famous “poetry contest.” He discusses the controversy of whether the point of Zen is really “to see into one’s own nature.” 
 
 ---
 
