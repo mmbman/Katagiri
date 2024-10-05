@@ -5,11 +5,9 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Soto Zen Buddhism. For more information, see the [**Introduction**](about).
 
-[**Talk Summaries**](summaries): this page lists the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
+The [**Talk List**](list) page lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed.
 
-[**Talk List**](list): this page lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed.
-
-Katagiri Roshi gave many series of talks on topics in Buddhism. Some of these series are:
+Katagiri Roshi gave many series of talks on topics in Zen Buddhism. Some of these series are:
 
 - [***Blue Cliff Record***](blue-cliff-record) (1979-1989)
 - [***Diamond Sutra***](diamond-sutra) (1979-1980)
