@@ -15,7 +15,7 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [**Karma**](karma)
 - [**Lay Ordination Lectures**](lay-ordination)
 - [***Platform Sutra***](platform-sutra)
-- [***Shobogenzo Genjōkōan***](genjokoan)
+- [***Shobogenzo Genjokoan***](genjokoan)
 
 Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. 
 
