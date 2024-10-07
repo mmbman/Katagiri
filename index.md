@@ -12,10 +12,10 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi)
-- [***Genjōkōan***](genjokoan)
 - [**Karma**](karma)
 - [**Lay Ordination Lectures**](lay-ordination)
 - [***Platform Sutra***](platform-sutra)
+- [***Shobogenzo Genjōkōan***](genjokoan)
 
 Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. This list will be updated as talks are transcribed. 
 
