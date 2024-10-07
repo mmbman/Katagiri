@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 2"
 
 ### Summary
 
-Katagiri Roshi comments on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or “wisdom.” The discussion includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
+Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or “wisdom.” This includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
 
 ### Transcript
 
