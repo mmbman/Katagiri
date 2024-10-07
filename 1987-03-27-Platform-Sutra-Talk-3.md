@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 3"
 
 ### Summary 
 
-Katagiri Roshi continues commenting on Chapter 2 of the *Platform Sutra,* “Prajna.” He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* “Prajna.” He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 ### Transcript
 
