@@ -7,7 +7,7 @@ This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as 
 
 The [**Talk List**](list) page lists the talks that are present in the [online audio archive](https://www.mnzencenter.org/audio-archive-project.html), with links for the talks that have been transcribed.
 
-Katagiri Roshi gave many series of talks on topics in Zen Buddhism. Some of these series are:
+Some of the series of talks that Katagiri Roshi gave are: 
 
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
