@@ -17,7 +17,9 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [***Platform Sutra***](platform-sutra)
 - [***Shobogenzo Genjōkōan***](genjokoan)
 
-Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. This list will be updated as talks are transcribed. 
+Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. 
+
+These lists will be updated as talks are transcribed. 
 
 ## Latest Updates
 
