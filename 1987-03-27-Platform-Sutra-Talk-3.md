@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 3"
 
 ### Summary 
 
-Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* “Prajna.” He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 ### Transcript
 
@@ -67,43 +67,47 @@ So next,
 
 So the meaning of *prajna*: “Prajna in our language means wisdom.”
 
-“Everywhere and at all times, in thought after thought, ...” I think thought occurs in certain circumstances, times, place. So from this point, wherever you may be, whatever you may be, whatever you do, that is everywhere and at all times, under all circumstances. Not under particular circumstances, [but] under all circumstances wisdom remains undeluded, and practice wisdom constantly. This is prajna; prajna remains undeluded, undefiled. Very pure and clean. “And practice wisdom constantly,” because it is always within us. 
+“Everywhere and at all times, in thought after thought, ...” I think thought occurs in certain circumstances, times, places. So from this point, whatever you may be, whatever you do, that is “everywhere and at all times.” Under all circumstances, not under particular circumstances [but] under all circumstances, wisdom remains undeluded, and practice wisdom constantly. This is *prajna*; prajna remains undeluded. Undefiled; very pure and clean. “And practice wisdom [constantly],” because it is always within us.
 
-The wisdom is – I think you can know. You can know how wondrous the human body is. You cannot hate your human body. Regardless of whether you are weak or strong, you should appreciate the presence of your human body. Because the myriad cells, nerves, [are] functioning smoothly, beyond your speculation. Interconnected, interpenetrated, past, present, and future. And air, sky, stars, all the universe. This is your body. If you look at your body, you will really feel this. 
+If you look at your body, I think you can know [what wisdom is]. You can know how wondrous the human body is. You cannot hate your human body. Regardless of whether you are weak or strong, you should appreciate the presence of your human body, because the myriad cells, nerves, [are] functioning smoothly, beyond your speculation. Interconnected, interpenetrated: past, present, and future, and air, sky, stars, all the universe. This is your body. If you look at your body, you will really feel this. 
 
 That wondrous function of your body is called wisdom. Because it’s not a principle, it’s not a philosophical structure of your human body. No matter how long you explain your human body, it is not right. So practically, you have to take best care of human body. 
 
-So, that is practice wisdom constantly. So your body is always practicing wisdom. So that is prajna conduct: it means that is the activity of prajna, wisdom. 
+So, that is “practice wisdom constantly.” Your body is always practicing wisdom. That is prajna conduct: it means that is the activity of prajna, wisdom. 
 
 #### 18:50
 
 > “Prajna is cut off by a single deluded thought. 
 
-Because prajna is functioning constantly, beyond human speculation, before vibration of your consciousness. This is prajna. So prajna is cut off by a single deluded thought. So usual, common people don’t realize the functioning of the wisdom, because they depend on constantly the human world, fabricated by the vibration of human consciousness. That’s why here it says, “Prajna is cut off by a single deluded thought.”
+Because prajna is functioning constantly, beyond human speculation, before the vibration of your consciousness. This is prajna, so prajna is cut off by a single deluded thought. So usual, common people don’t realize the functioning of the wisdom, because they constantly depend on the human world fabricated by the vibration of human consciousness. That’s why here it says, “Prajna is cut off by a single deluded thought.”
 
 > “By one wise thought, Prajna is produced. 
 
 In other words, you can cultivate, nurture the wisdom. By one wise person. 
 
-Because in terms of threefold emptiness, I think the first one is *emptiness of form*. Prajna is considered in terms of emptiness of mark. At that time, prajna is characterized by vastness, no boundary. Boundlessness. So from this point, no frames. No frames each-other. So prajna doesn’t have any frames, partitions. So it’s vast. 
+In terms of threefold emptiness, the first one is *emptiness of form*. Prajna is considered in terms of emptiness of mark. At that time, prajna is characterized by vastness, no boundary, boundlessness. So from this point, [there are] no frames [of] each-other. Prajna doesn’t have any frames, partitions, so it’s vast. That’s why prajna remains undeluded “and practice wisdom constantly.” 
 
-That’s why prajna remains [un]deluded “and practice wisdom constantly.” And in terms of *emptiness of dharma*, prajna is based on emptiness. So from this point, in order to realize prajna, you have to practice prajna beyond prajna. We say “wisdom beyond wisdom” every morning, all the time. You cannot attach to the emptiness which you have realized. So you have to go beyond emptiness if you really have arrived. Because it is emptiness. 
+And in terms of *emptiness of dharma*, prajna is based on emptiness. So from this point, in order to realize prajna, you have to practice prajna beyond prajna. We say “wisdom beyond wisdom” every morning. All the time we say “wisdom beyond wisdom.” You cannot attach to the emptiness which you have realized. So you have to go beyond emptiness if you really have arrived, because it is emptiness. 
 
-That’s why the wise person can produce prajna: because he can have capacity enough to see minute vibration of human consciousness, by which prajna is cut off. 
+That’s why “the wise person can produce prajna”: because he can have capacity enough to see minute vibration of human consciousness by which prajna is cut off. 
 
 So that is [what it says here]. And next, 
 
 > “Worldly men, deluded and confused, do not see Prajna. They speak of it with their mouths, but their minds are always deluded.
 
-So they can talk. Well, we can talk prajna, we can talk compassion, we can talk Buddha’s teaching. But there are many people who don’t practice, but they think the words people talk about some aspect of Buddha’s teaching are also important. But are not perfect. So we should respect the talks in language, even though they don’t practice it. But it is not perfect. 
+So they can talk. Well, we can talk prajna, we can talk compassion, we can talk Buddha’s teaching, but there are many people who don’t practice. But I think the words people [say] about some aspect of Buddha’s teaching are also important, but are not perfect. So we should respect the [talking] in language, even though they don’t practice it. But it is not perfect. 
 
-So wise person respects language, words, even though people don’t practice it. So a wise person respects language and person. 
+So wise person respects language, words, even though people don’t practice it. A wise person respects both language and [the] person. 
+
+“But their minds are always deluded...”
 
 >  “They constantly say of themselves, ‘I cultivate Prajna!’ and though they continually speak of emptiness, they are unaware of true emptiness. Prajna, without form or mark, is just the wisdom mind. If thus explained, just this is Prajna wisdom.”
 
-Okay. So I think wisdom must be something we should practice. 
+Okay? 
 
-Do you have questions about the meaning of *prajna*?
+So I think wisdom must be something we should practice. 
+
+[Before we go to the] next page, do you have questions about the meaning of *prajna*?
 
 #### 26:18
 
@@ -113,11 +117,11 @@ Do you have questions about the meaning of *prajna*?
 
 **Same person:** And so in what sense is it cut off?
 
-**Katagiri Roshi:** Because it is with you, but it doesn’t work with your everyday life. It’s *with* you, but it doesn’t work; it doesn’t appear. Just like a diamond, [a] wild, natural diamond. 
+**Katagiri Roshi:** Because it is with you, but it doesn’t work with your everyday life. It’s *with* you, but it doesn’t work. It doesn’t appear. Just like a diamond, [a] wild, natural diamond. 
 
-The same applies to your everyday life. I think you have many, many things at your house: furniture, and closets, and toilet space, pictures on the wall. Many things. But I think they are functioning always. Otherwise, the picture on the wall doesn’t make sense, the space of the house doesn’t make sense. So you should understand everything in terms of the functioning of existence. 
+The same applies to your everyday life. I think you have many, many things at your house: furniture, and closets, and toilet space, pictures on the wall, many things. But I think they are functioning always. Otherwise, the picture on the wall doesn’t make sense, the space of the house doesn’t make sense. So you should understand everything in terms of the functioning of existence. But usually we understand everything in terms of concept. 
 
-But usually we understand everything in terms of concept. So that’s why Buddha’s teaching is called *interdependent co-origination*. If you miss this point, you don’t understand Buddha’s teaching. No. 
+So that’s why one of the Buddha’s teachings is called *interdependent co-origination*. If you miss this point, you don’t understand Buddha’s teaching. No. 
 
 #### 28:27
 
