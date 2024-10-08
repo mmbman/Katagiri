@@ -19,45 +19,53 @@ Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* �
 
 #### 0:00
 
-**Katagiri Roshi:** Page 94, from the bottom. Do you have some questions you want to discuss, from what we have studied so far? 
+**Katagiri Roshi:** [...] Do you have some questions you want to discuss, from what we have studied so far? 
 
-Last time we studied the meaning of ‘*Maha*’. So from page 91 to 93, *maha* is considered in terms of three kinds of emptiness: emptiness of mark, emptiness of dharma, emptiness of emptiness. 
+Last time we studied the meaning of ‘*Maha*’. So from page 91 to 93, *maha* is considered in terms of three kinds of emptiness: *emptiness of mark*, *emptiness of dharma*, *emptiness of emptiness*. 
 
-*Emptiness of mark*: in Sanskrit we say *lakshana shunyata*. *Lakshana* means expressing indirectly. [...] Emptiness of mark, or emptiness of appearance. Everything has it’s own characteristic: tape recorder has its own characteristic which is completely different from other marks. But, whatever kind of thing, the characteristics are based on emptiness. So we say *lakshana shunyata*: emptiness of mark. From this point, everything in this world of mark or appearance, there is no boundaries, completely vast; this is the meaning of the *maha*. 
+*Emptiness of mark*: In Sanskrit we say *lakshana shunyata*. *Lakshana* means expressing indirectly. [...] Emptiness of mark, or emptiness of appearance. 
 
-In terms of *emptiness of dharma*, *dharma shunyata*, everything exists within the emptiness. So from this point, there is nothing to attach. 
+Everything has it’s own characteristic: tape recorder has its own characteristic, which is completely different from other marks. But, whatever kind of thing [it is], the characteristics are based on emptiness. So we say *lakshana shunyata*: “emptiness of mark.” 
 
-This is the meaning of the *maha*. So no form, which means no boundary, boundlessness. No form of circle... In Zen, it always expressed the universe with a circle. But no circle, no form of circle. This is vast, or boundlessness. 
+From this point, everything in this world of mark or appearance, there are no boundaries. Completely vast; this is the meaning of *maha*. 
 
-And in terms of *[dharma] shunyata*, no attachment to emptiness. So you have to be free from emptiness, if you listen to the teaching of emptiness. Because emptiness is exactly emptiness. But if you understand emptiness, we are caught by the concept of emptiness. This is automatically we do. So, this is *dharma shunyata*; this is the meaning of the *maha* in terms of *shunyata shunyata*, emptiness of emptiness. 
+In terms of the *emptiness of dharma*, *dharma shunyata*, everything exists within the emptiness. So from this point, there is nothing to attach. 
 
-I think this is, how can I say: in this sutra I think emptiness of emptiness means self-nature contains the myriad dharmas. I think in the universe, in space, space has myriad, myriad dharmas. Simultaneously all sentient beings exist in peace and harmony. That is the meaning of emptiness, so you cannot attach to the ego, self-centeredness. Always *maha* means completely the vast space, myriad, myriad dharmas exchange their own positions with each-other very smoothly, becoming one. This is the meaning of the *maha*. So very subtle, wondrous function among all sentient beings: that is the meaning of the *maha*. 
+This is the meaning of the *maha*. So no form, which means no boundary, boundlessness. No form of circle. Zen always expresses the universe with a circle – but no circle, no form of circle. This is vast[ness], or boundlessness. 
 
-Then Prajna. [...]
+And in terms of *dharma shunyata*, no attachment to emptiness. So you have to be free from emptiness, if you listen to the teaching of emptiness. Because emptiness is exactly emptiness, but if you understand emptiness, we are caught by the *concept* of emptiness. This is automatically [what] we do. So, this is *dharma shunyata*; this is the meaning of the *maha* in terms of *shunyata shunyata*, emptiness of emptiness. 
+
+I think this is, how can I say it... in this sutra I think *emptiness of emptiness* means self-nature contains myriad dharmas. I think [...] in space, space has myriad, myriad dharmas: simultaneously all sentient beings exist in peace and harmony. That is the meaning of emptiness, so you cannot attach to the ego, self-centeredness. Always *maha* means completely the vast space [where] myriad, myriad dharmas exchange their own positions with each-other very smoothly, becoming one. [...] So very subtle, wondrous function among all sentient beings: that is the meaning of *maha*. 
+
+#### 7:16
+
+Then Prajna... Page 94: [...]
 
 > “Good Knowing Advisors, all Prajna wisdom is produced from one’s own nature; it does not enter from the outside. Using the intellect correctly is called the natural function of one’s true nature. One truth is all truth. The mind has the capacity for great things, and is not meant for practicing petty ways. Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of. That would be like a common person calling himself the king of a country, which cannot be. People like that are not my disciples.”
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
-This paragraph mentions the general meaning of *prajna*, wisdom. So the general meaning of wisdom characterized by two meanings: one is self-functioning of the true nature. Wisdom means the self-functioning of the true nature, the original ultimate nature of existence. So *prajna* is not human knowledge only, but prajna is knowledge open to all living beings, because wisdom is the self-functioning of the ultimate nature of existence. This is called wisdom, because it is a kind of principle. But not only the principle, but also it is functioning, helping all sentient beings. That’s why it is called sometimes *dharma*. That dharma is “that which supports or upholds, maintains, all living beings.” So, that is characteristic of ultimate nature of existence. 
+This paragraph [talks about] the general meaning of *prajna*, wisdom. 
 
-So that is simultaneously wisdom. The principle is simultaneously wisdom. Because it is that which we can realize. 
+The meaning of wisdom [is] characterized by two meanings. One is *self-functioning of the true nature*. So wisdom means the self-functioning of the true nature, the original ultimate nature of existence. So prajna is not only human knowledge but prajna is knowledge open to all living beings, because wisdom is the self-functioning of the ultimate nature of existence. This is called wisdom, because it is a kind of principle, but [it is] not only the principle but also it is functioning, helping all sentient beings. That’s why it is called sometimes *dharma*. That dharma is that which supports or upholds [or] maintains all living beings. 
 
-So the truth is the truth as a principle, but also as wisdom. Because [it] helps all living beings.
+So, that is characteristic of [the] ultimate nature of existence.  So [...] the principle is simultaneously wisdom, because it is that which we can realize. So the truth is the truth as a principle, but also as wisdom, because [it] helps all living beings.
 
-So that is one. The other one is: one truth is all truth. If you realize, if you learn the self, [it] is to learn the world. If you learn the sublimity of human life, it is simultaneously to learn the sublimity of the trees, and the birds, all living beings. So one truth is all truth.  Because it is universal. Wisdom is characterizes by *maha*: vastness, boundlessness. 
+So that is one. 
 
-So from this point, the prajna doesn’t mean to understand it intellectually or philosophically, it is something you have to practice. So that’s why it says here, “Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of.” We have to put it into practice, every day. So if you don’t do it, that will be “like a common person calling himself the king of a country, which cannot be.” 
+The other one is: *one truth is all truth*. If [...] you learn the self, [it] is to learn the world. If you learn the sublimity of human life, it is simultaneously to learn the sublimity of the trees, and the birds, all living beings. The one truth is *all* truth.  Because it is universal; wisdom is characterized by *maha*: vastness, boundlessness. 
 
-“People like that are not my disciples.” That “not my disciples” [is not] that [they] are not human beings – they are human beings, but they don’t behave as human beings. That [is the meaning of] “people like that are not by disciples.”
+So from this point, *prajna* doesn’t mean to understand [something] intellectually or philosophically, it is something you have to practice. So that’s why it says here, “Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of.” We have to put it into practice, every day. If you don’t do it, that will be “like a common person calling himself the king of a country, which cannot be.” 
+
+“People like that are not my disciples.” That “not my disciples” [is not that they] are not human beings – they are human beings, but they don’t behave as human beings. That [is the meaning of] “people like that are not by disciples.”
+
+#### 14:29
 
 So next,
 
-#### 14:28
-
 > “Good Knowing Advisors, what is meant by ‘Prajna?’ Prajna in our language means wisdom. Everywhere and at all times, in thought after thought, remain undeluded and practice wisdom constantly; that is Prajna conduct.
 
-So the meaning of the *prajna*. [...]
+So the meaning of *prajna*: “Prajna in our language means wisdom.”
 
 “Everywhere and at all times, in thought after thought, ...” I think thought occurs in certain circumstances, times, place. So from this point, wherever you may be, whatever you may be, whatever you do, that is everywhere and at all times, under all circumstances. Not under particular circumstances, [but] under all circumstances wisdom remains undeluded, and practice wisdom constantly. This is prajna; prajna remains undeluded, undefiled. Very pure and clean. “And practice wisdom constantly,” because it is always within us. 
 
