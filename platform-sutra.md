@@ -2,7 +2,7 @@
 title: "Platform Sutra"
 ---
 
-Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March and April of 1987.
+Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March and April of 1987. The talks focus on Chapter 1, “Action and Intention,” and Chapter 2, “Prajna.”
 
 ---
 
