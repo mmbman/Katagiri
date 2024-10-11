@@ -3,7 +3,7 @@ title: "Karma in Buddhism"
 ---
 ## May 23, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| Series: [Karma](karma)
+#### [List](list#1987) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| Series: [Karma](karma)
 
 ### Summary
 
@@ -288,4 +288,4 @@ That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Bre
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| Series: [Karma](karma)
+#### [List](list#1987) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| Series: [Karma](karma)
