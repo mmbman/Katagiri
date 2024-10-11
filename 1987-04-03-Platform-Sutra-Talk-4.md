@@ -183,7 +183,7 @@ In other words, two points: You have to pay attention to Buddhist teaching. Seco
 
 So we have to be free from those forms, and then you should create life. 
 
-So, the purpose of Buddhist practice, finally, is just [maintenance] of going beyond. *Going beyond* means hook the trellis and then grow. You cannot depend on the trellis. The trellis is important, but you must be free from the trellis, otherwise you cannot grow. 
+So, the purpose of Buddhist practice, finally, is just to maintain [...] going beyond. *Going beyond* means hook the trellis and then grow. You cannot depend on the trellis. The trellis is important, but you must be free from the trellis, otherwise you cannot grow. 
 
 So then, what do [I] mean, *to grow*? That is *hook the trellis and be free from*. Then, you can have a creative life. This is a Buddha’s teaching. 
 
