@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 4"
 
 ### Summary
 
-Katagiri Roshi continues to comment on Chapter 2 of the *Platform Sutra*, further discussing whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually practice. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis: the trellis is important, but we must be free from the trellis. Liberation must be liberated from liberation. 
+Katagiri Roshi continues to comment on Chapter 2 of the *Platform Sutra*, further discussing whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually practice. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis: the trellis is important, but we must be free from the trellis. 
 
 ### Transcript
 
