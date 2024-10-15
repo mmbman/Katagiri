@@ -19,93 +19,89 @@ title: "Platform Sutra – Talk 5"
 
 Page 101: 
 
-> “Good Knowing Advisors, my Dharma-door produces 84,000 wisdoms from the one Prajna. Why? Because worldly people have 84,000 kinds of defilement...
+> “Good Knowing Advisors, my Dharma-door produces 84,000 wisdoms from the one Prajna. Why? Because worldly people have 84,000 kinds of defilement.
 > 
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
-“The dharma door produces 84,000 wisdoms from the one Prajna.” [...] *Dharma-door* is the truth. [The truth,] the universe, produces 84,000 wisdoms from the one *prajna*, [the] one perfect wisdom. So *one perfect wisdom* is [that] the true wisdom is one truth. 
+“The dharma door produces 84,000 wisdoms from the one Prajna.” [...] *Dharma-door* is the truth, the universe, [which] produces 84,000 wisdoms from the one *prajna*, [the] one perfect wisdom. So *one perfect wisdom* is [that] the true wisdom is one truth. So, one truth. 
 
-So, one truth. 84,000 wisdoms. That is not only 84,000, [but] myriad, myriad wisdoms. Wisdoms of trees, plants, walls, fences... myriad, myriad beings. As long there are myriad, myriad beings, there are myriad wisdoms. And then those wisdoms are one truth, one wisdom. That’s [what it says here]. 
+84,000 wisdoms: that is not only 84,000, [but] myriad, myriad wisdoms. Wisdoms of trees, plants, walls, fences... myriad, myriad beings. As long there are myriad, myriad beings, there are myriad wisdoms. And then those wisdoms are one truth, one wisdom. That’s [what it says here]. 
 
-[...]
+So, “My dharma door produces 84,000 wisdoms.” They [are] all truth, because there is no crowd in the vastness of sky when wisdom manifests itself, just like the three poisons transform into three [learnings]. 
 
-The all truth because there is no crowd in the vastness of sky when wisdom manifest itself, just like the three poisons transform into three learnings. I think previous sentence it says... do you remember?
+I think [a] previous sentence says... do you remember?
 
-*[Someone suggests page 100.]*
+*[Someone asks if it’s page 100.]*
 
 Page 100, yes. It says, “With such cultivation as that you will certainly realize the Buddha Way, transforming the three poisons into morality, concentration, and wisdom.”
 
 You know the three poisons? The three poisons are greed, anger, ignorance. Those three poisons – greed, anger, ignorance – transform into *sila*, the precepts, *dhyāna*, meditation or concentration or tranquility, [and] ignorance transforms into wisdom. 
 
-Usually we have greed, desire, but [with that] greed, greed is used for individual satisfaction. But if you use greed for all living beings, I think you cannot take care of your life individually. By practice of at least the six *paramitas*... you know, giving, discipline, patience, effort, wisdom, and *dhyāna*. At least we have to be patient and [have] effort. So you cannot take care of your life just by your will or by your by the satisfaction of your desires. You have to really practice patience and compassion, and [be] kindly to yourself and to others.
-
-So very naturally, you have to have precepts, you know, you have to take best care of your life physically and mentally. You cannot hurt your [body] recklessly, you have to take best to care of your life. So very naturally greed transforms into *sila*, precept. Is that clear?
+Greed: usually we have greed, desire, but [with that] greed, greed is used for individual satisfaction. But if you use greed for all living beings, I think you cannot take care of your life individually. By practice of at least the six *paramitas* – you know, giving, discipline, patience, effort, wisdom, and *dhyāna* – at least we have to be patient and [have] effort. So you cannot take care of your life just by your will or by the satisfaction of your desires. You have to really practice patience and compassion, and [be] kindly to yourself and to others. So very naturally, you have to have [the] Precepts, you have to take best care of your life physically and mentally. You cannot hurt your bodies recklessly, you have to take best to care of your life. So very naturally greed transforms into *sila*, precepts. Is that clear?
 
 We call [that] *great greed*, *great desire*. 
 
-And anger: anger is also used for the [satisfaction] of individual desire. If your desire is not [satisfied], very naturally you are angry with somebody as your object, and your circumstances, very naturally. But you have to understand the object based on the profundity of being, how it [is] structured, [which is] called *impermanent*, *suffering*, *dissatisfaction* – *dukkha* – according to Buddha's teaching. We have to understand very deeply.
+And anger: anger is also used for the satisfaction of individual desire. If your desire is not [satisfied], very naturally you are angry with somebody as your object, and your circumstances, very naturally. But you have to understand the object based on the profundity of being, how it [is] structured, [which is] called *impermanent*, *suffering*, *dissatisfaction* – *dukkha* – according to Buddha's teaching. We have to understand very deeply. And also, all things are very changeable and impermanent – very naturally, you cannot always be angry with your life [and] others’ life. So very naturally you become sympathetic and you become compassionate to your life physically [and] mentally, and [also] your object, because your object, your partners, your friends are exactly same as your physical situation and mental situation: always changing, impermanent. So very naturally you can be kindly, you can be compassionate to all beings.
 
-And also, all things are very changeable and impermanent – very naturally, you cannot always be angry with your life [and] others’ life. So very naturally you become sympathetic and you become compassionate to your life physically [and] mentally, and [also] your object, because your object, your partners, your friends are exactly same as your physical situation and mental situation: always changing, impermanent. So very naturally you can be kindly, you can be compassionate to all beings.
+So very naturally anger transforms into *dhyāna* – meditation and tranquility.
 
-So very naturally anger transforms into *dhyāna* – meditation – and tranquility.
+Well, I think that's why whoever you are, even [if] people don't know how to sit down in meditation... when  people come to the end of [their] rope, or [are] suffering so much, fighting people, or [they are so] tired, very naturally people sit down. Well, that's the final way to go. You cannot run wildly around. If you suffer so much, if you come to the end of [your] rope, very naturally people sit down, and look at [themselves]. And that is a very natural situation. But if if you touch something deeply, very naturally you become calm. So that's why anger transforms into dhyāna. 
 
-Well, I think that's why, whoever you are, even [if] people don't know how to sit down in meditation, when  people come to the end of [their] rope, or [are] suffering so much, fighting people, or [are so] tired, you know, very naturally people sit down. Well, that's the final way to go. You cannot run wildly around. If you suffer so much, if you come to the end of [your] rope, very naturally people sit down, and look at [themselves]. And that is a very natural situation. But if if you touch something deeply, very naturally you become calm. So that's why anger transforms into dhyāna. 
+And ignorance transforms into wisdom. [...] I have [said] according to *Awakening of Faith*, [the experience of ignorance] is the movement of consciousness. People don't realize exactly the movement of consciousness, how it interacts and also how [it] pleases human life, because people always believe that it's natural. That's why, it helps human life, but on the other hand it causes human life to go endlessly with dissatisfaction of human desires. And [it’s] pretty dualistic, and it causes human life to be cold and not exactly compassionate.
 
-And ignorance transforms into wisdom. [...] I have [said] according to *Awakening of Faith*, [the experience of ignorance] is the movement of consciousness. So people don't realize exactly the movement of consciousness, how it interacts and also how [it] pleases human life, because people always believe that it's natural, that's why it helps human life. But on the other hand, it causes human life to go endlessly with dissatisfaction of human desires. And [it’s] pretty dualistic, and it causes human life to be cold and not exactly compassionate.
+So when you realize how minutely consciousness moves, vibrating – very quickly, when you see your object or when you see the six objects, very naturally consciousness moves – at that time you cannot behave recklessly. So very naturally, if you realize the very minute vibration of consciousness, that realization becomes wisdom. Because without wisdom it’s impossible for us to realize [that] minute vibration of consciousness, how deeply consciousness effects human life. 
 
-So when you realize how minutely consciousness moves, vibrating – very quickly, when you see your object or when you see the six objects, very naturally consciousness moves – at that time you cannot behave recklessly. So very naturally, if you realize the very minute vibration of consciousness, that realization becomes wisdom. Because without wisdom, it is impossible for us to realize [that] minute vibration of consciousness, how deeply consciousness effects human life. So that's why ignorance turns into wisdom.
+So that's why ignorance turns into wisdom. Is that clear?
 
 [...] That's why through the everyday life – when you see winter, when you see the trees, when you see the definite changes of the four seasons – very naturally you can see the manifestation of the three poisons transforming into the three [learnings], which is called wisdom.
 
 So, that's why it says here, “My Dharma-door produces 84,000 wisdoms from one Prajna.” So truth and phenomena become one. That is *total manifestation of being*.
 
-#### 14:52
+“Why? Because worldly people have 84,000 kinds of defilement.” So [the] phenomenal word, [or words], are nothing but [the] manifestation of wisdom, 84,000 wisdoms. 
 
-> Why? Because worldly people have 84,000 kinds of defilement.
+#### 15:12
 
-So [the] phenomenal word, [or] words, are nothing but [the] manifestation of wisdom, 84,000 wisdoms. In the absence of defilement, wisdom is always present.
+> “In the absence of defilement, wisdom is always present...
 
-*In the absence of defilement*: the absence of defilement is simultaneously the presence of wisdom. [The] presence of wisdom doesn't manifest after you experience the absence of defilement. So practice the presence of wisdom where you accept all such beings as the manifestation of wisdom. Deeply, very naturally, that is absence of defilement. You can be free from defilement, even though your consciousness is not conscious of it.
+*In the absence of defilement*: the absence of defilement is simultaneously the presence of wisdom. [The] presence of wisdom doesn't manifest *after* you experience the absence of defilement. So the presence of wisdom, where you accept all sentient beings as the manifestation of wisdom: deeply, very naturally, that is absence of defilement. You can be free from defilement, even though your consciousness is not conscious of it.
 
-So that's why [it says here], 
+So that's why [it says here], “In the absence of defilement, wisdom is always present...” 
 
-> In the absence of defilement, wisdom is always present, since it is not separate from the self-nature.
+> “... because it is not separate from the self-nature.
 
 So one truth manifests itself as 84,000 defilements. Very naturally, it is always one. They work as one. 
 
 > “Understand that this dharma is just no-thought, no-remembrance, non-attachment, and the non-production of falsehood and error. 
 
-Understanding that this dharma is just... I think the original text say, “those who awaken this dharma are of no thought, no remembrance, [...] non-attachment and non-production of...” How can I say it... *cheat or swindle*. Here it says *falsehood and error*. 
+Understanding that this dharma is just... I think the original text says, “those who awaken this dharma are of no thought, no remembrance, [...] non-attachment and non-production of...” How can I say it... *cheat or swindle*. Here it says *falsehood and error*. 
 
 Cheat or swindle. So those who awaken this dharma... This dharma is oneness of the phenomenal world and the truth, okay? That is this dharma. If you awaken this dharma, there is no thought and no remembrance, no attachment, and non-production of cheat or swindle. 
 
-Thought is constantly thinking, arising toward objects – that is thought, it says here. Thinking has no fixed form or mark of its own. That's why *no thought*: no form, no mark of thinking, no mark of thought.
+Thought is constantly thinking, arising toward objects – that is thought, it says here. Thinking has no fixed form or mark of its own. That's why *no thought*: no form, no mark of thinking, no mark of thought. That is called [...] *form is emptiness*. 
 
-That is called... what would you say... *form is emptiness*. 
+“No-remembrance”: Here it says *remembrance* is [...] present based on the memories [of] thousands [of] millions [of] years ago. That is [to pry] open the present of your remembrance. If you remember something [...] your consciousness always works connected with [myriad, myriad] memories, thousands of millions of years ago. So that's why your consciousness is very complicated, very complicated. 
 
-Here it says *no-remembrance* is the present based on the memories [of] thousands [of] millions [of] years ago. That is [to pry] open the present of your remembrance, if you remember something. So your consciousness always works connected with [myriad, myriad] memories, thousands of millions of years ago. So that's why your consciousness is very complicated, very complicated. Your  remembrance or memories and not so simple.
+So your  remembrance or memories and not so simple. That's why the more you practice meditation, the more practice becomes difficult for you. Because intellectual understanding can be solved a little easier, but [the] emotional aspect of human life is very difficult to deal [with]. It's very difficult for us to “clear up” the emotional aspect of human life because... It's not so simple to see your life based on, for instance, what is called enlightenment. Even though you attain enlightenment, still there are lots of things you have to deal with. So you cannot be arrogant, you cannot express yourself arrogantly. The more you practice deeply, the more your life becomes very gentle, compassionate and humble. 
 
-That's why the more you practice meditation, the more practice becomes difficult for you. Because intellectual understanding can be solved a little easier, but [the] emotional aspect of human life is very difficult to deal [with]. It's very difficult for us to “clear up” the emotional aspect of human life because... It's not so simple to see your life based on, for instance, what is called enlightenment. Even though you attain enlightenment, still there are lots of things you have to deal with. So you cannot be arrogant. You cannot express yourself arrogantly. The more you practice deeply, the more your life becomes very gentle, compassionate and humble. 
+But people don't notice this one. That's why if you practice deeply, people [are] mad at you. *[He chuckles.]* Because people don't realize it. [They] don't realize their own behavior – in many ways, with mouth, with body, with mind – very arrogantly. That is egoistic.
 
-But people don't notice this. That's why if you practice deeply, people [are] mad at you. *[He chuckles.]* Because people don't realize it. [They] don't realize their own behavior, in many ways, with mouth, with body, with mind, very arrogantly. That is egoistic.
+That is the implication of *not-realization of ignorance*. How minutely your consciousness vibrates, dualistically. If you see your object dualistically, very naturally self comes first, so you pretty much show yourself [very] proudly. That is arrogant. So the more you practice the buddha way, the more your behavior becomes very kind, compassionate, humble, because your consciousness is very complicated.
 
-That is the implication of *not-realization of ignorance*. How minutely your consciousness vibrates, dualistically. If you see your object dualistically, very naturally self comes first, so you pretty much show yourself proudly so much. So that is arrogant. So the more you practice the buddha way, the more your behavior becomes very kind, compassionate, humble, because your consciousness is very complicated.
+That is remembrance, but remembrance has no particular fixed form of its own. So, *no-form of remembrance*: that is called *dharma is emptiness*. 
 
-That is remembrance, but remembrance has no particular fixed form of his own. So, *no-form of remembrance*: that is called *dharma is emptiness*. 
+So [there are] three kinds of emptiness, do you remember? *Form is emptiness*, and *dharma is emptiness*, and one more emptiness is *emptiness is emptiness*. 
 
-So [there were] three kinds of emptiness, do you remember? *Form is emptiness*, and *dharma is emptiness*, and one more emptiness is *emptiness is emptiness*. 
+So no attachment [...] Self-attachment means that the self – cognized by [the] senses of seeing, hearing and perceptions – is considered as a crucial being. Is that clear? The attachment means that [the] self [is] cognized. For instance if we see the microphone or tape recorder, very naturally there is self coming first. So self [...] is produced by cognition of the object through the six senses.
 
-So no attachment [...] Self-attachment means that the self – cognized by [the] senses of seeing, hearing and perceptions – is considered as a crucial being. [...] The attachment means that [the] self [is] cognized. For instance if we see the microphone or tape recorder, very naturally there is self coming first. So self exists, self is produced by cognition of the object through the six senses.
+Always the self is produced in our life. And also, the self is accepted as a crucial being, consciously or unconsciously. That's why you always create greed, anger, hatred, arrogance, or sadness – whatever kind of emotion coming up, that is the implication of self-protection, or accepting yourself as a very crucial being. You cannot open yourself, so very naturally you confine yourself into your own shell. Or, you show yourself arrogantly. 
 
-So, always the self is produced in our life. And also, the self is accepted as a crucial being, consciously or unconsciously. That's why you always create greed, anger, hatred, arrogance, or sadness – whatever kind of emotion coming up, that is the implication of self-protection, or accepting yourself as a very crucial being. You cannot open yourself, so very naturally, you confine yourself into your own shell. Or, you are you show yourself arrogantly. So that is attachment.
+That is attachment. Attachment is conscious attachment or unconscious attachment. 
 
-Attachment is conscious attachment or unconscious attachment. But attachment has no fixed form of its own, because we call no form of attachment *emptiness is emptiness*. You attach [to] the self, based on relation between the subject and object. But subject and object both are impermanent, both are based on emptiness, no form. So emptiness is form, and also dharma is emptiness. So everything is emptiness. So the attachment produced by the relation between subject and object is also emptiness, so that's why emptiness is emptiness.
+But attachment has no fixed form of its own, because we call no form of attachment *emptiness is emptiness*. You attach [to] the self, based on relation between the subject and object. But subject and object both are impermanent, both are based on emptiness, no form. So emptiness is form, and also dharma is emptiness. So everything is emptiness. So the attachment produced by the relation between subject and object is also emptiness, so that's why emptiness is emptiness.
 
 That is *three-fold emptiness*.
 
-So the finally, [it says] *the non-production of cheat or swindle*, which means achieve the completion of three-fold emptiness.
-
-Three-fold emptiness: *no thought*, *no remembrance*, *no attachment*. That is the three. *Form is emptiness*, *dharma is emptiness*, *emptiness is emptiness*. Because if you say *emptiness*, you attach to emptiness, so finally, emptiness is emptiness. Constantly you have to say emptiness is emptiness. So what you have to do is practice, constantly practice *emptiness is emptiness*. That is, achieve continuity of practicing, we say, *emancipation*. Don't stay in one stage, one position of human life.
+So the finally, [it says] *the non-production of cheat or swindle*, which means *achieve the completion of three-fold emptiness*. Three-fold emptiness: *no thought*, *no remembrance*, *no attachment*. That is the three. *Form is emptiness*, *dharma is emptiness*, *emptiness is emptiness*. Because if you say *emptiness*, you attach to emptiness, so finally, emptiness is emptiness. Constantly you have to say emptiness is emptiness. So what you have to do is practice, constantly practice *emptiness is emptiness*. That is, achieve continuity of practicing, we say, *emancipation*. Don't stay in one stage, one position of human life.
 
 That is pretty difficult for us. But on the other hand, human life is exactly going like this. But we don't actually practice that way, we don't take care of human life exactly like this. That's why [there is] always some big gap [...], always there is are lots of problems by creation of [a] gap between.
 
