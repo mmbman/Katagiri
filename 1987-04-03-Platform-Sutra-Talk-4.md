@@ -195,15 +195,15 @@ And finally, Dogen Zenji [says], “Individual views of being are individual obj
 
 This is a really important point. Otherwise, you are always confused, and you doubt Buddha’s teaching. But if you understand these two points: well, whatever people say, Buddhism is *where*, you know? It’s alright, you can accept it, and you can take care of human life. Even [if] in the theological point of view Buddha’s teaching is lower than Christianity: it’s alright. But anyway, you should pay attention to these two points. *Then* you can really appreciate Buddha’s teaching. 
 
-Even among Buddhism there are lots of schools. *Soko Gakai* in Minneapolis, [for example]. Minneapolis *Soko Gakai* people always put you down: “Zen is stupid,” you know? Well, how can you do this, how can you take care of your human life right in the middle of that confusion? You should know [these] most important points of Buddhist practice; otherwise, you’re always confused. Even within your personal life, you don’t know how to take care of human life. 
+Even among Buddhism there are lots of schools. *Soko Gakai* in Minneapolis, [for example]. Minneapolis *Soko Gakai* people always put you down: “Zen is stupid,” you know? Well, [...] how can you take care of your human life right in the middle of that confusion? You should know [these] most important points of Buddhist practice; otherwise, you’re always confused. Even within your personal life, you don’t know how to take care of human life. 
 
 So I think this sutra [says this]. Even if you don’t believe Dogen’s teaching, I think this sutra [talks] about this point. That point [is], liberation must be liberated from liberation. 
 
-What do [I] mean? If you practice, you can get the result, naturally: good or bad, right and wrong. By the experience of [stumbling] again and again, then you can realize... well, liberation. But *that* liberation is not real liberation, [the] real purpose. Liberation must be liberated. That means just achieving continuity of going beyond. Because you have to build up peaceful world where? Right here. [The] saha world.
+What do [I] mean? If you practice, you can get the result, naturally: good or bad, right [or] wrong. By the experience of [stumbling] again and again, then you can realize... well, liberation. But *that* liberation is not real liberation, [the] real purpose. Liberation must be liberated. That means just achieving continuity of going beyond. Because you have to build up [a] peaceful world where? Right here. [The] saha world.
 
 It’s not a discussion, anyway. You should do it.
 
-But if I [say], “You should do it. [It’s] not discussion. Keep your mouth shut,” then you are suffocated to death. That’s why let’s understand Buddha’s teaching. So we should open our mouths. But if your open your mouth, very naturally you are really crazy about the teaching, and [also you have] complaints. That makes you [suffer more]. So you should know the main point of the buddhas’ practice.
+But if I [say], “You should do it. [It’s] not discussion. Keep your mouth shut,” then you are suffocated to death. That’s why let’s understand Buddha’s teaching. So we should open our mouths. But if you open your mouth, very naturally you are really crazy about the teaching, and [also you have] complaints. That makes you [suffer more]. So you should know the main point of the buddhas’ practice.
 
 #### 1:08:20 end of recording
 
