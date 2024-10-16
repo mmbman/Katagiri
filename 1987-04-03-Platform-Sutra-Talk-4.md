@@ -3,11 +3,11 @@ title: "Platform Sutra – Talk 4"
 ---
 ## April 3, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1987) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1979-06-13-Fukanzazengi-Talk-5) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Summary
 
-Katagiri Roshi continues to comment on Chapter 2 of the *Platform Sutra*, further discussing whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually practice. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
+Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually subscribe to. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
 
 ### Transcript
 
@@ -207,4 +207,4 @@ But if I [say], “You should do it. [It’s] not discussion. Keep your mouth sh
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-03-27-Platform-Sutra-Talk-3) \| [Next](1979-06-13-Fukanzazengi-Talk-5) | Series: [*Platform Sutra*](platform-sutra)

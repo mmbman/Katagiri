@@ -30,10 +30,16 @@ Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* fu
 ##### [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
 ###### April 3, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi continues to comment on Chapter 2 of the *Platform Sutra*, further discussing whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually practice. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
+Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually subscribe to. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
 
 ---
 
-- *Platform Sutra* – Talk 5
+##### [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
+###### April 10, 1987 Dharma Talk by Dainin Katagiri Roshi
+
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of emptiness* by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+
+---
+
 - *Platform Sutra* – Talk 6
 - *Platform Sutra* – Talk 7

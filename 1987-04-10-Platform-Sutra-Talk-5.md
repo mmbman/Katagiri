@@ -5,6 +5,10 @@ title: "Platform Sutra – Talk 5"
 
 #### [List](list#1987) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
 
+### Summary
+
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of emptiness* by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
@@ -209,9 +213,7 @@ So that's why [it says], “Why is that? Take for example the rain which the hea
 
 > “Cities and villages drift about in the flood like thorns and leaves. 
 
-So very naturally, we understand the rains as [troubles], separate [from] human life, the human [world]. [We understand] in terms of particular ideas. So very naturally, rains create [floods], [all the trees] drift [about]... [...] It creates [something miserable]. 
-
-So here it says, “cities and village drift about in the flood, like thorns and leaves...”
+Very naturally, we understand the rains as [troubles], separate [from] human life, the human [world]. [We understand] in terms of particular ideas. So very naturally, rains create [floods], [all the trees] drift [about]... [...] It creates [something miserable]. So here it says, “cities and village drift about in the flood, like thorns and leaves...”
 
 > “But if the rain falls on the great sea, its waters neither increase nor decrease.
 
