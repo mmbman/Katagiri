@@ -21,7 +21,6 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 ### 1987
 
-- [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
 - [*Platform Sutra* – Talk 6](1987-04-17-Platform-Sutra-Talk-6)
 - [*Platform Sutra* – Talk 7](1987-04-24-Platform-Sutra-Talk-7)
 
