@@ -169,8 +169,6 @@ So the question is, you should be *liberated*, okay? Because *liberated* means p
 
 So what’s the main point of practice? The main point of practice is like the sutra mentions, achieving continuity of going beyond. Like the *Prajnaparamita* [*Sutra*]: gone. “*Gate gate, paragate, parasamgate, bodhi svaha.*” So achieving continuity of going beyond *is* [the true,] unique place you can depend on. It is what? It is just practice, every day. 
 
-#### 58:58
-
 So, there are two points you have to pay attention to about Buddhist practice, okay? 
 
 First one, you must pay attention to the Buddha’s teachings, doctrines expressed in words, and the development of the Buddhist thought. That is a teaching: *shastras*, *sutras*, you should pay attention to this, the development of Buddhist thought in Buddhist history, after century after century. Alright?
@@ -178,8 +176,6 @@ First one, you must pay attention to the Buddha’s teachings, doctrines express
 The second: at the same time, you have to pay attention to one’s deep strength, [by] which we should not only go beyond those forms... *Forms* means the systems of Buddhist thought and doctrines, et cetera. Buddhist teaching, that is the form. So, simultaneously we must pay attention to one’s deep strength, powers, [by] which we should not only go beyond those forms, but also the transcendence of those forms [is] able to be expressible and actualize-able as creative. 
 
 In other words, two points: You have to pay attention to Buddhist teaching. Second, still the purpose of Buddhist practice is to produce *creative life*. Creative. Creative life is, you must be free from the forms, but you should depend on the forms, so-called teachings. [...] You should depend on the development of Buddhist thought in Buddhist history, [like hooking] a trellis, like morning flowers, alright? And then the point is [that] you should pay attention to the reality as it is, where you live: what is human life? So, very naturally the vivid aliveness of your life is not in the *trellis*, not in the *forms* of the teachings, but the place where you are free from those forms. This is the reality as it is. We call [this] *shohō-jissō*, as in *suchness* or *thusness*, we say. 
-
-(*Transcriber’s Note:* There is a chapter in *Shobogenzo* titled “Shohō-jissō.”)
 
 So we have to be free from those forms, and then you should create life. 
 
