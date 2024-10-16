@@ -101,11 +101,13 @@ But attachment has no fixed form of its own, because we call no form of attachme
 
 That is *three-fold emptiness*.
 
-So the finally, [it says] *the non-production of cheat or swindle*, which means *achieve the completion of three-fold emptiness*. Three-fold emptiness: *no thought*, *no remembrance*, *no attachment*. That is the three. *Form is emptiness*, *dharma is emptiness*, *emptiness is emptiness*. Because if you say *emptiness*, you attach to emptiness, so finally, emptiness is emptiness. Constantly you have to say emptiness is emptiness. So what you have to do is practice, constantly practice *emptiness is emptiness*. That is, achieve continuity of practicing, we say, *emancipation*. Don't stay in one stage, one position of human life.
+So the finally, [it says] *the non-production of cheat or swindle*, which means *achieve the completion of three-fold emptiness*. Three-fold emptiness: *no thought*, *no remembrance*, *no attachment*. That is the three. *Form is emptiness*, *dharma is emptiness*, *emptiness is emptiness*. Because if you say *emptiness*, you attach to emptiness, so finally, [we say] emptiness is emptiness. Constantly you have to say “emptiness is emptiness,” “emptiness is emptiness.” 
 
-That is pretty difficult for us. But on the other hand, human life is exactly going like this. But we don't actually practice that way, we don't take care of human life exactly like this. That's why [there is] always some big gap [...], always there is are lots of problems by creation of [a] gap between.
+So what you have to do is constant practice of *emptiness is emptiness*. That is, achieve continuity of practicing *emancipation*, we say. Don't stay in one stage, one position of human life.
 
-So, very naturally, achieving the completion of the *three-fold emptiness* is simultaneously *non-production of cheat or swindle*. So how can you be free from cheat or swindle, or thought, remembrance, or attachment, et cetera? Very naturally you have to see deeply into the state of human existence by practice. 
+That is pretty difficult for us. On the other hand, human life is exactly going like this. But we don't actually practice that way, we don't take care of human life exactly like this, that's why [there is] always some big gap [...], always there is are lots of problems by creation of [a] gap between.
+
+So, very naturally, achieving the completion of the *three-fold emptiness* is simultaneously *non-production of cheat or swindle*. So how can you be free from cheat or swindle, or thought, or remembrance, or attachment, et cetera? Very naturally you have to see deeply into the state of human existence, by practice. 
 
 #### 33:15
 
@@ -115,67 +117,73 @@ Which means use your own nature of the truth.
 
 *Truth* means a true quantity of existence, or in Buddhism we say true-*suchness* or *thusness*. We call *shinnyo* “true-suchness,” that's why here [it is translated as] *true-suchness*.
 
-So “use your own nature of the truth...” 
+So, use your own nature of the truth...
 
 > ... and, by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them. That is to see one’s own nature and realize the Buddha Way.
 
-[...] So that means you have to take care of your object in your everyday life with compassion and with wisdom. Not only the human beings, but also inanimate beings. I always [say], even a sheet of toilet paper. And your boots, your clothes, the water and the vegetables and the pan – whatever they are, we have to take care of them with compassion and wisdom. That is called “use your own nature of the truth.” Because phenomenon and the truth are one. 
+[...] So that means you have to take care of your object in your everyday life with compassion and with wisdom. Not only the human beings, but also inanimate beings. I always [say], even a sheet of toilet paper. And your boots, your clothes, the water and the vegetables and the pan – whatever they are, we have to take care of them with compassion and wisdom. That is called “use your own nature of the truth.” Because phenomenon and the truth are one. That's why Dogen Zenji [talks about] how to practice in the monastery. [He talks about this] in the the text of the *Eihei Shingi*, “Regulation of the Monastery.”
 
-That's why Dogen Zenji [talks about] how to practice in the monastery. [He talks about this] in the the text of the *Eihei Shingi*, “Regulation of the Monastery.”
+“Use your own true-suchness nature, and by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them.” [...] We chant the *Prajnaparamita* every day, and in the first paragraph, according to the translation of *The Heart Sutra* by Doctor Conze, he [says], 
 
-“Use your own true-suchness nature, and by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them.” [...] We chant [the *Prajnaparamita Sutra*] every day, and in the first paragraph, according to translation of *Heart Sutra* by Doctor Conze, he [says], “Avalokitesvara, Holy Lord and Bodhisattva, was moving in the deep course of the wisdom which has gone beyond. He looked down from on high. He beheld but five *heaps*, and he saw that in their own being they were emptiness.”
+>Avalokitesvara, Holy Lord and Bodhisattva, was moving in the deep course of the Wisdom which has gone beyond. He looked down from on high, He beheld but five *heaps*, and he saw that in their own-being they were empty.
+>
+> (From *Buddhist Wisdom: The Diamond Sutra and The Heart Sutra* by Edward Conze, p. 82.)
 
-“Moving in the deep course of the wisdom”: This wisdom means wisdom which has gone beyond. So wisdom is that which has gone beyond. Because emptiness is emptiness, everything is emptiness. Then next what you have to do is practice of the emptiness which is emptiness, and then constantly we have to achieve continuity of practicing emptiness is emptiness. Constantly emptiness. So that is “Avalokitesvara Bodhisattva was moving in the deep course” of this wisdom. You have to participate in [it] – not only understanding. You have to directly participate in the wisdom which has gone beyond.
+So Avalokitesvara Bodhisattva was moving in the deep course of wisdom. This wisdom means wisdom which has gone beyond. So wisdom is that which has gone beyond. Because emptiness is emptiness, everything is emptiness. And then next what you have to do is practice of the emptiness which is emptiness. And then constantly we have to achieve continuity of practicing emptiness is emptiness. Constantly emptiness. So that is “Avalokitesvara Bodhisattva was moving in the deep course” of this wisdom. You have to participate in [it] – not only understanding. You have to directly participate in the wisdom which has gone beyond.
 
-How? Well, it's not so difficult [a] practice. Every day, we have to deal with your object, your body, your mind, with compassion and [kindness]. That is a point Dogen Zenji teaches us. It's a very simple practice. But human beings, human consciousness is very greedy to get something, you know, and you want to have a big deal, [you always] expect a big reward. We don't want to practice without seeing any reward, without having a big deal. So that's why people complain, naturally. But this is a basic attitude, because we want to live in peace. How do you live? We have to practice this: moving in the deep course of wisdom which has gone beyond. 
+How? Well, it's not so difficult [a] practice. Every day, we have to deal with your object, your body, your mind, with compassion and [kindness]. That is a point Dogen Zenji teaches us. It's a very simple practice. But human beings, human consciousness is very greedy to get something, and you always want to have a big deal, [you] expect a big reward. We don't want to practice without seeing any reward, without having a big deal. That's why people complain, naturally. But this is a basic attitude, because we want to live in peace. How do you live? We have to practice like this: moving in the deep course of wisdom which has gone beyond. 
 
-So that's why here it says it like this. In order to practice this, how do you do this? “Avalokitsvara looked down from on high” means not kind of [like] deities looking down on all sentient beings from the sky. No, it doesn’t mean this. I think you have to see deeply into human existence, sharing your life with the people. To take care of your life and a sheet of toilet paper with compassion or kindness, that is “to look down from on high.” You are not existent in the same level as your object, not a middle. You become high; you look down [on] all living beings [from] on high like this. 
+So that's why here it says it like this. In order to practice this, how do you do this? “Avalokitsvara looked down from on high” means not kind of [like] deities looking down on all sentient beings from the sky. No, it doesn’t mean this. I think you have to see deeply into human existence, sharing your life with the people. To take care of your life and a sheet of toilet paper with compassion or kindness, that is “to look down from high.” You are not existent in the same level as your object, not a middle, you become *high*. You look down [on] all living beings [from] on high like this. 
 
 That is, he says, “contemplate and illuminate.” *Illuminate* means you have to put yourself in the realm of dharma. That is simultaneously you are illuminated by the dharma. 
 
-But consciousness doesn't agree. Consciousness does not agree with this one because consciousness always sees object dualistically. It's very difficult for consciousness to put [itself] in the vastness of existence, so-called *dharma*, because it is oneness, practice [is] oneness simultaneously. 
+But consciousness doesn't agree. Consciousness does not agree with this because consciousness always sees [the] object dualistically. It's very difficult for consciousness to put [itself] in the vastness of existence, so-called *dharma*, because it is oneness, practice [and] oneness simultaneously. 
 
-According to the Western way thinking, you first always think something and then try to understand; making your questions, “What is that?” And then, please explain it. And then if you understand, you want to do it: that is [a] very natural course we want to take. But if you do [that], I think sooner or later, human beings always comes to a dead end. That naturally comes. So very naturally, [the] Eastern way of thinking is to let you just be there, in the state of the oneness before you analyze it. That's difficult for us.
+According to the Western way thinking, you first always think something and then try to understand. [First] making your questions – “What is that?” – and then, please explain it. And then if you understand, you want to do it. That is [a] very natural course we want to take. But if you do [that], I think sooner or later, human beings always comes to a dead end. That naturally comes. So very naturally, [the] Eastern way of thinking is to let you just be there, in the state of the oneness, before you analyze it. That's difficult for us.
 
 *[Tape break.]*
 
-So that's why the Eastern way of thinking is opposite from the Western way of thinking. I don't mean what is best, or what is good or what is bad, okay? We need both. Otherwise, human life, modern civilization will come to an end – soon.
+... So that's why the Eastern way of thinking is opposite from the Western way of thinking. I don't mean what is best, or what is good or what is bad, okay? We need both. Otherwise, human life, modern civilization will come to an end, soon.
 
-So that is “contemplate and illuminate all dharmas without grasping or rejecting them.” What do [I] mean? To put yourself in the oneness of existence before you analyze. That means how you shouldn't grasp it, you shouldn't reject [it].
+So that is *to illuminate* – “contemplate and illuminate all dharmas...”
 
-So what do [I] mean, “[...] to achieve continuity of emptiness?” If you face a sheet of [toilet] paper, you just deal [with it] with compassion and kindness, and [leave it]. Next, if you see water, we have to face directly and deal with water with compassion and kindness. Totally you should put yourself in the oneness between you and water. That is called *shikan*, we say.
+“... without grasping or rejecting them.” What [does that] mean? To put yourself in the oneness of existence before you analyze. That means how you shouldn't grasp it, you shouldn't reject [it].
 
-That is “contemplate and illuminate all dharmas”. That practice is based on not grasping and not rejecting. Because you cannot reject, because you *exist* in the stream of [the] moment. Even [if] the moment is [the] shortest period of time, as long as it exists, you are there, so you cannot ignore you cannot reject your life, your object. But don't stay with it. So, don't grasp it. Don't [be greedy]. Because it's very individual, personal, okay? Personal is important, but I think first all, you should put yourself in the oneness, using for all sentient beings.
+So what [does it] mean, “[...] to achieve continuity of emptiness?” If you face a sheet of [toilet] paper, you just deal [with it] with compassion and kindness, and [leave it]. Next, if you see water, we have to face [water] directly, and deal with water with compassion and kindness. Totally you should put yourself in the oneness, between you and water. That is called *shikan*, we say.
 
-So that's why “use your own true-suchness nature.” *Use true-suchness nature* means put yourself in the realm of oneness. That is “to see into one's own original nature and realize the buddha way.”
+That is “contemplate and illuminate all dharmas.” That practice is based on not grasping and not rejecting. Because you cannot reject, because you *exist* in the stream of [the] moment. Even [if] the moment is [the] shortest period of time, as long as it exists, you are there. So you cannot ignore, you cannot reject your life, your object. But don't stay with it – don't grasp it. Don't [be greedy]. Because [that’s] very individual, personal, okay? Personal is important, but I think first all, you should put yourself in the oneness, using [it] for all sentient beings.
 
-So what [does it] mean, to have a *kensho*? Rinzai mentions [*kensho*], and we say very often purpose of practice is to experience *kensho*. Are you familiar with the term? If you go to Rinzai, they always [say] you have to attain enlightenment; that is called *kensho*. You have to realize your own true nature, original nature. Otherwise, your life doesn't make sense. Something like that. So what do [we] mean by “seeing into your own original nature,” called *kensho*? I think we should understand this one very deeply. That's why [we say] *kensho* is not to try to grasp outwardly. First you have to put yourself in the oneness of existence. That's always Dogen’s emphasis, called *shikan*. 
+So that's why [it says] “use your own true-suchness nature.” *Use true-suchness nature* means put yourself in the realm of oneness. 
+
+That is “to see into one's own original nature and realize the buddha way.” So, what [does it] mean, to have a *kensho*? Rinzai mentions [*kensho*], and we say very often purpose of practice is to experience *kensho*. Are you familiar with the term? If you go to Rinzai, they always [say] you have to attain enlightenment; that is called *kensho*. You have to realize your own true nature, original nature. Otherwise, your life doesn't make sense. Something like that. 
+
+So what do [we] mean by “seeing into your own original nature,” called *kensho*? I think we should understand this one very deeply. That's why [we say] *kensho* is not to try to grasp outwardly. First you have to put yourself in the oneness of existence. That's always Dogen’s emphasis, called *shikan*. 
 
 #### 48:11
 
 > “Good Knowing Advisors, if you wish to enter the extremely deep Dharma realm and the Prajna samadhi, you must cultivate the practice of Prajna. Hold and recite The Diamond Prajna Sutra and that way you will see your own nature.”
 
-“If you wish to enter the extremely deep Dharma realm and the Prajna samadhi...”: *dharma realm* is the true oneness of phenomena and existence, that is the dharma realm. Beyond time, past, present, future; all are one. And also, all are based on emptiness: full function, total function, beyond your speculations. That is called *prajna*; wisdom. So wisdom is the state of understanding, state of realization, which you achieve continuity of wisdom *beyond* wisdom. So you achieve continuity of emptiness, day by day. You have to go deep into existence. That continuation of practice is so-called *emancipation* or *liberation*, we say. So, “if you wish to enter the extremely deep Dharma realm and the Prajna samadhi, you must cultivate the practice of Prajna.” Very naturally, prajna is there.
+“If you wish to enter the extremely deep Dharma realm and the Prajna samadhi...”: *dharma realm* is the true oneness of phenomena and existence, that is the dharma realm. Beyond time, past, present, future; all are one. And also, all are based on emptiness: full function, total function, beyond your speculation. That is called *prajna*; wisdom. So wisdom is the state of understanding, state of realization, [in] which you achieve continuity of wisdom *beyond* wisdom. So constantly you achieve continuity of emptiness, day by day. You have to go deep into existence. That continuation of practice is so-called *emancipation* or *liberation*, we say. 
 
-So if you take care of your zazen, your body and mind, with compassion, very naturally, there is wisdom.
+So, “if you wish to enter the extremely deep Dharma realm and the Prajna samadhi, you must cultivate the practice of Prajna.” Very naturally, prajna is there. So if you take care of your zazen, your body and mind, with compassion, very naturally, there is wisdom.
 
-“Hold and recite The Diamond Prajna Sutra and that way you will see your own nature”: because *Diamond Sutra* always [says] the mind is produced without staying [on], without relying on anything. So mind always [speaks] about the true state of human consciousness and its object. 
+“Hold and recite The Diamond Prajna Sutra and that way you will see your own nature”: because *Diamond Sutra* always [says] the mind is produced without staying [on anything], without relying on anything. So mind always [speaks] about the true state of human consciousness and its object. 
 
-Next page, page one hundred three:
+Next page, page 103:
 
 > “You should know that the merit and virtue of this Sutra is immeasurable, unbounded, and indescribable, as the Sutra text itself clearly states.
 
-“You should know that the merit and virtue of this Sutra is immeasurable, unbounded, and indescribable”: It describes what is indescribable. Indescribable is not *indescribable*, because already we know what is indescribable. So *Diamond Sutra* explains what is indescribable. 
+“You should know that the merit and virtue of this Sutra is immeasurable, unbounded, and indescribable”: It describes what is indescribable. *Indescribable* is not indescribable, because already we know what indescribable [is]. So *Diamond Sutra* explains what is indescribable. 
 
-And what is unbounded, what is immeasurable. If you say *the truth*, or *religion*, or *God*, or *Buddha*, all are immeasurable or indescribable, [then] very naturally it may be regarded as something mysterious. But I don't think so, because you already [spoke] about it! So it's something *clear*. Very clearly, something clear and pure exists there. So *indescribable* is something clear, which [is not] indescribable.
+... And [also] what is unbounded, what is immeasurable. If you say *the truth* or *religion* or *God* or *buddhas*, all are immeasurable or indescribable, [then] very naturally it may be regarded as something mysterious. But I don't think so, because you already [spoke] about it! So it's something *clear*. Very clearly, something clear and pure exists there. So *indescribable* is something clear, which [is not] indescribable.
 
-So that is [what] the *Diamond Sutra* says. “As sutra text itself clearly states” – that’s why it clearly states.
+So that is [what] the *Diamond Sutra* says. “As sutra text itself clearly states” – that’s why it clearly states [this].
 
-#### 
+#### 53:41
 
 > “This Dharma-door is the Superior Vehicle, taught for people of great wisdom and superior faculties. When people of limited faculties and wisdom hear it, their minds give rise to doubt.
 
-Well, [...] here it [talks] about the two kind of peoples: the people who have great great wisdom and superior faculties, but on the other hand, limited faculties. So when the people of limited faculties and wisdom hear it, their mind give rise to doubt. Because it's pretty difficult to receive, because we are always greedy, [as] I mentioned before. 
+Well, [...] here it [talks] about the two kind of peoples: the people who have great wisdom and superior faculties, but on the other hand, limited faculties. So when the people of limited faculties and wisdom hear it, their minds give rise to doubt. Because it's pretty difficult to receive it, because we are always greedy, [as] I mentioned before. 
 
 > “Why is that? Take for example the rain which the heavenly dragons shower on Jambudvipa. 
 
@@ -185,25 +193,27 @@ Well, [...] here it [talks] about the two kind of peoples: the people who have g
 
 In other words, the *saha* world.
 
-So, “Take for example the rain which the heavenly dragons shower on Jambudvipa.” And also they look at the last paragraph:
+So, “Take for example the rain which the heavenly dragons shower on Jambudvipa.” And also look at the last paragraph:
 
 > “Take for example the rain water. It does not come from the sky. The truth is that the dragons cause it to fall in order that all living beings, all plants and trees, all those with feeling and those without feeling may receive its moisture. 
 
-So here it says rain doesn't come from the sky, but the truth is that *dragons* cause it to fall. That means Buddhism tries to teach you that there is something beyond human senses, human perceptions. Which means total dynamism of myriad conditions, factors. Myriad, myriad conditions, factors, elements work together, and then there is lots of aspects of phenomena. That is [the] phenomenal world.
+So here it says rain doesn't come from the sky, but the truth is that *dragons* cause it to fall. That means Buddhism tries to teach you that there is something beyond human senses, human perceptions. Which means total dynamism of myriad conditions, factors. Myriad, myriad conditions, factors, elements work together, and *then* there are lots of aspects of phenomena. That is [the] phenomenal world.
 
-So, if we say “rain comes from the sky,” that is an idea, different conclusions. [That] is [an] important, you know, understanding: rain comes from the sky. That is [an] *idea* of rain. But if you take care of human life based on this idea of rain, you cannot see the rain in the universal perspective, you know? Very naturally you see the water only in terms of human eyes. You never know water in terms of fish and fish and turtles and boat. You have to understand the water in the universal perspective. But human beings always look at the water just in terms of human ideas. 
+So, if we say “rain comes from the sky,” that is an idea, definite conclusions. [Understanding is] important: rain comes from the sky. That is [an] idea of rain. But if you take care of human life based on this idea of rain, you cannot see the rain in the universal perspective, you know? Very naturally you see the water only in terms of human eyes. You never know water in terms of fish and turtles and the boat. You have to understand the water in the universal perspective. 
 
-So that's why human beings always look at the human world deeply and create immediately [a] definite conclusion first. And then we put our life into definite conclusions. That means you always look at the human word in terms of *your* ideas. So [it’s] a particular color of glasses. Do you understand? That is selfish, very [selfish]. That’s why human beings [are] very clever, but on the other hand, very selfish. That's why [we’re] fighting always. Birds look at the human world, and in terms of their own idea, their own life, but very simple, open. But human beings, very clever and smart, but selfish, very selfish.
+But human beings always look at the water just in terms of human ideas. So that's why human beings always look at the human world deeply and immediately create [a] definite conclusion first, and then we put our life into definite conclusions. That means you always look at the human word in terms of *your* ideas. So [it’s] a particular color of glasses. Do you understand? That is selfish, very [selfish]. That’s why human beings [are] very clever, but on the other hand, very selfish. That's why [we’re] always fighting. Birds look at the human world, and in terms of their own idea, their own life, but very simple, open. But human beings, very clever and smart, but selfish, very selfish.
 
-That's why we have to always practice liberation, emptiness. You see the microphone and take care of it, and then you should practice emptiness, anyway. Liberation. You cannot stay long with it – good or bad, right and wrong. Anyway, we have to continue [to] practice like this. That is really understanding deeply how human beings, human life, [the] human world are structured.
+That's why we have to always practice liberation, emptiness. You see the microphone and take care of it, and then you should practice emptiness, liberation. You cannot stay long with it, good or bad, right or wrong. Anyway, we have to continue [to] practice like this. That is really understanding deeply how human beings, human life, [the] human world are structured.
 
-So you cannot see the human word in terms of particular ideas, okay? So that's why it says “dragons cause the rains.” Because dragons are legendary animals, you know, which [have] lots of stuff: [lakes], and fire... [...] So completely beyond the usual sense of fish or human animals.
+So you cannot see the human word in terms of particular ideas, okay? So that's why it says “dragons cause the rains.” Because dragons are legendary animals, you know, which [have] lots of stuff: [lakes], and fire... *[He chuckles.]* So completely beyond the usual sense of fish or human animals.
 
-So that's why, “Why is that? Take for example the rain which the heavenly dragons shower on Jambudvipa.” That is [...] interdependent co-origination, according to the teaching. “Interdependent co-origination causes rain to fall”: that is [why] here it says, “Dragons shower on Jambudvipa.” 
+So that's why [it says], “Why is that? Take for example the rain which the heavenly dragons shower on Jambudvipa.” That is [...] interdependent co-origination, according to the teaching. “Interdependent co-origination causes rain to fall” – that is [what it is saying here], “Dragons shower on Jambudvipa.” 
+
+#### 1:02:07
 
 > “Cities and villages drift about in the flood like thorns and leaves. 
 
-So very naturally, we understand the rains as [troubles], separate between the human life, human water, rains. So, in terms of particular ideas. So very naturally, rains create [floods] and, you know, drift, [all trees]. It creates miserable something.
+So very naturally, we understand the rains as [troubles], separate [from] human life, the human [world]. So, [we understand] in terms of particular ideas. So very naturally, rains create [floods], drift [...] It creates [something miserable]. 
 
 So here it says, “cities and village drift about in the flood, like thorns and leaves...”
 
@@ -213,7 +223,7 @@ So all become one.
 
 > “If people of the Great Vehicle, the Most Superior Vehicle, hear The Diamond Sutra, their minds open up, awaken, and understand. They then know that their original nature itself possesses the wisdom of Prajna. Because they themselves use this wisdom constantly to contemplate and illuminate, they do not rely on written words.
 
-So very naturally, people who have wisdom can continue practice [in] emptiness, liberation, emancipation. 
+So very naturally, people who have wisdom can continue [to] practice emptiness – liberation, emancipation. 
 
 > “Take for example the rain water. It does not come from the sky. The truth is that the dragons cause it to fall in order that all living beings, ...
 
