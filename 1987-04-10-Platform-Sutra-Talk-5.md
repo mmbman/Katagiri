@@ -7,8 +7,6 @@ title: "Platform Sutra – Talk 5"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
-
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/platform-sutra-5-of-7" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
