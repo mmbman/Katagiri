@@ -31,11 +31,11 @@ And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary s
 >
 > (From *Studies in the Lankavatara Sutra* by Daisetz Teitaro Suzuki, page 95.)
 
-*[There is some discussion about what “supra-Solomonic array” might mean. No one knows.]*
+*[There is some discussion about what “supra-Solomonic array” means. No one knows.]*
 
-So that *without abiding anything whatever*, that means purity: one's original nature, the original nature of the self is clean and pure when it is working in one's life. It is not dwelling, it is working without abiding anything whatever.
+So that *without abiding anything whatever*, that means purity. One's original nature, the original nature of the self, is clean and pure when it is working in one's life. It is not dwelling, it is working without abiding anything whatever. 
 
-D.T. Suzuki says, “All his thoughts and doings have no exterior and [ulterior] objects in view to which he desires to adapt himself.” [...] This is very common, usual attitude, usual tendency towards human life. We always do it. Very strongly, sometimes unconsciously, we do [this]. Is that clear?
+D.T. Suzuki says, “All his thoughts and doings have no exterior and [ulterior] objects in view to which he desires to adapt himself.” [...] This is a very common, usual attitude [or] tendency towards human life. We always do it. Very strongly, sometimes unconsciously, we do [this]. Is that clear?
 
 **Question:** You mean like adapting, or sort of mold ourselves to the some [...] system.
 
@@ -43,17 +43,17 @@ D.T. Suzuki says, “All his thoughts and doings have no exterior and [ulterior]
 
 **Same person:** Belief systems about ourselves what we can do we can and can’t do. 
 
-**Katagiri Roshi:** I think if you read the *agamas*, I think Buddha's life is just like that. You know, not everyone respected him. Some tried to hurt him, or tried to interrupt his life, in many ways, religiously or [...]. But Buddha Shakyamuni always dealt with the situation without staying for long. *Without staying for long* doesn’t mean escaping; just [to] deal with the situation simply. But inside, I think that he seemed to suffer a lot in the sutras. [But] his behavior [or] doings are very simple.
+**Katagiri Roshi:** I think if you read the *agamas*, Buddha's life is just like that. Not everyone respected him. Some tried to hurt him, or tried to interrupt his life in many ways, religiously or [...]. But Buddha Shakyamuni always dealt with the situation without staying for long. *Without staying for long* doesn’t mean escaping; just [to] deal with the situation simply. But inside, I think that he seemed to suffer a lot in the sutras. [But] his behavior [or] doings are very simple.
 
-For example, when he practiced *takuhatsu*, begging [in one village], and from the beginning to end, he walked, but at that time the village people [were celebrating] something, so all the people decided not to give any offerings to the Buddha Shakyamuni. He walked the village, but nobody gave anything. So at the end of the village, he was a little bit hesitating to leave there, because he didn't have anything to eat. So he thought he’d try to come back once more again, but anyway, he decided [to leave] there. So that’s human feeling, human suffering there. He is a buddha, but he is also human. 
+For example, when he practiced *takuhatsu*, begging, [in one village], and [he walked] from beginning to end, but at that time the village people [were celebrating] something, so all the people decided not to give any offerings to the Buddha Shakyamuni. He walked the village, but nobody gave anything. So at the end of the village, he was a little bit hesitating to leave there, because he didn't have anything to eat. So he thought he’d try to come back once again, but he decided [to leave] there. So that’s human feeling, human suffering there. He is a buddha, but he is also human. 
 
-“... dwelling inwardly and outwardly, of coming and going freely, of casting away...” 
+“... [not] dwelling inwardly and outwardly, of coming and going freely, of casting away [the grasping mind]...” 
 
-“Coming and going freely”: My teacher said to me, when I went down to the village to perform Buddhist service, after the service the village people wanted to talk with me, so finally I stayed long after performing services. Sometimes all morning staying at the one person's house. So he [said], “If you finish performing Buddhist service, you should leave as soon as possible.” And that is also pretty important for us: “of coming and going freely.” It seems to be easy, but it’s not so easy.
+“Coming and going freely...”: [...] When I [would go] down to the village to perform Buddhist services, after the service the village people wanted to talk with me. So finally I stayed long after performing services, sometimes all morning staying at one person's house. So [my teacher said to me], “If you finish performing Buddhist service, you should leave as soon as possible.” And that is also pretty important for us: “coming and going freely.” It seems to be easy, but it’s not so easy.
 
-“of casting away the grasping mind”: this is also very strongly, minutely, this grasping mind is always working in individual life. [...] This is our everyday practice, casting away the grasping mind. I think you cannot cast away, you cannot take out grasping mind and throw it away. You cannot do it. So in order to do this, I think from moment to moment you must be just present there, and then next moment you have to do it with wholeheartedness. That [way], naturally, grasping mind drops off. 
+“... of casting away the grasping mind”: this is also [that] very strongly, minutely, this grasping mind is always working in individual life. [...] This is our everyday practice, casting away the grasping mind. I think you cannot cast away [grasping mind], you cannot take out grasping mind and throw it away. [...] So in order to do this, I think from moment to moment you must be just present there, and then next moment you have to do it with wholeheartedness. That [way], naturally, grasping mind drops off. 
 
-“and of unobstructed penetration”: that is concentration, *samadhi*. *Shikan*, wholeheartedness, is basically no different from the *Prajna Sutra*; this is the meaning of *prajna*.
+“... and of unobstructed penetration”: that is concentration, *samadhi*. *Shikan*, wholeheartedness, is basically no different from the *Prajna Sutra*; this is the meaning of *prajna*.
 
 #### 12:52
 
@@ -61,19 +61,17 @@ Next, page 107, bottom:
 
 > “Good Knowing Advisors, all Sutras and writings of the Great and Small Vehicles, the twelve divisions of Sutras, have been devised because of people and established because of the nature of wisdom. If there were no people the ten thousand dharmas would not exist. Therefore you should know that all dharmas are originally postulated because of people, and all Sutras are spoken for their sakes.”
 
-I think here it says nothing [is] separate from a person. Everything exists related with [the] person. Visibly, invisibly. 
-
-Now that is most important. Is that clear? This [means] nothing exists without relating with you. Visibly, invisibly, consciously or unconsciously.
+I think here it says nothing [is] separate from a person, everything exists related with [the] person. Visibly, invisibly. Now that is most important. Is that clear? This [means] nothing exists without relating with you. Visibly, invisibly, consciously or unconsciously.
 
 Maybe you have a question that, even though we don't we don't have any relation with, [say,] Japan, or tree, or bird, we believe birds exist. So very naturally we begin to argue. But whatever you say, birds: I know the bird now because they are singing now.
 
 So we say a bird exists, but many birds seems not to have a relation with me now, but they exist. As long as they exist, they have close relation with me. So very naturally there is an idea of relation and not-relation. Whatever you say, non-relation means already you are *thinking* of it. Birds: you are thinking of the bird which has no relation with me. That is already you *have* a relation. 
 
-And also you say neutral; you don't care. Beyond relation or no relation, does something exist, like a unknown planet. It's neutral. Completely beyond your idea of relation or no relation. But even though you say *neutral*, that is already in your mind.
+And also you say neutral: you don't care. Beyond relation or no relation, does something exist, like an unknown planet. It's neutral, completely beyond your idea of relation or no relation. But even though you say *neutral*, that is already in your mind.
 
 So from this point, without *you*, without a person, nothing exists. So this is supposed to understand it because it is a philosophical background based on the teaching of interdependent co-origination.
 
-That, here it says, “all Sutras and writings of the Great and Small Vehicles, the twelve divisions of Sutras,”: I think a division of the sutra, I think in the commentary he talks about this. Look at the page 108. 
+That, here it says, “all Sutras and writings of the Great and Small Vehicles, the twelve divisions of Sutras,”: [...] In the commentary he talks about [these divisions of the sutras]. Look at page 108:
 
 > The twelve divisions of Sutra text are:  
 > 1. Prose;  
@@ -83,7 +81,7 @@ This is the usual sutra, we say.
 > 2. Verse;  
 > 3. Transmitting of Predictions;  
 
-That is *vyakarana*; that means predictions. In the *Lotus Sutra* I think you will find a chapter named *Vyakarana*, “Prediction.” Buddha Shakyamuni gave predictions to 500 arhats, and 500 lay people, et cetera.
+That is *vyakarana*; that means predictions. In the *Lotus Sutra* you will find a chapter named *Vyakarana*, “Prediction.” Buddha Shakyamuni gave predictions to 500 arhats, and 500 lay people, et cetera.
 
 > 4. Interpolations;  
 
@@ -98,35 +96,35 @@ In Sanskrit was say *geya*, “interpolations.”
 > 11. Dharma which has never been spoken before;  
 > 12. Commentaries.  
 
-Those are twelve kinds of sutra. 
+Those are twelve kinds of sutras. 
 
-So that is the 12 divisions of Sutra, “have been devised because of people...” So [there are] many people in this world, there are many people, that’s why [there are] many sutras, many scriptures, and also many regions, many denominations.
+So [...] the 12 divisions of Sutras “have been devised because of people...” [There are] many people in this world, that’s why [there are] many sutras, many scriptures, and also many religions, many denominations.
 
-“...  and established because of the nature of wisdom...”: because wisdom is one, but I think when the wisdom starts to work in the human world, it think it takes in some form of it own. That is the form tree, form of birds, and then, form of different personalities.
+“... and established because of the nature of wisdom.”: Because wisdom is one, but I think when the wisdom starts to work in the human world, it think it takes [on] some form of it own. That is the form tree, the form of birds, and then the form of different personalities.
 
 “If there were no people the ten thousand dharmas would not exist. Therefore you should know that all dharmas are originally postulated because of people, and all Sutras are spoken for their sakes.”
 
-So I think the sutras and commentaries and thought, philosophies, and psychologies, those things come from human heart, human life. But when you deal with the sutras and scriptures and some teachings, very naturally people try to mold our life into the way, teaching, by strong belief of those teachings, forgetting that originally those teaching come from human heart, human life. Usually our ways will be reversed. Do you understand?
+So I think the sutras and commentaries and thought, philosophies, and psychologies, those things come from human heart, human life. But when you deal with the sutras and scriptures and some teachings, very naturally people try to mold our life into the way, the teaching, by strong belief of those teachings, forgetting that originally those teachings come from human heart, human life. Usually our ways will be reversed. Do you understand?
 
-So I think that's why I always say you can read the scriptures and study, but you have to take time to digest. Anyway, to digest is important for us. Otherwise you fall into the *ism*, and kind of, well, *ideology* – fall into pessimism, or optimism, some kind of *ism* by strong belief of definite conclusions of human life, definite conclusion of outlook on life and the human world. And then you hold it strongly, and you put your life into that *ism*. And then if you see somebody else who doesn't believe the same teachings as you believe, then you are critical toward them, and argue. So very naturally you are looking [at] the world in terms of your definite conclusion of life, according to [the] very important outlook on life and the world you have researched. That is very dangerous. Very naturally in the religious world, people fight.
+So I think that's why I always say you can read the scriptures and study, but you have to take time to digest. Anyway, to digest is important for us. Otherwise you fall into the *ism*, and kind of, well, *ideology* – fall into pessimism, or optimism, some kind of *ism*, by strong belief of definite conclusions of human life, definite conclusion of outlook on life and the human world. And then you hold it strongly, and you put your life into that *ism*. And then if you see somebody else who doesn't believe the same teachings as you believe, then you are critical toward them, and argue. So very naturally you are looking [at] the world in terms of your definite conclusion of life, according to [the] very important outlook on life and the world you have researched. That is very dangerous. Very naturally in the religious world, people fight.
 
 Is that clear?
 
-So I think I [said] the other day, even the other day, you know, according to the *agamas* the buddha always says to accept the idea of the outlook on the life and the world, but you cannot hold strongly and argue with the people. You have to always practice coming and going freely.
+So I think I [said] the other day, [...] according to the *agamas* the buddha always says to accept the idea of the outlook on the life and the world, but you cannot hold strongly and argue with the people. You have to always practice coming and going freely.
 
-So in Buddhism, Shakyamuni Buddha uses the term *nirvana*. Nirvana means you have to be free from any kind experience, enlightenment or not enlightenment, mysticism and superpowers, whatever. All these experience of superpower or enlightenment or mysticism should come into nirvana and [be] melted way. That is called nirvana. So nirvana is the highest level of spirituality. 
+In Buddhism, Shakyamuni Buddha uses the term *nirvana*. Nirvana means you have to be free from any kind experience, enlightenment or not enlightenment, mysticism and superpowers, whatever. All these experience of superpower or enlightenment or mysticism should come into nirvana and [be] melted way. That is called nirvana. So nirvana is the highest level of spirituality. 
 
 Page 108: 
 
 > “Some people are deluded and some are wise; the deluded are small people and the wise are great people. The deluded question the wise and the wise teach Dharma to the deluded. When the deluded people suddenly awaken and understand, their minds open to enlightenment and they are no longer different from the wise.
 
-Alright, do you have questions? 
+Do you have questions?
 
 Among the people who are very important, because without the existence of people you cannot see anything to exist. So in other words, everything is related with you. Everything: visibly, invisibly. But among those people, there are two beings, the deluded and the wise. But the deluded and the wise are not separated. That's why they are related; “The deluded are small people, the wise are great people. The deluded question the wise, and the wise teach dharma to the deluded. When the deluded people suddenly awaken and understand, their minds open to enlightenment and they are no longer different from the wise.” 
 
 > “Good Knowing Advisors, unenlightened, the Buddha is a living being. At the time of a single enlightened thought, the living being is a Buddha.
 
-Here is a different beings. When you become the deluded, when you become the wise. And where you are unenlightened, the Buddha becomes a living being. This is the attitude of your doings, every day; behavior and doings. When you’re mad, Buddha becomes living being, usual beings – mad being. When you smile, you are buddha. Even in a single moment. That's why next, at the time of a single enlightened thought, enlightened mind, then a living being becomes a buddha.
+Here [are] different beings, when you become the deluded, when you become the wise. And where you are unenlightened, the Buddha becomes a living being. This is the attitude of your doings, every day; behavior and doings. When you’re mad, Buddha becomes living being, usual beings – mad being. When you smile, you are buddha. Even in a single moment. That's why next, at the time of a single enlightened thought, enlightened mind, then a living being becomes a buddha.
 
 So originally you are buddha, but the buddha appears in many ways. Usual beings, hungry ghost beings – at least, you appear always in the ten categories of existence. So that's why a Zen master in Japan says, “Buddha is just like a double mask.” Do you understand? You are originally buddha, but according to your behavior and doings, you become lovely, you become wise, you become deluded.
 
@@ -136,7 +134,7 @@ That, here it says,
 
 > “Therefore you should know that the ten thousand dharmas exist totally within your own mind.
 
-Your own mind means, this mind means related with your physical conditions. So, mind and body.
+“Your own mind” means this mind related with your physical conditions. So, mind and body.
 
 > “Why don’t you, from within your own mind, suddenly see the true suchness of your original nature?
 
@@ -149,6 +147,8 @@ So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] abou
 **Same person:** So this double mask...
 
 **Katagiri Roshi:**  Double mask means the dualistic world. The dualistic word is produced by your... well, your attitudes or doings of not coming and going freely. That is, very naturally, you appear in many ways. According to Buddhist teaching, at least ten categories of existence: hells, hungry [ghosts], gods, fighting spirits, etc. 
+
+#### 
 
 **Question:** I have a question on the first section of this book. Now there is the sound of the bird, and I have a vision of the floor, and emotion in my chest. So I want to know how these three are grasped as objects, and how they are not [grasped] as objects. How is it that [I] create these objects or don’t create these objects.
 
@@ -346,7 +346,7 @@ Do you have something?
 
 #### 1:08:12
 
-**Question:** I have a question, Roshi. Which I think might be related to that, but I'm not sure. But it is related to something Mike said in his talk the other day, about lay practice and priest practice, and how Dogen says in two different places, different things. Is that, you run across those contradictions often, it seems, in Buddhism. Is that to try to take you beyond, to get you to that limitation of knowledge?
+**Question:** I have a question, Roshi, which I think might be related to that, but I'm not sure. But it is related to something Mike said in his talk the other day, about lay practice and priest practice, and how Dogen says in two different places, different things. Is that, you run across those contradictions often, it seems, in Buddhism. Is that to try to take you beyond, to get you to that limitation of knowledge?
 
 **Katagiri Roshi:** Mm-hmm. Yes. Dogen Zenji [says], in priest life. Why Dogen Zenji [says] priest life is highest level of spiritual life; on the other hand, no limitation, you know? No limitation. So that is pretty contradictory. But what if you come to the dead-end limitation of lay life? Very naturally you can go beyond this. So you you want to do something. Do you understand?
 
