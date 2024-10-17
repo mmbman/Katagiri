@@ -152,7 +152,7 @@ So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] abou
 
 **Question:** I have a question on the first section of this book. Now there is the sound of the bird, and I have a vision of the floor, and emotion in my chest. So I want to know how these three are grasped as objects, and how they are not [grasped] as objects. How is it that [I] create these objects or don’t create these objects.
 
-**Katagiri Roshi:** [...] Do you understand his meaning? Your question is, how do we create the object or not object? Related with the three things: floor, birds, and [...] emotions.
+**Katagiri Roshi:** [...] Do you understand his meaning? Your question is, how do we create the object or not object? Related with the three things: floor, birds, and [...] emotions?
 
 **Different person:** Are you asking that in relation to inwardly and outwardly? 
 
@@ -160,9 +160,9 @@ So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] abou
 
 **Katagiri Roshi:** How do we relate? 
 
-**Questioner:** Well, you mentioned both having objects and not having objects. So I wanted to know what is the difference, how do we relate objects, how do we relate to not objects.
+**Questioner:** Well, you mentioned both having objects and not having objects. So I wanted to know what is the difference, how do we relate to objects, how do we relate to not-objects.
 
-**Katagiri Roshi:** Well, not object, or not related with object, or not object – that is already the word is in the system of cognitions. Do you understand? You are already living in the realm of the cognition, thinking. So you say this object, birds, doesn't relate with me now, because I am related with a floor, we say. So immediately the birds and floors already becomes object, which [...] you relate with. So whatever you say, everything is object, with which you you relate. Whatever you say, not relate or neutral object, all are related with you.
+**Katagiri Roshi:** Well, not-object, or not related with object, or not object – that is already the [world] is in the system of cognitions. Do you understand? You are already living in the realm of the cognition, thinking. So you say this object, birds, doesn't relate with me now, because I am related with a floor, we say. So immediately the birds and floors already become objects, which [...] you relate with. So whatever you say, everything is object, with which you you relate. Whatever you say, not related or neutral object, all are related with you.
 
 [Is that] what you mean?
 
@@ -170,23 +170,23 @@ So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] abou
 
 **Katagiri Roshi:** If you see that situation [...] deeply, [see] deeply your existence, how your life relates with all living beings, visible [or] invisible, then you can see the state of the bottom of existence. That is completely beyond your thinking or not thinking. So all are completely concepts; that is the teaching on interdependent co-origination. From this point, beyond your thinking or not thinking, all are connected.
 
-That's why this earth is connected with unknown planets which we don’t know. Now how [is] the earth hanging in space? We don’t know. But, it’s is there. So all are related. We don't know [the] reason why, but you can see the fact that the earth is hanging in space, you know? I don't know the appropriate word, “hanging” or [something else]. Nothing to hang, but earth is in space.
+That's why this earth is connected with unknown planets which we don’t know. Now [how is] the earth hanging in space? We don’t know. But, it is there. So all are related. We don't know [the] reason why, but you can see the fact that the earth is hanging in space, you know? I don't know the appropriate word, “hanging” or [something else]. Nothing to hang, but earth is in space.
 
 So, many things we don't know, but they are supported human world. 
 
-**Questioner:** I don’t know if you are understanding me; you seem to be answering some sort of different question. There’s the floor in front of me. Now, when I think about it, I create the floor as an object. You know, in relation to me. But, the teachings say that we shouldn't have an object, that’s a mistake of some kind: excreting myself in relation to the floor is a mistake, it’s delusion. So, what is it like? What is the experience of not having an object? Because I don't believe that I always have an object.
+**Questioner:** I don’t know if you are understanding me; you seem to be answering some sort of different question. There’s the floor in front of me. Now, when I think about it, I create the floor as an object, you know, in relation to me. But the teachings say that we shouldn't have an object, that’s a mistake of some kind: [excreting] myself in relation to the floor is a mistake, it’s delusion. So, what is it like? What is the experience of not having an object? Because I don't believe that I always have an object.
 
 **Katagiri Roshi:** Yes. 
 
-**Questioner:** So what’s subtly an experience. What is the difference when there’s an object [or] where is no object.
+**Questioner:** So what’s subtly an experience? What is the difference when there’s an object [or] where is no object?
 
-**Katagiri Roshi:** That’s why according to Buddhist psychology, I think when you see the object, a floor, I think [...] we [are not] *exactly* seeing the object as *it is*, because the object is, what would you say, come into your organs, so seeing eyes and hearing ears, and etcetera, and assimilated. And then, consciousness sees that floor in your organs. And then we say, it is floor. So floor we have understood is [a] reflection from [the] human mind. That's why Buddhism says [it] in that way.
+**Katagiri Roshi:** That’s why according to Buddhist psychology, I think when you see the object, a floor, I think [...] we [are not] *exactly* seeing the object as *it is*, because the object is, what would you say, come into your organs, seeing eyes and hearing ears, et cetera, and assimilated. And then, consciousness sees that floor in your organs. And then we say, it is the floor. So the floor we have understood is a reflection from the human mind. That's why Buddhism says it in that way.
 
 And also the human mind, human organs are already produced by conditional elements [and factors]. So a very particular characteristic there. So [it’s] very complicated.
 
-So personally, if I see the floor, [there is] your understanding and my understanding. That is *the floor*, we say, that is an object named *floor*. But the true nature of the floor is beyond our understanding, our experience, because it is exactly same as you, your existence... basically. But if you see [the] floor, human human mind comes first; *I* there. Then, like this. But basically there is no discrimination between. 
+So personally, if I see the floor, [there is] your understanding and my understanding. That is *the floor*, we say; that is an object named *floor*. But the true nature of the floor is beyond our understanding, our experience, because it is exactly same as you, your existence... basically. But if you see [the] floor, human human mind comes first; *I* there, then, like this. But basically there is no discrimination between. 
 
-So that's why we have to see very deeply human beings, human world, very deeply, and what is a state of ultimate being, the ultimate state of being.
+So that's why we have to see human beings, the human world very deeply, and what is a state of ultimate being, the ultimate state of being.
 
 *[Tape break.]*
 
@@ -202,11 +202,11 @@ But originally, the suffering, yes, we believe it is still real, but it is not r
 
 **Questioner:** You make it sound very different, not related at all to the present. 
 
-**Katagiri Roshi:** It’s related; we don't ignore. [But] our [Buddhistic] effort is how can you understand, how we should understand, floors as it is. And then if you understand as it is, next what we have to do is how we should live there. Not only in the level of cognition, or not only the objective state of existence – beyond this, how do we live? Related with the floors, and the eyes, and all living beings. This is Buddhistic effort. 
+**Katagiri Roshi:** It’s related; we don't ignore. [But] our [Buddhistic] effort is how can you understand, how we should understand, [the floor] as it is. And then if you understand as it is, next what we have to do is, how we should live there. Not only in the level of cognition, or not only the objective state of existence – beyond this, how do we live? Related with the floors, and the eyes, and all living beings. This is Buddhistic effort. 
 
 But usually, we are always seeing the world and seeing the people in terms individual experience.
 
-That's why individual experience is fine, but Buddhist effort is what is individual experience, once more again, and then try to understand deeply.
+That's why individual experience is fine, but Buddhist effort is [to ask] what is individual experience once again, and then try to understand deeply.
 
 Do you have something to say to his questions?
 
@@ -230,31 +230,31 @@ Do you have something to say to his questions?
 
 **Questioner:** Um, I don't think so. 
 
-**Katagiri Roshi:** Okay. We can [explain] once more, again.
+**Katagiri Roshi:** Okay. We can [explain] once again.
 
-**Questioner:** Um, I'll refer to, if I see the floor, then I’ve created objects. Okay, this is delusion. So I'm asking, what is the difference between the experience of the floor as object [or] as delusion, or between pure vision, true vision of the floor. And you're making it sound like you talking about some... There's no relation, or some other experience, you’re not answering my question. Like, Dogen says, from the first, dullness and distraction are struck aside, he doesn't say, some day you will see the truth and then dullness and distraction will be struck aside. But you seem to be saying that. You’re not answering my question. 
+**Questioner:** Um, I'll refer to, if I see the floor, then I’ve created objects. Okay, this is delusion. So I'm asking, what is the difference between the experience of the floor as object [or] as delusion, or between pure vision, true vision of the floor. And you're making it sound like you’re talking about some... There's no relation, or some other experience, you’re not answering my question. Like, Dogen says, “From the first, dullness and distraction are struck aside,” he doesn't say, “Some day you will see the truth and then dullness and distraction will be struck aside.” But you seem to be saying that. You’re not answering my question. 
 
-**Katagiri Roshi:** I think a little bit, spiritual life... I think I can say... uh, how can I say? *Quality* of spiritual life is based on two points. One is awareness, awakening. Okay? Seeing deeply the ultimate nature of existence. That is awareness, or enlightenment, we say. Second is *salvation*. 
+**Katagiri Roshi:** I think a little bit, spiritual life... [...] Uh, how can I say? [The] *quality* of spiritual life is based on two points. One is awareness, awakening. Okay? Seeing deeply the ultimate nature of existence. That is awareness, or enlightenment, we say. Second is *salvation*. 
 
-The first one, awakening, is experienced with wisdom, deep knowledge, okay? *Salvation* is *practice itself*.
+The first one, awakening, is experienced with wisdom, deep knowledge. Okay? *Salvation* is *practice itself*.
 
 So, a spiritual life consists of oneness of the awareness and salvation. That is called *faith*, we say. With faith you can understand the total picture of existence, related with the delusion of the object and not deluded, purity of the object. That is the total picture. They are connected with each other.
 
-But, usually we are always separate. So if you want to practice spiritual life, I think you have to see how the deluded world and also purity of the world are working together, interdependently. So for this, I think we need both: awareness and also salvation. And maybe salvation, I don't know is salvation is [appropriate] word or not. Salvation is practice itself. Okay?
+But, usually we are always separate. So if you want to practice spiritual life, I think you have to see how the deluded world and also purity of the world are working together, interdependently. So for this, I think we need both: awareness and also salvation. And maybe salvation, I don't know if salvation is [the appropriate] word or not. Salvation is practice itself. Okay?
 
 So how can you practice? Practice is, I think, flow, activity. I always [say this]. *Just do it*, just something going. So how can you do it? I think we need a *form*. When you do a gassho, this is a form. So you have to put yourself in the form, and then you should take care of the form with whole heartedness. This is, immediately that is called practice, and within the practice, salvation, you are saved – from the idea of [delusion] of object or from [purity] of object. 
 
-Because, originally, what make it possible for two ideas to exist? This is a question. So that is ultimate state of beings. So very naturally, you must understand that the ultimate state of existence, and also you have to live there. For this, how? So, two ways: awakening, and also salvation.
+Because, originally, what makes it possible for two ideas to exist? This is a question. So that is ultimate state of beings. So very naturally, you must understand that the ultimate state of existence, and also you have to live there. For this, how? Two ways: awakening, and also salvation.
 
 So, oneness. Both are one. So you have to *do it*. At that time, you can know it.
 
 Is that okay?
 
-That is called so-called faith, we say. Otherwise, psychologically, philosophically, we discuss, we don't understand it. Still separation there.
+That is called *faith*, we say. Otherwise, psychologically, philosophically, we discuss, we don't understand it. Still separation there.
 
 So how can you be free from? How can you be free from, how can we understand that oneness? So that is salvation, we say salvation. But salvation is what? Salvation comes from understanding? No. Experience? No. That is philosophical speech and religious philosophy, you know? So [...] you cannot get. So salvation should come from flow of practice, flow of activities.
 
-For this, we need a form, okay? The form should should be understood very deeply in terms of religious philosophy; that is awareness. And also, experience, we have to understand deeply.
+For this, we need a form. Okay? The form should should be understood very deeply in terms of religious philosophy; that is awareness. And also, experience, we have to understand deeply.
 
 Do you have for something to his question? Is that okay? 
 
@@ -266,39 +266,37 @@ Do you have for something to his question? Is that okay?
 
 **Katagiri Roshi:** Mm-hmm. Sure.
 
-So not separated, you know, deluded of floor and purity of the floor are the same. But it's not same, they are not the same, they are different. But they are not different. That is called oneness. That's why if you study Buddhism, always, one is all, all is one – what do you mean? And form is emptiness, emptiness is form. They are not separate, but if you say it in words, there is a separation.
+Not separated, you know; deluded of floor and purity of the floor are the same. But it's not same; they are not the same, they are different. But they are not different. That is called oneness. That's why if you study Buddhism, always, “one is all, all is one” – what do you mean? And form is emptiness, emptiness is form. They are not separate, but if you say it in words, there is a separation.
 
-So I don't know how to say it. But constantly we have to say it. So Nagarjuna always [says], “Everything is emptiness.” Yes, but emptiness is emptiness. And then next, emptiness of emptiness *is* emptiness. Constantly, we have to say. So forever you have to argue; forever you have to say, where is the salvation? “Where is the salvation” means where is peace?
+So I don't know how to say it. But constantly we have to say it, so Nagarjuna always [says], “Everything is emptiness.” Yes, but emptiness is emptiness. And then next, emptiness of emptiness *is* emptiness. Constantly, we have to say. So forever you have to argue; forever you have to say, where is the salvation? “Where is the salvation” means where is peace?
 
 Can you see the limitation of human knowledge?
 
-**Question:** Well, it sounds to me like you're pointing out the limitation of knowledge, but in referring me beyond knowledge. So I appreciate that. But you seem to also just be ignoring the sense of knowledge and any usefulness of that.
+**Questioner:** Well, it sounds to me like you're pointing out the limitation of knowledge, but in referring me beyond knowledge. So I appreciate that. But you seem to also just be ignoring the sense of knowledge and any usefulness of that.
 
 **Katagiri Roshi:** No, not...
 
-**Question:** And you seem to be refusing to answer my question... 
+**Questioner:** And you seem to be refusing to answer my question... 
 
 **Katagiri Roshi:** No, not ignoring, but I think you should know the *limitation* of knowledge. If you see the limitation of knowledge, [that] is simultaneously great power and strength which makes your life *turn*. So the realization of the limitation of knowledge is simultaneously... no limitation. Free from knowledge. So not separate.
 
-That's why what we can talk about is knowledge, which is limited. I cannot talk about no limitation of knowledge, no. 
+That's why what we can talk about is knowledge, which is limited. I cannot talk about no limitation of knowledge. No. If I talk about no limitation of knowledge, it is already [limitation]. So I cannot say.
 
-So if I talk about no limitation of knowledge, it is already *[unintelligible]*. So I cannot say.
-
-But that is important, because it exists with me, so I have to live there because I want to be saved, I want to be peaceful. That is a peaceful word. So very naturally, how can I live? 
+But that is important, because it exists with me, so I have to live there, because I want to be saved, I want to be peaceful. That is a peaceful word. So very naturally, how can I live? 
 
 So salvation is necessary for us. Peace, harmony, is necessary for us. 
 
-So that's why Buddhist psychology and *Abhidharma* [...] constantly talk about human consciousness. Do you understand? 
+That's why Buddhist psychology and *Abhidharma* [...] constantly talk about human consciousness. Do you understand? 
 
-And finally, Buddhism, *Abhidharma kosha* [talks about] about not talking about no limitation of knowledge. They are talking about the complete limitation, perfect limitation of knowledge, you know? *End* of the knowledge. Very in detail. And then, Abhidharma [says] you have to go *beyond* this one, okay?
+And finally, Buddhism, *Abhidharma kosha* [talks about] about not talking about no limitation of knowledge. They are talking about the complete limitation, perfect limitation of knowledge, you know? *End* of the knowledge, very in detail. And then, *Abhidharma* [says] you have to go *beyond* this one, okay?
 
-So how can you go beyond this one? This is expressed in the word called negative. *No*. No ultimate nature of existence; something like that. 
+So how can you go beyond this one? This is expressed in the word called *negative*. *No*. No ultimate nature of existence; something like that. That's it. 
 
-That's it. But that *no idea of no limitation* is already limited. So what we can do in, according to our explanation, we have to go through and through, you have to go through that limitation of knowledge. And then you realize it. At that time, your life is completely turned at a hundred and eighty degrees.
+But that *no idea of no limitation* is already limited. So what we can do is, according to our explanation, we have to go through and through, you have to go through that limitation of knowledge. And then you realize it. At that time, your life is completely turned at a hundred and eighty degrees.
 
 That is salvation. But when we are not enlightened, how can we attain enlightenment? That is so-called practice, that's why the buddhas and ancestors put you in the practice. But we don't believe this is the practice of salvation; we don't believe it.
 
-So I'm not [ignoring]. But I always taste how limited how limited knowledge is, how the knowledge and the human speculation, human cognition is limited. Emotionally and intellectually. We have to understand it. 
+So I'm not [ignoring]. But I always taste how limited knowledge is, how knowledge and human speculation, human cognition is limited. Emotionally and intellectually. We have to understand [this]. 
 
 **Question:** Hojo-san? You say, taking care of the floor as buddha, that sounds like it's coming from very much the *delusional* side. Because to say, take care of the floor, immediately there is a separation between...
 
@@ -308,13 +306,11 @@ So I'm not [ignoring]. But I always taste how limited how limited knowledge is, 
 
 **Katagiri Roshi:** Yes. That's why Dogen Zenji [says], what is the buddha-nature you believe? That's why [...] Joshu Zen Master says, “dog has no buddha-nature.” And sometimes he says, “dog has buddha-nature.”
 
-That is our [various system] you mentioned, you know? So whatever you say  – [...] “I believe the truth that we are buddha,” – this is already limited. So that's why Joshu has to say, “no buddha.” Okay?
+That is our [various systems] you mentioned, you know? So whatever you say  – [...] “I believe the truth that we are buddha” – this is already limited. So that's why Joshu has to say, “no buddha.” Okay?
 
-But how can you know true buddha? That's why Dogen Zenji finally says no buddha is pretty close to the true buddha-nature. That’s it; that's why finally we use the negative term.
+But how can you know true buddha? That's why Dogen Zenji finally says no buddha is pretty close to the true buddha-nature. That’s it. That's why finally we use the negative term. So again and again we have to use a negative term, and to awaken ourself. Is that clear? 
 
-So again and again we have to use a negative term, and to awaken ourself. Is that clear? 
-
-So that is what? That is a practice already. We have to practice, we have to deal [with it]. How can we deal with the floor? That is a point, okay? When you practice, there is a certain form. We need this; it is necessary. Because there are many forms to use to deal with the floor, according to individuals characters and personalities, very different. That's why form is also refined, should be refined, in order to be saved in the world of you and floors, beyond the delusion of object or purity of object. Because where is salvation? Salvation is right there, in the practice.
+So that is what? That is a practice already. We have to practice, we have to deal [with]. How can we deal with the floor? That is a point, okay? When you practice, there is a certain form. We need this; it is necessary. Because there are many forms to use to deal with the floor, according to individuals’ characters and personalities, very different. That's why form should be refined, in order to be saved in the world of you and floors, beyond the delusion of object or purity of object. Because where is salvation? Salvation is right there, in the practice.
 
 **Questioner:** Mm-hmm. So it's not really possible for you to say what it's like to be exactly in the flow experience, or in the non-discriminating experience, because once you say that you're not there? Is that one thing you’re saying? 
 
@@ -328,7 +324,7 @@ So that's why in *The Awakening of Faith*, how can you reach the stage of a budd
 
 So that's why we can talk about [the] difference, but it's very difficult to talk about oneness of, you know, two things. But, pretty close; we can talk about oneness pretty close. But not exactly oneness. So if you want to experience total peace or so-called salvation, well, we don't know. I cannot talk about it. So all I have to do is to practice. That’s it. 
 
-So finally there is some gap between the limitation of knowledge and also eternity, truth. We see the small gap there, a very thin gap. For us, thin gap between this huge gap. But in human knowledge, we want to know, how can we fill it with stuff. We want to know how can we go to the truth, free from that world. That is always we want to know, but it's impossible, actually. Because it’s one, oneness; phenomena and the truth are one.
+So finally there is some gap between the limitation of knowledge and also eternity, truth. We see the small gap there, a very thin gap. For us, thin gap between this huge gap. But in human knowledge, we want to know how can we fill it with stuff. We want to know how can we go to the truth, free from that world. That is always we want to know, but it's impossible, actually. Because it’s one, oneness; phenomena and the truth are one.
 
 So very naturally what you can do is, through and through, we have to go deeply the limitation of human experience; that’s it. And then if you reach there, then, simultaneously, the limitation of experience *is* simultaneously the truth, eternity. That's why *The Awakening of Faith* talks about [this], about how we can reach the buddha stage.
 
