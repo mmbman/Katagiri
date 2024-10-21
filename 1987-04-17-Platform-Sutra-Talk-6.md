@@ -23,7 +23,7 @@ title: "Platform Sutra – Talk 6"
 
 “The ability to cultivate the conduct of not dwelling inwardly or outwardly”: In this book, *inwardly* means seeing one's own nature. *Outwardly* means the Buddhist scripture written in words. 
 
-So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajna paramita* [...] in the *Diamond Sutra*. In this book also, the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever; then he attained enlightenment. 
+So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajna paramita* in the *Diamond Sutra*. In this book also, the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever; then he attained enlightenment. 
 
 And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary says, page 95:
 
@@ -31,47 +31,51 @@ And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary s
 >
 > (From *Studies in the Lankavatara Sutra* by Daisetz Teitaro Suzuki, page 95.)
 
-*[There is some discussion about what “supra-Solomonic array” means. No one knows.]*
+*[There is some discussion about what “supra-Solomonic array” means. No one knows.]* (*Transcriber’s Note:* It’s a reference to the *Sermon on the Mount* – the lilies of the field surpassed the fabled wisdom of Solomon.)
 
 So that *without abiding anything whatever*, that means purity. One's original nature, the original nature of the self, is clean and pure when it is working in one's life. It is not dwelling, it is working without abiding anything whatever. 
 
-D.T. Suzuki says, “All his thoughts and doings have no exterior and [ulterior] objects in view to which he desires to adapt himself.” [...] This is a very common, usual attitude [or] tendency towards human life. We always do it. Very strongly, sometimes unconsciously, we do [this]. Is that clear?
+D.T. Suzuki says, “... all his thoughts and doings have no exterior and ulterior objects in view to which he desires to adapt himself.” “Exterior and ulterior objects in view to which he desires to adapt himself”: this is a very common, usual attitude [or] tendency towards human life. We always do it. Very strongly, sometimes unconsciously, we do [this]. Is that clear?
 
-**Question:** You mean like adapting, or sort of mold ourselves to the some [...] system.
+**Question:** You mean *adapting* like sort of to mold ourselves to the some belief system?
 
-**Katagiri Roshi:** [...] system, and self-justification, and self-protection. In many ways.
+**Katagiri Roshi:** Belief system, and self-justification, and self-protection, in many ways.
 
-**Same person:** Belief systems about ourselves what we can do we can and can’t do. 
+**Same person:** Belief systems about ourselves and what we can do we can or can’t do. 
 
-**Katagiri Roshi:** I think if you read the *agamas*, Buddha's life is just like that. Not everyone respected him. Some tried to hurt him, or tried to interrupt his life in many ways, religiously or [...]. But Buddha Shakyamuni always dealt with the situation without staying for long. *Without staying for long* doesn’t mean escaping; just [to] deal with the situation simply. But inside, I think that he seemed to suffer a lot in the sutras. [But] his behavior [or] doings are very simple.
+**Katagiri Roshi:** Right. 
 
-For example, when he practiced *takuhatsu*, begging, [in one village], and [he walked] from beginning to end, but at that time the village people [were celebrating] something, so all the people decided not to give any offerings to the Buddha Shakyamuni. He walked the village, but nobody gave anything. So at the end of the village, he was a little bit hesitating to leave there, because he didn't have anything to eat. So he thought he’d try to come back once again, but he decided [to leave] there. So that’s human feeling, human suffering there. He is a buddha, but he is also human. 
+I think if you read the *agamas*, Buddha's life is just like that. You know, not everyone respected him. Some tried to hurt him, or tried to interrupt his life in many ways, religiously or *[unintelligible]*... But Buddha Shakyamuni always dealt with the situation without staying for long. *Without staying for long* doesn’t mean escaping; just to deal with the situation simply. But inside, I think, he seemed to suffer a lot in the sutras, but his behavior [or] doings are very simple.
 
-“... [not] dwelling inwardly and outwardly, of coming and going freely, of casting away [the grasping mind]...” 
+For example, when he practiced *takuhatsu*, begging, [in one village he walked] from the beginning to end, but at that time the village people [were celebrating] something, so all the people decided not to give any offerings to the Buddha Shakyamuni. So he walked the village, but nobody gave anything. So at the end of the village, he was a little bit hesitating to leave there, because he didn't have anything to eat. So he thought he’d try to come back once again, but he left there. So that’s human feeling, human suffering there. He is a buddha, but he is also human. 
+
+(Returning to the sutra:)
+
+“... [ not] dwelling inwardly and outwardly, of coming and going freely, of casting away [the grasping mind]...” 
 
 “Coming and going freely...”: [...] When I [would go] down to the village to perform Buddhist services, after the service the village people wanted to talk with me. So finally I stayed long after performing services, sometimes all morning staying at one person's house. So [my teacher said to me], “If you finish performing Buddhist service, you should leave as soon as possible.” And that is also pretty important for us: “coming and going freely.” It seems to be easy, but it’s not so easy.
 
-“... of casting away the grasping mind”: this is also [that] very strongly, minutely, this grasping mind is always working in individual life. [...] This is our everyday practice, casting away the grasping mind. I think you cannot cast away [grasping mind], you cannot take out grasping mind and throw it away. [...] So in order to do this, I think from moment to moment you must be just present there, and then next moment you have to do it with wholeheartedness. That [way], naturally, grasping mind drops off. 
+“... of casting away the grasping mind”: this is also [that] very strongly, minutely, this grasping mind is always working in individual life. This is our everyday practice, “casting away the grasping mind.” I think you cannot cast away [grasping mind], you cannot take out grasping mind and throw it away. You cannot do it. So in order to do this, I think from moment to moment you must be just present there, and then next moment you have to do it with wholeheartedness. That [way], naturally, grasping mind drops off. 
 
 “... and of unobstructed penetration”: that is concentration, *samadhi*. *Shikan*, wholeheartedness, is basically no different from the *Prajna Sutra*; this is the meaning of *prajna*.
 
 #### 12:52
 
-Next, page 107, bottom:
+Next, page 107, [at the] bottom:
 
 > “Good Knowing Advisors, all Sutras and writings of the Great and Small Vehicles, the twelve divisions of Sutras, have been devised because of people and established because of the nature of wisdom. If there were no people the ten thousand dharmas would not exist. Therefore you should know that all dharmas are originally postulated because of people, and all Sutras are spoken for their sakes.”
 
 I think here it says nothing [is] separate from a person, everything exists related with [the] person. Visibly, invisibly. Now that is most important. Is that clear? This [means] nothing exists without relating with you. Visibly, invisibly, consciously or unconsciously.
 
-Maybe you have a question that, even though we don't we don't have any relation with, [say,] Japan, or tree, or bird, we believe birds exist. So very naturally we begin to argue. But whatever you say, birds: I know the bird now because they are singing now.
+Maybe you have a question that, even though we don't we don't have any relation with, [say,] Japan, or tree, or bird, we believe birds exist. So very naturally we begin to argue. But whatever you say [about] birds: I know the bird now because they are singing now.
 
-So we say a bird exists, but many birds seems not to have a relation with me now, but they exist. As long as they exist, they have close relation with me. So very naturally there is an idea of relation and not-relation. Whatever you say, non-relation means already you are *thinking* of it. Birds: you are thinking of the bird which has no relation with me. That is already you *have* a relation. 
+So we say a bird exists, but many birds seems not to have a relation with me now, but they exist. As long as they exist, they have close relation with me. So very naturally there is an idea of relation and not-relation. Whatever you say, non-relation means already you are *thinking* of it. [With] birds, you are thinking of the bird which has no relation with me: that is already you *have* a relation. 
 
-And also you say neutral: you don't care. Beyond relation or no relation, does something exist, like an unknown planet. It's neutral, completely beyond your idea of relation or no relation. But even though you say *neutral*, that is already in your mind.
+And also you say *neutral*: you don't care. Beyond relation or no relation, does something exist? Like an unknown planet: it's neutral, completely beyond your idea of relation or no relation. But even though you say *neutral*, that is already in your mind.
 
-So from this point, without *you*, without a person, nothing exists. So this is supposed to understand it because it is a philosophical background based on the teaching of interdependent co-origination.
+So from this point, without *you*, without a person, nothing exists. This is Buddhistic understanding, because it is [a] philosophical background based on the teaching of interdependent co-origination.
 
-That, here it says, “all Sutras and writings of the Great and Small Vehicles, the twelve divisions of Sutras,”: [...] In the commentary he talks about [these divisions of the sutras]. Look at page 108:
+That’s [why] here it says, “all Sutras and writings of the Great and Small Vehicles, the twelve divisions of Sutras,”: [...] In the commentary he talks about [these divisions of the sutras]. Look at page 108:
 
 > The twelve divisions of Sutra text are:  
 > 1. Prose;  
@@ -81,7 +85,7 @@ This is the usual sutra, we say.
 > 2. Verse;  
 > 3. Transmitting of Predictions;  
 
-That is *vyakarana*; that means predictions. In the *Lotus Sutra* you will find a chapter named *Vyakarana*, “Prediction.” Buddha Shakyamuni gave predictions to 500 arhats, and 500 lay people, et cetera.
+That is *vyakarana*; *vyakarana* means “predictions.” In the *Lotus Sutra* you will find a chapter named *Vyakarana*, “Prediction.” Buddha Shakyamuni gave predictions to 500 arhats and 500 lay people, et cetera.
 
 > 4. Interpolations;  
 
@@ -96,7 +100,7 @@ In Sanskrit was say *geya*, “interpolations.”
 > 11. Dharma which has never been spoken before;  
 > 12. Commentaries.  
 
-Those are twelve kinds of sutras. 
+Those are twelve kinds of sutras.
 
 So [...] the 12 divisions of Sutras “have been devised because of people...” [There are] many people in this world, that’s why [there are] many sutras, many scriptures, and also many religions, many denominations.
 
