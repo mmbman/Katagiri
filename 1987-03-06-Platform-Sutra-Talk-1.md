@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 1"
 
 ### Summary
 
-Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is really “to see into one’s own nature and achieve Buddhahood.” 
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature and achieve Buddhahood.” 
 
 ### Transcript
 
