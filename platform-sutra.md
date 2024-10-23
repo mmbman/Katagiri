@@ -38,7 +38,7 @@ Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve 
 
 ##### [*Platform Sutra* – Talk 6](1987-04-17-Platform-Sutra-Talk-6)
 
-Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration,” and also the statement that “if there were no people the ten thousand dharmas would not exist.” The teachings come from the human heart, not the other way around. There is a long question and discussion about how to relate to non-attachment to objects as an object.
+Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration,” and also the statement that “if there were no people the ten thousand dharmas would not exist.” The teachings come from the human heart, not the other way around. There is a long question and discussion about how to relate to “non-attachment to objects” as an object.
 
 ---
 

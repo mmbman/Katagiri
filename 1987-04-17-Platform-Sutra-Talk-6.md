@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 6"
 
 ### Summary 
 
-Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration,” and also the statement that “if there were no people the ten thousand dharmas would not exist.” The teachings come from the human heart, not the other way around. There is a long question and discussion about how to relate to non-attachment to objects as an object.
+Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration,” and also the statement that “if there were no people the ten thousand dharmas would not exist.” The teachings come from the human heart, not the other way around. There is a long question and discussion about how to relate to “non-attachment to objects” as an object.
 
 ### Transcript
 
