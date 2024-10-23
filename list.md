@@ -404,7 +404,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
 1. [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
-1. *Platform Sutra* – Talk 6
+1. [*Platform Sutra* – Talk 6](1987-04-17-Platform-Sutra-Talk-6)
 
 1. Deepening the Experience of Our Lives – Talk 1
 1. Deepening the Experience of Our Lives – Talk 2

@@ -3,11 +3,11 @@ title: "Platform Sutra – Talk 5"
 ---
 ## April 10, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1987) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-04-17-Platform-Sutra-Talk-6) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Summary
 
-Katagiri Roshi continues to discuss *three-fold emptiness*, and how to “achieve continuity of emptiness” by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
 
 ### Transcript
 
@@ -235,4 +235,4 @@ So that is the dragon; dragon means dependent co-origination or emptiness. That 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1980) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-04-17-Platform-Sutra-Talk-6) | Series: [*Platform Sutra*](platform-sutra)

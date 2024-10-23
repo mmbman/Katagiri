@@ -5,6 +5,10 @@ title: "Platform Sutra – Talk 6"
 
 #### [List](list#1987) \| [Previous](1987-04-10-Platform-Sutra-Talk-5) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
 
+### Summary 
+
+Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration,” and also the statement that “if there were no people the ten thousand dharmas would not exist.” The teachings come from the human heart, not the other way around. There is a long question and discussion about how to relate to non-attachment to objects as an object.
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
@@ -21,7 +25,7 @@ title: "Platform Sutra – Talk 6"
 
 “The ability to cultivate the conduct of not dwelling inwardly or outwardly”: In this book, *inwardly* means seeing one's own nature. *Outwardly* means the Buddhist scripture written in words. 
 
-So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajna paramita* in the *Diamond Sutra*. In this book also, the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever; then he attained enlightenment. 
+So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajna paramita* in the *Diamond Sutra*. In this book [...] the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever. Then he attained enlightenment. 
 
 And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary says, page 95:
 
@@ -29,7 +33,7 @@ And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary s
 >
 > (From *Studies in the Lankavatara Sutra* by Daisetz Teitaro Suzuki, page 95.)
 
-*[There is some discussion about what “supra-Solomonic array” means. No one seems to know.]* (*Transcriber’s Note:* It’s a reference to the *Sermon on the Mount* – the lilies of the field surpass the fabled wisdom of Solomon.)
+*[There is some discussion about what “supra-Solomonic array” means. No one seems to know, or will say.]* (*Transcriber’s Note:* This is a reference to the *Sermon on the Mount*: “Consider the lilies of the field” etc.)
 
 So that *without abiding anything whatever*, that means purity. One's original nature, the original nature of the self, is clean and pure when it is working in one's life. It is not dwelling, it is working without abiding anything whatever. 
 
@@ -330,15 +334,15 @@ So very naturally what you can do is, through and through, you have to go deeply
 
 **Katagiri Roshi:** Mm-hmm. 
 
-... *[pause]*
+*[Pause.]*
 
-I’m sorry; still [...] *[he laughs softly]*.
+I’m sorry; still... [...] *[He laughs softly.]*
 
-If you have something you can tell him, okay? 
+If you have something you can tell him. Okay? 
 
-Do you have something?
+#### 1:08:10
 
-#### 1:08:12
+**Katagiri Roshi:** Do you have something?
 
 **Question:** I have a question, Roshi, which I think might be related to that, but I'm not sure. But it is related to something Mike said in his talk the other day, about lay practice and priest practice, and how Dogen says in two different places different things. You run across those contradictions often, it seems, in Buddhism: is that to try to take you beyond, to get you to that limitation of knowledge?
 

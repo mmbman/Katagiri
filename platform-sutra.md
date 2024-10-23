@@ -32,9 +32,14 @@ Katagiri Roshi comments further on whether the point of Zen is actually “to se
 
 ##### [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
 
-Katagiri Roshi continues to discuss *three-fold emptiness*, and how to “achieve continuity of emptiness” by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
 
 ---
 
-- *Platform Sutra* – Talk 6
+##### [*Platform Sutra* – Talk 6](1987-04-17-Platform-Sutra-Talk-6)
+
+Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration,” and also the statement that “if there were no people the ten thousand dharmas would not exist.” The teachings come from the human heart, not the other way around. There is a long question and discussion about how to relate to non-attachment to objects as an object.
+
+---
+
 - *Platform Sutra* – Talk 7
