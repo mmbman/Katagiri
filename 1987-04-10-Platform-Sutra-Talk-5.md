@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 5"
 
 ### Summary
 
-Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. There is a longer explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
 
 ### Transcript
 

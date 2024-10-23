@@ -32,7 +32,7 @@ Katagiri Roshi comments further on whether the point of Zen is actually “to se
 
 ##### [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
 
-Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. There is an explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. There is a longer explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
 
 ---
 
