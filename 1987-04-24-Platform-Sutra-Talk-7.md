@@ -5,6 +5,10 @@ title: "Platform Sutra – Talk 7"
 
 #### [List](list#1987) \| [Previous](1987-04-17-Platform-Sutra-Talk-6) \| [Next](1987-05-23-Karma-in-Buddhism) | Series: [*Platform Sutra*](platform-sutra)
 
+### Summary
+
+Katagiri Roshi concludes this series on the *Platform Sutra* by discussing the relationship between the phenomenal world and the truth, or the “ordinary” self and original self-nature. “Our fundamental self-nature is clear and pure” means there is no gap between them. We should continually deepen the experience of our lives, because karmic life is buddha.
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
@@ -209,7 +213,7 @@ Practically speaking, that is to constantly deepen your experience. Don't stay w
 
 **Question:** Well, that was my next question. 
 
-**Katagiri Roshi:** *Renounce* means, if you accept the Buddha's teaching in a dualistic sense, karmic life should be renounced, *abandoned*. At that time, you have to die, anyway. You have to make your body ash, *[he laughs]*, you know, and then go to nirvana. But this is not realistic. Idealistically, we want [this], but that is to see the world in terms of a certain idea, [as I said]. An *ism*: Buddh*ism*. Buddhism is not an *ism*. Buddhism is not to see human life in terms of a certain angle, so-called Buddh*ism*. No. If you think renunciation is important because, if you see human life, the *saha* world is really jammed with miserable pain, it says, "So we should renounce" – that is already a certain idea. 
+**Katagiri Roshi:** *Renounce* means, if you accept the Buddha's teaching in a dualistic sense, karmic life should be renounced, *abandoned*. At that time, you have to die, anyway. You have to make your body ash, you know, *[he laughs,]* and then go to nirvana. But this is not realistic. Idealistically, we want [this], but that is to see the world in terms of a certain idea, [as I said]. An *ism*: Buddh*ism*. Buddhism is not an *ism*. Buddhism is not to see human life in terms of a certain angle, so-called Buddh*ism*. No. If you think renunciation is important because if you see human life, the *saha* world, is really jammed with miserable pain – it says, "so we should renounce" – that is already a certain idea. 
 
 I don't mean you *shouldn't* renounce, but we should be *free from*. But *where*? After killing your body, throwing away your body and attaining enlightenment, nirvana? [Is that it]? I don't think so! [In] the other world, after death? No. Day to day, we have to do it. 
 
