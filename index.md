@@ -23,6 +23,8 @@ These lists will be updated as talks are transcribed.
 
 ## Latest Updates
 
+**October 25, 2024:** Posted [“*Platform Sutra* – Talk 7”](1987-04-24-Platform-Sutra-Talk-7).
+
 **October 23, 2024:** Posted [“*Platform Sutra* – Talk 6”](1987-04-17-Platform-Sutra-Talk-6).
 
 **October 16, 2024:** Posted [“*Platform Sutra* – Talk 5”](1987-04-10-Platform-Sutra-Talk-5).

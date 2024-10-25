@@ -409,7 +409,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Deepening the Experience of Our Lives – Talk 1
 1. Deepening the Experience of Our Lives – Talk 2
 
-1. *Platform Sutra* – Talk 7
+1. [*Platform Sutra* – Talk 7](1987-04-24-Platform-Sutra-Talk-7)
 
 1. Prajna Paramita and Emptiness
 
