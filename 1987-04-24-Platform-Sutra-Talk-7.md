@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 7"
 
 ### Summary
 
-Katagiri Roshi concludes this series on the *Platform Sutra* by discussing the relationship between the phenomenal world and the truth, or the “ordinary” self and original self-nature. “Our fundamental self-nature is clear and pure” means there is no gap between them. We should continually deepen the experience of our lives, because karmic life is buddha.
+Katagiri Roshi concludes this series on the *Platform Sutra* by discussing the relationship between *karma* and *nirvana*, or the phenomenal world and the truth, or the “ordinary” self and original self-nature. “Our fundamental self-nature is clear and pure” means there is no gap between them. We should continually deepen the experience of our lives, because karmic life is buddha.
 
 ### Transcript
 
