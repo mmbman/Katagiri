@@ -329,7 +329,7 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 **Same person:** Even if there were a nuclear holocaust, there would be activity? 
 
-**Katagiri Roshi:** Sure. Wherever you may go. Our foundation is really active, dynamism. 
+**Katagiri Roshi:** Sure. Wherever you may go, our foundation is really active, dynamism. 
 
 **Same person:** So buddha-nature can’t be destroyed.
 
@@ -341,11 +341,13 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 **Katagiri Roshi:** Because, as Dogen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
 
-It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (*Shoji*)? Dogen Zenji quotes two sentences: “If there is a buddha, you are not confused by life and death itself. If there is no buddha, life and death never be confused.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong; which is close to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And then [the teacher] says, “Maybe next day, please come again.” He didn’t answer. And then the next day, Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
+It’s not evaluating both of them, which is right, which is wrong. 
+
+On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (“*Shoji*” in *Shobogenzo*)? Dogen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe next day, please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
 
 [That is what] “no buddha-nature” [means]. “No buddha-nature” is *pretty* close. *[He chuckles slightly.]* Pretty close to the buddha-nature. [...]
 
-So Hui Neng says, “Originally Bodhi has no tree, the bright mirror has no stand.” So [he] always [speaks] about what the foundation is. And then, “Originally there is not a single thing: where can dust alight?” So constantly his basic foundation is found in *no buddha-nature*, there. 
+So Hui Neng says, “Originally Bodhi has no tree, the bright mirror has no stand.” So [it] always [talks] about what the foundation is. And then: “Originally there is not a single thing: where can dust alight?” So constantly his basic foundation is found in *no buddha-nature*, there. 
 
 I think you can read the book  [*The Zen Doctrine of No Mind*] written by D.T. Suzuki. [He talks] about [this] story, in terms of this poem.
 
