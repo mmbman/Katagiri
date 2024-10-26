@@ -334,7 +334,7 @@ It’s not evaluating both of them, which is right, which is wrong. On the other
 
 So Hui Neng says, “Originally Bodhi has no tree, the bright mirror has no stand.” So [he] always [speaks] about what the foundation is. And then, “Originally there is not a single thing: where can dust alight?” So constantly his basic foundation is found in *no buddha-nature*, there. 
 
-I think you can read the book of *No Mind* (*The Zen Doctrine of No Mind*) written by D.T. Suzuki. [He talks] about [this] story, in terms of this poem.
+I think you can read the book  [*The Zen Doctrine of No Mind*] written by D.T. Suzuki. [He talks] about [this] story, in terms of this poem.
 
 #### 1:09:33 end of recording
 
