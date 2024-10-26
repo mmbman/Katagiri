@@ -17,15 +17,24 @@ Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the r
 
 #### 0:00
 
-> Once a customer bought firewood and ordered it delivered to his shop. When the delivery had been made, and Hui Neng had received the money, he went outside the gate, where he noticed a customer reciting a Sutra. Upon once hearing the words of this Sutra: “One should produce that thought which is nowhere supported.” Hui Neng’s mind immediately opened to enlightenment.
+(*Transcriber’s Note:* The first part of the recording is missing, so I have filled in the first part of the sutra.)
+
+> At one time the Great Master (Hui Neng) arrived at Pao Lin. Magistrate Wei Ch’ü of Shao Chou and other local officials climbed the mountain and invited the Master to come into the city to the lecture hall of the Ta Fan Temple to speak the Dharma to the assembly.
 >
+> When the Master had taken his seat, the Magistrate and over thirty other officials, more than thirty Confucian scholars, and more than one thousand Bhikshus, Bhikshunis, Taoists, and laypeople, all made obeisance at the same time, wishing to hear the essentials
+of Dharma.
+>
+>  The Great Master said to the assembly, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish Buddhahood. Good Knowing Advisors, listen while I tell you about the actions and intentions by which Hui Neng obtained the Dharma.”
+> 
+> Once a customer bought firewood and ordered it delivered to his shop. When the delivery had been made, and Hui Neng had received the money, he went outside the gate, where he noticed a customer reciting a Sutra. Upon once hearing the words of this Sutra: “One should produce that thought which is nowhere supported.” Hui Neng’s mind immediately opened to enlightenment.
+> 
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
 (*Transcriber’s Note:* The recording begins in mid-sentence.)
 
 **Katagiri Roshi:** ... [the] mind which is clear and pure, originally. So one should produce the mind which is nowhere supported because the truth is not something [like] stagnant water, the truth is something moving and active. 
 
-So there is nothing to hold in your hand, there is nothing to support, “nowhere supported.” Nowhere attached; this [is the meaning of] “one should produce the mind which is nowhere supported.” And then Hui Neng attained enlightenment at that time. 
+So there is nothing to hold in your hand, there is nothing to support. “Nowhere supported”: nowhere attached; this [is the meaning of] “one should produce the mind which is nowhere supported.” And then Hui Neng attained enlightenment at that time. 
 
 Next,
 
@@ -33,15 +42,17 @@ Next,
 >
 > Then again he asked, “Where do you come from, and why do you recite this Sutra?”
 >
-> The customer said, “I come from Tung Ch’an Monastery in Ch’i Chou, Huang Mei Province. There the Fifth Patriarch, the Great Master Hung Jen dwells, teaching over one thousand disciples. I went there to make obeisance and heard and received this Sutra. The Great Master constantly exhorts the Sangha and laity only to uphold The Diamond Sutra. Then, they may see their own nature and straightaway achieve Buddhahood.”
+> The customer said, “I come from Tung Ch’an Monastery in Ch’i Chou, Huang Mei Province. There the Fifth Patriarch, the Great Master Hung Jen dwells, teaching over one thousand disciples. I went there to make obeisance and heard and received this Sutra. The Great Master constantly exhorts the Sangha and laity only to uphold *The Diamond Sutra*. Then, they may see their own nature and straightaway achieve Buddhahood.”
 >
-> [...]
+> Hui Neng heard this and desired to go and seek the Dharma, but he recalled that his mother had no support.
+>
+> From past lives there were karmic conditions which led another man to give Hui Neng a pound of silver, so that he could provide clothing and food for his aging mother. The man instructed him further to go to Huang Mei to call upon and bow to the Fifth Patriarch.
 
-The Fifth Patriarch constantly emphasizes the spirit of *Diamond Sutra*, saying, “They may see their own nature and straightaway achieve Buddhahood.” This is very common; Zen Buddhism always [talks about this], [whether] in Japan [or] in China. “The real spirit of Zen is to see into one’s own nature and achieve Buddhahood straightforwardly” – that is a point Zen Buddhism always [says]. 
+The Fifth Patriarch constantly emphasizes the spirit of the *Diamond Sutra*, saying, “They may see their own nature and straightaway achieve Buddhahood.” This is very common: Zen Buddhism always [talks about this], [whether] in Japan [or] in China. “The real spirit of Zen is to see into one’s own nature and achieve Buddhahood (or become Buddha) straightforwardly” – that is a point Zen Buddhism always [says]. 
 
 But I think this is a little bit questionable. 
 
-Dogen Zenji [talks about this]. I think you should read “Buddha Nature” [in] *Shobogenzo*. And also in *Zen Master Dogen*, Dogen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point \[that Zen] usually [says] to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
+Dogen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shobogenzo*. And also in [the book] *Zen Master Dogen*, Dogen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
 
 > The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
@@ -59,7 +70,7 @@ And in the “Sutra of the Mountains and Waters”, Dogen Zenji [says] also,
 >
 > (From *Shobogenzo: Zen Essays by Dogen*, translated by Thomas Cleary, page 91.)
 
-So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
+So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
 
 So by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always, because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
 
@@ -67,7 +78,7 @@ But Dogen Zenji always [says] your basic nature is exactly buddha. It is not [ju
 
 #### 11:00
 
-I think if you read the “Buddha Nature” [chapter] of *Shobogenzo* (“Busshō”), [it’s] a little bit difficult to understand, but you would taste what the buddha-nature is. So that is a most important chapter for you, to understand Dogen Zenji’s teaching, and also Buddha’s teaching, [that is,] in terms of general Buddhism. 
+I think if you read the “Buddha Nature” [chapter] of *Shobogenzo* (“Busshō”), [it’s] a little bit difficult to understand, but you would taste what the buddha-nature is. So that is a most important chapter for you, to understand Dogen Zenji’s teaching and also Buddha’s teaching, [that is,] in terms of general Buddhism. 
 
 So according to [Dogen in] “Buddha Nature,” there are two points. He [talks] about buddha-nature [according to *Nirvana Sutra*]; he quotes a sentence of *Nirvana Sutra* and comments on this. So there are two points he mentioned.
 
@@ -89,7 +100,9 @@ So buddha-nature is always [...] that which occurs according to time and occasio
 
 So that’s why buddha-nature is time and occasion, cause and conditions. That means, *nothing to hold*. The second point means just functions, activities. So buddha-nature is what? Activities. Functions. Process. That’s it.
 
-So, there is nothing to hold as fixed beings, fixed entities. Nothing. And then, [...] \[what] can you call this buddha-nature, which is called nothing but activities, process, and functioning in dynamism? [What] can you call this?
+So, there is nothing to hold as fixed beings, fixed entities. Nothing. 
+
+And then, [...] \[what] can you call this buddha-nature, which is called nothing but activities, process, and functioning in dynamism? [What] can you call this?
 
 Finally, Dogen Zenji [says], that buddha-nature may be called *no buddha-nature*. Because *no buddha-nature* is a very close term to explain the true picture of buddha-nature. Because it is nothing to hold; that’s why *no buddha-nature*. And then from that no-buddha-nature, we can see *buddha-nature* or *no-buddha-nature* – the idea of *buddha-nature* or the idea of *no-buddha-nature* – which means the phenomenal world coming up. 
 
@@ -97,13 +110,7 @@ So that is in the chapter “Buddha Nature,” [where] Dogen Zenji [talks] about
 
 #### 19:32
 
-Let’s go [to] page 43: 
-
-> (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
->
-> “The Great Master constantly exhorts the Sangha and laity only to uphold *The Diamond Sutra*. Then, they may see their own nature and straightaway achieve Buddhahood.”
->
-> Hui Neng heard this and desired to go and seek the Dharma, but he recalled that his mother had no support. From past lives there were karmic conditions which led another man to give Hui Neng a pound of silver, so that he could provide clothing and food for his aging mother. The man instructed him further to go to Huang Mei to call upon and bow to the Fifth Patriarch.
+(Returning to the Sutra.) [...]
 
 The next page:
 
@@ -127,7 +134,7 @@ The next page:
 
 ... [He] was too sharp, and the conversation between Hui Neng and his teacher, the Fifth Patriarch, was going pretty well, expressing his wisdom, and so he didn’t want to continue to have a conversation between the two in front of the assembly. That’s why he tried to keep [him] away.
 
-Anyway, here is the conversation between Hui Neng and the Fifth Patriarch. I think you can see this conversation in the chapter “Buddha Nature” also. 
+Anyway, [there] is the conversation between Hui Neng and the Fifth Patriarch. I think you can see this conversation in the chapter “Buddha Nature” also. 
 
 And [then the Fifth Patriarch asked], “From where do you come?” And Hui Neng said he comes from Ling Nan in China. And the teacher [said], “If you come from Ling Nan, I think the people in Ling Nan don’t have buddha-nature. How can you become buddha-nature?” Because, I don’t know exactly, but people in Ling Nan were pretty poor, and commoners, not educated so much. So I think in this story Hui Neng was not an educated person; so he couldn’t read sutras, he couldn’t write, [...] but on the other hand, in the Fifth Patriarch’s monastery, I think Shen Hsiu, who was the *shuso*, the head monk of the monastery, was a very educated and sharp person. So Shen Hsiu [who was] *shuso* and head monk, and Hui Neng, are very contrasting persons. Anyway, that’s why he [asked], “If you come from Ling Nan, they are barbarians, they don’t have buddha-nature. How can you become buddha-nature?”
 
@@ -155,7 +162,7 @@ I think, strictly speaking, your self-nature is never confused. So Dogen Zenji s
 
 But usually the foundation is found in the dualistic way. Even in religion, we practice in that way. 
 
-So that’s why the Fifth Patriarch says, “If you are confused about your self-nature, [how can blessings save you]?” Self-nature is confused, but if you don’t manifest self-nature as [your] steadfast foundation, your self-nature is never manifested as steadfast foundation. So that’s why here it says, “If you are confused about your self-nature.” [...] Actually, self-nature is never confused; but if you don’t manifest it as steadfast way of life, then, it’s confused. 
+So that’s why the Fifth Patriarch says, “If you are confused about your self-nature, [how can blessings save you]?” Self-nature is never confused, but if you don’t manifest self-nature as [your] steadfast foundation, your self-nature is never manifested as steadfast foundation. So that’s why here it says, “If you are confused about your self-nature.” [...] Actually, self-nature is never confused. But if you don’t manifest it as steadfast way of life, then, it’s confused. 
 
 #### 36:03
 
@@ -171,13 +178,13 @@ Next page,
 >
 > “Shen Hsiu is our senior instructor and teaching transmitter...”
 
-Shen Hsiu was the head monk at that time. That person was pretty smart and sharp, that’s why the other monks trusted him and considered him as the successor. 
+Shen Hsiu was the head monk at that time. That person was pretty smart and sharp, that’s why the other monks trusted him and considered him as the successor. So,
 
 > “... Certainly he should be the one to obtain it. It would be not only improper for us to compose a verse, but a waste of effort as well.”
 > 
 > Hearing this, everyone put his mind to rest, and said, “Henceforth, we will rely on Master Shen Hsiu. Why vex ourselves writing verses?”
 
-*[He laughs.]* So the other monks, they don’t want to make a verse and submit it to the teacher, because here is the great head monk, regarded as the next successor – so even [if] the monks try to make a verse, it [would be] useless. 
+*[He chuckles.]* So the other monks didn’t want to make a verse and submit it to the teacher, because here is the great head monk, regarded as the next successor – so even [if] the monks tried to make a verse, it [would be] useless. 
 
 So next, 
 
@@ -191,19 +198,21 @@ This is Shen Hsiu’s very honest reflection upon himself. Very honest, thinking
 
 [This is] just like the *Vimalakirti Sutra*. Shariputra went to see Vimalakirti, who was sick. His room was very small, and there were five hundred bodhisattvas already there, but no chair. Pretty small room, so Shariputra asked him, “How can we get into this small room, and no chair?” And then Vimalakirti said, “What do you want? Do you come here to seek for the dharma, or to get the chair?” Shariputra says, “Oh, yes, we try to get the dharma.” And then, five hundred monks and bodhisattvas can get into that room. 
 
-[...] Shen Hsiu’s reflection is just like this. Very honest and very nice reflection here. That’s why he says, “If my intention in submitting the verse is to seek the dharma, that is good. But if it is to grasp the patriarchate” – in other words, to grasp a certain position, or fame, et cetera – “it is not good, for how would that be different from the mind of a common person coveting the holy position?” 
+[...] Shen Hsiu’s reflection is just like this. [It’s a] very honest and very nice reflection here. That’s why he says, “If my intention in submitting the verse is to seek the dharma, that is good. But if it is to grasp the patriarchate” – in other words, to grasp a certain position, or fame, et cetera – “it is not good, for how would that be different from the mind of a common person coveting the holy position?” 
 
 But on the other hand, if he doesn’t compose a poem, how does the Fifth Patriarch know whether Shen Hsiu is [an] appropriate person to become the Sixth Patriarch or not? So he has to do it. So that’s why here it says, “But, if I do not submit a verse, in the end I will not obtain the Dharma. This is a terrible difficulty!” This is a very difficult situation he honestly faces and reflects upon himself. 
 
-This is pretty nice. So, next, 
+This is pretty nice. 
+
+So, next:
 
 > In front of the Fifth Patriarch’s hall were three corridors. Their walls were to be frescoed by Court Artist Lu Chen with stories from the *Lankavatara Sutra* and with pictures portraying in detail the lives of the five patriarchs, so that the patriarchs might be venerated by future generations.
 
-I think on the wall of the corridors, the artist painted the portrait of the Fifth Patriarch and also his lineage, in order to let the monks know what is lineage was and also [to] respect [it]. 
+I think on the wall of the corridors, the artist painted the portrait of the Fifth Patriarch and also his lineage, in order to let the monks know what his lineage was, and also [to] respect [it]. 
 
 > After composing his verse, Shen Hsiu made several attempts to submit it. But whenever he reached the front hall, his mind became agitated and distraught, and his entire body became covered with perspiration. He did not dare submit it, although in the course of four days he made thirteen attempts.
 
-But he couldn’t do it. He was very agitated. 
+But he couldn’t do it. So he was very agitated. 
 
 > Then he thought, “This is not as good as writing it on the wall so that the High Master might see it suddenly. If he says it is good, I will come forward, bow, and say, ‘Hsiu did it.’ If it does not pass, then I have spent my years on this mountain in vain, receiving veneration from others. And as to further cultivation–what can I say?”
 >
@@ -211,7 +220,9 @@ But he couldn’t do it. He was very agitated.
 
 So finally he decided to write the poem on the wall of the corridor, instead of giving his poem directly to the Fifth Patriarch. Because thirteen times he tried but he couldn’t do it. So that’s why he decided in that way. 
 
-The verse is,
+#### 47:57
+
+So next, the verse is:
 
 >> The body is a Bodhi tree,  
 >> The mind like a bright mirror stand.  
@@ -226,14 +237,14 @@ The verse is,
 
 So, anyway, he couldn’t sleep because he was very concerned about his poem written on the wall. 
 
-So his poem is pretty well-known by everyone as one of the Zen stories:
+His poem is pretty well-known by everyone as one of the Zen stories:
 
 >> The body is a Bodhi tree,  
 >> The mind like a bright mirror stand.  
 >> Time and again brush it clean,  
 >> And let no dust alight.  
 
-And later, Hui Neng also wrote his poem. I think [it’s on] page [57]. His poem is, 
+And later Hui Neng also wrote his poem. [...] His poem is: 
 
 >> Originally Bodhi has no tree,  
 >> The bright mirror has no stand.  
@@ -242,11 +253,13 @@ And later, Hui Neng also wrote his poem. I think [it’s on] page [57]. His poem
 
 Sometimes people deal with the two poems separately, and evaluate which is right, which is wrong. But I don’t think [that] is the right understanding. Both poems work together in our practice. I think you cannot separate them.
 
-So, according to Shen Hsiu, I think he stands always in the dualistic world, and looking at himself, and try to reach the buddha-nature. So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. So “the body is a Bodhi tree, the mind like a bright mirror stand.” This is exactly the same as the teaching of nirvana. So, we are buddha. “Time and again brush it clean.” But we are living in the human world, so it’s easy for us to get “dusty,” that’s why we have to always brush it clean. “And let no dust alight.” This is a point of our practice. 
+So, according to Shen Hsiu, I think he stands always in the dualistic world, looking at himself and [trying] to reach the buddha-nature. 
 
-So, constantly practice. This is one aspect of the practice: seeking for the truth, constantly. “From the beginning to end,” even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
+So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. So “the body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana. So, we are buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty,” that’s why we have to always brush it clean, “And let no dust alight.” This is a point of our practice. So, constantly practice. 
 
-And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings. [This is the spirit of Hui Neng’s poem]: “Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature. So, there is no particular thing to discuss, [or] to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
+This is one aspect of the practice: seeking for the truth, constantly. “From the beginning to end”: even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
+
+And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings, because there is no particular [thing]. [This is the spirit of Hui Neng’s poem]: “Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature, so there is no particular thing to discuss [or] to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
 
 So [we need] both. Both work together in our practice. 
 
@@ -256,7 +269,7 @@ Okay. Do you have questions?
 
 **Question:** So, Dogen considered this a forgery?
 
-**Katagiri Roshi:** Uh, not only Dogen. I think the introduction, written by *[unintelligible]*, who was one of Hui Neng’s disciples, [says that] originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it. And then other monks, other disciples carried it always, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] mixed up. 
+**Katagiri Roshi:** Uh, not only Dogen. I think the introduction, written by *[unintelligible]*, who was one of Hui Neng’s disciples, [talks about this.] Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it. And then other monks, other disciples carried it always, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] mixed up. 
 
 That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
 
