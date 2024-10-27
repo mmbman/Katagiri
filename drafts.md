@@ -19,5 +19,8 @@ These transcripts are in early rough draft state. This page is not meant to be p
 - [Verse of Opening the Sutra](1986-07-23-Verse-of-Opening-the-Sutra)
 - [Verse of Closing the Sutra](1986-07-26-Verse-of-Closing-the-Sutra)
 
+### 1987
+
+- [1987-05-02-Prajna-Paramita-and-Emptiness](1987-05-02-Prajna-Paramita-and-Emptiness)
 
 <a name="end">
