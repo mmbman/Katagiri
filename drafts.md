@@ -21,6 +21,7 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 ### 1987
 
-- [1987-05-02-Prajna-Paramita-and-Emptiness](1987-05-02-Prajna-Paramita-and-Emptiness)
+- [Prajna Paramita and Emptiness](1987-05-02-Prajna-Paramita-and-Emptiness)
+- [Obon Memorial](1987-07-15-Obon-Memorial)
 
 <a name="end">
