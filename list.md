@@ -421,8 +421,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Genjokoan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 1. [*Genjokoan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
-1. Obon Memorial – Part 1
-1. Obon Memorial – Part 2
+1. Obon Memorial
 
 1. *Blue Cliff Record* Case 84 Talk 1
 1. *Blue Cliff Record* Case 84 Talk 2
