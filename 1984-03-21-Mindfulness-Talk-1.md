@@ -166,13 +166,19 @@ And also he says,
 
 > If there is no body, there can be no attainment of practice, teaching, or observation of the body’s impurity. 
 
-[Detachment means] “no body”. If you see sleep as a result, as an idea, you are caught by the idea of sleep. But if you participate exactly as one with the function or process of sleep, there is no sleep. If so, there is no object. If there is no object, there is no subject either, because subject doesn’t make sense. Do you understand? According to a sentence: subject, verb, and object. If you see the object as an idea, you are constantly caught by the object. But if you participate in the object exactly, there is no object. No sense of sleep, because you are exactly one, so no object. If there is no object, there is no reason why we should have a subject, so no subject. That’s why it says “no body” here.
+It means “no bodies.”
 
-So if you do zazen, exactly no zazen. If there is no zazen, then no observations, because I don’t have a body. That’s why it says here that no body is no attainment of practice. There is no space to say “I am practicing”. Also, no attainment of teaching and no attainment of observations. Nothing to say. So constantly all you have to do is to abide firmly in zazen. That’s it. That’s all we have to do.
+If you see sleep as a result, as an idea, you are caught by the idea of sleep. But if you participate exactly as one with the function or process of sleep, [there is] no sleep. If so, your object [is] no object. If there is no object, there is no subject either, because subject doesn’t make sense. Do you understand? According to a sentence: subject and object, [with a verb]. But if you see the object as an idea, you are constantly caught by the object. If you participate in the object exactly, there is no object. No sense of sleep, because you are exactly one, so no object. If there is no object, there is no reason why we should have a subject, so no subject. That’s why [it says] “no body” here.
 
-But we always make an effort to do zazen in terms of a result. We want to always see the result of what we have done. At that time, you forget the process of doing zazen, or participating in zazen. First of all, you have to participate in zazen; that is most important. And *then* you can see the result. But we don’t do it that way in everyday life. 
+So if you do zazen, exactly no zazen. If there is no zazen, then no observations, because no bodies, I don’t have a body. 
 
-Even if you don’t see it or you don’t notice this, our life is going just like this. So that’s why we have to explain this. But actually we don’t believe it, because we always first look at the result of what we have done, and then sometimes it is great encouragement for us, sometimes disappointment for us. So we give up, or we try to do it more... up and down, up and down, always. 
+That’s why it says here that no body is no attainment of practice. There is no space to say “I am practicing.” [Also,] no attainment of teaching and no attainment of observations. Nothing to say. 
+
+So constantly all you have to do is to abide firmly in zazen. That’s it. That’s all we have to do.
+
+But we always make effort to do zazen in terms of a result. We want to always see the result of what we have done. At that time, you forget the process of [...] participating in zazen. But first of all you have to participate in zazen; that is most important. And *then* you can see the result. But we don’t do it [that way] in everyday life. 
+
+Even if you don’t see it or you don’t notice this, our life is going just like this. So that’s why we have to explain this. But actually we don’t believe it, because we always first [looking for] the result of what we have done, and then sometimes it is great encouragement for us, sometimes disappointment for us. So we give up, or we try to do it more... up and down, up and down, always. 
 
 #### 2 - 9:45
 
@@ -180,17 +186,19 @@ So no body is no attainment of practice, no attainment of the teaching, no attai
 
 > Yet the attainment of this observation has already been actualized...
 
-What is *real* observation? Real observation is constantly being *with* the process of meditation, doing zazen. But the idea of observation is to see something in the distance; that is [what we usually call] observation. That’s why we have to observe something closely or discern something in the distance. But that’s not real discernment. Real discernment or observation is to be constantly *with* it.
+Already you [have] observation. What is *real* observation? Real observation is constantly being *with* the process of meditation, doing zazen. But the idea of observation is always to see something in the distance; that is [what we call] observation. That’s why we have to observe something closely or discern something in the distance. But that’s not real discernment. Real discernment or observation is to be constantly *with* it.
 
-For instance, fires. You should observe fire, you should discern fire. When you see the fire in the distance, you are always thinking, “it is fire, it is fire” – analyzing, synthesizing – but it doesn’t make sense for you, because the fire doesn’t burn your body or your mind. So what is real discernment or real observation of fire? Put your hand in the fire. Immediately, you can observe *real* observations.
+For instance, fire. You should observe fire, you should discern fire. [When you see a fire] in the distance, you are always thinking, “it is fire, it is fire” – analyzing, synthesizing – but it doesn’t make sense for you, because the fire doesn’t burn your body or your mind. So what is real discernment or real observation of fire? Put your hand in the fire. Immediately, you can observe, *real* observations.
 
-So if you observe the human body as Buddha, it is actually no observation, but observation has already been actualized. This is the total picture of the real reality you live in. That’s why Dogen Zenji says, “Yet the attainment of this observation has already been actualized.”
+So if you observe the human body as a buddha, it is actually no observation, but observation has already been actualized. This is the total picture of the real reality you live in. That’s why Dogen Zenji says, “Yet the attainment of this observation has already been actualized.”
 
 > ... so you should know that it is attainment of jumping-around-ness or living-ness.
+> 
+> (*Transcriber’s Note:* At this point, Katagiri Roshi is using his own translation.)
 
-What is the observation that has already been actualized? It is nothing but the jumping around; just activity. Just bubbles coming up constantly; just like energies gushing out. Like a spring gushing out from the ground, constantly coming up. That means nothing but the process, nothing but the practice, nothing but activity, constantly there. 
+What is the observation that has already been actualized? It is nothing but the jumping around; it means just activity. Just bubbles coming up constantly. Just like energies gushing out. Like a spring gushing out from the ground, constantly coming up. That means nothing but process, nothing but practice, nothing but activity, constantly there. 
 
-That’s why he says, “so you should know that it is attainment of jumping-around-ness”. That means *transcendent*. We say transcendent, but we don’t understand it. What does *transcendent* mean? It is not that you should keep away from something, going to something else; that’s not transcendent. *Transcendent* is that you are always there, but there is no place for you or your object. You are sick, but you are always right in the middle of sickness, so no trace of sickness is left; that is called transcendent. It’s not to escape from sickness. You have to really be working constantly, just like spring water coming up. So that’s why it says it like this here. 
+That’s why he says, “So you should know that it is attainment of jumping-around-ness”. That means *transcendent*. We say *transcendent*, but we don’t understand it. What does *transcendent* mean? It is not that you should keep away from something, going to something else; that’s not to transcend. *Transcend* is that you are always there, but there is no trace of you or your object. You are sick, but you are always right in the middle of sickness, [so] no trace of sickness is left; that is called transcendent. So it’s not to escape from sickness. You have to really be working constantly, just like spring water coming up. So that’s why it says it like this here. 
 
 #### 2 - 14:39
 
