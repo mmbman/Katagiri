@@ -320,7 +320,7 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 #### Part 3
 
-<p align="center" style="font-style: italic">
+<p style="font-style: italic">
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
 </p>
 
