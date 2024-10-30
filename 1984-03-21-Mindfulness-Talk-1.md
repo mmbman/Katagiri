@@ -204,45 +204,47 @@ That’s why he says, “So you should know that it is attainment of jumping-aro
 
 > The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors. 
 
-That is coming from a koan (Case 21) in the *Book of Equanimity*. Tenshin Sensei gave us that story in his last talk. It is a conversation between Dogo Zenji and Ungan Zenji; Ungan and Dogo are in the relation of dharma brothers. 
+That is coming from a koan (Case 21) in the *Book of Equanimity*. Tenshin Sensei gave us that story in his last talk. It is a conversation between Dogo Zenji and Ungan Zenji. Ungan and Dogo were in the relation of dharma brothers. 
 
-Ungan was sweeping the temple grounds. Dogo passed by, and said, “You are working very hard, aren’t you?” So Ungan said, “There is one person who doesn’t know how hard he is working.” 
+Ungan was sweeping the temple grounds. Dogo passed by, and said, “You are working very hard, aren’t you?” So Ungan said, “There is [a] person who doesn’t know how hard he is working.” 
 
-So completely beyond hard or easy, there is another person here. Apparently, Ungan is working hard, but on the other hand, Ungan says, you have to see another person who doesn’t work hard. 
+So completely beyond hard or easy, there is another person here. Apparently, Ungan is working hard. But on the other hand, Ungan said, you have to see another person who doesn’t work hard. [...]
 
-Then Dogo Zenji said, “If so, that is a second moon.” That means the dualistic world. You want to say there is a person who is working hard, or there is another person who doesn’t work hard –  so you want to say something in the dualistic world. 
+And then Dogo Zenji said, “If so, that is a second moon.” That means the dualistic world. You want to say there is a person who is working hard, or there is another person who doesn’t work hard –  [so] you want to say something in the dualistic world. 
 
-And then Ungan lifted the broom and said, “Which moon [sees] this?” 
+And then Ungan lifted the broom and said, “Which moon [is] this?” 
 
 That is the whole story. That’s why here it says, “The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors.”
 
 > Because of sweeping the grounds with “which moon?” ...
 
-This is [referring to] Ungan lifting the broom and saying, “Which moon?” Like the truth, or hard work, or not hard work: which moon?
+[This is referring to] Ungan lifting the broom and saying, “Which moon?” [That is] the truth? Or hard work? Or not hard work? Which moon?
  
 > ... or sweeping the grounds and wiping the floor with “the second moon” ...
 
-“The second moon” means, if you yawn, your zazen becomes yawning zazen. If you sleep, zazen becomes sleeping zazen. If you chase after thought, your zazen is also sleeping zazen... thinking zazen. Zazen is exactly one, connected with the whole universe. You cannot pin down what the zazen is. Do you do zazen, or is zazen helping your life? No. Real zazen is working together with the whole universe. But it appears in many ways. If you yawn: yawn zazen. If you feel bored: bored zazen. Many zazens appear. Those are *second moons*. 
+“The second moon” means, if you yawn, your zazen becomes yawning zazen. If you sleep, zazen becomes sleeping zazen. If you chase after thought, your zazen is also [...] thinking zazen. So zazen is exactly one, connected with the whole universe. You cannot pin down what the zazen is. Do you do zazen, or is zazen helping your life? No. Real zazen is working together with the whole universe. But it appears in many ways. If you yawn: yawn zazen. If you feel bored: bored zazen. Many zazens appear. Those are *second moons*. 
 
-“Which moon?” means you have to do it, just do it. Just do it. But on the other hand, if you see it, there is a second moon: sleeping zazen, yawning zazen, bored zazen. You can see the many moons. Those are the second moons, the dualistic world. That makes you confused: what is *real* zazen? But all you have to do is just *do* zazen. That zazen is what? You do zazen with which moon? Sleeping zazen? No. Or enlightenment zazen? No way! *[He chuckles.]* Or [doing] zazen? No, but you can say so. So finally the zazen you do is *what*? What is that? What kind of things do you do zazen with? Your human body? Or Buddha? *Nothing*. Just sit. 
+“Which moon?” means you have to do it, just do it. Just do it. But on the other hand, if you see it, there is a second moon: sleeping zazen, yawning zazen, bored zazen. You can see the many moons. Those are the second moons, the dualistic world. That makes you confused: what is *real* zazen? But all you have to do is just *do* zazen. That zazen is what? You do zazen with which moon? Sleeping zazen? No. Or enlightenment zazen? No way! *[He chuckles.]* Or deluded zazen? No way, you cannot say so. So finally the zazen you do is *what*? What is that? What kind of things do you do zazen with? Your human body? Or Buddha? *Nothing*. Just sit. 
 
-That is Ungan holding the broom and saying, “Which moon sees this?”
+That is Ungan holding the broom and saying, “Which moon [is] this?”
 
 And finally Dogen Zenji says, 
 
 > ... the attainment of observation is suchness of the entire universe. 
 
-Doing zazen is exactly suchness, the vastness of the entire whole world. It’s not suchness of your tiny human world; what you do in zazen is exactly manifesting the vastness of the entire whole world. You don’t know; there is no observation, and no bodies. But, zazen is clear. Exactly like sleep. If you sleep, you cannot perceive sleep, so no object. If there is no object, no subject. So *who* sleeps? You don’t know. But *you* sleep, clearly. So second moon, third moon is there. But practically, all you have to do is, lift your broom. And then, you have to say, “You sleep with which moon?” Just sleep. 
+So doing zazen is exactly suchness, the vastness of the entire whole world. [It’s] not suchness of your tiny human world; what you do in zazen is exactly manifesting the vastness of the entire whole world. You don’t know; there is no observation, and no bodies. But, zazen is clear. Just like sleep; exactly like sleep. If you sleep, you cannot perceive sleep, so no object. If there is no object, no subject. So *who* sleeps? You don’t know. But *you* sleep, clearly. So second moon, third moon is there. But practically, all you have to do is, lift your broom. And then, you have to say, “You sleep with which moon?” Just sleep. 
 
 #### 2 - 21:34
 
-So that is the first part of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”, where Dogen Zenji explains the meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
+So that is the first paragraph [of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”], where Dogen Zenji explains the meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
 
-According to the traditional understanding, you should accept your body as impure. That is a completely dualistic understanding. That’s why you have to see always skeleton, skeleton, always skeleton. I don’t mean this is *wrong*; it’s pretty good. But it is a moral understanding. And also this practice is open to just a particular kind of person; it’s not [even]. How can usual people practice, people who don’t have this opportunity? How? If they don’t have a skeleton, they cannot do it; and if they don’t *want to* [contemplate a skeleton], they cannot have a chance to practice this mindfulness. It’s not [here]. But this teaching given by Buddha is universal; if so, how can we accept this practice as universal? For this, we should understand this practice very differently. 
+According to the traditional understanding, you should accept your body as impure. Not pure. That is a completely dualistic understanding. That’s why you have to see always skeleton, skeleton, always skeleton. I don’t mean this is *wrong*; it’s pretty good. But it is moral understanding. 
 
-So first of all, simply speaking, please accept your human body as Buddha. You say, “What do you mean by Buddha?” You don’t understand Buddha, I don’t understand Buddha... so forget it! If you don’t understand the meaning of Buddha, forget it. Buddha is something beyond the idea of purity or impurity. Working together with all sentient beings, this is called the total picture of your human body. You cannot pin it down. Temporarily, we call that Buddha. Everyone has this Buddha. So why don’t you accept the human body as Buddha, and take care of it? That means, without any prejudice, from moment to moment you must be fresh. You must have fresh eyes to observe your human body as Buddha, constantly. 
+And also this practice is open to just a particular person; it’s not [here]. How can usual people practice who don’t have this opportunity? How? If they don’t have a skeleton, they cannot do it. And if they don’t *want to* [do that], they cannot have a chance to practice this mindfulness. It’s not [here]. But this teaching given by Buddha is universal; if so, how can we accept this practice as universal? For this, we should understand this practice [very differently]. 
 
-So that is what? That is nothing but everyday practice activities: sweeping the grounds, wiping the floors. You wash the dishes every day, but washing the dishes or wiping the floor is not separate, as you believe, it’s very profound practice for us. Our activities are not separate from Buddha’s teachings; that’s why Buddha’s teachings are very close to our everyday activities. But people misunderstand everyday activities in the common sense. [Everyday activities are] very deep, profound, to educate and deepen your life. We don’t understand that; that’s why Dogen Zenji has to constantly explain it like this. 
+So first of all, simply speaking, please accept your human body as buddha. You say, “What do you mean by buddha?” You don’t understand buddha, I don’t understand buddha... so forget it! If you don’t understand the meaning of buddha, forget it. [Buddha] is something beyond the idea of purity or impurity. Working together with all sentient beings, this is called the total picture of your human body. You cannot pin it down. Temporarily, we call that buddha. Everyone has this buddha. So why don’t you accept the human body like this, and take care [of it]? That means without any prejudice, constantly from moment to moment you must be fresh. You must have fresh eyes to observe your human body as buddha, constantly. 
+
+So that is what? That is nothing but everyday practice, activities: sweeping the grounds, wiping the floors. Because you wash the dishes every day, but washing the dishes or wiping the floor is not separate, as you believe, it’s very profound practice for us. Our activities are not separate from Buddha’s teachings; that’s why Buddha’s teachings are very close to our everyday activities. But people misunderstand everyday activities in the common sense. [Everyday activities are] very deep, profound, to educate and deepen your life. We don’t understand that; that’s why Dogen Zenji has to constantly [explain it] like this. 
 
 Do you have some questions?
 
@@ -258,13 +260,13 @@ Do you have some questions?
 
 **Same person:** Also, could you tell me you mean when you use the word “defilement”?
 
-**Katagiri Roshi:** *Defilement* is when you see something through discrimination [...] complicated by consciousness. That means you leave a trace of your perception. That is called *defilement*. 
+**Katagiri Roshi:** *Defilement* is when you see something through discrimination, [...] complicated by consciousness. That means you leave a trace of your perception. That is discrimination. That is called *defilement*. 
 
 **Same person:** So *undefiled* is just being in the activity.
 
-**Katagiri Roshi:** Mm-hmm. But it’s very clear; there is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, there is no object called “sleeping”. If there is no object called sleeping, very naturally you don’t perceive you who sleeps. For you, there is no subject, no body, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep.
+**Katagiri Roshi:** Mm-hmm. But it’s very clear; there is sleep as an object, and also a subject there. But when you are exactly participating in sleeping itself, the so-called process or function, there is no object called “sleeping.” If there is no object called sleeping, very naturally you don’t perceive you who sleeps. So [...] there is no subject, no body, and no object. But there is very clearly subject and object. That is the total picture of sleeping, between you and sleep.
 
-The same applies to [all] activities. Zazen is exactly [like] this; you can practice this point. And this zazen practice can be extended into everyday life. That is everyday activities: sweeping the ground, wiping the floor. 
+The same applies to our activities. Zazen is exactly [like this]; you can practice this point. And this zazen practice can be extended into everyday life. That is everyday activities: sweeping the ground, wiping the floor. 
 
 **Same person:** But at some point you can choose what activity you’re going to do?
 
@@ -276,49 +278,47 @@ The same applies to [all] activities. Zazen is exactly [like] this; you can prac
 
 **Same person:** But then there’s a point at which you lose that choice?
 
-**Katagiri Roshi:** You make a choice because we are living in the conscious world, so very naturally there are your objects and subjects. Your life is right in the middle of the conscious world. You must stay there, but nevertheless, you can go beyond. 
+**Katagiri Roshi:** You make a choice because we are living in the conscious world, so very naturally [there are] your objects and subjects. Your life is right in the middle of the conscious world. You must stay there, but nevertheless, you can go beyond. 
 
 **Same person:** Thank you.
 
-**Katagiri Roshi:** That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in Tenzo Kyōkun it says there are three minds: magnanimous mind, parental mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
+**Katagiri Roshi:** That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in *Tenzo Kyōkun* it says there are three minds: magnanimous mind, parental mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
 
 #### 2 - 30:10
 
-**Question:** *[Unintelligible]* *shikan* *[unintelligible]* is automatically leading to the right way and the bodhisattva way?
+**Question:** *[Unintelligible]* *shikan*, doing things without any trace, is automatically leading to the right way and the bodhisattva way?
 
-**Katagiri Roshi:** It is called “right”, but that *right* is not the concept of right opposed to wrong. That is called *sat dharma* in Sanskrit. *Sat* means right or correct, but that *sat* means *supreme* right, beyond our common sense, so-called right or wrong. The same applies to *impure*. So temporarily we can use the term *right*, but it’s not “right” in the usual sense. 
+**Katagiri Roshi:** It is called “right”, but that *right* is not the concept of right opposed to wrong. That is called *sat dharma* in Sanskrit. *Sat* means “right” or “correct,” but that *sat* means *supreme* right, beyond our common sense, so-called right or wrong. The same applies to *impure*. So temporarily we can use the term *right*, but it’s not “right” in the usual sense. 
 
 So if you practice continually like this, very naturally it is *right*, it is true human bodies. That’s why very naturally you grow, and your life is deeper. 
 
-**Same person:** If somebody wanted to be a very good thief, and he needed calmness while doing the job robbing the bank or something, then they can do zazen for doing those kind of, in a moral sense, bad things. But is doing shikan zazen, as you explained, or sweeping the floor, is there the same meaning or do you first have to have a direction to doing those?
+**Same person:** [...] If somebody wanted to be a very good thief, and he needed calmness while doing the job robbing the bank or something, then they can do zazen for doing those kind of, in a moral sense, bad things. But is that doing *shikan* zazen, as you explained, or sweeping the floor. Is that the same meaning or do you first have to have a direction to doing those things?
 
 **Katagiri Roshi:** Yeah, it’s a good question. *[He laughs.]* 
 
-That’s why people talk about “cross-country skiing zen”, “zen basketball”, or zen tea ceremony, zen kendo and judo. Or zen business... or zen perfume. *[Laughter.]* Sure, we say so – zen perfume, and zen basketball – because you can experience that *shikan* in every activity. Cross country skiing, or bank robbery... if you want, yes, you can do it. *[He laughs.]* But still it’s different, because real Zen doesn’t emphasize the short range. Zen is for the long range. If you want to do zazen for robbing money from the bank, that means very short range, don’t you think? You use your life in the small scale, you use zazen in the small scale, so [your] zazen becomes very small. That is what is called “zen bank robbery”. You can say so, but it’s not real, total Zen. *[He laughs.]* Don’t misunderstand this one. 
+That’s why people talk about “cross-country skiing zen”, “zen basketball”, or zen tea ceremony, zen kendo and judo. Or zen business... or zen perfume. *[Laughter.]* Sure, we say so – zen perfume, and zen basketball – because you can experience that *shikan* in every activity. Cross country skiing, or bank robbery... if you want, yes, you can do it. *[He laughs.]* But still it’s different, because real Zen doesn’t emphasize [the short range], [Zen is] for the long range. If you want to do zazen for robbing money from the bank, that means very short range, don’t you think? You use your life in the small scale, you use zazen in the small scale, so [your] zazen becomes very small. That is what is called “zen bank robbery.” You can say so, but it’s not real, total Zen. *[He laughs.]* Don’t misunderstand this one. 
 
-People always think, “That is zazen.” Sometimes even the Japanese believe it’s not necessary to do zazen, because whatever you do, everyday life is zazen. Some Japanese emphasize this. Of course it is; but it’s not real zazen. That’s a very prejudiced, very narrow understanding: always seeing in a certain angle, so-called bank robber, or policeman, or cross-country skier; always looking at zazen in terms of a certain view. But it’s not Zen. It’s *part* of Zen. 
+People always think, “that is zazen.” Sometimes even the Japanese believe it’s not necessary to do zazen, because whatever you do, everyday life is zazen. Some Japanese emphasize this. Of course it is; but it’s not real zazen. That’s a very prejudiced, very narrow understanding: always seeing in a certain angle, so-called bank robber, or policeman, or cross-country skier; always looking at zazen in terms of a certain view. But it’s not Zen. It’s *part* of Zen. 
 
-Real Zen penetrates every area of human life; never only a certain area like stealing money from a bank. [Beyond] stealing from the bank, washing your face, or walking on the street, *always* real Zen penetrates, helping. Or right in the middle of death, or after death, or before birth, wherever you may be – Zen helps. This is real Zen. 
+Real Zen penetrates every area of human life; never only a certain area [like] stealing money from a bank. [After] stealing from the bank, washing your face, and walking on the street, *always* real Zen penetrates, helping. Or right in the middle of death, or after death, or before birth, wherever you may be – Zen helps. This is real Zen. 
 
 #### 2 - 36:03
 
-**Question:** Before you were saying that if we have a [busy] mind, like bank robberies, in doing your zen, that’s short range. How about in taking vows then, too; if we vow to save all sentient beings, is [that] in the short range?
+**Question:** Before you were saying that if we have a *[unintelligible]*, like bank robberies, in doing your zen, that’s short range. How about in taking vows then, too; if we vow to save all sentient beings, is that looking at things in the short range?
 
-**Katagiri Roshi:** No, that’s *big range*. *[Laughter.]* How can you save all sentient beings? You have to [walk] constantly, you have to be right in the middle of *huge* oceans, because [you should be with] all sentient beings, countless number [of them]. It’s not short range, it’s not small oceans; it’s *huge* oceans. That is a vow to save all sentient beings. 
+**Katagiri Roshi:** No, that’s *big range*. *[Laughter.]* Vast range. How can you save all sentient beings? You have to [walk] constantly, you have to be right in the middle of *huge* oceans, because [you should be with] all sentient beings, countless number [of them]. It’s not short range, it’s not small oceans; it’s *huge* oceans. That is a vow to save all sentient beings. 
 
-I always say that vow is just like to swim in the ocean, which is vast. There is nothing to hold on to. You cannot stop swimming; you have to just keep going. Even though you say “tired,” or “hopeless”, or “hope,” whatever you think, your process, your activity must be going, completely beyond your ideas. That is a vow. It’s a huge range. 
+I always say [that] vow is just like to swim in the ocean, which is vast. There is nothing to hold on to. You cannot stop swimming; you have to just keep going. Even though you say “tired,” or “hopeless”, or “hope,” whatever you think, your process, your activity must be going, completely beyond your ideas. That is a vow. It’s really huge range. 
 
-That’s why, in a sense, consciousness always feels boring. Zazen is a little boring. That’s why people cannot stand up there. So very naturally, even the teacher cannot stand up there. *[He laughs.]* Very naturally the teacher gives some candy – “Here, eat this” – in the process of swimming, on the way to reach the other shore. The teacher is always encouraging. 
-
-Of course it is encouragement, but that encouragement really is available for a certain period of time. But no *[unintelligible]*. This is life and death. You just swim. 
+That’s why, in a sense, consciousness always feels “boring.” Zazen is a little boring. That’s why people cannot stand up there. So very naturally, even the teacher also cannot stand up there. *[He laughs.]* Very naturally the teacher gives some candy [...] in the process of swimming, on the way to reach the other shore: “Here, eat this one,” always encouraging. Of course it is encouragement, but that encouragement really is available for a certain period of time [only]. But no [entertainments], anyway. This is life and death. You just swim. 
 
 #### 2 - 38:56
 
 **Question:** Can zazen be used as an escape from obligations in life?
 
-**Katagiri Roshi:** Maybe in the beginning of doing zazen, you can see certain situations you can “escape” from. So you feel good, in a sense. But if you get into it more deeply, you can realize it’s not true. So next moment, you’re very confused. 
+**Katagiri Roshi:** Yes, maybe in the beginning of doing zazen, you can see certain situations you can “escape” from. So you feel good, in a sense. But if you get into it more deeply, you can realize it’s not true. So next moment, you’re very confused. 
 
-For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never seen before. But gradually you don’t feel good, because you cannot tune into the usual life. You can notice that there is trouble with having a good relationship with your friend ...
+For instance, in the beginning of practicing zazen, most people feel good, because you experience a lot which you have never [seen] before. But gradually you don’t feel good, because you cannot tune into the usual life. You can notice that there is trouble with your friend, in order to have a good relation [between you and your friend] ...
 
 #### Part 3
 
@@ -326,9 +326,9 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321c.mp3" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
 </p>
 
-**Same person:** You mean as a consequence of doing zazen ... ?
+**Same person:** You mean as a consequence of doing zazen, you start seeing ... ?
 
-**Katagiri Roshi:** Maybe so; maybe not. But in a sense you can get in too deeply. So it’s very difficult to live with people who are just right outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: it’s still a little difficult, because you already get in very deep. So the next experience is, you don’t feel good. In the beginning, you feel good, but on the other hand, you don’t. So you have to go beyond this. 
+**Katagiri Roshi:** Maybe so; maybe not. But in a sense you can get in too deeply. So it’s very difficult to live with the people who are just right outside of the gate, you know? It’s very difficult. Or even the people taking one step inside of the gate: it’s still a little difficult, because you already get in very deep. So the next experience is [that] you don’t feel good. In the beginning, you feel good, but on the other hand, you don’t. So you have to go beyond this. 
 
 #### 3 - 1:18
  
@@ -336,45 +336,57 @@ For instance, in the beginning of practicing zazen, most people feel good, becau
 
 **Katagiri Roshi:** Mm-hmm!  A narrow idea of purity ... ?
 
-**Same person:** I have still my Catholic definition of “pure” and “impure”, so is there some other word you could use that would say ... *[she laughs.]*
+**Same person:** Yeah, I have still my Catholic definition of “pure” and “impure,” so is there some other word you could use that would say ... *[she laughs.]*
 
-**Another person:** Wholesome and unwholesome may work?
+**Katagiri Roshi:** [Do you have one?]
+
+**Another person:** Wholesome and unwholesome may work.
+
+**Katagiri Roshi:** Oh. “Wholesome.”
+
+**First person:** Wholesome. Thank you. 
 
 *[Laughter.]*
 
-**Same person:** At one time during your lecture this morning you said “true”. Is that another word? And I thought you were saying that instead of “pure”.
+**Same person:** At one time during your lecture this morning you said “true.” Is that another word? And I thought you were saying that instead of “pure.”
 
-**Katagiri Roshi:** As in true body? Well, maybe. Mm-hmm. *[Laughter.]*
+**Katagiri Roshi:** Oh. “True body.” Well, maybe. Mm-hmm. 
+
+*[Laughter.]*
 
 Wholesome, unwholesome. It seems to me that wholesome or unwholesome is almost the same as purity or impurity.
 
 **Another person:** Does purity imply some sort of clarity or straightforwardness?
 
-**Katagiri Roshi:** Purity in Buddhism is not a result of doing something. Purity is the activity itself of doing something; that is purity. It is going beyond the idea of purity and impurity. The idea of purity is kind of a human sense of value. In terms of the dualistic sense, if you do *this*, then you can get *this*, and then you say purity or impurity. So purity or impurity are given to the result of the human activity. 
+**Katagiri Roshi:** *Purity* in Buddhism is not a result of doing something. Purity is the activity itself of doing something. That is purity. [It is] going beyond the idea of purity and impurity. The idea of purity is kind of a sense of human value. In terms of the dualistic sense, if you do *this*, then you can get *this*. And then you say it’s purity or impurity. So impurity or purity [are] given to the result of the human activity. 
 
-**Another person:** That’s why some translators like *wholesome*, because wholesome implies *whole*, not like it is some result. 
+**Another person:** That’s why some translators like *wholesome*, because wholesome implies *whole*, no emphasis on result.
+
+**Katagiri Roshi:** Mm-hmm. 
 
 **Another person:** So would you say the spirit of shikantaza [is the same as purity]?
 
-**Katagiri Roshi:** Sure. *Shikan* itself, activity of shikan itself, that is purity. 
+**Katagiri Roshi:** Sure. *Shikan* itself, activity of shikan itself. That is purity. 
 
-**Another person:** But it is not only that [in any sense].
+**Another person:** But it is not only that, [in any sense].
 
-**Katagiri Roshi:** Anything, if you do it exactly. 
+**Katagiri Roshi:** Anything, if you do it *exactly*. 
 
-Temporarily, we say purity. *[He chuckles.]* But that is no trace of purity. That is called purity. So that’s why purity is manifested as no purity. In Buddhism we always use negatives: no purity, or no eyes, no ears – that is exactly that you have to see some other aspect, so-called purity. The function of the purity, constantly. At that time, no purity.
+Temporarily, we say *purity*. *[He chuckles.]* But that is no trace of purity. That is called purity. 
+
+So that’s why purity is manifested as no-purity. In Buddhism we always use negatives: no purity, or no eyes, no ears – that is exactly you have to see some other aspect, so-called purity. The function of the purity, constantly. At that time, no purity.
 
 **Another person:** Well in a sense, then, what you’re saying is that purity and no-purity are the same thing.
 
-**Katagiri Roshi:** Yes, same thing, exactly. No different. But it’s very difficult to say about that activity or process itself. That’s why temporarily we use “no purity”. 
+**Katagiri Roshi:** Yes, same thing, exactly. No different. But it’s very difficult to say about that activity or process itself. That’s why temporarily we use “no purity.” 
 
 **Same person:** So there’s no impurity. 
 
-**Katagiri Roshi:** Sure, no impurity, no purity. That is the spirit of *shikan*; you are doing. 
+**Katagiri Roshi:** Sure, no impurity, no purity. That is the spirit of [the] *shikan* you are doing. 
 
-Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
+Just like sleep. *Shikan* sleep, you know? *[He chuckles.]* Shikan sleep is very pure, purity. That means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
 
-**Another person:** Is that similar to what Dogen talks about whole-being Buddha nature? No Buddha nature, Buddha nature, whole-being Buddha nature. 
+**Another person:** Is that similar to what Dogen talks about whole-being buddha-nature? No buddha nature, buddha nature, whole-being buddha nature. 
 
 **Katagiri Roshi:** [The self] is the entire whole world like this; that is the spirit of *shikan*. That is not an abstract idea, an abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
 
@@ -382,19 +394,19 @@ Just like sleep. Shikan sleep, you know? Shikan sleep is very pure, purity. That
 
 **Question:** Also we say “nothing to attain.” Then it’s like the question always comes up, why do we practice?
 
-**Katagiri Roshi:** But you already attain a certain stage; that’s why you have questions, like “why do you have to do it?” Do you understand? You already touch it. “No attainment” means just the one [feeling], nothing around this. So at that time, who touches this [feeling]? Nothing. Just like sleeping. Sleeping as object and sleeper as subject, just one [feeling]. Who touches sleep? I? No. Or, “I am touching sleep” means already you attain. But actually you are really sleeping exactly, so no attainment. 
+**Katagiri Roshi:** Well you already attain a certain stage; that’s why you have questions, like “why do you have to do it?” Do you understand? You already touch it. “No attainment” means just the *[unintelligible]*, nothing around this. So at that time, who touches this *[unintelligible]*? Nothing. Just like sleeping. Sleeping as object and sleeper as subject, just [one feeling]. Who touches sleep? I? No. Or, “I am touching sleep” means already you attain. But actually you are really sleeping exactly, so no attainment. 
 
 **Same person:** So arrogance is to attain.
 
 **Katagiri Roshi:** Sure. 
 
-**Same person:** *[Unintelligible]* subject and object.
+**Same person:** [Back to] subject and object.
 
-**Katagiri Roshi:** That is called very pure purity; beyond purity or impurity, beyond idea or trace of subject and object, exactly.
+**Katagiri Roshi:** That is called very pure purity. Beyond purity or impurity, beyond idea or trace of subject and object. Exactly there.
 
 #### 3 - 9:45
 
-**Question:** Instead of saying purity and impurity, could you also say complete and incomplete? 
+**Question:** Instead of saying purity and impurity, could you also say completeness, and complete and incomplete? 
 
 **Katagiri Roshi:** Sure. 
 
