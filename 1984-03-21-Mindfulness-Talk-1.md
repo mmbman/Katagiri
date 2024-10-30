@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 1"
 
 ### Summary 
 
-Katagiri Roshi discusses the Four Foundations of Mindfulness from the viewpoint of Zen Master Dogen, focusing on the first foundation, contemplation of the body. This series of talks examines the “The Thirty-Seven Conditions Contributing to Bodhisattva Practice” (*Sanjūshichi-bon-bodai-bunpō*) chapter of *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses.
+Katagiri Roshi discusses the Four Foundations of Mindfulness from the viewpoint of Zen Master Dogen, focusing on the first foundation, contemplation of the body. This series of talks examines the first part of the “Thirty-Seven Conditions Contributing to Bodhisattva Practice” (*Sanjūshichi-bon-bodai-bunpō*) chapter of *Shobogenzo*. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses.
 
 ### Transcript
 
@@ -26,9 +26,7 @@ Katagiri Roshi discusses the Four Foundations of Mindfulness from the viewpoint 
 
 These are the fourfold stages of mindfulness, which are very general and traditional in Buddhist practice. 
 
-(*Transcriber’s Note:* These four kinds of mindfulness are often called the *Four Foundations of Mindfulness*, or *Four Abodes of Mindfulness*, or a translation by Glenn Wallis is *the four areas of present-moment awareness*. The above description of the four kinds is from the first paragraph of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Elements of Bodhi,” the chapter of *Shobogenzo* referenced in this series of talks.)
-
-(*Transcriber’s Note:* Although Katagiri Roshi uses the word *impure* in this talk, starting in Talk 3 he uses *not pure*, or *not-pure*. In some – but not all – cases where he says *impure*, it may be helpful to substitute *not pure*, which carries less of a moral connotation in the West, or *not-pure*, which may carry a different sense altogether. He discusses this further in Talk 3.)
+(*Transcriber’s Note:* These four kinds of mindfulness are often called the *Four Foundations of Mindfulness*, or *Four Abodes of Mindfulness*, or a translation by Glenn Wallis is *the four areas of present-moment awareness*. The above list of the four is from the first paragraph of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Elements of Bodhi,” the chapter of *Shobogenzo* referenced in this series of talks.)
 
 First of all I would like to explain the contemplation or observation of the body as impure. 
 
