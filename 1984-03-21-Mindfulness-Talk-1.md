@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 1"
 
 ### Summary 
 
-Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dogen’s *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also: the meaning of “facing the wall,” and why the word *Zen* is overused.
+Katagiri Roshi discusses the Four Foundations of Mindfulness from the viewpoint of Zen Master Dogen, focusing on the first foundation, contemplation of the body. This series of talks examines the “The Thirty-Seven Conditions Contributing to Bodhisattva Practice” (*Sanjūshichi-bon-bodai-bunpō*) chapter of *Shobogenzo*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses.
 
 ### Transcript
 
@@ -100,15 +100,19 @@ Tranquility means *samadhi*, we say, [or] one-pointedness. In other words, tranq
 
 That is “observation” or “contemplation.”
 
-#### 1 - 32:56
+In zazen we practice facing the wall. According to Bodhidharma, he says wall meditation. Wall meditation means facing the wall, [...] observation of the wall, looking at the wall. “Looking at the wall” doesn’t mean *you* look at the wall, okay? The wall is *emptiness*. The wall is the source of existence; [there is nothing] there. 
 
-In zazen we practice facing the wall. According to Bodhidharma, wall meditation means observation of the wall, looking at the wall. Looking at the wall doesn’t mean *you* look at the wall. The wall is emptiness. The wall is the source of existence; there is nothing there. So doing zazen, facing the wall, means abiding firmly in zazen, right-now-right-here – and then, what can you experience? This is emptiness, nothing. But nothing doesn’t mean nothing, because simultaneously *vipassana* means you can touch very deeply the source of the human phenomenal world. That’s why in the *Nirvana Sutra* it says, “If you want to see suchness, the truth of the human world, you have to see it through meditation, zazen.” That’s why doing zazen is very important for us. 
+So doing zazen, facing the wall, means abiding firmly in zazen, right-now-right-here – and then, what can you experience? This is emptiness. Nothing. But *nothing* doesn’t mean nothing, because simultaneously *vipassana* means you can touch very deeply the source of the human phenomenal world. That’s why in the *Nirvana Sutra* [it says], “If you want to see suchness, the truth of the human world, you have to see it through meditation, zazen.” That’s why doing zazen is very important for us. 
 
-And the contemplation of the body: I told you, in this case the body is both the body and the mind, in the modern sense. Then the human body means the human body, and nutrition, and also human activities, and spiritual life. So you have to observe the human body, including nutrition and activities, spiritual life. All are connected. 
+And the contemplation of the body: I told you, *the body* is in this case both the body and the mind, in the modern sense. [Then] the human body means the human body, and nutrition, and also human activities, and spiritual life. That is called the human body. So you have to observe the human body like that, including nutrition, and activities, spiritual life. This is the human body. All are connected. 
 
-So what is the human body? We don’t know what it is; you cannot pin it down. *Nothing to say* means completely your body is emptiness. It’s vast. Finally, it is the entire universe, that’s why we say “the entire universe”. And “the ten directions”: The ten directions means the spatial dimensions and also the dimension in time. So your body is connected with all sentient beings which exist in space and time. That is your human body. So that’s why you cannot pin down what is your human body. At that time, that body is called Buddha’s body. Beyond purity or impurity, we say Buddha body. Or technically, we say dharma body: *dharmakāya*. *Dharmakāya* is completely beyond your speculation. Anyway, your body is dharmakāya. 
+So what is the human body? We don’t know what it is; you cannot pin it down. It’s vast. So finally it is the entire world. *Nothing to say* means completely your body is emptiness. It’s pretty big. That’s why we say “the entire world.” 
 
-That’s why first he speaks like this. That’s why “the observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions.”
+“Of the ten directions” means the spatial dimensions and also the dimension in time. So your body is connected with all sentient beings, which [are] existing in space and time. That is your human body. 
+
+So that’s why you cannot pin down what is your human body. At that time, that body is called Buddha’s body. Beyond purity or impurity – we say buddha-body. Or technically, we say dharma body: *dharmakāya*. Dharmakāya is completely beyond your speculation. Anyway, your body is dharmakāya. 
+
+That’s why first he [speaks] like this. That’s why “the observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions.”
 
 #### 1 - 37:44
 
@@ -116,27 +120,29 @@ That’s why first he speaks like this. That’s why “the observation that the
 
 > This is the true body, and therefore is observing the body as impure, which transcends pure and impure.
 
-It says “transcends pure and impure” – this is okay, I understand it, but literally Dogen Zenji says something more alive:
+Here it says “transcends pure and impure.” But literally Dogen Zenji [says something] more vivid. He says, let me say:
 
 > This is the true body, and therefore is observing the body as impure, *which is vividly hopping along*.
 
-Literally he says “hopping long”, or “jumping along”, or “vividly living”. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is living, working constantly. Your body is leaping, jumping along, living vividly.
+Literally he says “hopping long”, or “jumping along”, or “vividly living.” Here it says “transcends pure and impure” – this is okay, I understand it, but literally Dogen Zenji says [something] more alive. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is leaping. Working constantly: your body is leaping, jumping along, living vividly, constantly.
 
-That’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of sesshin is different. You always expect, “In *this* sesshin, I would like to have a *good* sesshin.” Of course, but if you’re jumping into it, sesshin is not an idea, sesshin is something alive, because *you* do it. Your human body is something alive, so [...] finally the sesshin is going in a completely different way from what you have expected. 
+So that’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of *sesshin* is different. You always expect, “In *this* sesshin, I would like to have a *good* sesshin.” Of course, but if you’re jumping into [it], sesshin is not [your] idea, sesshin is something alive. Because *you* do it. Your human body is something alive. So [...] finally the sesshin is going in a completely different way from what you have expected. 
 
-So whatever you say – sesshin, or human body, breath, your eyes, [your eye nerves], activities, spiritual life – all are something alive. And then, you have to observe or contemplate that human body which is vividly living. Not an idea; not the human body separate from mind; not the human body separate from the trees, birds, or human activities. We have to see the human body which is vividly alive: living, jumping, hopping along. Because when your body is really hopping along or living, you don’t know what the human body is. That is called *transcend*. So *transcend* your ideas – your idea of purity or impurity, or good or bad. You don’t know, you cannot pin down ... 
+So whatever you say – sesshin, or human body, breath, your eyes, the nerves of your eyes, activities, spiritual life – all are something alive. And then, you have to observe or contemplate that human body which is vividly living. Not an idea. Not the human body separate from mind. Not the human body separate from the trees, birds, or human activities. We have to see the human body which is vividly alive: living, jumping, hopping along. Because when your body is really hopping along or living, you don’t know what the human body is. 
+
+That is called *transcend*. So *transcend* your ideas – your idea of purity or impurity, or good or bad. You don’t know, you cannot pin down ... 
 
 #### Part 2
 
-<p align="center" style="font-style: italic">
+<p style="font-style: italic">
 <a href="https://www.mnzencenter.org/uploads/2/9/5/8/29581455/dk19840321b.mp3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
 </p>
 
 ... That’s why your body is the *true* human body. 
 
-Rinzai Zen Master said, “The true human body is coming and going from every pore of your body.” But a monk didn’t understand this, and asked, “What is that?” Immediately Rinzai grabbed him and shook him, saying, “How stupid you are!” and pushed him away. (*Transcriber’s Note:* This is probably referring to Case 38 of the *Book of Equanimity*, “Linji’s (Rinzai’s) ‘True Person’”.) That was because the human body is considered very naturally as just the human body, completely separate from activities, nutrition, spiritual life, and the trees and birds, [but] if you do that, you cannot keep your human body healthy, as a Buddha. Real health is to take care of human life as a Buddha, beyond purity or impurity. That is really perfect health. 
+Rinzai Zen Master said, “The true human body is coming and going from every pore of your body.” But a monk didn’t understand this, and asked, “What is that?” Immediately Rinzai grabbed him and shook him: “How stupid you are!” And pushed him away. Because the human body is considered very naturally as just the human body, completely separate from activities, nutrition, spiritual life, and the trees and birds. Completely separate. [But] if you do that, you cannot keep your human body healthy, as a buddha. Real health is to take care of human life as a buddha, beyond purity or impurity. That is really perfect health. (*Transcriber’s Note:* The story probably refers to Case 38 of the *Book of Equanimity*, “Linji’s (Rinzai’s) ‘True Person’”.) 
 
-That’s why Dogen Zenji says, “This is the *true* body.” Your body is nothing but a bag of skin, but simultaneously it is something beyond a bag of skin. What is this? The universe. Your body is working with the universe! It is really true. That’s why it is the real, true body. You cannot separate what is the bag of skin and what is the universe; it’s working together. 
+That’s why Dogen Zenji says, “This is the *true* body.” [...] Your body is nothing but a bag of skin, but simultaneously it is something beyond a bag of skin. What is this? The universe. Your body is working with the universe! It is really true. That’s why it is the real, true body. You cannot separate what is the bag of skin and where is the universe. It’s working together. 
 
 So, this is the *true* body, and therefore it is observing the body as impure, which is vividly living. 
 
@@ -144,15 +150,15 @@ So, this is the *true* body, and therefore it is observing the body as impure, w
 
 And next he says,
 
-> If there is no detachment, there can be no attainment of this observation. 
+> If there is [no] detachment, there can be no attainment of this observation. 
 
 But literally he says “no jumping-around” or “no living”:
 
 > If there is no [vivid livingness], there can be no attainment of this observation. 
 
-It means, if you are really merging with your activities, you don’t know what you are doing. Your activities are very clear, you know pretty well what you are doing, but right in the middle of the *process* of the activities, you don’t know; observation doesn’t work. But it’s very clear.
+It means, if you are really merging with your activities, you don’t know what you are doing. Your activities are very clear, you know pretty well [what you are doing], but right in the middle of the *process* of the activities, you don’t know; observation doesn’t work. But it’s very clear.
 
-Just like sleep. When you sleep like a rock, you don’t know, you don’t perceive what’s going on. But sleep exists, very clearly. And also your human body observes very clearly, but your perception doesn’t accept the observation, so [relation] doesn’t work. You cannot contemplate [it], but sleep is constantly going. Your human body, your human mind, exactly participates in sleep. At that time, there is no sleep. That’s why here it says that no detachment – but literally he said no *jumping-around-ness* or no *livingness* – is no attainment of observation. Because you don’t know. But sleep is there, very clearly. 
+Just like sleep. When you sleep like a rock, you don’t know, you don’t perceive what’s going on. But sleep exists very clearly. And also your human body observes very clearly, but your perception doesn’t accept the observation, so observation doesn’t work. You cannot contemplate [it], but sleep is constantly going. Your human body, your human mind, exactly participates in sleep. At that time, [there is] no sleep. That’s why here it says [...] “no detachment,” but literally he said no *jumping-around-ness* or no *livingness* is no attainment of observation. Because you don’t know. But sleep is there, very clearly. 
 
 So, no observation. This is just like zazen; *samatha*. If you do it exactly, you experience tranquility. But the real pure sense of tranquility is *you don’t know*. All you have to do is constantly abide firmly in zazen; that’s it. That is called *tranquility* or *quiescence*, if you want to put a name on it. But actually, you don’t know. No observations, no contemplation there. 
 
