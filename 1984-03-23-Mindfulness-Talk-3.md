@@ -11,25 +11,25 @@ If you observe the body, the body observes you; there is no one-way traffic. And
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
-
-**This talk is split into two files in the audio archive: [Part 1](#part-1) and [Part 2](#part-2)**
-
 #### Part 1
 
-<p align="center" style="font-style: italic">
+<p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29220017" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi:** Let me read the next part:
+**Katagiri Roshi:** Let me read the next paragraph:
 
 > Observing the body is body observing, that is, not the observation of other things. The observation at the very moment is far and away the most excellent occurrence. When body observing is manifested, mind observing cannot be groped and found, nor manifested. Therefore it becomes *vajra samadhi* and *śūraṃgama samadhi*; both are observation of the body as not-pure. The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. It is beyond a matter of drawing comparison between purity and impurity. It is body-being-is-not-pure, or body-manifesting-is-not-pure. 
+>
+> (From Katagiri Roshi’s own translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shobogenzo*.)
 
-[Completely] you don’t understand what it says. Even in Japanese, we don’t understand he wants to say. 
+[Completely you] don’t understand what it says. Even in Japanese, we don’t understand he wants to say. 
 
-I translated [this] a different way from this [other] version (translated by Kōzen Nishiyama). [That one] tries to translate the original [in a way where] he wants readers to understand it if they read it. That’s very compassionate, very kind. But at that time, that translation goes far away from the original. Because Dogen Zenji uses terms as one word, not separately, for instance *body-being-is-not-pure*, and *body-manifesting-is-not-pure*. Each word has a very profound meaning. If you try to translate it in plain words in order to make people understand through your knowledge, completely it is far from the original. Even though in Japanese we don’t understand it, each term [Dogen] uses has a reason why he used it, and it has very profound meaning. That’s why I translate it in a different way, even though you don’t understand it. 
+*[Someone asks for him to read it again, and he does.]*
 
-But that’s a very interesting thing which always happens in *Shobogenzo*. People don’t understand it, and if people don’t understand it, we try to make *Shobogenzo* read in an easy way. But if you do that, the translation becomes very shallow. Through that translation you can convey Dogen’s thought or religion in a sense, but in a shallow way. It’s pretty difficult to translate it into English – or into modern Japanese *[he laughs]*. It’s pretty hard. So that’s why we have to directly face the original text, and try to understand it. That’s pretty important. For century after century, many priests and monks have done it in that way. 
+I translated [it] a different way from this [other version] (translated by Kōzen Nishiyama). [That one] tries to translate the original [in a way where] he wants readers to understand it if they read it. That’s very compassionate, very kind. But at that time, that translation goes far away from the original. Because Dogen Zenji uses a term, for instance *body-being-is-not-pure*, [as] one word, not separately. And *body-manifesting-is-not-pure* is also one word. Each word has a very profound meaning. If you try to translate it in plain words in order to make people understand through your knowledge, completely it is far from the original. Even though in Japanese we don’t understand it, each term [Dogen] uses has a reason why he used it, and it has very profound meaning. 
+
+That’s why I translate it in a different way, even though you don’t understand it. But that’s a very interesting thing which always happens in *Shobogenzo*. So that’s why people don’t understand. And if people don’t understand it, we try to make *Shobogenzo* read in an easy way. But if you do that, the translation becomes very shallow. Through that translation you can convey Dogen’s thought or religion in a sense, but in a shallow way. It’s pretty difficult to translate it into English, or into modern Japanese *[he laughs]*. It’s pretty hard. So that’s why we have to face directly the original text and try to understand it. That’s pretty important. For century after century, many priests and monks have done it in that way. 
 
 #### 1 - 6:56
 
