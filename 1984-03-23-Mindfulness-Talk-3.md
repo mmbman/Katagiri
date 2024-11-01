@@ -23,7 +23,7 @@ If you observe the body, the body observes you; there is no one-way traffic. And
 
 **Katagiri Roshi:** Let me read the next part:
 
-> Observing the body is body observing, that is not the observation of other things. The observation at the very moment is far and away the most excellent occurrence. When body observing is manifested, mind observing cannot be groped and found, nor manifested. Therefore it becomes *vajra samadhi* and *śūraṃgama samadhi*; both are observation of the body as not-pure. The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. It is beyond a matter of drawing comparison between purity and impurity. It is body-being-is-not-pure, or body-manifesting-is-not-pure. 
+> Observing the body is body observing, that is, not the observation of other things. The observation at the very moment is far and away the most excellent occurrence. When body observing is manifested, mind observing cannot be groped and found, nor manifested. Therefore it becomes *vajra samadhi* and *śūraṃgama samadhi*; both are observation of the body as not-pure. The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. It is beyond a matter of drawing comparison between purity and impurity. It is body-being-is-not-pure, or body-manifesting-is-not-pure. 
 
 [Completely] you don’t understand what it says. Even in Japanese, we don’t understand he wants to say. 
 
