@@ -17,9 +17,11 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [***Platform Sutra***](platform-sutra)
 - [***Shobogenzo Genjokoan***](genjokoan)
 
-Readers should be aware that these topics come up in many places within Katagiri Roshi’s talks, not just within these series. 
+These lists will be updated as talks are transcribed. Readers should be aware that the topics above come up in many places within Katagiri Roshi’s talks, not just within these series. 
 
-These lists will be updated as talks are transcribed. 
+Please note that these transcripts are a living work in progress (like a leaping fish). Corrections and improvements are made on an ongoing basis. 
+
+Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 ## Latest Updates
 
