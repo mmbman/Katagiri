@@ -17,9 +17,9 @@ title: "Mindfulness – Talk 4"
 
 > Studying in such a manner, in the time of demons-becoming-buddhas we subdue demons and make buddhas with demons. In the time of buddhas-becoming-buddhas we are mindful of buddhas and make buddhas with buddhas. In the time of people-becoming-buddhas, we bring harmony to people and make buddhas with people. We should study the truth that there is the approach to buddhas where we are taking advantage of.
 > 
-> (From Katagiri Roshi’s own translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shobogenzo*.)
+> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shobogenzo*.)
 
-#### 2:16
+#### 1 - 02:16
 
 > Studying in such a manner, ...
 
@@ -47,7 +47,7 @@ Apparently, you washing your face or the other person washing their face, almost
 
 Anyway, that’s why Dogen Zenji says, “Studying in such a manner.” We have to study, observe, contemplate, and research our life in this way. That is called deepening your life. Not seeing your life in the flat dimension. Seeing your life in the flat dimension, that life is very realistic, reasonable – but very thin. Not so deep. 
 
-#### 13:24
+#### 1 - 13:24
 
 So Dogen Zenji says, “Studying in such a manner...”
 
@@ -99,7 +99,7 @@ So, that is called buddha, we say buddha. “Demons are buddha.” If you have o
 
 You know the bee hive. If you see a bee hive, more or less most of people feel fear, because bees sting you. But the bee hive itself is very quiet. If you leave it quietly, it is quiet. Because bee hive is buddha. 
 
-The same applies to man and woman. Woman always emphasizes the right of the woman, you know, but man always emphasize man's pattern of thinking, woman always emphasize woman's pattern of thinking, and always fighting each other. In a sense this is alright, but we should know, who becomes buddha. Renting or borrowing the man's body or mind and then woman should attain enlightenment or buddha: no way, you cannot do it. Woman becomes buddha by woman, anyway. You cannot borrow the man's body and mind. That is why man and woman anyway practice hard, and we are already buddha, that is why we can do it. We can do it. But we don't see it. We always see the man, woman in terms of a sense of value, evaluation, in terms of certain *ism* or ideas. That is why it is very difficult to know how you become buddha, how you can live in peace and harmony. To live in peace and harmony means you should become buddha ...
+The same applies to man and woman. Woman always emphasizes the rights of the woman, you know, but man always emphasize man's pattern of thinking, woman always emphasize woman's pattern of thinking, and always fighting each other. In a sense this is alright, but we should know who becomes buddha. [...] Borrowing the man's body or mind and then woman should attain enlightenment or buddha: no way, you cannot do it. Woman becomes buddha by woman; you cannot borrow the man's body and mind. That is why man and woman practice hard, and we are already buddha, that is why we can do it. We can do it, but we don't see it. We always see the man [or] woman in terms of a sense of value, evaluation, in terms of certain *ism* or ideas. That is why it is very difficult to know how you become buddha, how you can live in peace and harmony. To live in peace and harmony means you should become buddha ...
 
 ### Part 2
 
@@ -107,8 +107,43 @@ The same applies to man and woman. Woman always emphasizes the right of the woma
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/trak-2-of-3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
 </p>
 
+... If you stumble in the realm of woman, you have to be woman and spring back in the realm of woman, and then you become buddha. But we don't do it. If we stumble over in the realm of woman, we try to get something, you know, and expect a certain paradise in the heavens, and try to spring back again over there. That is borrowing the man's body and mind, job, status, et cetera, and then try to stand up. That is always fighting, you know. That is called [fighting] or *ism*. 
 
+But anyway, even [if] you don't understand this meaning that “[in the time of] demons-becoming-buddha we subdue demons and make buddha with demons,” this is really true. So in your whole life, what does it mean? You have to contemplate, you have to observe the significance of Dogen's statement in your whole life. 
 
+#### 2 - 01:22
+
+Next he says, 
+
+> In the time of buddhas-becoming-buddhas we are mindful of buddhas and make buddhas with buddhas. 
+
+This [means] your body is already buddha, your mind is buddha, and every aspect of your human life, so-called daily routine, manifested by your body and mind, are nothing but [buddha]. If so, to practice buddha is a very simple practice. A very simple practice, just like a stream of water: accept, and pass by. Face, meet something, and pass by. 
+
+But it doesn't mean senselessness. Human sense, [the] sense of humanity works, very naturally. That's why there is a practice so-called “to subdue” or cut off strings, anyway. Because we have human feeling, [...] \[human] sense, or emotion and consciousness; many things work. If you don't have human sense, human emotions, it's very easy to deal with the tape recorder as a buddha. You know? Just like a bird. It's very simple. But we don't. We are not just like a bird and trees. We have very complicated emotions and consciousness, and through this consciousness and emotions then we understand very deep human life.
+
+So “in the time of buddhas-becoming-buddha we are mindful of buddhas and make [buddha with buddha]” means your practice is your daily life. The practice of mindfulness is nothing but achieving continuation of simplicity. Buddhas, meet, tape recorder, gassho – pass by. That’s continue from day to day. In everyday busy life, return to the center. Be still. Observe the total picture of the human world. Right in the middle of noisiness, return to the center. A thousand million times, we have to repeat again and again. That is called *bodhi mind*; I mention it very often. *Bodhi mind*, the way-seeking mind. At that time, even a moment, if you can return to the center, so-called quiescence, *shamatha*, you can be mindful of buddhas and make buddhas with the buddhas, because your body and mind is buddha. 
+
+#### 2 - 05:22
+
+So next, he says:
+
+> In the time of people-becoming-buddhas, we bring harmony to people and make buddhas with people.
+
+We are buddha. Okay? We are buddha. All human beings are buddha. All sentient beings are buddha. If so – why is it we have to practice? If we are buddha, we have to take responsibility for making [it] alive in our daily life. 
+
+*Buddha* is not metaphysical ideas or not philosophical, religious ideas. Buddhas are something alive, vividly, like a leaping fish, [in] every moment, in every aspect of your life. Washing your face, going to work, walking on the street, gassho, bow, whatever – we call buddha. If so, we bring harmony to people, because all we have to do is [...] just to see the winter and pass by. Just to see the severe winter in Minneapolis and don't judge, evaluate. *[He chuckles.]* But first we judge, evaluate, the weather. Then, “I don't like,” or “I like.”
+
+People always ask me, do you like Minnesota weather? *[He laughs.]* I say, “Yes.” But I don't think “yes.” *[Laughter.]* Because I want to say no, but if I say no, people continue to ask me, “Why do you live here?” So I don't want to discuss about it. *[He laughs, and the audience laughs.]* That's why, “I like it.” But actually I don't like it. 
+
+So if I don't like it, why do I live here? Because here is a Zen Center. I am still free, so even though Zen Center is here, I can go any place. But I don't want [to]. So as long as I am here, I should say I like it. *[He laughs.]* I say, “I like it!” ... But I don't like it. *[Laughter.]* 
+
+So the reason why I am here is: nothing. Just, I am here. *[He chuckles.]* So my presence in Minneapolis is completely buddha – pure, very pure. And then if you ask me why, and then I show the virtuous quality of Katagiri’s presence in Minneapolis. That's it. 
+
+The trees, birds, and sparrows [have a] very simple life. When the severe winter comes, they just face/see/meet severe winter, and live. When they have to die in the severe winter, then they just die. We also should do like that. But we are not the same as a bird. We have consciousness, emotions, feelings, and through this we have to live, just like the trees, birds. 
+
+So that is simplicity in life. After we pass through the filter again and again, then we can see simplicity. That simplicity is really polished, refined, taking for many, many years. It is completely different from simplicity in life which birds, trees possess. Completely different. They live in a simple way. We live in a simple way, but [the] simplicity is different. Thanks to our emotions [and] consciousness, we can profound and refine [...] simplicity in life. That is called buddha. 
+
+So that's why the Dogen Zen says, “In the time of people-becoming-buddhas, we bring harmony to people.” This is our practice. Constantly we bring harmony and peace to people, to us. Everyday; nothing special practice.
 
 ### Part 3
 
@@ -116,11 +151,165 @@ The same applies to man and woman. Woman always emphasizes the right of the woma
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36302531" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
 </p>
 
+... Even [if] you can talk with your parents who died 20 years ago, you can talk by *[unintelligible]* itself, with the computers. I’m not [jealous]... that’s kind of [a delusion. *[He laughs.]* 
 
+In San Francisco, one of the students is very interested in programming computers. He is making a particular program called “Sensei.” *[He laughs.]* *Sensei*, do you know that term? That is “teacher.” He is making a program called Sensei. It means to give lots of input of the experience of zazen *[he laughs]* and finding solutions to human problems in terms of Zen teaching. Do you understand? Is that alright? *[Some laughter.]* He is making a program. That is wonderful, isn't it? So I said, “That’s wonderful; please give me one if you make it.” *[He laughs.]* He is making it now. It is interesting. 
 
+So at that time, it’s not necessary to do zazen, anyway. The computer tells you solutions of human problems... But human beings are really something alive. So whatever kind of material you use, you cannot understand human beings who is alive perfectly. Just like your breath, and your heart. 
 
+So the important practice is for us to bring harmony day by day to your mind, to your body, and live with the people. That is “make buddha with people.” Make buddha, anyway. It means live in peace. 
 
-### End of Talk
+Using what? Not using your body and mind, using the Buddha. If you use your body, at that time that body is already something evaluated by your sense. So that body is already put a certain label on it, “dirty” or “pure.” But you have to use human body as a buddha. That means your body is always fresh, every day fresh. Every day your body, your mind has great opportunity to grow, to develop. Whatever kind of physical or mental type you have, basically your body and mind are always fresh, like a white canvas. You can put any kind of color on it. 
+
+That's why in *Bendowa*, Dogen Zenji [says], “Even though dharma is amply present in you, it is not manifested if you don't practice it.” So your body and mind are exactly buddha. But we have to use it. Using, taking the form of body and mind as a buddha. And you have to bring the harmony. Very naturally you can bring the harmony to your life and make a buddha. If you make a buddha, you can live your life in peace and harmony with the people, together. Very naturally. 
+
+#### 3 - 05:50
+
+> We should study the truth that there is the approach to buddhas where we are taking advantage of.
+
+We should contemplate and understand and study the truth. There is a truth, there is a principle, there is a reason. Okay? We should study the principle or the truth or reason. Nobody can change it. That principle is the approach to buddha, the pathway to buddha, to Buddha's world, to peaceful life, to liberated life, whatever you say. 
+
+There is a pathway to liberated life, or freedom, liberation, buddha – whatever you say – [which is] in the place where you are using, where you are taking advantage of. If you use your body in a small scale – *small scale* means in terms of whether you satisfy your desire or not, always checking – in terms of this small scale, if you use your body, your body becomes very small. But if you use your body in a big scale – *big scale* means without having any particular ideas on your body and mind, so called purity or impurity, good or bad, right or wrong – your body becomes big, your life becomes big. That is the place where you are using, you are taking advantage of. 
+
+When I do gassho and bow to you – whatever you do, whatever you think [of] me, anyway do gassho and respect you – or, next moment I [am angry] at you and hit you, quite a different world appears. [...] I exist in the same situation, but if I do gassho, that world is quite different from the world [where] I [hit] you. Quite different. But apparently, I am the same person and you are same person, and the situation, circumstances are the same. But how I can use that circumstances, how I can use myself and others: that is a pathway, a pathway to go through. You can see the very clear pathway to go through, toward buddha, toward peace and harmony. 
+
+That is nothing but process, practice. That is using, taking advantage of yourself and your object, and your partners: microphone, whatever it is. It really depends on your practice, from day to day. That’s all we have to do. 
+
+That’s why Dogen Zenji says the most difficult practice is to bring harmony and peace to our human body and mind. It is [the] most difficult practice. More than [having] mysterious powers, you know, by particular practice. Anyone can have mysterious powers by particular practice! But it is very difficult to bring harmony and peace to your mind, to your body, and live in peace. Making buddhas everyday, and helping others – it is very difficult. 
+
+But that is most important. That is called the practice of mindfulness through your body. 
+
+That's why Dogen Zenji [talks about] in this section the meaning of observing the body as not-pure. That is, anyway, through your body. “Let's observe your body” means your body and your object, or the human world, and various aspects of the life manifested by your body and mind. [What’s that?] All things you can see are something beyond the idea of purity or impurity. That is the point we have to observe, contemplate, as the practice of mindfulness. 
+
+So quite [a] different meaning from very traditional [meaning]. According to the traditional understanding of observing the body as impure or not-pure, [that] means your body is not pure. So if you believe your body is pure, very naturally you create arrogance. You know, “pure” means “I am rich,” “my mind is great,” or “my zazen is great.” If you do something good, immediately you think so. That is arrogance always comes up in every area of your life, constantly. 
+
+Arrogance is many kinds. Seven [kinds of] arrogance – I don't want to explain this one, but seven kinds of arrogance always appear in your everyday life. But we don't see it. If you study carefully, very naturally we always have seven kinds of arrogance always. 
+
+So in order to let you be free from that arrogance, Buddha teaches us, “Let's see your body [as] not pure.” [That] means not arrogant, don't create arrogance. For this, at any cost, you should see your body as impure. 
+
+Even in Christianity. [As] I told you, I saw the famous picture [of] a Catholic monk standing up and holding a human skeleton. Do you know that picture? A beautiful picture. And watching the skeleton, the monk wears a monk's robe and hat – just stand up and watch the skeleton. *Very* impressive, very quietness there, very wonderful. I saw it in Omaha.
+
+OK, do you have a question? 
+
+#### 3 - 15:05
+
+**Question:** What do you mean by the word ‘demon’?
+
+**Katagiri Roshi:** Huh?
+
+**Same person:** How can you see the word ‘demon’ outside of making a judgement about it?
+
+**Katagiri Roshi:** Well, generally speaking, ‘demons’ are physical or psychological states which are against the satisfaction of your desires. Against your will, et cetera; against your life. Always something against. 
+
+**Same person:** So it seems like [...] it’s already a negative term. [...] So remember how we were talking about, for example, rice. You know, it’s just rice, and if you spill it on the floor then it’s dirty. How can you see a demon just as a demon? 
+
+**Katagiri Roshi:** If you use a ‘demon’, already you understand the demons in terms of a sense of value or evaluation, don't you? 
+
+**Same person:** Right...
+
+**Katagiri Roshi:** That's [why]. But [...] in terms of sense of evaluation and value, human value, you understand demon as something negative. But that is already kind of something that appears on the surface of a demon's life. But [a] demon itself is completely nothing. Only when you take [a] demon as something wrong, [the] demon appears as something wrong. 
+
+**Same person:** Well, it seems like the term demon itself implies that already. 
+
+**Katagiri Roshi:** Sure. That's why we have to understand the demons more deeply, you know? Don't be cheated by the term. Do you understand what I mean? 
+
+We already get use of the meaning of the term ‘demons.’ Already we have a preconception: *demons* is something wrong. But that is already idea of demons coming from your sense, evaluations. But we have to understand demons in the equal level of buddha. White canvas. That's why demons and devils always appear in Buddhist scriptures.
+
+#### 3 - 18:01
+
+**Question:** When you were talking about being hit from behind: is that the purpose of that stick? 
+
+**Katagiri Roshi:** Generally. 
+
+**Same person:** Is the point to make you mad? 
+
+**Katagiri Roshi:** I am talking about a general thing, not a stick. 
+
+**Same person:** What's the stick for? 
+
+**Katagiri Roshi:** Well, it depends on you. *[Some laughter.]* But the stick we use is, anyway, encouraging you in many ways.
+
+**Same person:** It's supposed to *encourage* you? 
+
+**Katagiri Roshi:** Yes. *[Some laughter, and Katagiri laughs.]* Yes. I hope so. *[Laughter.]* I *pray* that way. Okay? Whatever you accept, whatever you feel, I pray like this [...] 
+
+#### 3 - 19:10
+
+**Katagiri Roshi:** What do you think of ‘demons’, [as] she mentioned? Do you have something to say? 
+
+**Question:** How would you explain somebody like Hitler? I mean, how can you not make a value judgement? 
+
+**Katagiri Roshi:** Do you think he is a demon? 
+
+**Same person:** I think you could [say that]. 
+
+**Katagiri Roshi:** Yeah, maybe so. But that is you already see the Hitlers in terms of human evaluation. But Hitler himself is human, anyway. That human temporarily called Hitler appears under certain circumstances, and then Hitler did something [unusual]. That's it. But if I were the Hitler, *[he laughs]*, maybe I could do it, the same things. That is a possibility we have. Because we are [...] white canvas. We are white canvas. So any kind of ink, drop on the canvas and draw a picture. [We have] countless possibilities. Do you understand that? 
+
+**Same person:** It seems like, what I'm saying is that, ok maybe if you take somebody like Hitler and say, just like you say about the rice, that you don't necessarily have to make a judgment on him until he makes a mess, or until he does something bad. Right? But it seems like the word *demon* is sort of like the word *mess* or *dirty*. Do you know what I mean? You can call Hitler a demon after he does something, like spills himself on the floor or something. Do you know what I mean? 
+
+**Katagiri Roshi:** Yeah, [I think so].
+
+**Same person:** And it seems like, I can't see *demon*, *demon* seems like it's already a word like *dirty*. 
+
+**Katagiri Roshi:** I don't think so. That is already you... [Well,] yes, in a sense it's right. But in a sense it's not *right*, because demons help human beings to awaken a wonderful world, how wonderful [the] world is. Thanks to the demons we attain enlightenment, you know? If everyone is a wonderful enlightened person, even [if] I attain enlightenment nobody pays attention, you know? Do you understand? [If] everyone attains enlightenment here, and then I practice and attain enlightenment, nobody pays attention to me. 
+
+**Same person:** So what? That's good. 
+
+**Katagiri Roshi:** Yeah, that's good! *[Laughter.]* That's good. You know? *[He laughs.]* That's great. 
+
+So even the demons, if the demons [seem to be] white canvas, it's not a particular thing. But when you deal with something in a particular way, it becomes a particular thing. It depends on you. 
+
+That's why, understanding that case of Hitlers. People criticize Hitler himself, but we should understand Hitler in terms of not human evaluation, but first of all put the Hitler as a human in the same and one nature we live as a human. I, Hitler, same. Okay? In the exactly same [and one nature]. And then let's deal with this guy, and us. Okay? That is the first practice for us. 
+
+And then, he did something. That *he did something* is what happens around him. But human beings are same. We, Katagiri and Hitler, are the same thing. But different things are Hitler's a German, [and] I, Katagiri, am Japanese. And Hitler lived in Europe during the Second World War, and the particular circumstances. And he had some ideas, and people around him gave lots of ideas, [...] and then from those ideas, “Let’s kill human beings.” That's it.
+
+**Person:** *[Sounds like an objection.]*
+
+**Katagiri Roshi:** Katagiri didn't live there. But if I lived there, same things could happen. So if so, basically, Hitler and I are not different. But Hitler did something wrong. That is not Hitler's problem, that is a human problem. Okay? Do you understand that one? 
+
+**Person:** No.
+
+**Katagiri Roshi:** That is most important. People always judge Hitler as individual person, separated from humans, each of us. Do you understand that one? That is very dangerous. That's why constantly we create problems. We always criticize Hitler separate from him. So that's why we see Hitler as something particular. That is, I always say, we always see something in terms of human evaluation first. At that time, next, very naturally criticism comes up, next affective preferences come up, like or dislike. And then, arguing. Do you understand? That is the human world, we always do [this]. But we have to do something *before* we do it like that. That is *buddha*. Anyway, let's come back to the base. Put all sentient beings, Hitler, and demons, and Katagiris, put all things in the same and one level, so-called buddha. That is what? Plainly speaking, that's human. Just a human, just a being. And then [that] being is what? Completely white canvas. And each particular being is put in a certain circumstance, and then that being shows a certain virtuous quality of his own, so-called warm, or cold, you know? Do you understand that?
+
+**Person:** Yes, so that like, for example, even when you see the rice on the floor, even though you call it dirty, you can still see the value in the dirty [rice].
+
+**Katagiri Roshi:** Sure, that's true. 
+
+**Person:** I get it.
+
+**Katagiri Roshi:** So if you see the food on the floor so-called dirty, and then immediately you handle the food in terms of dirtiness, so that's really rough behavior. But we always have to see everything coming back to the same and one level. That's the point we always forget, ignore. That's why buddhas and [ancestors] constantly tell us like this.
+
+#### 3 - 27:35
+
+**Question:** Roshi, is the moment of demons, product of discriminating mind, just always judging, and so a demon is really mind working, just mind always working and discriminating, [working naturally in a] discriminating way, and then coming back to a total consciousness, and then [the] demon can disappear. 
+
+**Katagiri Roshi:** No, not ‘disappear’...
+
+**Same person:** Or just be allowed to be part of the mind. 
+
+**Katagiri Roshi:** Well, the demons just be present with you as a being. That's it. Not appear or not disappear. No. Just let it be present with you as a being. That's all. 
+
+Just like wind and tree. Wind itself doesn't have any ideas. But when the wind destroys the trees, we say *bad*. You don't like a tornado. But the tornado itself is just a being. You cannot destroy, you cannot judge – whatever you criticize you give to the tornado, tornado smiles. *[He laughs.]* Anytime, when the time is right, conditions arranged, the tornado will visit you. 
+
+So we always handle in terms of evaluation, judgment. But it's very natural. That's why when you see the demon, “let's subdue demons” means bring harmony anyway to your body, and deal with the demons. Okay? Instead of becoming crazy. *[He laughs.]*
+
+That's pretty hard practice. It's very simple. For instance, when right in the middle of fighting, how can you subdue? *[He laughs.]* Can you? Can you do it? If you can, you are buddha. 
+
+Well, I cannot do it. But I *have* to do it. I have to do it. That's important. There is no guarantee I can do it. But we *have to* do it. That is a practice. If you can do it easily, I don't think it's necessary to do it with a particular effort, *[unintelligible]*. *[He chuckles.]*
+
+That's why using the demons, and we have to subdue demons and make a buddha. So at that time, demons give you lots of suggestions what the human world is. 
+
+So in the human world, if there are many different kinds of persons here, and then I become something particular, you know, then people say, "You are great." But if everything is the same, it's not a particular thing. 
+
+**Question:** Are you saying that the existence of something, say for example a Hitler, is inevitable when given certain conditions? 
+
+**Katagiri Roshi:** “Inevitable”? I'm not clear. 
+
+**Same person:** “Necessary to occur”? 
+
+**Katagiri Roshi:** Not *necessary* to occur, but it's *possible* to occur. For everyone, such things occur. They might occur for everyone, not only the particular person. Do you understand what I mean?
+
+### 3 - 32:23 end of recording
 
 ---
 
