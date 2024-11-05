@@ -19,7 +19,7 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 
 These lists will be updated as talks are transcribed. Readers should be aware that the topics above come up in many places within Katagiri Roshi’s talks, not just within these series. 
 
-Please note that these transcripts are a living work in progress, like a leaping fish. Corrections and improvements are made on an ongoing basis, appearing on this site. 
+Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. 
 
 Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
