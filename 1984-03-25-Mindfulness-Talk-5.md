@@ -8,13 +8,13 @@ title: "Mindfulness – Talk 5"
 
 ### Transcript
 
-### Part 1
+#### Part 1
 
 <p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-21770977" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi:** The last sentence of the passage we studied yesterday should be explained a little more, because the translation is not so good. I said, “We should study the truth that there is the approach to buddha where we are taking advantage of.” I have to say something about this. Maybe – I don’t know, maybe I can say:
+**Katagiri Roshi:** The last sentence of the passage we studied yesterday should be explained a little more, because the translation is not so good. I said, “We should study the truth that there is the approach to buddha where we are taking advantage of.” I have to say something about this. Maybe... I don’t know, maybe I can say:
 
 > We should clarify the principle (or truth) that there is approach to buddhas at the place where we are moving in the deep course of the practice.
 
@@ -24,19 +24,19 @@ In Japanese we say *nen jo*, literally “at the place where we take form of.”
 
 You know the story of Buddha Shakyamuni when he transmitted his dharma in front of the assembly: he took the *udambara* flower and showed it to the assembly, and Mahākāśyapa smiled. Mahākāśyapa responded to the Buddha Shakyamuni’s demonstration with a smile. That means that taking the *udambara* flower and showing it to the assembly, simultaneously there is some response from the audience, from the assembly. So *nen jo* means “at the place where we take form”; [that] means we can take *something*, anyway. You can take something, and then you can communicate, you can have dynamic communication.
 
-If you want to compose of poem about nature or wilderness and beauty of existence, whatever, anyway you have to *move toward* first. So see the nature, be with the nature. That is then simultaneously you can have dynamic communication between nature and you. That is “at the place where we take form of something”. Literally that means at the place where we are *using* something. *Using* is not a good term. I don’t know. So *practice*, actually. 
+If you want to compose of poem about nature or wilderness and beauty of existence, whatever, anyway you have to *move toward* first. So see the nature, be with the nature. That is then simultaneously you can have dynamic communication between nature and you. That is “at the place where we take form of something.” Literally that means at the place where we are *using* something. *Using* is not a good term. I don’t know. So *practice*, actually. 
 
-I think if you read the book *Refining Your Life*, Dogen Zenji [talks] about that. For instance, taking a piece of vegetables and build up Buddha’s temple, buddha world. That means it depends on your practice whether you kill the vegetable or you make the life of vegetable alive. Aiming at the human life for long run. If your range is very short, I think this vegetable is just for eating, for breakfast and dinner, et cetera. But if you deal with the piece of vegetable for taking care of the people who practice in the Buddha way for life after life, at that time you have to take care of the piece of vegetable with very careful, compassionate spirit. So very naturally a different world is opening, the flower of the world is blooming in a different way, completely. So that is *nen jo*. 
+I think if you read the book *Refining Your Life*, Dogen Zenji [talks] about that. For instance, taking a piece of vegetable and build up Buddha’s temple, buddha world. That means it depends on your practice whether you kill the vegetable or you make the life of vegetable alive, aiming at the human life for the long run. If your range is very short, I think this vegetable is just for eating, for breakfast and dinner, et cetera. But if you deal with the piece of vegetable for taking care of the people who practice in the Buddha way for life after life, at that time you have to take care of the piece of vegetable with very careful, compassionate spirit. So very naturally a different world is opening, the flower of the world is blooming in a different way, completely. So that is *nen jo*. 
 
-“At the place”: *place* means “occasion,” too. Time and space. So at the place or on the occasion of dealing with a piece of vegetable, and then that occasion and place is very important for us. To build what? The human egoistic world, or individual egoistic world? Or Buddha’s world? That place is very important; that is called *buddha*. 
+“At the place”: *place* means “occasion,” too. Time and space. So at the place or on the occasion of dealing with a piece of vegetable, and then that occasion and place is very important for us. To build what? The human egoistic world, or individual egoistic world? Or Buddha’s world. That place is very important; that is called *buddha*. 
 
-You can do anything at that place. You can be a bank robber; you can be a pickpocket; you can do gassho at that moment, on that occasion. So it really depends on you, on depends on your practice. What would you do? 
+You can do anything at that place. You can be a bank robber; you can be a pickpocket; you can do gassho at that moment, on that occasion. So it really depends on you, depends on your practice. What would you do? 
 
 So that’s why this is *nen jo*. At that time, the place or occasion is really opening to you. To reach Buddha’s world, or help human beings – or creating the human egoistic world. It depends on your practice, you attitude toward that, how to deal with that place or occasion. 
 
 So that’s why that is the meaning of this last sentence. I don’t know how I can translate it. This translation is a completely different way, because it makes sense for me. 
 
-So, “We should clarify that principle or the truth”: that is really the truth, open, universal to *everyone*, regardless of whether you become a Buddhist or not. Christian or non-Christians, it’s really universal. So that is we should study *that* truth, or principle, open to everyone, or trees, birds – everything. That [is], there is a road, a road or passageway, an approach, at the place where we are moving in the deep course of practice.
+So, “We should clarify that principle or the truth”: that is really the truth, open, universal to *everyone*, regardless of whether you become a Buddhist or not. Christian or non-Christians – it’s really universal. So that is we should study *that* truth, or principle, open to everyone. Or trees, birds – everything. That [is], there is a road, a road or passageway, an approach, at the place where we are moving in the deep course of practice.
 
 #### 1 - 09:10
 
@@ -44,7 +44,7 @@ And then in the next passage, Dogen Zenji takes the method of washing the robe a
 
 > For example, it is just like the method of washing a robe. Water is contaminated by the robe; the robe is soaked in water. Although the robe is cleaned with the aid of water and by changing the water, water is still being used, and the robe is being washed. More than one or two washings are necessary, and we shouldn’t rest until it is clean. When the water is used up, we put more water in. We wash the clean robe again to make it cleaner. It is good for the robe to be clean that all kinds of water are used. We must clarify the principle that there is a fish in dirty water. 
 > 
-> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shobogenzo*.)
+> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice,” in *Shobogenzo*.)
 
 In the context of this passage, there is something more than a method of washing the robe. He takes a method of washing a robe as an example, but this is the method of Buddhist practice. So I would like to explain a little bit about this.
 
@@ -118,7 +118,7 @@ So, we have to do our best to take best care of storage, in order to preserve th
 
 And he says, “We wash the clean robes again to make it cleaner...”
 
-### Part 2
+#### Part 2
 
 <p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-23341842" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
