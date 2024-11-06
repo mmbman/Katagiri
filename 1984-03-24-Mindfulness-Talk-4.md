@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 4"
 
 ### Transcript
 
-### Part 1
+#### Part 1
 
 <p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-33204502" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
@@ -101,7 +101,7 @@ You know the bee hive. If you see a bee hive, more or less most of people feel f
 
 The same applies to man and woman. Woman always emphasizes the rights of the woman, you know, but man always emphasize man’s pattern of thinking, woman always emphasize woman’s pattern of thinking, and always fighting each other. In a sense this is alright, but we should know who becomes buddha. [...] Borrowing the man’s body or mind and then woman should attain enlightenment or buddha: no way, you cannot do it. Woman becomes buddha by woman; you cannot borrow the man’s body and mind. That is why man and woman practice hard, and we are already buddha, that is why we can do it. We can do it, but we don’t see it. We always see the man [or] woman in terms of a sense of value, evaluation, in terms of certain *ism* or ideas. That is why it is very difficult to know how you become buddha, how you can live in peace and harmony. To live in peace and harmony means you should become buddha ...
 
-### Part 2
+#### Part 2
 
 <p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/trak-2-of-3" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
@@ -145,7 +145,7 @@ So that is simplicity in life. After we pass through the filter again and again,
 
 So that’s why the Dogen Zen says, “In the time of people-becoming-buddhas, we bring harmony to people.” This is our practice. Constantly we bring harmony and peace to people, to us. Everyday; nothing special practice.
 
-### Part 3
+#### Part 3
 
 <p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36302531" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
