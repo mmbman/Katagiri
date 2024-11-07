@@ -14,6 +14,7 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi)
 - [**Karma**](karma)
 - [**Lay Ordination Lectures**](lay-ordination)
+- [**Mindfulness**](mindfulness)
 - [***Platform Sutra***](platform-sutra)
 - [***Shobogenzo Genjokoan***](genjokoan)
 

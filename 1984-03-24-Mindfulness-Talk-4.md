@@ -3,7 +3,7 @@ title: "Mindfulness – Talk 4"
 ---
 ## March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Mindfulness](mindfulness)
 
 ### Transcript
 
@@ -151,7 +151,7 @@ So that’s why the Dogen Zen says, “In the time of people-becoming-buddhas, w
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-3-of-36302531" target="_blank">Listen to Part 3 of this talk on mnzencenter.org</a>
 </p>
 
-... Even [if] you can talk with your parents who died 20 years ago, you can talk by *[unintelligible]* itself, with the computers. I’m not [jealous]... that’s kind of [a delusion. *[He laughs.]* 
+... Even [if] you can talk with your parents who died 20 years ago, you can talk by *[unintelligible]* itself, with the computers. I’m not [jealous]... that’s kind of [a delusion]. *[He laughs.]* 
 
 In San Francisco, one of the students is very interested in programming computers. He is making a particular program called “Sensei.” *[He laughs.]* *Sensei*, do you know that term? That is “teacher.” He is making a program called Sensei. It means to give lots of input of the experience of zazen *[he laughs]* and finding solutions to human problems in terms of Zen teaching. Do you understand? Is that alright? *[Some laughter.]* He is making a program. That is wonderful, isn’t it? So I said, “That’s wonderful; please give me one if you make it.” *[He laughs.]* He is making it now. It is interesting. 
 
@@ -315,4 +315,4 @@ So in the human world, if there are many different kinds of persons here, and th
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Mindfulness](mindfulness)
