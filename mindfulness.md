@@ -4,6 +4,8 @@ title: "Mindfulness"
 
 In this series of talks, Katagiri Roshi explains mindfulness from the viewpoint of Zen Master Dogen. The talks discuss the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice”) chapter of *Shobogenzo*. 
 
+---
+
 ##### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 
 Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dogen. This series of talks discusses the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice”) chapter of *Shobogenzo*. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together.
