@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 3"
 
 ### Summary
 
-Katagiri Roshi continues to comment on the *Sanjūshichi-bon-bodai-bunpō* chapter of *Shobogenzo*, on mindfulness of body. Mindfulness is not an idea of mindfulness. If you observe the body, the body observes you, and then all sentient beings support your observation. There is no one-way traffic. Liberation comes from action, but that action must come from emptiness, or liberation itself. First we have to have a very deep faith that all sentient beings have the-same-and-one-nature; and then we have to establish the state of our mind that is like a wall, which is emptiness.
+Katagiri Roshi continues to comment on the *Sanjūshichi-bon-bodai-bunpō* chapter of *Shobogenzo*, on mindfulness of body. Mindfulness is not an idea of mindfulness: if you observe the body, the body observes you, and then all sentient beings support your observation. There is no one-way traffic. Liberation comes from action, but that action must come from emptiness, or liberation itself. First we have to have a very deep faith that all sentient beings have the-same-and-one-nature; and then we have to establish the state of our mind that is like a wall, which is emptiness.
 
 ### Transcript
 
