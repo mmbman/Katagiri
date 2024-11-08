@@ -44,16 +44,16 @@ So real mindfulness, you have to find something really vividly alive with your b
 You should be free from mindfulness, anyway. *Free from* means your body must be mindfulness exactly. *Freedom*, liberation, means your body and the idea of mindfulness become one, and also practice and you must be one. Your thinking must be one with mindfulness. All becomes one with mindfulness, that is called *mindfulness*. How can you leave a trace of mindfulness right there? [You can’t.] Because the whole world – your body, your mind, becomes completely filled with mindfulness, and your circumstances are completely filled with mindfulness – everywhere, mindfulness. If so, do we have to emphasize particularly strongly that “I am doing mindfulness”? No. No, [there is] no idea [of mindfulness]. 
 
 That’s why very naturally the idea of mindfulness drops off. That is called *no mindfulness* – or open-hearted, open mindfulness. Or *freedom*: liberation of the mindfulness. 
-
+ 
 “Not-pure”: I use [the word] *not-pure* this time instead of *impure*. I think *not-pure* is better, because *not* as a negative expression means that your life and tree’s life and all sentient beings are completely embraced by the-same-and-one-nature – so-called buddha-nature, or whatever you say. If everything is completely filled with the-same-and-one-nature, at that time it’s not necessary to emphasize a particular time (or instance) so-called “the-same-and-one-nature,” because everything is one nature. So very naturally the idea of the-same-and-one-nature drops off. That is called *no-buddha-nature*. 
 
 So buddha-nature means completely pure, the whole world is filled with purity. At that time, everyone is pure, *beyond* pure and not-pure. At that time, whatever you pick up, it is pure. If so, it’s not necessary to say, “I am practicing purity.” No. So the idea of purity drops off; that is called *not-pure*. We say *not-purity*. 
 
 *Not-purity* means negating purity, but this not-pure means a state of being filled with purity. At that time, no purity. That is called not-pure. At that time you [can] find something alive. You can taste, you can experience something alive. That is [that] you have to find it within your body, with your body, and you have to find it through the practice of observation, contemplation, or mindfulness. 
 
-So [it is] not the idea of mindfulness, because... [Let me say] that observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [then] *you* observe your object. That is the dualistic sense; [this is] very common. And then you judge immediately; think something. That is really taking care of human life according to “one-way traffic”. You never think of two-way traffic. Because if you observe your object, the object observes you. In other words, you are *observed by* your object. That is subject and object: subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it by our customs or patterns of thinking. So that’s why next moment we stumble. 
+So [it is] not the idea of mindfulness, because... [Let me say] that observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [then] *you* observe your object. That is the dualistic sense; [this is] very common. And then you judge immediately; think something. That is really taking care of human life according to “one-way traffic.” You never think of two-way traffic. Because if you observe your object, the object observes you; in other words, you are *observed by* your object. That is subject and object: subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it by our customs or patterns of thinking. So that’s why next moment we stumble. 
 
-Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it [...] by your sense – see something alive between [them], how subject and object are working together. That is interpenetration, or *interdependence*, we say. 
+Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it [...] by your sense... see something alive between [them], how subject and object are working together. That is interpenetration, or *interdependence*, we say. 
 
 #### 1 - 17:15
 
@@ -61,11 +61,13 @@ Yesterday I told you about the poem composed by Ryokan:
 
 > A maple leaf, showing its back and its front. It is falling.
 
-The back and front is subject and object, in other words the dualistic world. The idea of the maple leaf, so-called life and death, is nothing but front and back, the dualistic world. If you *think* it, very naturally [it is] showing the front, showing the back. But you cannot judge the life of a maple leaf in terms of just the front, when it appears. No. Next moment, the front disappears and the back appears. Finally you don’t know what the life of the maple leaf is: is it the front, or is it the back? No. Always front and back, front and back, interacting, and then that is what? Action. Activity. Motion. That is something alive of the life of the maple leaf. It doesn’t stop even for a moment; it’s always going like this. 
+The back and front is subject and object, in other words, the dualistic world. The idea of the maple leaf, so-called life and death, is nothing but front and back, the dualistic world. If you *think* it, very naturally [it is] showing the front, showing the back. But you cannot judge the life of a maple leaf in terms of just the front when it appears. No. Next moment, the front disappears and the back appears. Finally you don’t know what the life of the maple leaf is: is it the front, or is it the back? No, always front and back, front and back, interacting, and then that is what? Action. Activity. Motion. That is something alive of the life of the maple leaf. It doesn’t stop even for a moment. It’s always going like this. 
 
 Finally, you don’t know what [is] the life of the maple leaf. The maple leaf just functions: total dynamic working, that’s it. If you think it, if you judge it, if you make a choice of your life, very naturally you can say, “It’s the back,” [or] “It’s the front.” That is an idea: a philosophical idea, a biological idea, [or] a psychological idea. But something alive within the life of the maple leaf is always moving, and acting, functioning constantly.
 
-So finally: I observe the tape recorder, the tape recorder observes me. *Who* observes? *I* observe? No. The tape recorder observes me? If so, if I see the state of the observation, at that time can I say, “I observe the tape recorder?” No; completely no. Or, the tape recorder observes me? No. So what is the *real* observation? Real observation is just total dynamic working between the tape recorder and I. And then, if I think it, and if I think that state of the observation in terms of a particular angle, so-called *I* – *I* observe, just *I*; not tape recorder, *I* – tape recorder observes tape recorder. Because between the tape recorder and I, [there is] always interacting, so you cannot separate, you cannot analyze between the tape recorder and I right in the middle of the total dynamic working of the tape recorder and I. No. [It’s] just like a maple leaf. 
+So finally: I observe the tape recorder, the tape recorder observes me. *Who* observes? *I* observe? No. The tape recorder observes me? If so, if I see the state of the observation, at that time can I say, “I observe the tape recorder?” No; completely no. Or, the tape recorder observes me? No. So what is the *real* observation? 
+
+Real observation is just total dynamic working between the tape recorder and I. And then, if I think it, and if I think that state of the observation in terms of a particular angle, so-called *I* – *I* observe, just *I*; not tape recorder, *I* – tape recorder observes tape recorder. Because between the tape recorder and I, [there is] always interacting, so you cannot separate, you cannot analyze between the tape recorder and I right in the middle of the total dynamic working of the tape recorder and I. No. [It’s] just like a maple leaf. 
 
 So that is observation. Observation is completely oneness, and oneness is emptiness: nothing to pin down. That is called *the-same-and-one-nature*. So the front of the maple leaf is always functioning in the realm of the-same-and-one-nature, [the back] is always working in the realm of the-same-and-one-nature. What is this? What is the functioning, what is the total dynamic working of the maple leaf? That is called emptiness. 
 
@@ -77,9 +79,11 @@ If you say, “By my action I want to create something liberated,” that is alr
 
 [For example,] that’s why [there is] borrowing the discipline of Marxism, et cetera, and then, “let’s do it.” That is kind of an “ism,” a discipline of “ism.” 
 
-In the latest issue of Time magazine, it says that the Vatican, the headquarters of the Roman Catholic Church, is [issuing a] warning, because in El Salvador a Catholic priest is trying to create something liberated, being free from the pressure or suffering from the government, from fighting, et cetera, using the idea of action. [...] They are trying to do something against the traditional hierarchy, [in the] liberal style of Catholic teaching. How can you serve the people who suffer from the government, et cetera? You cannot save them by hierarchy, or teaching, et cetera, so very naturally they try to do something by action. But the Vatican is warning the priest that this idea of teaching is based on the principles of Marxism. I don’t know what’s going on there, but the Vatican says it in that way. 
+In the latest issue of Time magazine, it says that the Vatican, the headquarters of the Roman Catholic Church, is [issuing a] warning, because in El Salvador a Catholic priest is trying to create something liberated, free from the pressure or suffering from the government, from fighting, et cetera, using the idea of action. [...] They are trying to do something against the traditional hierarchy, [in the] liberal style of Catholic teaching. How can you serve the people who suffer from the government, et cetera? You cannot save them by hierarchy, or teaching, et cetera, so very naturally they try to do something by action. But the Vatican is warning the priest that this idea of teaching is based on the principles of Marxism. I don’t know what’s going on there, but the Vatican says it in that way. 
 
-Action is important for us, but action shouldn’t be based on any ‘ism’. Your action must be pure. In order to make your action pure, your action must be based on emptiness. It is pretty difficult to do that. It’s pretty difficult to act on the basis of emptiness because if you act, very naturally act follows thinking, judging, evaluation, and next moment, [there are] affective preferences. So [it’s] very difficult; that’s why action itself must be free, liberated. [If] you want to act in order to get something by your action, your action must be liberated. How? That’s a pretty difficult practice for us! That’s why we’re always practicing like this, learning the teaching. You cannot just act as you like; no, you cannot act in that way. 
+Action is important for us, but action shouldn’t be based on any ‘ism’. Your action must be pure. In order to make your action pure, your action must be based on emptiness. 
+
+It is pretty difficult to do that. It’s pretty difficult to act on the basis of emptiness, because if you act, very naturally act follows thinking, judging, evaluation, and next moment, [there are] affective preferences. So [it’s] very difficult; that’s why action itself must be free, liberated. [If] you want to act in order to get something by your action, your action must be liberated. How? That’s a pretty difficult practice for us! That’s why we’re always practicing like this, learning the teaching. You cannot just act as you like. No, you cannot act in that way. 
 
 #### 1 - 28:48
 
@@ -111,7 +115,7 @@ The body is exactly one with the mind. You cannot separate mind from body, so mi
 
 And *śūraṃgama samadhi*: *śūraṃgama* means everything is stable ultimately, in the underlying essence. Ultimate nature is very stable and majestic; that is called śūraṃgama. So, beyond pure and impure, beyond good or bad, right or wrong. Anyway, the ultimate nature is very stable. That is called *vajra samadhi* or *śūraṃgama samadhi*.
 
-In the *Diamond Sutra* it says, “Awaken the mind without abiding [in] anything at all.” “Without abiding [in] anything” means basically ultimate nature is very stable, beyond purity and impurity, weakness or strength. So if you always judge or take care of your life in terms of “without abiding [in] anything,” at that time your life becomes very weak, because there is nothing to depend on. So you don’t know. Well, idealistically you say the universe supports you and helps you, but practically, you’re very weak, because you are caught by the idea of the universe. The universe is something alive. The universe appears in every aspect of human life – gassho, sleeping, et cetera – so you have to grasp that universe in every aspect of everyday life. So very naturally, awaken the mind in the universe. That is important, but if you depend on only the universe, your life becomes weak. On the other hand, if you alway depend on awakening the mind, it means understanding everything [clearly], at that time it’s very reasonable, realistic, and your life becomes strong... but very shallow. Because it’s not deep. So you have to grasp your life which is alive, constantly, beyond the idea of weakness or strength. That is *śūraṃgama samadhi*.
+In the *Diamond Sutra* it says, “Awaken the mind without abiding [in] anything at all.” “Without abiding [in] anything” means basically ultimate nature is very stable, beyond purity and impurity, weakness or strength. So if you always judge or take care of your life in terms of “without abiding [in] anything,” at that time your life becomes very weak, because there is nothing to depend on, so you don’t know. Well, idealistically you say the universe supports you and helps you, but practically you’re very weak, because you are caught by the idea of the universe. The universe is something alive. The universe appears in every aspect of human life – gassho, sleeping, et cetera – so you have to grasp that universe in every aspect of everyday life. So very naturally, awaken the mind in the universe. That is important, but if you depend on only the universe, your life becomes weak. On the other hand, if you alway depend on awakening the mind, it means understanding everything [clearly], at that time it’s very reasonable, realistic, and your life becomes strong... but very shallow. Because it’s not deep. So you have to grasp your life which is alive, constantly, beyond the idea of weakness or strength. That is *śūraṃgama samadhi*.
 
 Basically, first we have to establish a deep faith that all sentient beings have the-same-and-one-nature. And second, we have to establish a state of the mind that is like a wall, so-called emptiness. So that’s why you always [sit] “facing the wall.” The wall is empty.
 
@@ -155,7 +159,7 @@ So that is the practice of *mindfulness*.
 
 > The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. 
 
-That means the stars and Buddhas become one. At that time, that is called enlightenment, we say. *Enlightenment* means nothing to say; just a smile. Because if you touch the core of existence, [there is] nothing to say. [It is] very impressive, but no words. Because [the] stars and you are one. That is [the] very original experience, [the] very pure nature of experience you have had, between stars and you. 
+That means the stars and buddhas become one. At that time, that is called *enlightenment*, we say. *Enlightenment* means nothing to say; just a smile. Because if you touch the core of existence, [there is] nothing to say. [It is] very impressive, but no words. Because [the] stars and you are one. That is very original experience, [the] very pure nature of experience you have had, between stars and you. 
 
 And then next moment, you can explain. If you explain about your original or pure experience, that is called philosophy or psychology, science. [Huge] science comes up. Or a poem, or art. [...]
 
@@ -163,13 +167,13 @@ So “observing the body as not-pure” is exactly the same as Shakyamuni Buddha
 
 And then after that, he tried to explain what the contents of his experience [was]. That is Buddhist teaching.
 
-So Buddhist teaching is – if you combine all Buddha’s teaching into one, that is a very simple experience, a simple, pure sense of experience. *After* [that], you can extend it, “spread” it; you can build a *huge* mansion. That is philosophy, psychology, physics, and many things. 
+So Buddhist teaching is... if you combine all Buddha’s teaching into one, that is a very simple experience, a simple, pure sense of experience. *After* [that], you can extend it, “spread” it; you can build a *huge* mansion. That is philosophy, psychology, physics, and many things. 
 
 So that’s why “the principle of Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*” ... 
 
 > It is beyond a matter of drawing comparison between purity and impurity. 
 
-Because it’s very original experience. The moment when you touch the core of existence – that’s it. Just like a flash of lightning. Completely beyond a sense of comparison. If you create a sense of comparison, well, you can express or spread that simple experience to philosophy, psychology, [or] to eighteen thousand Buddhist scriptures.
+Because it’s very original experience. The moment when you touch the core of existence – that’s it. Just like a flash of lightning. Completely beyond a sense of comparison. If you create a sense of comparison, well, you can express or spread that simple experience to philosophy, psychology, to eighteen thousand Buddhist scriptures.
 
 > It is body-being-is-not-pure, ... 
 
@@ -179,7 +183,7 @@ And he says,
 
 > ... or body-manifesting-is-not-pure.
 
-It’s also *body-manifesting*, [which] means [your] body expresses your body in many ways: so-called gassho, so-called washing your face, so-called sleeping, so-called eating a meal, so-called training in spiritual life, et cetera. That is body-manifesting. Body-manifestations, constantly. According to the maple leaf, that is called sometimes it shows the front, sometimes it shows the back. Many backs, many fronts; the body always shows front, and back, front, back. 
+It’s also *body-manifesting*, [which] means [your] body expresses your body in many ways: so-called *gassho*, so-called *washing your face*, so-called *sleeping*, so-called *eating a meal*, so-called *training in spiritual life*, et cetera. That is body-manifesting. Body-manifestations, constantly. According to the maple leaf, that is called sometimes it shows the front, sometimes it shows the back. Many backs, many fronts; the body always shows front, and back, front, back. 
 
 And then through showing the back of your body, then you should understand the total picture of your life. That is total dynamic working; the universe. Anyway, if you see the back of your life, still your basic attitude is constantly standing up straight in the realm of buddha-nature. That is [the] fundamental step of your walking: step by step, walk. That is *grounding* your life. 
 
@@ -193,11 +197,11 @@ Do you have questions?
 
 **Katagiri Roshi:** Ryokan Zen Master. 
 
-**Question:** Is it a haiku?
+**Same person:** Is it a haiku?
 
-**Katagiri Roshi:** It’s not a haiku. I don’t know. 
+**Katagiri Roshi:** It’s not a haiku. I don’t know. It’s not a haiku. 
 
-**Question:** What is it?
+**Same person:** What is it?
 
 **Katagiri Roshi:** It’s life. *[Laughter.]*
 
@@ -229,13 +233,15 @@ I told you before, maybe, Rilke’s poem. Do you remember? Rilke says, “Rose. 
 
 “Rose”: That is, first “Rose” is just a rose there. Just like the tape recorder. 
 
-Next moment, he says, “Oh!” What does “oh” mean? He is really impressed strongly by the presence of rose. At that time, within the “Oh!” there is no form of rose. A completely different rose appears. So that is... how can I say it? We don’t know. So just, if you really experience the origin of rose’s life, it’s very impressive, and then he says just “Oh!” So that is the very original nature of primitive word, coming directly from the very pure experience.
+Next moment, he says, “Oh!” What does “oh” mean? He is really impressed strongly by the presence of rose. At that time, within the “Oh!” there is no form of rose. A completely different rose appears. So that is, how can I say it? We don’t know. So if you really experience the origin of rose’s life, it’s very impressive, and then he says just “Oh!” That is the very original nature of primitive word, coming directly from the very pure experience.
 
-And then next, he says, “Sheer contradiction.” It means, how he accepted that [original] “Oh!” and then he started explaining it. That is how he accepted it. It means sheer contradiction. Because within the simple experience, the simple life, that’s it – “Oh!”, that’s it. Your birth is just “Oh!” It’s wonderful life. That original “Oh!” includes the wonderful vastness of existence. Something more than Newton’s discovery of gravity from the apple falling. *[He chuckles.]* Do you understand? Newton was very impressed by the apple falling. But religiously speaking, [that] “Oh,” [that’s a] huge impression there, something more than Newton’s discovery. That is so-called simplicity. Your life. Your death. Your gassho. That’s it. And then, how can you accept that? Then we start to explain. Then, that is “sheer contradiction.” Completely beyond your speculation, contradiction there. Showing front and back, front and back, but the simple life is going there. Within the simplicity, complicated life there. So it’s very sheer contradiction. Completely beyond your speculation.
+And then next, he says, “Sheer contradiction.” It means how he accepted that [original] “Oh!” and then he started explaining it. That is how he accepted it; it [is] sheer contradiction. 
 
-And then next, he still continued to explain how he digests that original “Oh!” He says, “Desire to be no one’s sleep under so many lids.” So he explains about sheer contradiction. Sheer contradiction consists of two: one is “under so many lids.” That means many layers of human life, lots of aspects of human life: suffering, pleasure, lots of stuff. Day by day, the samsaric world. But under so many layers, there is perfect sleep. That means perfect peace. No one can imitate. That is spiritual security. Spiritual security, great peace, but on the other hand, so many layers. Suffering... but within this, there is peace. How can you find it? Right in the middle of the rose. So that comes back to the beginning of the poem: Rose. And then rose gives a hint to *[unintelligible]*. That is “Oh!”
+Because within the simple experience, the simple life, that’s it, that’s all we have to do. “Oh!” – that’s it. Your birth is just “Oh!” It’s wonderful life. That original word “Oh!” includes the wonderful vastness of existence. Something more than Newton’s discovery of gravity from the apple falling. *[He chuckles.]* Do you understand? Newton was very impressed by the apple falling. But religiously speaking, within the “Oh,” that’s [a] huge impression there, something more than Newton’s discovery. That is so-called simplicity. Your life. Your death. Your gassho. That’s it. And then, how can you accept that? Then we start to explain. And then, that is “sheer contradiction.” Completely beyond your speculation, contradiction there. Showing front and back, front and back, but the simple life is going there. Within the simplicity, complicated life there. So it’s very sheer contradiction. Completely beyond your speculation.
 
-So that is a poem. But Zen is always saying just “Oh!” But something more than “Oh”: *before* “Oh,” okay? *[He laughs.]* Zen always lets you live, lets you stay in that pure sense of [the] original [word], the pure sense of the experience *you* create, [the] word. You create something in a word; still there is a pure sense of experience, before you say “Oh.” So Zen always puts you there, and live there, and be free from that. Exactly you have to leap in there, you have to jump in. Jumping around, you have to vividly live in there. 
+And then next, he still continued to explain how he digests that original “Oh!” He says, “Desire to be no one’s sleep under so many lids.” So he explains about sheer contradiction. Sheer contradiction consists of two: one is “under so many lids.” That means many layers of human life, lots of aspects of human life: suffering, pleasure, lots of stuff. Day by day, the samsaric world. But under so many layers, there is perfect sleep. That means perfect peace. No one can imitate. That is spiritual security. Spiritual security, great peace, but on the other hand, so many layers. Suffering... but within this, there is peace. How can you find it? Right in the middle of the rose. So that comes back to the beginning of the poem: “Rose.” And then rose gives a hint to *[unintelligible]*. That is “Oh!”
+
+So that is a poem. But Zen is always saying just, “Oh!” But something more than “Oh”: *before* “Oh,” okay? *[He laughs.]* Zen always lets you live, lets you stay in that pure sense of [the] original [word], the pure sense of the experience *you* create, [the] word. You create something in a word; still there is a pure sense of experience, before you say “Oh!” So Zen always puts you there, and live there, and be free from that. Exactly you have to leap in there, you have to jump in. Jumping around, you have to vividly live in there. 
 
 That is Zen teaching. So it’s not art. It’s very boring. *[He laughs.]* It’s very boring, actually, through your senses. It makes you bored. But strictly speaking, it’s a really great discovery there. 
 
@@ -249,7 +255,7 @@ So, Ryokan also says, “My poem is not a poem, people say.” So his poem is no
 
 And also human activities [are simple], but human activity is already complicated. So you have to find the simplicity of human activity, within the complication of human activity. Do you understand that one? *[He chuckles.]* That’s why your eyes, nose, ears, human body, human mind – you have to *polish*, again and again. It’s not “stinky”; your body and your mind are already buddha-nature. Buddha-nature means [they] already exist beyond your speculation, just like the trees, birds, et cetera. So that is called “let’s stand up in the realm of buddha-nature.” That means your life activity is complicated, [but] that doesn’t mean stinky. Alright? No. It already exists. Don’t deal with the complication of activity as stinky. No. You should deal with the complication of human activity as a buddha. 
 
-And then at that time, you can practice. You can listen to buddha-nature, you can listen to Buddha’s teaching with your ears. And then simultaneously the teaching returns to you, if you always put yourself in the realm of Buddha. But if you have discrimination, when you see your body, the complication of human activity, [as] so-called “stinky,” Buddha’s teaching doesn’t return to you, because you always confine yourself into your shell. Even though you listen to Buddha’s teaching, Buddha’s teaching doesn’t return to you. So first of all, you have to stand up there. Open. That is constantly listening to buddha-nature... Buddha’s teaching, anyway. Beyond [whether] your mind is pure or impure, anyway listen, constantly listen. Dogen Zenji [says] later in this chapter, anyway, listen. Cleaning your room, listen, beyond clean or not clean. That’s our practice. And then that human activity is simultaneously to let you be in emptiness, and simultaneously that is, practically speaking, *shamata* practice. That practicing of shamata leads you reach the clear observation of how the human world is going. Clear observation. 
+And then at that time, you can practice. You can listen to buddha-nature, you can listen to Buddha’s teaching with your ears. And then simultaneously the teaching returns to you, if you always put yourself in the realm of buddha. But if you have discrimination, when you see your body, the complication of human activity, [as] so-called “stinky,” Buddha’s teaching doesn’t return to you, because you always confine yourself into your shell. Even though you listen to Buddha’s teaching, Buddha’s teaching doesn’t return to you. So first of all, you have to stand up there. Open. That is constantly listening to buddha-nature... Buddha’s teaching, anyway. Beyond [whether] your mind is pure or impure, anyway listen, constantly listen. Dogen Zenji [says] later in this chapter, anyway, listen. Cleaning your room, listen, beyond clean or not clean. That’s our practice. And then that human activity is simultaneously to let you be in emptiness, and simultaneously that is, practically speaking, *shamata* practice. That practicing of shamata leads you reach the clear observation of how the human world is going. Clear observation. 
 
 So *shamata* lets you be right in the middle of emptiness. Simultaneously, *shamata* leads you to clear observation of the world. So you can be emptiness, but you can see the human world, what the human world is. So very naturally, the basic attitude toward human life occurs. 
 
@@ -269,7 +275,7 @@ Is that alright? [Is there still] a question?
 
 **Same person:** Well, sometimes...
 
-**Katagiri Roshi:** “What is that” means how can you practice it? It’s not an explanation; so you have to do something there. 
+**Katagiri Roshi:** “What is that” means how can you practice it? It’s not an explanation; you have to do something there. 
 
 **Same person:** Yes, you still have to just do without emptiness ... the practice must be then without emptiness as a goal...
 
@@ -287,7 +293,7 @@ Is that alright? [Is there still] a question?
 
 **Same person:** For myself, I think emptiness, I feel I must also no-emptiness. I want to be empty like the leaf, back and front, so empty, no empty, and empty, no empty, but not holding on to empty or no empty. That’s when I try, I try to be empty and no empty. No idea, maybe. So I don’t hold on to much to my desire to be empty. 
 
-**Katagiri Roshi:** The question is – I understand what you said, you understand what you said, but you don’t understand *exactly* how do *you* do it. 
+**Katagiri Roshi:** The question is, I understand what you said, you understand what you said, but you don’t understand *exactly* how do *you* do it. 
 
 **Same person:** Yes, I don’t know.
 
@@ -307,7 +313,7 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 **Same person:** Yeah. Is the wall just supposed to be there, or are you actually supposed to be *looking* at it?
 
-**Katagiri Roshi:** No. Wall there, but the [...] not-wall there. If you say “wall is there,” at that time *you* observe the wall, don’t you think so? *[He laughs.]*
+**Katagiri Roshi:** No. Wall there, but [...] not-wall there. If you say “wall is there,” at that time *you* observe the wall, don’t you think so? *[He laughs.]*
 
 **Same person:** But I just mean...
 
@@ -319,17 +325,17 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 **Same person:** Are you supposed to keep your eyes...
 
-**Katagiri Roshi:** Sure. And that’s why I always say to cast down your eyes on the floor. But if you face the wall, actually you should keep a certain distance. It’s too close to the wall; actually we [should] have more space between you and the wall. That’s pretty good for us. But we don’t have enough space, that’s why we sit pretty close to the wall. 
+**Katagiri Roshi:** Sure. And that’s why I always say to cast down your eyes on the floor. But if you face the wall, actually you should keep a certain distance. It’s too close to the wall [here], actually we [should] have more space between you and the wall. That’s pretty good for us. But we don’t have enough space, that’s why we sit pretty close to the wall. 
 
 **Same person:** You mean the zendo should be bigger?
 
-**Katagiri Roshi:** Oh, I think so! *[He laughs.]* Idealistically. I would like to have a big zendo! But it’s impossible now, so I should practice patience. *[Laughter.]* So, facing the wall: that’s alright. But not only one point, a certain area, a little bigger area. 
+**Katagiri Roshi:** Oh, I think so! *[He laughs.]* Idealistically. I would like to have a big zendo! But it’s impossible now, so I should practice patience. *[Laughter.]* So, facing the wall: that’s alright. But not only one point. A certain area, a little bigger area. 
 
 #### 2 - 43:02
 
 **Question:** [...] When you said to practice Buddhism first you have to have a strong faith in the Buddhist teaching, and you have to keep listening to it. And when you’re doing those, I think it’s true in other religious groups, we’re the same way. And well, to find out that you have to be very careful to listen to those, but still for me we are doing something we don’t know yet. I mean, we know as a teaching, but we don’t know what kind of things we can base on to judge [whether] we are doing the right thing or the wrong thing... 
 
-**Katagiri Roshi:** I’m not selling a religious faith, okay? Because Buddhist faith is already based on the very deep understand of the source of existence. So from this point, whether you don’t have faith or you have faith, anyway your life is already right in the middle of faith. You know? So from this point, it’s not necessary to think I should have faith or I shouldn’t have faith. Okay?
+**Katagiri Roshi:** I’m not selling a religious faith, okay? Because Buddhist faith is already based on the very deep understand of the source of existence. So from this point, whether you don’t have faith or you have faith, anyway your life is already right in the middle of faith. You know? So from this point, it’s not necessary to think “I should have faith” or “I shouldn’t have faith.” Okay?
 
 Anyway, let’s have a white canvas of your life. *Faith* or *not faith* doesn’t matter: your life is a white canvas. Temporarily, it’s called *faith*, because that faith is supporting your life. That white canvas is open to you and to everyone. To your future. You can draw any kind of thing ...
 
