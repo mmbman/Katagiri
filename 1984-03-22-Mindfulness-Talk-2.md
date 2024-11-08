@@ -17,39 +17,39 @@ The body is *total dynamic working*, and *total dynamic working* is like a maple
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-38923791" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi:** [Yesterday] I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual: *as usual* means as [in the] moral sense. So [...] I talked about Dogen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire whole world. The entire whole world is considered as, according to Dogen’s term, the *total dynamic working*. Generally speaking, it’s nothing but motion, function. So Dogen Zenji uses *the entire whole world*; that means your body is melted away into the total dynamic working. 
+**Katagiri Roshi:** [Yesterday] I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual; *as usual* means as [in the] moral sense. So [...] I talked about Dogen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire whole world. The entire whole world is considered as, according to Dogen’s term, the *total dynamic working*. Generally speaking, it’s nothing but motion, function. So Dogen Zenji uses *the entire whole world*; that means your body is melted away into the total dynamic working. 
 
-For instance, if you are right in the middle of the function of the flower, you are sucked in, you disappear. Just like a black hole in the universe: everything is sucked in, we don’t know what’s going on in there. But this is nothing but motion and energy, and constantly working [...] This is, we say temporarily, the entire whole world. So your body what? Your body is a bag of skin; when you see it from your naked eye, temporarily we say, “Oh, human body is here.” But strictly speaking, the next moment your body is sucked in by total dynamic working. So next moment you don’t know; your body is disappeared. 
+For instance, if you are right in the middle of the function of the flower, you are sucked in, you disappear. Just like a black hole in the universe: everything is sucked in, we don’t know what’s going on in there. But this is nothing but motion and energy, and constantly working [...] This is, we say temporarily, the entire whole world. 
+
+So your body [is] what? Your body is a bag of skin; when you see it from your naked eye, temporarily we say, “Oh, human body is here.” But strictly speaking, the next moment your body is sucked in by total dynamic working. So next moment you don’t know; your body is disappeared. 
 
 That [is the meaning of] *total dynamic working*; function. That is called *the entire whole world*. So we say, return home and sit in peace and harmony, return to the total dynamic working. Your body, your nose, each pore, your breath – return to this total dynamic working. So that’s why you don’t know what’s going on there. You don’t know. 
 
-And then this total dynamic working is something difficult to understand or to see, because [there is] no form, no colors, no smell – just working. So that’s why we can see it only through various forms, so-called human body, or physical activity, or mental activity, or thought, or trees, whatever it is. Through those forms, marks. And then we can see total dynamic working within them. 
+And then this total dynamic working is something difficult to understand or to see, because [there is] no form, no colors, no smell – just working. So that’s why we can see it only through various forms, so-called human body, or physical activity, or mental activity, or thought, or trees, whatever it is. [We see it only] through those forms, marks. And then we can see total dynamic working within them. 
 
-So always there is a form, but simultaneously no form. That’s why *no form* means form returns to total dynamic working, so no form. That’s why “emptiness is form, form is emptiness.” 
+So always there is a form, but simultaneously no form. That’s why *no form* means form returns to total dynamic working, so no form. That’s why [we say] “emptiness is form, form is emptiness.” 
 
 #### 1 - 5:50
 
-Ryokan Zen Master, when he was about to die, was asked by his disciples, “What do you think about life and death?” He said, “A maple leaf, showing its back and front. It is falling.” Can you see this? A maple leaf showing it’s back and front; it is falling... means there is only total dynamic working, so-called *to be falling*. 
+Ryokan Zen Master, when he was about to die, was asked by his disciples, “What do you think about life and death?” He said, “A maple leaf, showing its back and front. It is falling.” Can you see this? A maple leaf showing its back and front; it is falling... means there is only total dynamic working, so-called *to be falling*. 
 
-But it’s pretty difficult to see, to understand that activity or motion, so-called *to be falling*. How do we know? We should know it through the form, so-called showing its front, sometimes its back. That is purity or impurity. But in the process of this entire working, at the moment its back is shown, next moment the back returns to total dynamic working. That means the form of the back is melted away into the process of total dynamic working. So next moment, the front appears. But the next moment the front is also melted away into total dynamic working, so-called falling. So, nothing. Front, no front. Back, no back. What’s that? That is called [...] total dynamic working; just falling.
+But it’s pretty difficult to see [or] to understand that activity or motion, so-called *to be falling*. How do we know [it]? We should know it through the form, so-called showing its front, sometimes its back. That is purity or impurity. But in the process of this entire working, at the moment its back is shown, next moment the back returns to total dynamic working. That means the form of the back is melted away into the process of total dynamic working, so next moment, the front appears. But the next moment the front is also melted away into total dynamic working, so-called falling. So, nothing. Front, no front. Back, no back. What’s that? That is called [...] total dynamic working; just falling.
 
 This is called, “Who does [this]?” We don’t know who does [this]. Maple leaf does? No. Autumn does? No. What does? We don’t know. Even though you don’t like it, you always show front and back. Even though you don’t like it, you have to show the back. Even though you like the front, the front does not appear. Who controls this? We don’t know. 
 
-But our intellectual sense wants to know who does this, who orders it, who controls it. That’s why [we have] theory, okay? *[He laughs.]* Finally we say, “Divinity does [this].” A certain governor, controller. [There are] two watches there: front and back, purity or impurity, and in the middle, there is a watchmaker there. The watchmaker controls this one, and the two of them are exactly working together simultaneously, showing exact time. So he has to control it. That is our intellectual [view]: philosophy, psychology. *[He chuckles.]* But the reality of human existence is completely beyond *who does it*, whatever you say. The watchmaker? The watchmaker himself is also showing the front and back, front and back. This is life and death. So who does it? You say “divinity,” who lives somewhere. What is that? That is nothing but the idea of absolute entities [we make]. So finally what is this? 
+But our intellectual sense wants to know who does this, who orders it, who controls it. That’s why [we have] theory, okay? *[He laughs.]* Finally we say, “Divinity does [this].” A certain governor, controller. [There are] two watches there – front and back, purity or impurity – and in the middle, there is a watchmaker there. The watchmaker controls this one, and the two of them are exactly working together simultaneously, showing exact time, so he has to control it. That is our intellectual [view]: philosophy, psychology. *[He chuckles.]* But the reality of human existence is completely beyond *who does it*, whatever you say. The watchmaker? The watchmaker himself is also showing the front and back, front and back. This is life and death. So who does it? You say “divinity,” who lives somewhere. What is that? That is nothing but the idea of absolute entities [we make]. So finally, what is this? 
 
-Finally, whatever you say, whatever ideas you make, whatever wonderful philosophical systems you establish... these mansions appear, next moment disappear. All are sucked in, just functioning, completely beyond your like or dislike. 
+Finally, whatever you say, whatever ideas you make, whatever wonderful philosophical systems you establish... these mansions appear, and next moment disappear. All are sucked in, just functioning, completely beyond your like or dislike. 
 
-So that’s why Ryokan says [life and death is] just a maple leaf. Maple leaf is his life, his death; nothing but just a leaf. [What does] Ryokan’s life as a maple leaf teach us? Nothing special; just showing its front and back. And constantly it is falling. That’s it.
+So that’s why Ryokan says [life and death is] just a maple leaf. Maple leaf is his life, his death; nothing but just a leaf. [What does] Ryokan’s life as a maple leaf teach us? Nothing special; just showing its front and back, and constantly it is falling. That’s it.
 
 #### 1 - 11:45
 
-Dogen Zenji uses the term *the entire universe of the ten directions*. This is a technical term; Buddhism often uses this term. *Ten directions* means not only spatial dimensions but dimension in time too. Completely, totally. 
-
-So what is the universe, what is universal life? Universal life is nothing but the entire total dynamic working, motion, function. That’s it. 
+Dogen Zenji uses the term *the entire universe of the ten directions*. This is a technical term; Buddhism often uses this term. *Ten directions* means not only spatial dimensions but dimension in time too. Completely, totally. So what is the universe, what is universal life? Universal life is nothing but the entire total dynamic working, motion, function. That’s it. 
 
 So very naturally, Dogen Zenji [says] that is your body, [which is called] the body you are observing. But what are you observing? You are observing two things: one is nothing but the back of the skin, the other one is the entire universe of the ten directions, even though you don’t know it. What is this? [...] That body which you are observing is that which is vividly jumping along, living. He says *living*, or *jumping along*, or *hopping along*. This is characteristic of the entire universe of the ten directions. 
 
-So your body is just like that. But you always see your body as just like “my body,” a form, nothing *[unintelligible]*. It’s very difficult for us to see that the body [is that] which is vividly jumping along, or vividly living; we don’t see it. That’s why Dogen Zenji has to say this continually, and also we have to listen to it constantly, again and again... a thousand times, a million times. Otherwise it doesn’t penetrate your body; you don’t understand it. 
+So your body is just like that. But you always see your body as just like “my body,” a form, nothing *[unintelligible]*. It’s very difficult for us to see that the body [is that] which is vividly jumping along, or vividly living. We don’t see it. That’s why Dogen Zenji has to say this continually, and also we have to listen to it constantly, again and again... a thousand times, a million times. Otherwise it doesn’t penetrate your body; you don’t understand it. 
 
 #### 1 - 14:50
 
@@ -57,11 +57,11 @@ And also, if our body is just like something vividly living, [in] which nothing 
 
 Very naturally I have to say, first of all you should accept your body beyond the idea of purity or impurity. [It is] nothing but being vividly alive; the entire universe of ten directions. And then from moment to moment you can show the front and the back, front and back, purity or impurity; it depends on you. It depends on you, and also it depends on the circumstances you can create. It depends on your effort, and also it depends on circumstances you make every possible effort to create. 
 
-So sometimes you can show the front, according to your effort, according to your circumstances. But sometimes not. So circumstances are huge.
+So sometimes you can show the front, according to your effort, according to your circumstances. But sometimes not. [...] Circumstances are huge.
 
 So it depends on you, your effort, your circumstances, but still there are [questions]. Finally, who makes the effort? What are the circumstances? What are the circumstances you have made? *[Tape skip.]* That is also questionable, because finally you don’t know what circumstances you have made. *[Tape skip.]* And you don’t know the effort you have made, actually. So all things return to total dynamic working. So all become zero. 
 
-So what is this? Is that the practice of mindfulness, based on observing the body as impure? Yes it is. Because our returning to total dynamic working causes all forms to be zero. *To be zero* means you and zazen, and there is no gap between. The rhythm of zazen, the rhythm of you, become one, exactly nothing. [There is] no space to bring any form, any ideas into it, because the rhythm of zazen and the rhythm of you are completely working together. There is only one thing, that is called total dynamic working, between the two. So [there is] no gap between. 
+So what is this? Is that the practice of mindfulness, based on observing the body as impure? Yes it is. Because our returning to total dynamic working causes all forms to be zero. *To be zero* means you, and zazen, and there is no gap between. The rhythm of zazen, the rhythm of you, become one. Exactly nothing. [There is] no space to bring any form, any ideas into it, because the rhythm of zazen and the rhythm of you are completely working together. There is only one thing, that is called total dynamic working, between the two. So [there is] no gap between. 
 
 That is called returning to total dynamic working – or *shikan* zazen. Or, we say *shamata*. *Samadhi*. 
 
@@ -77,17 +77,27 @@ And then how can you know that? How can you do it? How can you experience that *
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-37838804" target="_blank">Listen to Part 2 of this talk on mnzencenter.org</a>
 </p>
 
+(*Transcriber’s Note:* There appears to be a gap in the recording here.)
+
 ... Failure is in the common sense something wrong, but broadly speaking, it is very good for us. Because in a spiritual sense, failure is simultaneously success. Failure is development and growth. Because failure and success all return to functioning or working. All are melted away into total working and creating new things. That is called *development*. 
 
-So development comes from not only success, [as] we believe. Total development or growth comes from total dynamic working – into which failure and success are melted away, and then development comes up. This is called *emptiness*. So emptiness is not pessimistic. Or we say *zero*, or we can say *energy*. It is zero, but simultaneously something happens, that’s why the end is a beginning. The terminal station is the beginning of life. You can go anyplace. 
+So development comes from not only success, [as] we believe. Total development or growth comes from total dynamic working – into which failure and success are melted away, and then development comes up. This is called *emptiness*. 
 
-And also we can experience that practice in our everyday life. For this, this is called *shamata* and *vipassana*. And that is really great for us. Through sweeping the floors and grounds, you can do it. Just concentrate, make your mind calm, and simultaneously making your mind calm is to see clearly the edge of the human world, completely beyond your perception. The beginning of *shamata* is simultaneously the end of the human world. So you can touch it, [completely]. That’s why if you do zazen, very naturally it’s development, your life is really developing very much. You don’t know when your life is developing, but it’s constantly developing and growing. It’s really true. Physically and mentally, it’s growing. 
+So emptiness is not pessimistic. Or we say *zero*, or we can say *energy*. It is zero, but simultaneously something happens, that’s why the end is a beginning. The terminal station is the beginning of life. You can go anyplace. 
 
-But [...] if you practice it, always there is something extra, so-called *dirty water* there. That’s why you don’t feel good. But behind the dirty water, there is still total dynamic working. I always [compare this to] climbing a mountain: the mountain itself is constantly beautiful, but when you start climbing the mountain, it’s really dirty water there, hard work, risking your life. And then many questions come up: why do you have to climb the mountain, risking your life? It’s ridiculous for you. But you cannot stop. 
+And also we can experience that practice in our everyday life. For this, this is called *shamata* and *vipassana*. And that is really great for us. Through sweeping the floors and grounds, you can do it. Just concentrate, make your mind calm, and simultaneously making your mind calm is to see clearly the edge of the human world, completely beyond your perception. The beginning of *shamata* is simultaneously the end of the human world. So you can touch it, [completely]. 
 
-So what causes you to climb the mountain? You don’t know. Of course there is your effort, but your effort is nothing but showing just the back of your life. Next moment, you don’t know. That is nothing but the front of your life. So finally, you don’t know; finally what you have to do is [say,] “I just climb the mountain.” That is just moving, functioning. And then when [you’re] functioning, very naturally there is lots of dirty water, you can stir up the water: so-called *hard work*. Boredom. Hatred. Many things come up. And then most people quit. But [they are] forgetting [that] behind the dirty water, there is a fish which is vividly swimming there. The presence of the fish there, constantly, that is the beauty of the mountain. Later, Dogen Zenji [describes it] like that. 
+That’s why if you do zazen, very naturally it’s development, your life is really developing very much. You don’t know when your life is developing, but it’s constantly developing and growing. It’s really true. Physically and mentally, it’s growing. 
 
-That’s why [...] we have to practice like this. We have to see the back of the skin but simultaneously there is the universe. Your skin, your body is the universe. So constantly you have to work on this. How? Zazen is the simple, [straightforward] practice for us. And then, you can practice also in your everyday life. 
+But [...] if you practice it, always there is something extra, so-called *dirty water* there. That’s why you don’t feel good. But behind the dirty water, there is still total dynamic working. 
+
+I always [compare this to] climbing a mountain: the mountain itself is constantly beautiful, but when you start climbing the mountain, it’s really dirty water there, hard work, risking your life. And then many questions come up: why do you have to climb the mountain, risking your life? It’s ridiculous for you. But you cannot stop. So what causes you to climb the mountain? You don’t know. Of course there is your effort, but your effort is nothing but showing just the back of your life. Next moment, you don’t know. That is nothing but the front of your life. So finally, you don’t know; finally what you have to do is [say,] “I just climb the mountain.” That is just moving, functioning. 
+
+And then when [you’re] functioning, very naturally there is lots of dirty water, you can stir up the water: so-called *hard work*. Boredom. Hatred. Many things come up. And then most people quit. But [they are] forgetting [that] behind the dirty water, there is a fish which is vividly swimming there. The presence of the fish there, constantly, that is the beauty of the mountain. Later, Dogen Zenji [describes it] like that. 
+
+That’s why [...] we have to practice like this. We have to see the back of the skin but simultaneously there is the universe. Your skin, your body is the universe. 
+
+So constantly you have to work on this. How? Zazen is the simple, [straightforward] practice for us. And then, you can practice also in your everyday life. 
 
 Do you have questions? 
 
@@ -101,13 +111,13 @@ Do you have questions?
 
 **Same person:** It seems like every time you use it, I have no sense of what it is, and especially when you talk about the intersection of time and space. You didn’t talk about that today, but when you mentioned time it sort of brought that up for me. I always have trouble figuring out what that means, because I don’t understand your use of the word time. 
 
-**Katagiri Roshi:** Oh, I see. Well in the common sense, maybe you can see the twenty four hours, you know? This is also time. In the common sense, we believe that time is going from the past, to the present, to the future. This is our common sense [of] time. And also, that time is always alive within your life, physically and mentally. Your skin, your nose, and each pore is working within the time process. And also, your thoughts, your understanding, your feeling, your emotions, are always working in the process of time. Alright?
+**Katagiri Roshi:** Oh, I see. Well in the common sense, maybe you can see the twenty four hours, you know? This is also time. In the common sense, we believe that time is going from the past, to the present, to the future. This is our common sense [of] time. And also, that time is always alive within your life, physically and mentally. Your skin, your nose, and each pore is working within the time process. And also your thoughts, your understanding, your feeling, your emotions, are always working in the process of time. Alright?
 
 **Same person:** *Time* meaning past, present and future? 
 
-**Katagiri Roshi:** Yes: past, present, future. Conspicuously, we always live in time process. It’s very clear. As a teaching we say *cause and effect*: here’s a cause, and effect. Cause, and effect, like this. So we see human life in the time process; that is called the teaching of causation. Alright? 
+**Katagiri Roshi:** Yes: past, present, future. Conspicuously, we always live in time process. It’s very clear. As a teaching we say *cause and effect*: here’s a cause, and effect, cause, and effect – like this. So we see human life in the time process; that is called the teaching of causation. Alright? 
 
-But still there is something more than the teaching of causation: that is so-called *space*. *Space* means the point you occupy, right now, right here. You have *right-now-right-here*, tape recorder has *right-now-right-here*, which [it exists]. Everyone has *right-now-right-here*. Right now a myriad *right-now-right-here* exist, in space. Do you understand? *[He chuckles.]* 
+But still there is something more than the teaching of causation: that is so-called *space*. *Space* means the point you occupy, right now, right here. You have *right-now-right-here*, tape recorder has *right-now-right-here*, which [means it exists]. Everyone has *right-now-right-here*. Right now a myriad *right-now-right-here* exist, in space. Do you understand? *[He chuckles.]* 
 
 And then, if you see that *right-now-right-here* in terms of the time process, all are connected to each other, in one straight line from the past, to the present, to the future. But in terms of space, it’s scattered [all over]. Do you understand? *Right-now-right-here*, *right-now-right-here*... *[People laugh.]* 
 
@@ -115,7 +125,7 @@ And then, if you see that *right-now-right-here* in terms of the time process, a
 
 **Katagiri Roshi:** That is space. *[He laughs.]* So trees, and birds, all are separate, you know? Separate, and simultaneously we are connected, in space.
 
-That’s why time is in the common sense twenty-four hours, and is going from the past through the present to the future. And also, if you see time more clearly, in more detail, that time is called *moment*. So your life, your skin, is going metabolically, that is [that] you can see your life, your skin in the time process. So every moment, your skin is working. The moment is the shortest period of time, and the time process consists of many, many, myriad of moments. So in a second we can see there are many moments. That is completely beyond the concept of past, present, and future. That moment is always moving in all directions – not only a certain process, from the past to the present to the future, no. This is also an understanding of time. 
+That’s why time is in the common sense twenty-four hours, and is going from the past through the present to the future. And also, if you see time more clearly, in more detail, that time is called *moment*. Your life, your skin, is going metabolically, that is [that] you can see your life, your skin in the time process. So every moment, your skin is working. The moment is the shortest period of time, and the time process consists of many, many, myriad of moments. So in a second we can see there are many moments. That is completely beyond the concept of past, present, and future. That moment is always moving in all directions – not only a certain process, from the past to the present to the future; no. This is also an understanding of time. 
 
 **Same person:** When you say many moments, you mean like Bonnie’s moment, and Roger’s moment, and your moment, and my moment? 
 
@@ -123,7 +133,7 @@ That’s why time is in the common sense twenty-four hours, and is going from th
 
 **Same person:** Is that what you mean by many moments? Everybody’s present [moment]? 
 
-**Katagiri Roshi:** Everybody is present in the moment. [...] The presence of the microphone is based on the moment. We can understand it. But still there are lots of moments we *don’t* understand, within the single moment you can understand. Still you don’t know. So one moment consists of 60 or 70 instants. If you hear this sound – *[finger snap]* – the so-called moment, you’ve already missed lots of moments. This is also *moment*. 
+**Katagiri Roshi:** Everybody is present in the moment. [...] The presence of the microphone is based on the moment. We can understand it. But still there are lots of moments we *don’t* understand, within the single moment you can understand. Still you don’t know. One moment consists of 60 or 70 instants. If you hear this sound – *[finger snap]* – the so-called moment, you’ve already missed lots of moments. This is also *moment*. 
 
 **Same person:** You mean you missed lots of moments because you’re paying attention to that [sound]?
 
@@ -145,9 +155,9 @@ That’s why time is in the common sense twenty-four hours, and is going from th
 
 That’s why life has a beginning and an end, but there is no beginning and end. That is eternal life. That is space. But that eternal life is where? Is there something special, beyond the place where you sit? No. It’s there. That is time. 
 
-So you are there, but you are not there. That is at the intersection of time and space. That’s why all gets sucked in, melted away into [*something*], and then [something grows]. 
+So you are there, but you are not there. That is *at the intersection of time and space*. That’s why always [everything] gets sucked in, melted away [into *something*], and then [something grows]. 
 
-So if everything becomes zero, it doesn’t matter, just live there, without any rules, et cetera. But next moment it appears. That is the end of something has been melted away into something. And then simultaneously it’s [happening]. In the beginning, I mentioned the *terminal station*.
+So if everything becomes zero, [then you think] it doesn’t matter, just live there, without any rules, et cetera. But next moment, it appears. That is the end of something has been melted away into something. And then simultaneously it’s [happening]. I told you, the *terminal station* [is] the beginning.
 
 **Same person:** So what happens when we try to become conscious of the moment?
 
@@ -155,17 +165,17 @@ So if everything becomes zero, it doesn’t matter, just live there, without any
 
 **Same person:** But total dynamic working happens without inserting consciousness, right? 
 
-**Katagiri Roshi:** [It happens] beyond consciousness. Total dynamic working is there, but it’s very difficult to see the total dynamic working; that’s why total dynamic working appears as consciousness. That’s it. 
+**Katagiri Roshi:** [It happens] beyond consciousness. Total dynamic working is there, but it’s very difficult to see the total dynamic working, that’s why total dynamic working appears as consciousness. That’s it. 
 
 **Same person:** But that’s *after*.
 
-**Katagiri Roshi:** Mm-hmm... No, not *after*; *[he laughs]* *simultaneously* consciousness appears. If you say *after*, I think that is already that you [are thinking of] the relationship between total dynamic working and consciousness in the time process. But it’s not the time process, it’s *simultaneously* there. 
+**Katagiri Roshi:** Mm-hmm... No, not *after*; *[he laughs,]* *simultaneously* consciousness appears. If you say *after*, I think that is already that you [are thinking of] the relationship between total dynamic working and consciousness in the time process. But it’s not the time process, it’s *simultaneously* there. 
 
 *[He laughs.]* Total dynamic working is functioning with all beings, okay? That’s why Dogen Zenji mentions “the entire universe.”
 
 **Same person:** But what I’m saying is that when you’re thinking about it, it’s already happened. 
 
-**Katagiri Roshi:** Yeah, it already happened, because *the entire universe in total dynamic working* means that which myriad beings exist in peace and harmony, that’s it. And then at that time the myriad beings must [relate] with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist; that is *the entire universe*. “Entire universe” means all beings exist. But that is still an idea, so next moment, how does the entire universe exist? That why we say *total dynamic working*. 
+**Katagiri Roshi:** Yeah, it already happened, because *the entire universe*, so-called in *total dynamic working*, means that which myriad beings exist in peace and harmony, that’s it. And then at that time the myriad beings must [relate] with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist; that is *the entire universe*. “Entire universe” means all beings exist. But that is still an idea, so next moment, how does the entire universe exist? That why we say *total dynamic working*. 
 
 So total dynamic working as the whole entire universe means each individual must relate with *I*. Otherwise, function doesn’t come into [existence]. 
 
@@ -277,9 +287,9 @@ So within your actions, you can control, you can make effort, but you should und
 
 In other words, experientially speaking, *no effort* means [the] aspect of weakness human posses. *Weakness* means we don’t know what’s going on there. Weakness. Because it’s [a blur], we don’t know. But on the other hand, in terms of your effort you have made, it’s very clear, so it makes you strong. 
 
-According to the *Diamond Sutra*, we say, “Awaken the mind without staying or without dwelling or without abiding in anything.” So, *awakening the mind* means mind is always appearing. [It] means our life, making effort, make a choice of your life. So *doing*. So everything is clear. That makes you strong. By your effort, it makes your life strong. But on the other hand, we don’t know if your effort is right or wrong. We don’t know. Because your effort which you have made is completely melted away into total dynamic working, so-called *zero*. At that time, we don’t know what right effort is. *[He chuckles.]* 
+According to the *Diamond Sutra*, we say, “Awaken the mind without staying” – or without dwelling or without abiding – “in anything.” So, *awakening the mind* means mind is always appearing. [It] means our life, making effort, make a choice of your life. So *doing*. So everything is clear. That makes you strong. By your effort, it makes your life strong. But on the other hand, we don’t know if your effort is right or wrong. We don’t know. Because your effort which you have made is completely melted away into total dynamic working, so-called *zero*. At that time, we don’t know what right effort is. *[He chuckles.]* 
 
-So that is *[unintelligible]*, so-called *no-effort*. That makes you a little bit shaky, restless, because it’s vast, we don’t know what’s going on there. 
+So that is *[unintelligible]*, so-called *no-effort*. That makes you a little bit shaky, restless, because it’s vast. We don’t know what’s going on there. 
 
 So if you say, “I am a strong guy by zazen” – I believe you. *[He laughs.]* If you are very strong, you will become very calm. You know? But while you are barking about [this], it means you are weak, because you always have to show the strong side of your life. *[He laughs.]* “I am clear; I am strong” – so you have to show [this] constantly. Because you want to depend on that side ... 
 
@@ -323,11 +333,11 @@ So that is really peace, religious security. That is *mountain is mountain*. Tha
 
 **Katagiri Roshi:** Well, ideas, ideas, but ideas are simultaneously no idea, because you have to pass through this filter. That means you hold it, but you have to [...] be free from that. Do you understand that? That means don’t hang on to your ideas. That means you polish; your eyes must be sharp and your eyes must be bright. So for this, how can I get it? For this, practically, we have to pass through that filter. That is practice. It’s pretty hard, pretty hard to pass through this filter. It’s very hard, but if you don’t, it’s very hard to live in peace and harmony. The world doesn’t operate as a whole. Just like the engine of the car. 
 
-So always you have to pay attention to [the] aspect [of] always moving very positively but simultaneously you have to withdraw – that doesn’t mean going back, but reflect upon. Reflect upon, and move. That means holding experience, and let it go. Experience, let it go. In order to experience something, you have to consider very carefully what to do, because that is human action. You have to be very careful what to do. And then, do it. But there is very strong reflection, and then, whatever it is, if you have to do it, you have to do it. Just do, moving towards [it]. But on the other hand, we have to be very humble. Humble, or majestic and also very modest. Not arrogant. 
+So always you have to pay attention to [the] aspect [of] always moving very positively but simultaneously you have to withdraw – that doesn’t mean going back, but reflect upon. Reflect upon, and move. That means holding experience, and let it go. Experience, let it go. In order to experience something, you have to consider very carefully what to do, because that is human action. You have to be very careful what to do – and then, do it. But there is very strong reflection, and then, whatever it is, if you have to do it, you have to do it. Just do, moving towards [something]. But on the other hand, we have to be very humble. Humble, or majestic and also very modest. Not arrogant. 
 
-So it’s quite different from the lifestyle of Western life. The lifestyle of Western life is very arrogant. You’re always going *[fwoosh]*, you do something. Everyone likes that, because if you risk your life, whatever it is, you can be successful doing so. But it’s not the real total way, true way, of human living. It’s very elegant – soft, but very majestic, very stable. And nevertheless, very modest and humble. That means nothing but human life, the [energy of life]. But still there is depth. That depth is experienced as maybe elegant, or majestic, or profound; you can say so. 
+So it’s quite different from the lifestyle of Western life. The lifestyle of Western life is very arrogant. You’re always going *[fwoosh]*, you do something. Everyone likes that, because if you risk your life, whatever it is, you can be successful doing so. But it’s not the real total way, [the] true way, of human living. [That is] very elegant – soft, but very majestic, very stable, and nevertheless, very modest and humble. That means nothing but human life, the [energy of life]. But still there is depth. That depth is experienced as maybe elegant, or majestic, or profound; you can say so. 
 
-So *mountain is mountain*, but the mountain’s life is very deep, profound, if you see the mountain. But through the six consciousnesses, *mountains are mountains* is very flat. That’s very common; we say “common sense.” In the common sense, mountains are mountains. That understanding is very flat. 
+So *mountain is mountain*, but the mountain’s life is very deep, profound, if you see the mountain. But through the six consciousnesses, *mountains are mountains* is very flat. That’s very common; we say “common sense.” In the common sense, “mountains are mountains” – that understanding is very flat. 
 
 So the *mountains are mountains* I am talking about is quite different from the *mountains are mountains* in common sense. Because the Buddhist understanding of *mountain is mountain* is very profound and deep, modest, elegant, majestic. That is the total picture of the mountain which exists, interconnected with the clouds and sky, the rhythm of life, nature. The same applies to our life: thought, actions, whatever it is. 
 
