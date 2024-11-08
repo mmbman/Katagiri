@@ -56,7 +56,7 @@ But even though you don’t understand, I have to say something. That’s the be
 
 This is one paragraph. As a conclusion, this paragraph says [that] practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. 
 
-But [Dogen also] explains why we have to do it. In ancient times this practice was done by monks, contemplating the body as impure; why is it he has to say contemplating the body *beyond* the idea of purity or impurity? This is the explanation, here. So little by little, we want to [study it].
+But [Dogen also] explains why we have to do it. Because in ancient times, this practice was done by monks, contemplating the body as impure – why is it he has to say contemplating the body *beyond* the idea of purity or impurity? This is the explanation, here. So little by little, we want to [study it].
 
 #### 1 - 16:00
 

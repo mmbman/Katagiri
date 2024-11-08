@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 2"
 
 ### Summary
 
-The body is *total dynamic working*, and *total dynamic working* is like a maple leaf falling, showing its front and back. And also, the maple leaf is sucked into a black hole. Failure is really development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of “mind only.” 
+The body is *total dynamic working*, and *total dynamic working* is like a maple leaf falling, showing its front and back. And also the maple leaf is sucked into a black hole. Failure is really development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of “mind only.” 
 
 ### Transcript
 
@@ -25,7 +25,7 @@ That [is the meaning of] *total dynamic working*; function. That is called *the 
 
 And then this total dynamic working is something difficult to understand or to see, because [there is] no form, no colors, no smell – just working. So that’s why we can see it only through various forms, so-called human body, or physical activity, or mental activity, or thought, or trees, whatever it is. Through those forms, marks. And then we can see total dynamic working within them. 
 
-So always there is a form, but simultaneously no form. That’s why no form means form returns to total dynamic working, so no form. That’s why “emptiness is form, form is emptiness.” 
+So always there is a form, but simultaneously no form. That’s why *no form* means form returns to total dynamic working, so no form. That’s why “emptiness is form, form is emptiness.” 
 
 #### 1 - 5:50
 
