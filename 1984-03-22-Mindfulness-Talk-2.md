@@ -31,7 +31,7 @@ So always there is a form, but simultaneously no form. That’s why *no form* me
 
 #### 1 - 5:50
 
-Ryokan Zen Master, when he was about to die, was asked by his disciples, “What do you think about life and death?” He said, “A maple leaf, showing its back and front. It is falling.” Can you see this? A maple leaf showing its back and front; it is falling... means there is only total dynamic working, so-called *to be falling*. 
+Ryokan Zen Master, when he was about to die, was asked by his disciples, “What do you think about life and death?” He said, “A maple leaf, showing its back and front. It is falling.” Can you see this? “A maple leaf showing its back and front; it is falling” means there is only total dynamic working, so-called *to be falling*. 
 
 But it’s pretty difficult to see [or] to understand that activity or motion, so-called *to be falling*. How do we know [it]? We should know it through the form, so-called showing its front, sometimes its back. That is purity or impurity. But in the process of this entire working, at the moment its back is shown, next moment the back returns to total dynamic working. That means the form of the back is melted away into the process of total dynamic working, so next moment, the front appears. But the next moment the front is also melted away into total dynamic working, so-called falling. So, nothing. Front, no front. Back, no back. What’s that? That is called [...] total dynamic working; just falling.
 
