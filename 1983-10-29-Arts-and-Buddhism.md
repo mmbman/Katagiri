@@ -15,7 +15,7 @@ Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects 
 
 #### Part 1
 
-<p align="center" style="font-style: italic">
+<p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-29369181" target="_blank">Listen to Part 1 on mnzencenter.org</a>
 </p>
 
@@ -167,7 +167,7 @@ That’s pretty good, you know?
 
 #### Part 2
 
-<p align="center" style="font-style: italic">
+<p style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-22069116" target="_blank">Listen to Part 2 on mnzencenter.org</a>
 </p>
 
