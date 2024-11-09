@@ -17,13 +17,11 @@ title: "Mindfulness – Talk 5"
 
 > We should clarify the principle (or truth) that there is approach to buddhas at the place where we are moving in the deep course of the practice.
 
-We are practicing. 
+We are practicing. In Japanese we say *nen jo*, literally “at the place where we take form of.” 
 
-In Japanese we say *nen jo*, literally “at the place where we take form of.” 
+You know the story of Buddha Shakyamuni when he transmitted his dharma in front of the assembly: he took the *udambara* flower and showed it to the assembly, and Mahakasyapa smiled. Mahakasyapa responded to the Buddha Shakyamuni’s demonstration with a smile. That means that taking the *udambara* flower and showing it to the assembly, simultaneously there is some response from the audience, from the assembly. So *nen jo* means “at the place where we take form”; [that] means we can take *something*, anyway. You can take something, and then you can communicate, you can have dynamic communication.
 
-You know the story of Buddha Shakyamuni when he transmitted his dharma in front of the assembly: he took the *udambara* flower and showed it to the assembly, and Mahākāśyapa smiled. Mahākāśyapa responded to the Buddha Shakyamuni’s demonstration with a smile. That means that taking the *udambara* flower and showing it to the assembly, simultaneously there is some response from the audience, from the assembly. So *nen jo* means “at the place where we take form”; [that] means we can take *something*, anyway. You can take something, and then you can communicate, you can have dynamic communication.
-
-If you want to compose of poem about nature or wilderness and beauty of existence, whatever, anyway you have to *move toward* first. So see the nature, be with the nature. That is then simultaneously you can have dynamic communication between nature and you. That is “at the place where we take form of something.” Literally that means at the place where we are *using* something. *Using* is not a good term. I don’t know. So *practice*, actually. 
+If you want to compose of poem about nature or wilderness and beauty of existence, whatever, anyway you have to *move toward* first. So see nature, be with nature. That is then simultaneously you can have dynamic communication between nature and you. That is “at the place where we take form of something.” Literally that means at the place where we are *using* something. *Using* is not a good term. I don’t know. So *practice*, actually. 
 
 I think if you read the book *Refining Your Life*, Dogen Zenji [talks] about that. For instance, taking a piece of vegetable and build up Buddha’s temple, buddha world. That means it depends on your practice whether you kill the vegetable or you make the life of vegetable alive, aiming at the human life for the long run. If your range is very short, I think this vegetable is just for eating, for breakfast and dinner, et cetera. But if you deal with the piece of vegetable for taking care of the people who practice in the Buddha way for life after life, at that time you have to take care of the piece of vegetable with very careful, compassionate spirit. So very naturally a different world is opening, the flower of the world is blooming in a different way, completely. So that is *nen jo*. 
 
