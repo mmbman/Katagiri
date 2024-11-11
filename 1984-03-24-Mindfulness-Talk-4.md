@@ -5,6 +5,10 @@ title: "Mindfulness – Talk 4"
 
 #### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Mindfulness](mindfulness)
 
+### Summary 
+
+Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-buddhas,” and “people-becoming-buddhas,” and how this relates to mindfulness of the body.
+
 ### Transcript
 
 #### Part 1

@@ -24,5 +24,10 @@ Katagiri Roshi continues to comment on the *Sanjūshichi-bon-bodai-bunpō* chapt
 
 --- 
 
-- Mindfulness – Talk 4
+##### [Mindfulness – Talk 4](1984-03-24-Mindfulness-Talk-4)
+
+Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-buddhas,” and “people-becoming-buddhas,” and how this relates to mindfulness of the body.
+
+--- 
+
 - Mindfulness – Talk 5
