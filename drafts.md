@@ -13,6 +13,7 @@ These transcripts are in early rough draft state. This page is not meant to be p
 - [*The Awakening of Faith* Talk 1](1984-03-16-The-Awakening-of-Faith)
 - [Mindfulness – Talk 4](1984-03-24-Mindfulness-Talk-4)
 - [Mindfulness – Talk 5](1984-03-25-Mindfulness-Talk-5)
+- [*The Awakening of Faith* Talk 3](1984-04-06-The-Awakening-of-Faith-Talk-3)
 
 ### 1986
 
