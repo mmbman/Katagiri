@@ -3,7 +3,7 @@ title: "Mindfulness – Talk 4"
 ---
 ## March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Mindfulness](mindfulness)
+#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1984-05-14-Two-Kinds-of-Nowness) \| Series: [Mindfulness](mindfulness)
 
 ### Summary 
 
@@ -357,4 +357,4 @@ So in the human world, if there are many different kinds of persons here, and th
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Mindfulness](mindfulness)
+#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1984-05-14-Two-Kinds-of-Nowness) \| Series: [Mindfulness](mindfulness)
