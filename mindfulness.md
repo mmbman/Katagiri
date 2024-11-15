@@ -30,4 +30,7 @@ Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-budd
 
 --- 
 
-- Mindfulness – Talk 5
+##### [Mindfulness – Talk 5](1984-03-25-Mindfulness-Talk-5)
+
+Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dogen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication, and this moment is a blank canvas. 
+

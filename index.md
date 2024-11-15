@@ -26,7 +26,9 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 
 ## Latest Updates
 
-**November 13, 2024:** Posted [“Mindfulness – Talk 4”](1984-03-24-Mindfulness-Talk-4).
+**November 15, 2024:** Posted [“Mindfulness – Talk 5”](1984-03-25-Mindfulness-Talk-5)
+
+**November 13, 2024:** Posted [“Mindfulness – Talk 4”](1984-03-24-Mindfulness-Talk-4)
 
 **November 7, 2024:** Working on the [Mindfulness](mindfulness) series.
 

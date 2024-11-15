@@ -5,6 +5,10 @@ title: "Mindfulness – Talk 5"
 
 #### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Mindfulness](mindfulness)
 
+### Summary
+
+Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dogen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication, and this moment is a blank canvas. 
+
 ### Transcript
 
 #### Part 1
