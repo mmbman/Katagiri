@@ -61,7 +61,7 @@ So Dogen Zenji first says like this, “Studying in such a manner, ...”, and,
 
 Well, this is a big question for you. 
 
-Because *demons-becoming-buddha*, that one word, means demons are not demons, demons are buddha. Completely beyond the sense of purity or impurity – anyway demons, buddha. That’s why Dogen Zenji uses one word. *Demons-becoming-buddha* means demon is exactly buddha, buddha is demon. Exactly one. No gap, no space between; so that’s why it’s one word. 
+Because *demons-becoming-buddha*, that one word, means demons are not demons, demons are buddha. Completely beyond the sense of purity or impurity – anyway demons, buddha. That’s why Dogen Zenji uses one word. *Demons-becoming-buddha* means demon is exactly buddha, buddha is demon. Exactly one. No gap, no space between. So that’s why it’s one word. 
 
 “In the time” means everything: tape recorder becoming buddha. Tape recorder is buddha, floor is buddha, your nail is also buddha, your hair is buddha. So that is [that] the presence of your hair is “*hair-being*.” Hair-being is great opportunity of manifestation of buddha. 
 
