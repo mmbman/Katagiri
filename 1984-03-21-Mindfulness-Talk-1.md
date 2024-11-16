@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 1"
 
 ### Summary 
 
-Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dogen. This series of talks discusses the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice”) chapter of *Shobogenzo*. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.”
+Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dogen. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.” In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. 
 
 ### Transcript
 
