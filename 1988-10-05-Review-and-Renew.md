@@ -3,7 +3,7 @@ title: "Review and Renew: Buddhism for the Twenty-First Century"
 ---
 ## October 5, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1988) \| [Previous](1987-06-27-A-B-and-C-Worlds) \| [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
+#### [List](list#1988) \| [Previous](1987-06-27-A-B-and-C-Worlds) \| [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| Series: [Miscellaneous](miscellaneous)
 
 ### Summary
 
@@ -171,4 +171,4 @@ That is called *jumy≈ç* in Japanese: lifespan. If you use the word lifespan, it‚
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1988) \| [Previous](1987-06-27-A-B-and-C-Worlds) \| [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
+#### [List](list#1988) \| [Previous](1987-06-27-A-B-and-C-Worlds) \| [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| Series: [Miscellaneous](miscellaneous)
