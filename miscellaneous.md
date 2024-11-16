@@ -14,7 +14,7 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 
 ##### [Arts and Buddhism](1983-10-29-Arts-and-Buddhism)
 
-Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects with a discussion of Buddhistic art. *Bendo* means to expend our every possible effort toward *the way*, not for the purpose of satisfying our desires. 
+Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects with a discussion of Buddhistic art. *Bendo* means to expend our every possible effort toward *the way*, not toward satisfying our desires. 
 
 ---
 

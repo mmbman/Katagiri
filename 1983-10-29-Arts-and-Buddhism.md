@@ -9,7 +9,7 @@ title: "Arts and Buddhism"
 
 ### Summary 
 
-Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects with a discussion of Buddhistic art. *Bendo* means to expend our every possible effort toward *the way*, not for the purpose of satisfying our desires. 
+Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects with a discussion of Buddhistic art. *Bendo* means to expend our every possible effort toward *the way*, not toward satisfying our desires. 
 
 ### Transcript
 
