@@ -14,7 +14,7 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 
 ##### [Arts and Buddhism](1983-10-29-Arts-and-Buddhism)
 
-Katagiri Roshi discusses what is the true purpose of Buddhism, which intersects with a discussion of the arts and their relation to *sunyata* (“emptiness”). Life and death should be seen in terms of the way (*bendo*), not in terms of satisfying our desires. 
+Katagiri Roshi discusses the true purpose of Buddhism, which intersects with a discussion of the arts and their relation to *sunyata* (“emptiness”). Life and death should be seen in terms of the way (*bendo*), not in terms of satisfying our desires. 
 
 ---
 
