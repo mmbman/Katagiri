@@ -7,9 +7,7 @@ title: "Introduction to Buddhism"
 
 ### Summary
 
-An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
-
-*(Transcriber’s Note: In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism – so it seems likely that he is simply adding an extraneous “the” to “Buddhist faith”. I have omitted the “the” in some cases.)*
+An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
 
 ### Transcript
 
@@ -17,6 +15,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
+*(Transcriber’s Note: In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism – so it seems likely that he is simply adding an extraneous “the” to “Buddhist faith”. I have omitted the “the” in some cases.)*
 
 #### 0:00
 
