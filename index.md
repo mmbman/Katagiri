@@ -17,6 +17,7 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [**Mindfulness**](mindfulness)
 - [***Platform Sutra***](platform-sutra)
 - [***Shobogenzo Genjokoan***](genjokoan)
+- [**Zen Forms and Ceremonies**](zen-forms)
 - [**Miscellaneous Talks**](miscellaneous)
 
 These lists will be updated as talks are transcribed. Readers should be aware that the topics above come up in many places within Katagiri Roshi’s talks, not just within these series. 
