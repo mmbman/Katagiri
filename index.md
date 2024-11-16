@@ -15,6 +15,7 @@ Some of the **series of talks** that Katagiri Roshi gave are:
 - [**Karma**](karma)
 - [**Lay Ordination Lectures**](lay-ordination)
 - [**Mindfulness**](mindfulness)
+- [**Miscellaneous Talks**](miscellaneous)
 - [***Platform Sutra***](platform-sutra)
 - [***Shobogenzo Genjokoan***](genjokoan)
 
