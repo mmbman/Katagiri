@@ -7,7 +7,7 @@ title: "Verse of Opening the Sutra"
 
 ### Summary
 
-Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually recited before a dharma talk. He connects the *Verse* to similar passages from the *Saddharma Puṇḍarīka Sutra* and the *Samadhi Sutra*.
+Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually recited before a dharma talk. He connects the *Verse* to related passages from the *Saddharma Puṇḍarīka Sutra* (the *Lotus Sutra*) and the *Samadhi Sutra*. He also draws a connection with the psychologist Alice Miller.
 
 ### Transcript
 
@@ -60,7 +60,7 @@ I think in Buddhism, dharma is... not *exactly*, but *almost* corresponding to G
 
 *Dharma* is a very technical Buddhist term, and very popular. It’s a philosophical term – but it’s not philosophical, [it’s a] very spiritual term. So it’s a very complicated term. *At the least,* it has three meanings. If you use *dharma*, it is *the principle of existence*. And second, it is *phenomena*: *all* phenomena, visible and invisible. And also *teaching*. Dharma has at least those three meanings: *principle of existence*, and also *all phenomena*, and also *teaching*. Because you can experience it and you can teach it to people. This is our responsibility: we have to transmit this dharma to the next generation. So, we can teach. 
 
-So that is *dharma*. 
+That is *dharma*. 
 
 #### 11:15
 
@@ -70,13 +70,13 @@ So, “the supreme, profound, subtle dharma” is rarely met with. The second ve
 
 I think [...] it is very rare for us to be born as a human being, and also *this* kind of opportunity is very rare for us: to meet together and to practice together. Very rare. 
 
-And also I [always say], the opportunity to express your compassion – complete kindness, Buddha’s compassion – toward others is very rare. Usually we don’t pay attention to that opportunity to express the real true meaning of compassion. Like a person who sees a baby is going to fall into a well, or lake, et cetera, runs and saves him before he thinks: this is the true meaning of compassion. But that opportunity in our daily life is very rare, because usually there are lots of choices. 
+And also I [always say], the opportunity to express your compassion – complete kindness, Buddha’s compassion – toward others is very rare. Usually we don’t pay attention to that opportunity to express the real true meaning of compassion. Like a person who sees a baby is going to fall into a well or lake, et cetera, runs and saves him before he thinks: this is the true meaning of compassion. But that opportunity in our daily life is very rare, because usually there are lots of choices. 
 
 So that’s why zazen is very good for us, to realize that rare opportunity to express yourself. That’s [where] you can open yourself. To open yourself is completely prior to the functioning of your desire, or thinking, or speculation. That is perfect opening. So if you do zazen, you can do it. 
 
 But still, we don’t understand that: how important the opportunity to do zazen is. Because still we are always groping for something in the realm of many choices, alternatives. That’s why we don’t [understand]. That’s why every day we have to repeat this kind of practice. 
 
-So, “is rarely met with.” [As each other], [...] listening to the Buddha’s teaching is very rare. 
+So, “is rarely met with” [as each other]. [...] Listening to the Buddha’s teaching is very rare. 
 
 “... [even] in a hundred thousand million *kalpas*”: *kalpas* is a term of time, eternal time. Completely boundless time, countless time – that is *kalpas*. And in a hundred thousand million kalpas – for a long, long time – this opportunity we see is very rare. This opportunity to sit together now is *very* rare, for a long, long time. We cannot get this opportunity for a long time, for a hundred million *kalpas*.
 
@@ -134,13 +134,15 @@ In the *Saddharma Puṇḍarīka Sutra* it also [says]:
 
 > [Of] yore, I [followed] countless buddhas, and perfectly trod the right ways of the profound and the wonderful law, [...] which are difficult to perceive and perform.
 
-This is exactly the same as the first and second lines of the *Verse of Opening the Sutra*. The translation of the words is different, but originally it’s the same meaning, same letters. So here it says, “perfectly trod the right ways of the profound and wonderful law.” That means “unsurpassed, penetrating and perfect dharma”; that is translated here as “the profound and wonderful law.” “... which are difficult to perceive and perform”: that means “which are very rare to see, or to listen to, or to keep it.”
+This is exactly the same as the first and second lines of the *Verse of Opening the Sutra*. The translation of the words is different, but originally it’s the same meaning, same letters. So here it says, “perfectly trod the right ways of the profound and wonderful law.” That means “unsurpassed, penetrating and perfect dharma”; that is translated here as “the profound and wonderful law.” 
 
-And also, the *Saddharma Puṇḍarīka Sutra* says:
+“... which are difficult to perceive and perform”: that means “which are very rare to see, or to listen to, or to keep it.”
+
+And also the *Saddharma Puṇḍarīka Sutra* says:
 
 > Again, I say to Shariputra, the [faultless] and inscrutable, profound and mysterious \[law], [...] I now have wholly attained.
 
-Here it uses different terms. “Profound and mysterious Law,” that is “profound, perfect, and penetrating dharma.”
+Here it uses different terms. “Profound and mysterious law,” that is “profound, perfect, and penetrating dharma.”
 
 #### 32:02
 
@@ -176,7 +178,7 @@ That’s why it says [Buddha’s vow is], “‘I desire universally to cause al
 
 #### 41:20
 
-So that is because “the buddhas, the honored ones, know that nothing has an independent existence, and that the buddha seeds spring from conditions.” Buddhas know pretty well that nothing has an independent existence. The universe – what is the universe? The universe is exactly the vastness of existence, in which all sentient beings walk in peace and harmony without discrimination. That naturally happens. This is the universe. 
+So that is because “the buddhas, the honored ones, know that nothing has an independent existence, and that the buddha seeds spring from conditions.” Buddhas know pretty well that nothing has an independent existence. What is the universe? The universe is exactly the vastness of existence, in which all sentient beings walk in peace and harmony without discrimination. That naturally happens. This is the universe. 
 
 So, I think there is nothing special we try to depend on – in terms of Katagiri’s ideas, in terms of Americans’ ideas. Anyway, if we realize the original nature of the universe, we are exactly living and walking hand in hand together in peace and harmony, without discriminations. That’s why [there is] nothing to depend on *personally*. Let’s walk together. 
 
