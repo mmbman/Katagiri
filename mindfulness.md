@@ -4,7 +4,7 @@ title: "Mindfulness"
 
 In this series of talks, Katagiri Roshi explains mindfulness from the viewpoint of Zen Master Dogen. The talks discuss the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice”) chapter of *Shobogenzo*. 
 
-This series might be seen as challenging, as it presents a radically different view of mindfulness from what one might expect based on how it is presented in mainstream culture. Specifically, some points to consider here may be: 
+This series might be seen as challenging, as it presents a radically different view of mindfulness from what one might expect based on how it is presented in mainstream culture. Specifically, some points to consider here might be: 
 
 - Mindfulness is not a set of techniques.
 - Mindfulness is not exclusively focused on the self.
@@ -28,7 +28,7 @@ The body is *total dynamic working*, and *total dynamic working* is like a maple
 
 ##### [Mindfulness – Talk 3](1984-03-23-Mindfulness-Talk-3)
 
-Mindfulness is not an idea of mindfulness: if you observe the body, the body observes you, and then all sentient beings support your observation. There is no one-way traffic. Liberation comes from action, but that action must come from emptiness, or liberation itself. First, we have to have a very deep faith that all sentient beings have the-same-and-one-nature. And then, we have to establish the state of mind that is like a wall, which is emptiness.
+Mindfulness is not an idea of mindfulness. If you observe the body, the body observes you, and then all sentient beings support your observation. There is no one-way traffic. Liberation comes from action, but that action must come from emptiness, or liberation itself. First, we have to have a very deep faith that all sentient beings have the-same-and-one-nature. And then, we have to establish the state of mind that is like a wall, which is emptiness.
 
 --- 
 
