@@ -7,7 +7,7 @@ This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as 
 
 [**Talk List**](list)
 
-**Series of Talks:**
+**Talk Series:**
 
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
@@ -27,6 +27,8 @@ Please note that these transcripts are a continuing work in progress. Correction
 Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
 ## Latest Updates
+
+**November 17, 2024:** Posted [“Verse of Opening the Sutra”](1986-07-23-Verse-of-Opening-the-Sutra)
 
 **November 15, 2024:** Posted [“Mindfulness – Talk 5”](1984-03-25-Mindfulness-Talk-5)
 

@@ -3,7 +3,7 @@ title: "Verse of Opening the Sutra"
 ---
 ## July 23, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Zen Forms](zen-forms)
+#### [List](list#1986) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1987-03-06-Platform-Sutra-Talk-1) \| Series: [Zen Forms](zen-forms)
 
 ### Summary
 
@@ -256,4 +256,4 @@ I think that book written by Alice Miller – I forgot the title of that book. I
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Zen Forms](zen-forms)
+#### [List](list#1986) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1987-03-06-Platform-Sutra-Talk-1) \| Series: [Zen Forms](zen-forms)

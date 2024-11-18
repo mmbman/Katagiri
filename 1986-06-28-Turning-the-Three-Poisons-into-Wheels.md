@@ -3,7 +3,7 @@ title: "Turning the Three Poisons into Wheels"
 ---
 ## June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-03-06-Platform-Sutra-Talk-1) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1986-07-23-Verse-of-Opening-the-Sutra) \| Series: [Lay Ordination](lay-ordination)
 
 ### Transcript
 
@@ -122,4 +122,4 @@ So that is [what] “the threefold wheel is pure and clean” [means]. Naturally
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-03-06-Platform-Sutra-Talk-1) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1986-07-23-Verse-of-Opening-the-Sutra) \| Series: [Lay Ordination](lay-ordination)
