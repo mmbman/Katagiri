@@ -7,7 +7,7 @@ This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as 
 
 [**Talk List**](list)
 
-**Series of talks:**
+**Series of Talks:**
 
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
