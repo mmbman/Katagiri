@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen"
+title: "Fukanzazengi: Universal Recommendation for Zazen"
 ---
 
 Katagiri Roshi gave more than one series of talks on *Fukanzazengi*; currently this single series of talks is available in the online archive. These talks were given during a seven-day *sesshin* in June of 1979.

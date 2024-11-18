@@ -11,7 +11,7 @@ This website carefully transcribes the dharma talks of Dainin Katagiri Roshi as 
 
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
-- [***Fukanzazengi*: Dogen's Universal Recommendation for Zazen**](fukanzazengi)
+- [***Fukanzazengi*: Universal Recommendation for Zazen**](fukanzazengi)
 - [**Karma**](karma)
 - [**Lay Ordination Lectures**](lay-ordination)
 - [**Mindfulness**](mindfulness)
