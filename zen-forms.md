@@ -14,4 +14,4 @@ Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour
 
 ##### [Verse of Opening the Sutra](1986-07-23-Verse-of-Opening-the-Sutra)
 
-Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually recited before a dharma talk. He connects the *Verse* to related passages from the *Saddharma Puṇḍarīka Sutra* (the *Lotus Sutra*) and the *Samadhi Sutra*. He also draws a connection with the psychologist Alice Miller.
+Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually chanted before a dharma talk. He connects the *Verse* to related passages from the *Saddharma Puṇḍarīka Sutra* (the *Lotus Sutra*) and the *Samadhi Sutra*. He also draws a connection with the psychologist Alice Miller.
