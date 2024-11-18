@@ -2,7 +2,15 @@
 title: "Mindfulness"
 ---
 
-In this series of talks, Katagiri Roshi explains mindfulness from the viewpoint of Zen Master Dogen. The talks discuss the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice”) chapter of *Shobogenzo*. These talks were given during a five-day *sesshin* in March, 1984.
+In this series of talks, Katagiri Roshi explains mindfulness from the viewpoint of Zen Master Dogen. The talks discuss the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice”) chapter of *Shobogenzo*. 
+
+This series presents a radically different view of mindfulness from what one might expect based on how mindfulness is presented in mainstream culture – or perhaps within much of Buddhism, for that matter. Some points to consider here: 
+
+- Mindfulness is not a set of techniques.
+- Mindfulness is not exclusively focused on the self.
+- Mindfulness is not *narrowly* goal-oriented.
+
+These talks were given during a five-day *sesshin* in March, 1984.
 
 ---
 
