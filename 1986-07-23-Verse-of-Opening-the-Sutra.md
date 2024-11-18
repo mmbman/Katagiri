@@ -30,7 +30,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 
 **Katagiri Roshi:** [This verse is found] in the portion of the “Daily Used Statements, Verses, and Dharani” which occurs in the [...] various *ekos* – final dedications – compiled by [Hu-en] in 1565 (CE) or so. (*Transcriber’s Note:* This paragraph is difficult to transcribe, and so far I have been unable to track down the reference. It should be noted that the *Verse* itself can be traced back to origins in China around 500-700 CE – accounts vary.)
 
-So the “unsurpassed, penetrating, and perfect dharma”... 
+So, the “unsurpassed, penetrating, and perfect dharma”... 
 
 Well, in Japanese, [the verse is titled] *Kaikyō ge*: the “Verse of Opening Sutra” (開經偈).
 
