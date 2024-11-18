@@ -5,6 +5,10 @@ title: "Verse of Opening the Sutra"
 
 #### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Zen Forms](zen-forms)
 
+### Summary
+
+Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually recited before a dharma talk. He connects the *Verse* to similar passages from the *Saddharma Puṇḍarīka Sutra* and the *Samadhi Sutra*.
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
