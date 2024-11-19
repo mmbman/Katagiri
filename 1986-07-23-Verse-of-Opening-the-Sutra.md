@@ -7,7 +7,7 @@ title: "Verse of Opening the Sutra"
 
 ### Summary
 
-Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually chanted before a dharma talk. He connects the *Verse* to related passages from the *Saddharma Puṇḍarīka Sutra* and the *Samadhi Sutra*, and also draws a connection with the psychologist Alice Miller.
+Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually chanted before a dharma talk. He connects the *Verse* to related passages from the *Lotus Sutra* and the *Samadhi Sutra*, and also draws a connection with the psychologist Alice Miller.
 
 ### Transcript
 
