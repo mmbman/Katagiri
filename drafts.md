@@ -10,8 +10,8 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 ### 1984
 
-- [*The Awakening of Faith* Talk 1](1984-03-16-The-Awakening-of-Faith)
-- [*The Awakening of Faith* Talk 3](1984-04-06-The-Awakening-of-Faith-Talk-3)
+- [*The Awakening of Faith* Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
+- [*The Awakening of Faith* Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
 
 ### 1986
 
