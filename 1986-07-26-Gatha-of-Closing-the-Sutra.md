@@ -1,5 +1,5 @@
 ---
-title: "Verse of Closing the Sutra"
+title: "Gatha of Closing the Sutra"
 ---
 ## July 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
@@ -15,13 +15,15 @@ title: "Verse of Closing the Sutra"
 
 #### 0:00
 
-**Katagiri Roshi:** ... explain on the Gatha of Closing the Sutra. I think a few minutes ago Michael O’Neal chanted after chanting, “May the merit of this penetrate into each thing in all places, so that we and every sentient being together realize the buddha way.”
+**Katagiri Roshi:** ... [I would like to explain] the *Gatha of Closing the Sutra*. A few minutes ago, Michael O’Neal chanted this [...]: 
 
-After lecture, we chant this. Also, the evening service, after chanting the sutra, we offer this gatha to the Buddha. 
+> May the merit of this penetrate into each thing in all places, so that we and every sentient being together realize the buddha way.
 
-We call usually gatha we chant after ceremony is called *eko* in Japanese; in Sanskrit, *parinama*. Which means change, alteration. The second meaning is *ripening*. And also a third meaning is *development*, causing to grow, maturation... this kind of meaning. 
+After lectures, we chant this. Also, [during] the evening service, after chanting the sutra, we offer this *gatha* to the Buddha. 
 
-So in Buddhism, the idea of *eko* is pretty important. *Parinama*; transference of merit. 
+[...] A *gatha* we chant after a ceremony is called *eko* in Japanese. In Sanskrit, *parinama*. Which means “change,” “alteration.” The second meaning is “ripening.” And also a third meaning is “development”: causing to grow, maturation... this kind of meaning. 
+
+So in Buddhism, the idea of *eko* is pretty important. *Parinama*: transference of merit. 
 
 I think the basic nature of existence is perfectly ripened. Ripeness means ... what would you say... very pure, clean. Nothing to contaminate. So it’s perfect; perfect state of existence. This is the basic nature of existence. So, our basic nature of existence is perfectly ripe, pure, and clean; nothing to contaminate. And this original nature or ultimate nature of existence supports all sentient beings constantly. So from this point, I think whatever we do, I think all doings are going in the realm of ultimate nature of existence, which is extending to the whole universe.
 

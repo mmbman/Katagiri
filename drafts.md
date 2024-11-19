@@ -15,8 +15,7 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 ### 1986
 
-- [Verse of Opening the Sutra](1986-07-23-Verse-of-Opening-the-Sutra)
-- [Verse of Closing the Sutra](1986-07-26-Verse-of-Closing-the-Sutra)
+- [Gatha of Closing the Sutra](1986-07-26-Gatha-of-Closing-the-Sutra)
 
 ### 1987
 
