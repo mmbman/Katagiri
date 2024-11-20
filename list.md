@@ -176,7 +176,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *The Awakening of Faith* Talk 7
 1. *The Awakening of Faith* Talk 8
 
-1. [*The Awakening of Faith* Talk 9: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness)
+1. [*The Awakening of Faith* Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 
 1. *The Awakening of Faith* Talk 10: Time
 1. *The Awakening of Faith* Talk 11: Alayavijnana and Tathagatagarbha

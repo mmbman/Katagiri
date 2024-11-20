@@ -419,7 +419,7 @@ If you observe the body, the body observes you; there is no one-way traffic. And
 
 ---
 
-##### [The Awakening of Faith: Two Kinds of Nowness](1984-05-14-Two-Kinds-of-Nowness)
+##### [The Awakening of Faith: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 ###### May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*

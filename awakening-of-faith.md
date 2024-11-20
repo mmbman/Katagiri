@@ -2,7 +2,7 @@
 title: "The Awakening of Faith"
 ---
 
-The *Awakening of Faith*, more fully translated as *The Treatise on Awakening Mahayana Faith*, is a foundational text that established the concepts and practice of Mahayana Buddhism. Katagiri Roshi gave 38 talks commenting on this text, in five series. 23 of those talks are currently available. Others are not yet available in the online audio archive, or are lost.
+The *Awakening of Faith*, more fully translated as *The Treatise on Awakening Mahayana Faith*, is a foundational text that established the concepts and practice of Mahayana Buddhism. Katagiri Roshi gave 38 talks commenting on this text, in five series. 23 of those talks are currently available. Others are not yet available in the online audio archive or are lost.
 
 This series of transcripts is in rough draft stage. 
 
@@ -11,10 +11,10 @@ This series of transcripts is in rough draft stage.
 - [Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
 - [Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
 - [Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
-- Talk 6
+- [Talk 6](1984-04-27-Awakening-of-Faith-Talk-6)
 - Talk 7
 - Talk 8
-- Talk 9: Two Kinds of Nowness
+- [Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 - Talk 10: Time
 - Talk 11: Alayavijnana and Tathagatagarbha
 - Talk 12: Tathagatagarbha

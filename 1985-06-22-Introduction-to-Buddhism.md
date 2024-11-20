@@ -3,7 +3,7 @@ title: "Introduction to Buddhism"
 ---
 ## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1985) \| [Previous](1984-05-14-Two-Kinds-of-Nowness) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Miscellaneous](miscellaneous)
+#### [List](list#1985) \| [Previous](1984-05-14-Awakening-of-Faith-Talk-9) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Miscellaneous](miscellaneous)
 
 ### Summary
 
@@ -194,4 +194,4 @@ Thank you very much.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1985) \| [Previous](1984-05-14-Two-Kinds-of-Nowness) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Miscellaneous](miscellaneous)
+#### [List](list#1985) \| [Previous](1984-05-14-Awakening-of-Faith-Talk-9) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Miscellaneous](miscellaneous)
