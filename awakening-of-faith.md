@@ -1,5 +1,5 @@
 ---
-title: "Zen Forms and Ceremonies"
+title: "The Awakening of Faith"
 ---
 
 The *Awakening of Faith*, more fully translated as *The Treatise on Awakening Mahayana Faith*, is a foundational text that established the concepts and practice of Mahayana Buddhism. Katagiri Roshi gave 38 talks commenting on this text, in five series. 23 of those talks are currently available. Others are not yet available in the online audio archive, or are lost.
