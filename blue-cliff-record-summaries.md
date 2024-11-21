@@ -2,7 +2,9 @@
 title: "Blue Cliff Record"
 ---
 
-Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* (*Hekiganroku*) from 1979 to 1989. Listed below are the talks that are present in the online audio archive. 
+The *Blue Cliff Record* (*Hekiganroku*) is a renowned collection of one hundred *koans* (or “public cases”) in the Zen tradition.
+
+Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1989. Listed below are the talks that are present in the online audio archive. 
 
 [Talk List](blue-cliff-record) \| Talk Summaries
 
