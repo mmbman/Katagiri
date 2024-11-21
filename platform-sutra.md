@@ -2,13 +2,15 @@
 title: "Platform Sutra"
 ---
 
+The *Platform Sutra* is a text containing teachings and stories attributed to Hui Neng, the Sixth Ancestor of Chan (Zen) in China.
+
 Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March and April of 1987. The talks focus on Chapter 1, “Action and Intention,” and Chapter 2, “Prajna.”
 
 ---
 
 ##### [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 
-Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature and achieve Buddhahood.” 
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature and achieve Buddhahood.” 
 
 ---
 
