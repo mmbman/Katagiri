@@ -2,7 +2,7 @@
 title: "The Awakening of Faith"
 ---
 
-*The Awakening of Faith* (大乘起信論), more fully translated as *The Treatise on Awakening Mahayana Faith*, is a foundational text that established the concepts and practice of Mahayana Buddhism.
+*The Awakening of Faith* (大乘起信論), more fully translated as *The Treatise on Awakening Mahayana Faith*, is a foundational text that established the concepts and practice of Mahayana Buddhism (which includes Zen Budhism).
 
 Katagiri Roshi gave 38 talks commenting on this text, in five series. 23 of those talks are currently available; 15  are not yet in the online audio archive or are lost.
 
