@@ -8,12 +8,6 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 - [*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 1](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1)
 
-### 1984
-
-- [*The Awakening of Faith* Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
-- [*The Awakening of Faith* Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
-- [*The Awakening of Faith* Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
-
 ### 1986
 
 - [Gatha of Closing the Sutra](1986-07-26-Gatha-of-Closing-the-Sutra)
