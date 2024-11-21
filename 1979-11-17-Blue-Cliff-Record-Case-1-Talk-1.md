@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Talk 1
 
 ### Summary
 
-Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*, a renowned collection of one hundred *koans* (or “public cases”) in the Zen tradition. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
+Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
 
 ### Transcript
 
