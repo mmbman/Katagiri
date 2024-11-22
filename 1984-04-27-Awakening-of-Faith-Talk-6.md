@@ -15,10 +15,402 @@ title: "The Awakening of Faith – Talk 6"
 
 #### 0:00
 
+**Katagiri Roshi:** Do you have particular questions, from what we have learned?
+
+In the previous chapter, I think, what kind of truth? We studied this kind of truth. Do you remember? 
+
+**Question:** The absolute?
+
+**Katagiri Roshi:** Absolute? Yes. What kind of absolute?
+
+**Question:** The truth is one?
+
+**Katagiri Roshi:** Yes, one. But the chapter we are studying today is a different truth than before. 
+
+**Question:** The truth that can’t be put in words?
+
+**Katagiri Roshi:**  Right. Last time we studied the truth we cannot put the words [on]. 
+
+Do you remember what I said? What kind of truth? Page 32.
+
+**Question:** Absolute? 
+
+**Katagiri Roshi:** Absolute, yes. But the truth is also absolute, we are studying today, but quite different. 
+
+**Question:** You mean the truth can be put in words?
+
+**Katagiri Roshi:** I don’t know if it is the correct English...
+
+**Question:** Suchness?
+
+**Katagiri Roshi:** I said the truth independent from words. Do you remember? I don’t know if that is correct or not. 
+
+**Question:** Is [...] behind the words? 
+
+**Katagiri Roshi:** Mmm-hm. So, that absolute is quite different from the absolute dependent on words. Do you understand? 
+
+Today we will study the truth depending on words. In the previous chapter, the absolute is completely absolute, keeping away from the words. And then, we need to understand what is the truth. And then what is the truth, if it is completely kept away from the words?
 
 
+ I think you were talking about that truth includes the phenomenal world and includes that engagement with that world. You talked about Nirvana being...
 
-#### end of recording
+Well, look at page 32. What it says.
+
+The essential nature of the mind?
+
+The essential nature of the mind is... What do you call mind? What do you call mind? 
+
+Have you ever thought about that? Why do you call truth *mind*? Mind means heart or spirit or soul, including all the words. Why do you call the truth the mind? Have you ever thought?
+
+Cause it’s inseparable from us? 
+
+No. If it is separate from us, why do you call it mind? 
+
+Inseperable. 
+
+Oh, inseparable. Oh, of course. But still it doesn’t hit the mark. 
+
+Don’t you think it’s funny? Truth is mind. Why? 
+
+Because there is no difference between subject and object. If object is truth, then it must also be mind. Right?
+
+Mm-hmm. The object and subject are different?
+
+They are the same. 
+
+The same. Mm-hmm.
+
+The knower and the known are the same. 
+
+How do you say so? 
+
+How? 
+
+Mm-hmm.
+
+Because we can’t experience anything outside of mind? 
+
+Sure, that’s true. That’s pretty good. Yes. 
+
+But you can say, maybe... If you look at this situation, or if you look at Minnesota, maybe you can say, Minnesota is present in your thoughts. From this point, maybe, we may call Minnesota the mind. Because object and subject are not different. 
+
+But the *whole thing*, even though you don’t see or you can see, visibly and invisibly, the whole world is called mind. *Why?* 
+
+Does it have to do with us being alive or dynamic?
+
+Mm-hmm. 
+
+It has no form or shape. 
+
+So I am talking about the real doubt, you know, not real, quite big doubt, why do we have to call the whole world is mind. Visibly, invisibly. 
+
+How about [because of] Buddha?
+
+Mm-hmm. Yes it is – but it doesn’t hit the mark. 
+
+[Could you say] the interdependence of all objects, and then subject and object being one, even if you can’t see it, even if was can see it. In one object, all the other things are there. So if we pick up one object, we pick up everything. 
+
+Right. 
+
+Is that alright? Tai says, subject and object are not completely different. They are exactly the same. That means the visible world can be understood because [...] the visible world is present in your own thoughts. Sort of in the realm of the epistemology. *[He chuckles.] So, pretty understandable. 
+
+So it is possible we call it mind, but the *invisible* world is also called mind. This questionable, don’t you think so? 
+
+For instance, if you think “United States,” you have to think United States with any other countries, the whole world, visibly [and] invisibly. And then the whole world is called *mind*. This is a little bit not understandable. Have you ever thought of that? 
+
+So in Buddhism, anyway, even though you don’t see, you have never been in heaven or hell, or even though you have never been in Europe, etc., [still] the whole world is present in the realm of your knowing, or of your thoughts. Okay? So you cannot ignore. That’s why the whole world is called *mind*. 
+
+*Mind* is soul, spirit, or whatever, psyche, whatever you call it. So in Buddhism we cannot say *all* if it was not in your thoughts. No. So if you say *all*, *all* are exactly connected with your mind, with your life. This is a most important point. 
+
+That’s why I [said] before, if nature is separate from you, you know, [if] nature is something what you have never, you never, you never experienced, you never say nature. Well even though you have never been in Europe, but Europe is in your thought. That’s why you can go somewhere, sometimes. You can think, you can go, you can understand, you can think, anyway. So anytime, anywhere – well, always all sentient beings are anyway present in your thought, in your life, connected very closely. That’s why we say “all sentient beings are mind.” That is the *all*, the concept of the *all*. 
+
+**Question:** Hojo-san? Does that mean that, would another way to say that [be that] the visible world, the world that is visible to me, is not different from my mind. And Europe right now is not visible to me. I can think about Europe, but I do not see, touch, smell Europe right now. But if I did go to Europe, then it would be part of my life. 
+
+Mm-hmm.
+
+Therefore it is now part of my life. 
+
+**Katagiri Roshi:** Sure. [...]
+
+**Question:** That’s not how you’re saying it though, is it? 
+
+**Katagiri Roshi:** Hmm?
+
+**Question:** Is that the same way that you’re saying it? 
+
+**Katagiri Roshi:** Even though you don’t see or you see, anyway, the whole world is constantly in your thoughts. That is called the *whole world*. 
+
+**Question:** It isn’t dependent on going to Europe to actually be there. 
+
+**Katagiri Roshi:** So even though, that’s why, if you can go to Europe, if you can get a taste of Europe, at that time you say, “Europe is not in my thoughts.” Okay? But that is *your* experience, individual experience. But whether you experience or not, Europe is Europe, Europe is in your thoughts. That thought is so-called, what would you say, epistemological territory. Buddhism may always understands your object, not [from an] anthropological point of view, epistemological point of view. Always, all sentient beings [are] connected with you, visibly and invisibly, or whether you have never experienced or you have experienced. Anyway, already there. That’s why it is a possibility for you to go, to experience. Even though the book, even though through the map, or whatever. Even though you can think, you can think image of another planet. So whole thing is anyway connected with you. 
+
+That’s what we can call mind. 
+
+How about truth? Do you understand that one? Is that alright? 
+
+**Question:** [I didn’t.] It doesn’t fit with my consciousness at all, kind of, you know. It doesn’t seem to represent my experience. Except, it seems like... 
+
+**Katagiri Roshi:** Before you experience or not. 
+
+**Question:** Yeah, but that’s why, can I say, I don’t understand it. 
+
+**Katagiri Roshi:** Well, it’s because it is already in the realm of your epistemological situation. In the thought, in the mind, we say in the mind, in the possible knowing, okay? In the realm of possible knowing. 
+
+**Question:** Well, I can’t separate it from my illusions in the way I think about it. It seems like it is very similar to my illusions. 
+
+**Katagiri Roshi:** [Not the] illusion. Yes, it is kind of an illusion if you *understand* it. If something is present in your thoughts, it’s an illusion, it becomes an illusion. But without this illusion, you cannot understand the whole world. That’s why truth, independent from the words, and also truth dependent upon the words, we have to explain. 
+
+Even the truth. Truth is completely different from your world. How can you understand it? 
+
+**Question:** Are you saying that the realm of possible knowing is [mine]? 
+
+**Katagiri Roshi:** Realm of... ?
+
+**Question:** Possible knowing. 
+
+**Katagiri Roshi:** Possible knowing... 
+
+**Question:** ... is mind.
+
+**Katagiri Roshi:** Yes. In the realm of the possible knowing, the all sentient being exists there. That’s why we call all sentient beings mind. 
+
+Alright? 
+
+Do you have a question, about this? Because this is very important for us. Otherwise, you don’t understand the teaching from this book; you don’t understand Buddhism. 
+
+Using the term “mind,” it is not *spiritualism*. It is not [so-called] spiritualism. It is not *psychology*. [There is] a quite different meaning there. 
+
+**Question:** Why couldn’t it be “heart,” the word “heart”? In other words, like, all sentient beings, maybe could you say that all sentient beings can’t exist outside the realm of heart, because of cause and effect relationship between all sentient beings. 
+
+“Mind” has to do with the realm of possible knowing, that all sentient beings exist within, as Greg was saying, [...] within the realm of possible knowing. Could we also say that all sentient beings maybe can only exist within the realm of cause and effect...
+
+**Katagiri Roshi:** Sure, you can say so.
+
+**Question:** ... and we call “heart” a symbol of cause? That you know, or of action. 
+
+**Katagiri Roshi:** Mm-hmm. You mean all sentient beings are living on the basis of the cause and effect?
+
+**Question:** Yes.
+
+**Katagiri Roshi:** And that’s why all sentient beings are in the heart? 
+
+**Question:** Yes. 
+
+**Katagiri Roshi:**  Sure, you can say so. 
+
+**Question:** Not as good as “mind,” though. 
+
+**Katagiri Roshi:** Oh, “mind.” That’s why I say the “mind” is not only the mind, separate from the soul and spirit, but in this case “mind” means *including* soul, spirit, psyche, any kind of words. That’s why this book uses *mind*, “only mind.” But this “mind” is not [just with connotations] from spirit and soul and heart, all right? 
+
+**Question:** The way we normally think about this [...] is that the world that we don’t see right now is a world of possible knowing, because it is ontologically existent. 
+
+**Katagiri Roshi:** Mm-hmm.
+
+**Question:** It has independent existence from my mind. And it seems to me that this is the change that’s being made. You’re saying, “No, that’s not true.” Is that right? It is the world of objects, the world of things that exist in themselves, that are knowable, if we come to know them. That’s not what you’re talking about. 
+
+**Katagiri Roshi:** No, even [if] you say so, many things are not... thinkable. And then you believe that many things which are not thinkable is not your world. But [...] if you think the many things which are not thinkable are already thinkable, you’re already thinking. So how can you separate from that, from your thought, from your world? Even though you say, “I don’t understand exactly the world which I have never experienced, never visited.” But still that world you have never visited there is already in your thoughts. Do you understand that one? 
+
+And also [...] different planets which you have never visited there, no one knows. Or death, or the world after your death. No one knows. But many people write about death, you know? What do you mean by this? Even though you have never experienced death, still death is what? Death is completely independent from your words, but still we don’t know the death. But we don’t know the death is, death is not separate from your world. Death is exactly in your world, because you can think. Death is something which you have never experienced before. So you think in that way. Do you understand [...]? 
+
+So visibly or invisibly, or even though you think so, or you don’t think so, or you don’t care. Well, even though you say, “I don’t care.” But “I don’t care,” whatever you say, all things are already in your thought. Okay? 
+
+That’s why you can understand... someday. That’s where you can go somewhere. That’s why, maybe, some events which have occurred in the fictions written by somebody could come to be true. You know? 
+
+So, nuclear weapons. People really tried to stop creating nuclear war, but we don’t believe it, but it could be possible. End of the world. I don’t want to end the world, but it could be possible, because that is already in our thoughts. That’s why we are concerned about the end of the world. Don’t you think so? But we don’t know what’s the end of the world. That is nothing but the *image* of the end of the world. Alright? 
+
+So what is the end of the world? Can you believe by the nuclear weapon it completely destroys human beings, all sentient beings? And then, can you believe? Yes, you can believe, but you cannot believe it. 
+
+What do I mean? You cannot destroy the truth, and you cannot destroy [...] that energy, universal energy. As long as universal energy is universal life, well, something always happens, okay? Created. So by the nuclear weapon, maybe it could be possible for it to destroy human beings completely. But maybe so, but [also] maybe not. Even though in your thought you can think that situation, but on the other hand, still you can think, it couldn’t be possible. 
+
+So the whole world is in your thought. Don’t you think so? 
+
+**Question:** What is the difference between the possible and the actual event? 
+
+**Question:** Mm-hmm. 
+
+**Katagiri Roshi:** Actual things is completely, practically you connected with your thoughts. *With your thoughts* means that is called experience, or not experience, or neutral. This is actual stuff. 
+
+**Question:** Is that the phenomenal world?
+
+**Katagiri Roshi:** Actual thing is that you can manifest, you can manifest it in many ways. But thinking is still thinking, but it doesn’t act. It is something still, static. 
+
+But if actual thing is already working, it’s kind of action, even the thinking is action. Okay? 
+
+So if something acts on your object, it is something actual. 
+
+**Question:** If something acts on your object? 
+
+**Katagiri Roshi:** Object, yes. If you act on your object, it’s [actual]. For instance, if you think the Europe, it’s already actual. Imaginary, whatever you say, imaginary. If you don’t think it, the Europe is there, and also it is in your thoughts, still related in your thoughts, but it’s very quiet. 
+
+So the whole world exists like that. That’s why Dogen Zen says, “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist.” [That’s] the first sentence Dogen Zenji mentions in the *Genjokoan*. 
+
+That is completely [the] whole world is belonging to your life. And then at that time, it is called *all sentient beings*. That is your world. 
+
+Is that alright? Actual things? 
+
+You know, according to the Tendai school, Tendai teaching, [there are the] ten categories of existence. Do you remember? Hell, hungry ghost, [...] fighting spirit, animal spirit, human beings, bodhisattva, etc. Ten categories of existence. And then, within the hell, there are the rest of the nine categories of existence there. So if so, in the hell, there is a Buddha, there is a bodhisattva, there is a pratyekabuddha, fighting spirit, human beings, and celestial beings there. And even within the Buddha’s world, there are hell, hungry ghost, fighting spirit there. 
+
+Well, what is the difference between a buddha and hell, [or] fighting spirit? When you become buddha, what’s going on? What’s going on around the hell and the hungry ghost and the fighting spirit – what’s going on around? If you become a buddha, are they completely separate from your world? Are they still in the Buddhist life. What do you think? 
+
+**Question:** Yes. 
+
+**Katagiri Roshi:** Yes. They are in the budda’s world, buddha’s life. 
+
+But, what do you mean? It is that they are something *actual*, or they are just living with the buddha quietly? What do you mean? Can you? Do you understand that one? 
+
+[They are] actual things, or... *actual things* means very active. It is active, but it doesn’t manifest on the surface of the world. Is that alright? It is very quiet. 
+
+For instance, look at yourself. You are sitting and as long as you are sitting, it is buddha, anyway. But in the contents of the buddha, the contents of buddha or quality of buddha is really vast. Many beings exist in this small body and mind. If they are really active and actual things, you cannot be buddha! *[He laughs.]* Don’t you think so? 
+
+But when you sit down there as a buddha, it is buddha, exactly. But [the] rest of the beings [...] exist as a quality of the buddha’s life. It’s quality, contents. 
+
+So all sentient beings become the quality of your life, the contents of your life. That is they are really wonderful beings, which exist very quietly. But it’s very helpful for you. 
+
+And then, from moment to moment, when you become buddha, it becomes buddha. And then when you become hell, it becomes hell. And then when you become a hungry ghost, you become a hungry ghost. At that time when you become a hungry ghost, buddha’s life is very quiet, [it] exists very quietly, with hungry ghost. So still it is possible to be buddha. 
+
+So *actual things* are always manifest on the surface of the world. 
+
+We say psychologically, *shuji*, [which] means seeds. [...] In the bottom of your life, in the bottom of the human world, there are many kinds of seeds, psychologically. Those seeds are just like a waterfall, constantly going. Well, we may say maybe *life energy*, and whatever you say – energy or whatever. It is really going, just like a waterfall or stream of water in the river. Just going. That means many seeds, we exist right in the middle of that seeds, which is just like a waterfall. That means all sentient beings, human world, completely truth. No exceptions. No exceptions. 
+
+That means if you really recognize your existence simultaneously where you are, you are right in the middle of the seeds. [That] means all sentient beings. *All*. Regardless of whether you are conscious of it or not, anyway, it is going. And all sentient beings [lie in] this stream of the seeds. That is called *all*. We call [that] *all sentient beings*. 
+
+That’s why all sentient beings. That’s why we could be possible to understand, we could share our life with all sentient beings. We could, anyway, save, help all sentient beings. Because all sentient beings exist in the same and one ground, so called *seeds*. And then, in this, many beings in this seeds appear sometimes in your world. At that time it is called *experience*, which becomes *actual*. 
+
+And then, the next moment that experience leaves something. Okay? As new seeds. Which is stored in this stream of the seeds. That new seeds could be possible, they could manifest, *will* manifest in the future. When the time is right, conditions arranged, it appears again. But, that new seed is very quiet. Just *stored*, and it’s going. Just like one drop of dew, you know, touching the ocean, and then immediately it’s melted away. But even though that drop of dew is melted away, it doesn’t mean it disappears. It’s there. Because it’s ocean already. 
+
+So that is our actions, activities. The actions coming from that seeds, which you have stored in the past. That is hells, and hungry ghost, and fighting spirit, many seeds there. And then when the time is right, conditions are arranged, it’s coming up. That is *manifestation*, we say. Manifested actions. 
+
+So that seeds causes you to manifest. And then that manifested action leaves another new seed after doing. So it’s *samsara*. It’s going like this. 
+
+So actual things are really something manifested. But even though it is not manifested, still all sentient beings are in your territory, in the territory of your thoughts. That’s why we call *mind*. 
+
+So you cannot think United States without thinking of the other world. *[He laughs.]* It’s really connected. Without thinking of other people who are starved to death, you cannot save, you cannot save all sentient beings from the, what would you say, bomb, nuclear weapon. How can you save? How can you save all sentient beings from the nuclear weapon without thinking of the people who are starved to death? You know how many people die in this world, [every day]? ...
+
+*[Tape break.]* 
+
+... You cannot think simply, “let’s wipe away the nuclear weapon.” You cannot do that. It’s not so simple. You have to think many things. And also you have to think something very actual things. Many beings die, starved to death. Thousands and thousands of people die. If you close your eyes to *this* situation, you cannot help all sentient beings from the danger of a nuclear weapon. No. 
+
+So, everything is right in the middle of your life. *[He laughs.]* So you have to think very carefully. Okay?
+
+That’s why we say “mind.” Even the truth: truth is completely independent from your mind, from your thoughts, from your heart. Whatever you say, any words, anything doesn’t hit the mark. But, is it completely something separate from your life? Mm-mm. (No.) Even though you can think so – “truth absolutely is completely separate from your life” – still that truth is in your thought, because you are thinking in that way. 
+
+That’s why in Buddhism we say suffering is suffering, pleasure is pleasure, and pleasure is also suffering. And neutral, neutral situation is also suffering. [That] means all things, whatever kind of experience, whatever kind of feeling you have experienced, are anyway in the territory of your world. So *neutral* is also your experience, your world. Whatever you say. Okay? “I don’t have hope,” or, “I have hope,” or, “I don’t know what hope is, what hope means,” it is also your thinking. So hope, not hope, or you don’t have any idea of the hope, or neutral situation around the hope – still all things are in your thoughts. 
+
+Is that clear? 
+
+That is called *mind*. That’s why we call [it] mind. 
+
+Any other questions about this? 
+
+**Question:** Yes, I have a question. Suddenly it seems too simple, and I’m wondering if I’m oversimplifying it, but are you saying that, in my conscious mind these things exist and in a category that I say is unknown or unexperienced, and so they’re not clear to me yet, they aren’t manifest, they haven’t become actualized...
+
+**Katagiri Roshi:** Mm-hmm.
+
+**Question:** ... in form. Is that what you’re saying? 
+
+**Katagiri Roshi:** Mm-hmm. When it is actualized as a *form*, it’s only one thing that appears, okay? ... 
+
+**Question:** Mm-hmm.
+
+**Katagiri Roshi:** ... But it’s *connected* [to] many things, with it. Alright? Completely. That’s why it’s one thing that appears, when the one thing is manifested, it’s very simple. But it’s not so simple, because it’s manifest and then around this one thing many things are connected. 
+
+So that’s why what you have to deal with is one thing manifested in your life. And then you have to deal with this one. But, it’s not so simple because many things are there. 
+
+So in other words, [the] root is really extended, whole, everywhere, okay? It’s connected anyway. And then one tree [grows]. Your life is one tree, you know? But the roots are really deep, connected [to] all things. 
+
+So you cannot deal with the one thing which has manifested in your life, you cannot deal with it in a simple way. That’s where we, bodhisattvas, become very careful to deal with one thing, which you really want to experience. 
+
+Is that alright?
+
+**Question:** Yes. 
+
+**Katagiri Roshi:**That’s why Buddhism is very compassionate, very tolerant. You have to practice patience, and also compassionate, but on the other hand you cannot stay with the sentimental way and so-called compassion, et cetera. You have to *move*, anyway. Constantly move. Do it. Even though you don’t think it is right or you don’t think it is wrong, anyway, with your careful consideration and as best as you can, you should share your compassion with all sentient beings. For this, you cannot stay on the chair of sentimentalism, okay? You have to do it. 
+
+It’s very difficult. If you actualize something, it’s *very* complicated, because many things are connected. You cannot [handle] your mind, “I don’t think, my life is very simple.” You cannot say so. If something is actualized, in other words, if you *act on*, action creates something ghost you have never thought of before. Okay? *[He laughs.]* It becomes a *ghost*. That is action. 
+
+So, Buddhism is very tolerant, and generosity, and very magnanimous, but you cannot stay with sentimentalism, or individualism, anything. You have to move from moment to moment, using your senses, using your whole body and mind, and then figure out the way, what to do. And then, even though you cannot get the final solutions, sometimes you have to do it. 
+
+*How*? Do it with a prayer. Okay? *[He laughs.]* That is to save all sentient beings. Because if you do it, you can save [them]. If you do zazen, how can you save all sentient beings? “But that’s what Roshi says: ‘If you do zazen, you can save all sentient beings.’” It doesn’t make sense for me at that time. It doesn’t make sense for you either. 
+
+But you cannot, anyway, stay with sentimentalism, or pessimism, so-called looking at the image of the end of the world. You cannot stay there. So, if you don’t want to invite the end of the world, what should you do? You cannot stay with sentimentalism, or pessimistic or optimistic way. Day by day, you have to create a wonderful world. Even the one guy, tiny seeds, anyway you have to put a seed there. 
+
+So this is our zazen practice. 
+
+But how do you understand this zazen? Can you believe this zazen helps you, or helps all sentient beings, save all sentient beings? You don’t believe [it] in your thoughts, by your thoughts, no. But you cannot stay with *any* image. You have to *do it*, every day. 
+
+So, this is zazen. How do you do it? Do zazen with *prayer*. I cannot say any other words, that’s I use the word “prayer.” In Buddhism, we say *vow*. It’s really deep *vow*. Because this vow causes you to look at whole world, connected with your one body and mind, your body, your life. It’s really connected. 
+
+And also, if you manifest one thing, it’s completely connected with all sentient beings, that’s why directly or indirectly, it’s help. But, in intellectual sense, we cannot reach it. That’s why we need a *vow*, so-called *prayer*. Okay? *Prayer* or *vow*. 
+
+So zazen is really based on the vow, okay? Otherwise, you don’t understand the vow. 
+
+Well, more or less everyone, they take care of your human life on the basis of vow, but they don’t realize it. They don’t realize it. Okay? 
+
+**Timekeeper:** It’s 5:30. 
+
+**Katagiri Roshi:**: I’m sorry. I couldn’t go farther. I’m sorry. 
+
+Do you have any other questions? 
+
+Next time, we will study “the truth dependent upon the words.” Okay? So, that is from page 34. Toward the bottom, on page 34, Number 1, “Truly Emptiness”. On page 35, number 2, “Truly Non-Empty”. 
+
+The two sections explain the absolute or the truth dependent on words. If the absolute or the truth is just truth independent from the words, no one could experience, no one knows. Truth, absolute is completely something separate from human world. But, we are already [existing] in the absolute. If So, still, there is a possibility to experience the truth. How can you experience truth? Particularly, right now, through the words. Through the words, how can you say about the truth? That is the next section. 
+
+Do you have some questions? 
+
+**Question:** In your understanding of vow...
+
+**Katagiri Roshi:** Hmm?
+
+**Question:** I’m talking about vow. Is your understanding of that kind of something that we want in our lives, and so we put it in front of ourselves, or something? I mean, I don’t quite understand what you mean by it.
+
+**Katagiri Roshi:** Vow?
+
+**Question:** Yes.
+
+**Katagiri Roshi:** Vow means, for instance, “Nuclear Freeze”. Okay? “Nuclear Freeze Movement”. This is an important movement for you. So, we try to stop it. But, if you are involved in that situation around the nuclear weapon, you can see how complicated world is there. You cannot deal with the nuclear weapon as an idea or concept in terms of your understanding, in terms of a standard viewpoint. No. Because nuclear weapon should be produced by our [...] companies, and that company connected with many human beings. Their labors anyway support their life. You cannot stop them working because they want to support their own life. It is just like a honey web. You want to sit down there and then the screaming and stop creating a nuclear weapon, don’t involve in this company. But you cannot deal with the nuclear weapon like that. It is very complicated. Because it’s connected [to] individual human life. It is really matter of life and death, if they stop working there. Someone can stop, but someone cannot stop. 
+
+So, if you think objectively, as the idea of nuclear weapon, it’s simple, but when you are involved in the reality, well, which the nuclear weapon is going, connected with all sentient beings, you realize how complicated it is. So you don’t know how to do it. But intellectually you don’t know how to do it, but you want to do it. But when you started to do it, it’s not right. It’s wrong. But it’s wrong, but you can’t stop it. So, do your best and after careful consideration, you have to manifest yourself. You have to do it! 
+
+What kind of action do you do? What kind of action there? That is a very common action? That action is called in Japanese, we say *shujo*, [which] means “refined” in my English term, *refined actions*. So it’s kind of, that movement must be refined actions. Just like a practice of zazen. You cannot just act simply. 
+
+So, this action, so-called movement is always backed up, backed up, backed up by this. Refined actions. Refined sense, refined actions. That is called *vow*. Without vow, you cannot act. You cannot be involved in this movement. Do you understand? That is a very example, alright? 
+
+Always, in other words, really *hope*, wonderful hope, supreme hope there, always. Whatever you think, “it is possible” or “it is impossible,” whatever you think. By your thinking, always there is a possible or impossible, neutral, many ideas comes up through your experience. But beyond this, anyway, you want to walk in the mist. Where you don’t know what is going on there. You don’t know the result. But you want to just walk there. That is, without vow, you cannot walk in the mist. Just walk. That is a vow. We call vow or *hope* usually – maybe *supreme hope*, very deep hope. Even though you see the end of the world by nuclear weapon, it could be possible, but we don’t believe [it] exactly, because we want to live. We want to help the human world. We want to carry the human world continually. That’s why we do it, anyway. We shouldn’t just stop. That is a vow. 
+
+**Question:** Is that the same as faith?
+
+**Katagiri Roshi:** Faith, you can say faith. 
+
+**Question:** Hojo-san, in the form of the vow that we say, it says to save all sentient beings. And sometimes when you discuss, you interchange *save* with *help*. Well, for me, it’s pretty different, to help someone or to save someone. 
+
+**Katagiri Roshi:** Sure.
+
+**Question:** So, can you... 
+
+**Katagiri Roshi:** *Save* means to cross over the river, hand in hand. That is save. 
+
+**Question:** The river of... ?
+
+**Katagiri Roshi:** The river of life.
+
+Life is just like the river you [and] all sentient beings cross over. 
+
+**Question:** If someone is *unsaved*, what does that mean? 
+
+**Katagiri Roshi:** *Unsaved* is also in the territory of the *save*, [passed through] save. 
+
+**Question:** Don’t they cross also? 
+
+**Katagiri Roshi:** [Sure]! If you say cross the river with only one thing, with your friends, your actions are connected with all sentient beings. It’s not abstract. Your actions must be connected. Your actions must be very deep and very refined, thinking or accepting all sentient beings. 
+
+For instance... how can I say this... for instance, doing zazen. If you don’t understand the meaning of zazen, it’s very difficult to continue to do zazen. But if you trust the teaching of the Buddha, you trust your teachers by which the Buddha’s teaching is delivered, and then you do it, this action is to do zazen by yourself. But this action shouldn’t be the simple action. That action must be very deep, connected with your life, connected with others’ life, connected with the present situation of the human world, what’s going on there. And *then* you can sit, don’t you think so? Then you can sit, regardless of whether you know, regardless of whether you know the save or not save all sentient beings. 
+
+Because all sentient beings are already in your thoughts. And then, you cannot ignore this. And then you sit. How do you sit? Pick up only one thing, so-called Katagiri, and pick up one action, so-called zazen. Sit down there. Just something, one thing appears. And just sit down there. And then one thing, when you sit down there, all sentient beings are connected with. That means all sentient beings become contents of your life, contents of your actions, or quantity of your actions. At that time that action becomes very deep, refined, so-called vow. Without vow, you cannot act in that way. If you really act simply, the purpose of doing zazen is to deepen my life, that’s it. But if you do it, if you think so, you can continue to do zazen anyway. *[He laughs.]* Because it’s too realistic, too individual. Individual, but individual because something appears on the surface of water, that is only one thing you can connect, not other things. It’s very clear. But simultaneously, it’s not so simple, because in the root, under the water, or under the ground, there are many beings connected. So dealing with the one thing, nevertheless you have to deal with all sentient beings, through this one. For this, your action must be refined. That is called vow. 
+
+And then, that is really *save*. Save, and you really walk hand in hand with all sentient beings, we can say.
+
+#### 1:09:27 end of recording
 
 ---
 
