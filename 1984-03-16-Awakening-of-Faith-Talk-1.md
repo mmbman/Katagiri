@@ -1,9 +1,9 @@
 ---
-title: "The Awakening of Faith"
+title: "The Awakening of Faith – Talk 1"
 ---
 ## March 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
@@ -201,4 +201,4 @@ So that is, from day to day you have to practice, anyway. There is no end. Day t
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [Awakening of Faith](awakening-of-faith)

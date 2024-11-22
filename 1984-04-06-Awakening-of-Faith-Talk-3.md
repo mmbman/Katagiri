@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 3"
 ---
 ## April 6, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1984-03-25-Mindfulness-Talk-5) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
@@ -299,4 +299,4 @@ That's why we say *nirvana*. That is *real* nirvana. *[He laughs.]* All the guts
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-03-24-Mindfulness-Talk-4) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [List](list#1984) \| [Previous](1984-03-25-Mindfulness-Talk-5) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Awakening of Faith](awakening-of-faith)
