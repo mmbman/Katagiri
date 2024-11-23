@@ -10,7 +10,12 @@ This series of transcripts is in rough draft stage.
 
 ## Series 1
 
-- [Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
+##### [Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
+
+Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by more questions.
+
+---
+
 - [Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
 - [Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 - [Talk 6](1984-04-27-Awakening-of-Faith-Talk-6)
