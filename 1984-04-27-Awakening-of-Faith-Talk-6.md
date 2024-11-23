@@ -9,7 +9,7 @@ title: "The Awakening of Faith – Talk 6"
 
 **This transcript is in draft stage.**
 
-<p style="font-style: italic">
+<p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith1350774" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 

@@ -5,11 +5,15 @@ title: "The Awakening of Faith – Talk 1"
 
 #### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [Awakening of Faith](awakening-of-faith)
 
+### Summary
+
+Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book, followed by questions and answers. 
+
 ### Transcript
 
 **This transcript is in draft stage.**
 
-<p style="font-style: italic">
+<p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
@@ -17,63 +21,79 @@ title: "The Awakening of Faith – Talk 1"
 
 **Katagiri Roshi:** I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand, mainly I want to concentrate on the *teaching* of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also the teaching of the function of human psychology.
 
-Mainly in Buddhist history, two lines of teaching. One is the teaching of emptiness mentioned by Nagarjuna. After that in Buddhist history, the Buddhist teaching based on Buddhist psychology has been developed. That is Abhidharmakosha, and the *mere consciousness*. But this book is kind of [an] overall picture of the teaching, including the teaching of emptiness, and also Buddha’s teaching in terms of Buddhist psychology. So [it’s a] very interesting book. Very systematical. The title is *The Awakening of Faith*. But originally [it is], I think I would like to say, “The Treatise on Awakening Mahayana Faith.” 
+Mainly in Buddhist history, [there are] two lines of teaching. One is the teaching of *emptiness*, mentioned by Nagarjuna. After that in Buddhist history, the Buddhist teaching based on Buddhist psychology has been developed. That is *Abhidharmakosha*, and the *mere consciousness*. 
 
-*Mahayana* means... *maha* is great, *yana* is vehicle. In this book, *Mahayana* is described. The essense of what is now, here. Or ultimate nature of what is here and now. Two meanings; one is what is the ultimate nature of what is here and now, and also the second meaning is embracing. So *maha* means essence or the ultimate nature of what is here now. That *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
+But this book is kind of [an] overall picture of the teaching, including the teaching of emptiness, and also Buddha’s teaching in terms of Buddhist psychology. So it’s a very interesting book. Very systematical. The title is *The Awakening of Faith*. But originally [the title is], I think I would like to say, “The Treatise on Awakening Mahayana Faith.” 
 
-And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say *vehicle*. So *mahayana*, *yana* means “vehicle.” So all sentient beings are carried on [it]. So that is *mahayana*. 
+[In the word] *Mahayana*, *maha* is “great,” *yana* is “vehicle.” In this book, *Mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing.” So *maha* means the essence or ultimate nature of what is here [and] now. That *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
 
-[...] I have to say more [on] Mahayana faith. *Awakening of Faith* ... this book is a teaching of Buddhist faith. Not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. So Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. So Mahayana is the object of faith, because *maha* means essense of being or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being, which embraces all sentient beings and carries them. So it is very pure function. That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. That’s why the person who wants to believe in that one, believes in the faith, believes in that object, the essense of being, very naturally the person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally you must be pure and clean. Even if you think, even for a moment you think so, you become very clean and pure. So that’s why if you believe this essence of being you become pure. So in Buddhism it says faith is pure and clean. Purity and cleanness, this is the meaning of faith. 
+And the function of the *maha* is a kind of a vehicle to carry all sentient beings; that’s why we say *vehicle*. So *Mahayana*, *yana* means “vehicle.” So all sentient beings are carried on [it]. So that is *mahayana*. 
 
-So we should awaken this faith. How? That’s why here is the explanation of how we should awaken this Buddhist faith. This is this book.
+[...] I have to say more [on] Mahayana *faith*, *Awakening of Faith*. 
 
-So first, let’s see the structure of this book. This is a very common structure which the Buddhist treatise follows. First, the introduction, then the main subject, and conclusion. Three points. That is introduction is *invocation*. This is very common structure. The Buddhist treatise follows. Always there is an invocation, and main subject – this is the main subject, and also this is a very important point this book really teaches us. 
+This book is a teaching of Buddhist faith: not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. So Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. So Mahayana is the object of faith, because *maha* means essense of being or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being, which embraces all sentient beings and carries them. So it is very pure function. 
 
-So main subject consists of five parts:
+That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. That’s why the person who wants to believe in that one – believes in this faith, believes in that object, [the] essense of being – very naturally that person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally *you* must be pure and clean. [Even if] even for a moment you think so, you become very clean and pure. So that’s why if you believe this essence of being you become pure, so in Buddhism it says faith is pure and clean. Purity and cleanness, this is the meaning of faith. 
 
-Part 1: The Reason for Writing. So why did Ashvaghosha want to write this book. [There are] eight reasons there. 
+So we should *awaken* this faith. *How?* That’s why here is the explanation of how we should awaken this Buddhist faith. This is this book.
 
-Part 2: Outline. So one mind, its two aspects, its three characteristics. Already that outline is explanation of the interpretation, or Part 4, Part 5. Part 3, Part 4, and Part 5 explains about one mind, its two aspects, and its three characteristics. 
+#### 10:20
+
+So first, let’s [look at] the structure of this book. This is a very common structure which Buddhist treatises follow. First, the introduction, and the main subject, and conclusion; three points. 
+
+That introduction is *Invocation*. This is a very common structure. The Buddhist treatise follows. Always there is an invocation, and main subject. 
+
+This is the main subject, and also this is a very important point this book really teaches us. So the main subject consists of five parts:
+
+Part 1: The Reasons for Writing. So why did Ashvaghosha want to write this book? [There are] eight reasons there. 
+
+Part 2: Outline. [...] That outline is one mind, its two aspects, its three characteristics. Already that outline is explanation of the Interpretation (Part 3), or Part 4 [and] Part 5. Part 3, Part 4, and Part 5 explains about one mind, its two aspects, and its three characteristics. 
 
 *One mind* means the truth. Truth means one mind, only one mind – *mind only*. Human beings, trees, birds, winter – all existence, all beings – are based on the same and one ground. We call [this] *one mind*. 
 
-So one mind, and its two aspects. *Two aspects* means, in part 3 there are chapter 1, chapter 2, chapter 3. In chapter 1, chapter 2, [the] revelation of the true meaning, causation of evil attachment. And also next under the revelation of the true meaning, there is the mind on terms of the truth, the mind in terms of phenomena. *Two aspects* means the mind in terms of the truth, the mind in terms of phenomena. So one mind can be seen in terms of two aspects: the truth, and also arising and ceasing [of] being. All sentient beings are born and disappear like this; birth and death. So from two aspects, one mind is seen. That is two aspects.
+So one mind, and its two aspects. *Two aspects* means, in Part 3 there are Chapter 1, Chapter 2, Chapter 3. In Chapter 1, “Revelation of the True Meaning,” and Chapter 2, “The Causation of Evil Attachment.” And also next under [Chapter 1] “The Revelation of the True Meaning,” there is “The Mind in Terms of the Truth, [and] “The Mind in Terms of Phenomena.” *Two aspects* means the mind in terms of the truth, the mind in terms of phenomena. So *one mind* can be seen in terms of two aspects: the truth, and also arising and ceasing [of] being. All sentient beings are born and disappear like this; birth and death. So from two aspects, *one mind* is seen. [...]
 
-*Three characteristics* means, one is *essence*, second is *attributes*, and [third is] *functioning*. So all sentient beings are based on three characteristics, one is essence, second is attributes, third is function. 
+*Three characteristics* means, one is *essence*, second is *attributes*, and [third is] *functioning*. So all sentient beings are based on three characteristics; one is essence, second is attributes, and third is function. 
 
-*Essence* is kind of a disciple (principle). So if all sentient beings exist in this world, there is a reason why [they exist]. Nothing exists at random with no reason. Nothing. There is always a reason why it exists. Even though evil or devils, right or wrong, and even if wind always breaks or destroys trees or houses, even if a tornado destroys human beings, houses, nature, still it has a reason why it exists. There is a [principle]. So from this point, even the tornado is entitled to live in this world. You cannot destroy it. So that is a [principle]. 
+*Essence* is kind of a discipline. So if all sentient beings exist in this world, there is a reason why [they] exist. So [there is a] discipline. Nothing exists at random with no reason. Nothing. There is always a reason why it exists. Even though evil or devils, right or wrong, and even if wind always breaks or destroys trees or houses, even if a tornado destroys human beings, houses, nature, still it has a reason why it exists. There is a discipline. So from this point, even the tornado is entitled to live in this world. You cannot destroy it. So that is a discipline. (*Transcriber’s Note:* Katagiri Roshi says ‘discipline’ here, but he might mean ‘principle’.)
 
-And also, if all sentient beings exist in this world, it has always *attribute*. Attribute means *form*; it has always form, marks. And also the marks [or] form which people can see through the six senses. That is attributes. 
+And also, if all sentient beings exist in this world, it has always *attribute*. *Attribute* means *form*; it has always form, marks. And also the marks [or] form are which people can see through the six senses. That is attributes. 
 
 And also the *function*. So if all sentient beings have a form and marks, they always function. They always function, in many ways. 
 
 So those are the three characteristics. 
 
-**Question:** Hojo-san, you said “discipline” under essence. 
+**Question:** Hojo-san, you said “discipline” under... 
 
-**Katagiri Roshi:** Essence. The three characteristics are essence, attribute, and function. 
+**Katagiri Roshi:** Essence. That is essence; the three characteristics are essence, attribute, and function. 
 
-**Same person:** Where did you get *discipline* in there? 
+**Same person:** Where did you get *discipline* in there? I didn’t understand that. 
 
-**Katagiri Roshi:** Discipline means reason why, the reason for the existence. (Principle.)
+**Katagiri Roshi:** *Discipline* means reason why, the reason for the existence.
 
-The one mind, its two aspects, its three characteristics in a sense describe about the *maha*, in this case. We say *Mahayana*, what is maha. But in this book, *maha* is described by one mind, its two aspects, and its three characteristics. And also, in Part 4, there are four faiths, and five practices. And excellent skillfulness – something like this. That is the meaning of *maha*. 
+And the one mind, its two aspects, its three characteristics in a sense describe the *maha*, in this case: we say *Mahayana*, what is the *maha*. But in this book, *maha* is described by one mind, its two aspects, and its three characteristics. And also, in Part 4, there are four faiths, and five practices, and excellent skillfulness – something like this. That is the meaning of the *maha*. 
 
-Okay, revelation of the truth and the mind in terms of the truth. The next line: the two kinds of truth, emptiness and non-emptiness. So mind in terms of the truth is described from three points, two kinds of truth, emptiness or non-emptiness. Well, I don’t want to explain [this now]. Gradually we can understand this one. 
+Okay, “The Revelation of the Truth” and “The Mind in Terms of the Truth.” The next line: the two kinds of truth, emptiness and non-emptiness. So mind in terms of the truth is described from three points, two kinds of truth, emptiness or non-emptiness. Well, I don’t want to explain [this now]; gradually we can understand this one. Briefly I want to explain this [Part 3]. 
 
-Briefly I want to explain this one. Chapter 1, “Revelation of the True Meaning.” So very naturally we know the outline of what this book [says], so truths, what is the one mind, so here it says “Revelation of True Meaning,” under this this book mentions the mind in terms of the two truths, the mind in terms of phenomena. Chapter 2: The Causation of Evil Attachments. Next says, “the correction of two attachments to a person and dharma.” Causation of evil attachment. So if you understand the truths – the mind in terms of the truth, the mind in terms of phenomena – there is still some problem, that is attachment to a person and dharma. This is a strong attachment we have. So we have to correct this. That is Chapter 2: Causation of Evil Attachments. 
+Chapter 1, “Revelation of the True Meaning.” So very naturally, we know the outline of what this book [contains]. So truths, what is the one mind. So here it says “Revelation of True Meaning”: under this, the book mentions the mind in terms of the two truths, the mind in terms of phenomena. 
 
-Chapter 3: “Analysis of the Types of Aspiration for Enlightenment.” So, how we practice. This is our aspiration for enlightenment. So we should know what enlightenment is, and how to accomplish [or] attain enlightenment. This is the analysis of the types of aspiration for enlightenment. 
+Chapter 2: “The Causation of Evil Attachments.” Next it says, “the correction of two attachments, to a person and dharma.” Causation of evil attachment. So if you understand the truths – the mind in terms of the truth, the mind in terms of phenomena – there is still some problem, that is attachment to a person and dharma. This is a strong attachment we have. So we have to correct this. [...]
 
-Part 4: "On Faith.” So [Part 3, Interpretation] is most important [part] in this book. So very concretely it explains what meaning of the truth and how to practice, what are the obstacles for us in order to reach the truth. And Part 4 is our practice. Practice for determined class of people – that means, who have non-backsliding faith, very strong faith – for those people, how we practice. But on the other hand there are people who have backsliding faith, of undetermined class of people. So for those people, how we practice, how we awaken Mahayana faith. That is Part 4. 
+Chapter 3: “Analysis of the Types of Aspiration for Enlightenment.” So, how we practice. This is [our] aspirations for enlightenment. So we should know what enlightenment is, and how to accomplish [or] attain enlightenment. [...]
 
-And Part 5, we try to encourage all sentient beings also to reach Buddha’s way. So *how*? So there is “Encouragement of Practice and the Benefit.” For instance, Buddha’s way, essence of beings is very pure and clean. So even for a moment let’s think of it. In other words, usually we say, “Let’s live in a positive way.” Very often we say so. And Buddha is very valuable and helpful for us. So let’s to have access to the Buddha’s teaching as best as we can, as much as possible, we try. Something like this. So that is encouragement. So how we awaken Buddhist Mahayana faith. That is Chapter 5. 
+Part 4: "On Faith.” So [Part 3,] “Interpretation” is the most important [part] in this book. Very concretely it explains what [is the] meaning of the truth and how to practice, what are the obstacles for us in order to reach the truth. And Part 4 is our practice. Practice for [a] determined class of people – that means, who have non-backsliding faith, very strong faith – for those people, how we practice. But on the other hand there are people who have backsliding faith, [an] “undetermined” class of people. So for those people, how we practice, how we awaken Mahayana faith. That is Part 4. 
 
-The conclusion is the verse of *parinama*. *Parinama* is “dedication.” Dedication or *parinama* [is] *eko* in Japanese. *Eko* means turn the merits of your practice to another. If you do something, very naturally you can get a result, but that result is not something you should hold on to by yourself, you should share it with the people. So as best as we can, we should do something good every day, because if you do something good, that goodness guides you to have close access to the Buddha’s way, instead of doing something wrong. If you do something wrong, that activity keeps you away from the essence of being or ultimate nature of beings. Very naturally it keeps you away; slip off, going far from that. That’s why as best as we can we should do something good. If we do something good, very naturally you can have access, you can find the way to have access to the Buddha way. So that is *eko*, dedication, we say *parinama* [in Sanskrit]. 
+And Part 5, we try to encourage all sentient beings also to reach Buddha’s way. So *how*? So there is “Encouragement of Practice and the Benefit.” For instance, Buddha’s way, the essence of beings is very pure and clean. So even for a moment, let’s *think* of it. In other words, usually we say, “Let’s live in a positive way” – very often we say so. And buddha is very valuable and helpful for us. So let’s [...] have access to the Buddha’s teaching as best as we can, as much as possible, we try. Something like this. So that is encouragement. So, how we awaken Buddhist Mahayana faith. [...]
 
-So in Buddhism *parinama* is very beautiful human thought. We do something good and then we can get the result, but that result should be shared with all sentient beings. So very naturally there is the practice of egolessness. If you do something good, very naturally people try to hold on. But, let it go. You can get enlightenment, but next, let it go. The practice of letting go is very difficult for us, because we want to hold on. If through the practice of zazen if you experience something wonderful, you really want to keep it for a long time. But you cannot do it, actually. So very naturally, the rhythm of human life shows you the practice of letting go. But we don’t do it. That’s why actually you try to hold it, but the nature of beings lets you learn how to let it go. That’s why human beings in a sense create lots of ego and attachment – to you, to the teaching, to the object. That is the dharma and attachment to the dharma, and a person. So the verse of *parinama*, this is the conclusion. 
+The conclusion is the verse of *parinama*. *Parinama* is “dedication.” Dedication or *parinama* [is] *eko* in Japanese. *Eko* means turn the merits of your practice to another. If you do something, very naturally you can get a result, but that result is not something you should hold on to by yourself, you should share it with the people. So as best as we can, we should do something good every day, because if you do something good, that goodness guides you to have close access to the Buddha’s way, instead of doing something wrong. If you do something wrong, that activity keeps you away from the essence of being or ultimate nature of beings. Very naturally it keeps you away; slip off, going far from that. That’s why, as best as we can, we should do something good. If we do something good, very naturally [...] you can find the way to have access to the Buddha way. So that is *eko*, dedication, we say *parinama* [in Sanskrit]. 
 
-And also, the introduction, invocation. Whatever kind of book is written, the author has a certain purpose why, particularly the author tried to write something on the basis of full devotion to the triple treasure. So that is the invocation. Invocation is written in the strong devotion toward the triple treasure. 
+So in Buddhism *parinama* is very beautiful human thought. We do something good and then we can get the result, but that result should be shared with all sentient beings. So very naturally there is the practice of egolessness. If you do something good, very naturally people try to hold on. But, let it go. You can get enlightenment, but next, let it go. 
+
+The practice of letting go is very difficult for us, because we want to hold on. If through the practice of zazen if you experience something wonderful, you really want to keep it for a long time. But you cannot do it, actually. So very naturally, the rhythm of human life shows you the practice of letting go. But we don’t do it. That’s why actually you try to hold it, but the nature of beings lets you learn how to let it go. That’s why human beings in a sense create lots of ego and attachment – to you, to the teaching, to the object. That is the dharma and attachment to the dharma, and a person. 
+
+So the verse of *parinama*, this is the conclusion. 
+
+And also, the introduction, “Invocation.” Whatever kind of book is written, the author has a certain purpose why, particularly the author tried to write something on the basis of full devotion to the triple treasure. So that is the Invocation. Invocation is written in the strong devotion toward the triple treasure. 
 
 Do you have questions? 
 
