@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 1"
 
 ### Summary
 
-Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book, followed by questions and answers. 
+Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by more questions.
 
 ### Transcript
 
@@ -23,7 +23,7 @@ Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the str
 
 Mainly in Buddhist history, [there are] two lines of teaching. One is the teaching of *emptiness*, mentioned by Nagarjuna. After that in Buddhist history, the Buddhist teaching based on Buddhist psychology has been developed. That is *Abhidharmakosha*, and the *mere consciousness*. 
 
-But this book is kind of [an] overall picture of the teaching, including the teaching of emptiness, and also Buddha’s teaching in terms of Buddhist psychology. So it’s a very interesting book. Very systematical. The title is *The Awakening of Faith*. But originally [the title is], I think I would like to say, “The Treatise on Awakening Mahayana Faith.” 
+But this book is kind of [an] overall picture of the teaching, including the teaching of emptiness, and also Buddha’s teaching in terms of Buddhist psychology. So it’s a very interesting book. Very systematical. The title is *The Awakening of Faith*. But originally [the title is], I think I would like to say, *The Treatise on Awakening Mahayana Faith*.
 
 [In the word] *Mahayana*, *maha* is “great,” *yana* is “vehicle.” In this book, *Mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing.” So *maha* means the essence or ultimate nature of what is here [and] now. That *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
 
@@ -31,19 +31,17 @@ And the function of the *maha* is a kind of a vehicle to carry all sentient bein
 
 [...] I have to say more [on] Mahayana *faith*, *Awakening of Faith*. 
 
-This book is a teaching of Buddhist faith: not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. So Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. So Mahayana is the object of faith, because *maha* means essense of being or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being, which embraces all sentient beings and carries them. So it is very pure function. 
+This book is a teaching of Buddhist faith: not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. So Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. Mahayana is the object of faith because *maha* means essense of being or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being, which embraces all sentient beings and carries them. So it is very pure function. That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. 
 
-That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. That’s why the person who wants to believe in that one – believes in this faith, believes in that object, [the] essense of being – very naturally that person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally *you* must be pure and clean. [Even if] even for a moment you think so, you become very clean and pure. So that’s why if you believe this essence of being you become pure, so in Buddhism it says faith is pure and clean. Purity and cleanness, this is the meaning of faith. 
+That’s why the person who wants to believe in that one – believes in this faith, believes in that object, [the] essense of being – very naturally that person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally *you* must be pure and clean. [Even if] even for a moment you think so, you become very clean and pure. So that’s why if you believe this essence of being you become pure, so in Buddhism it says faith is pure and clean. Purity and cleanness, this is the meaning of faith. 
 
-So we should *awaken* this faith. *How?* That’s why here is the explanation of how we should awaken this Buddhist faith. This is this book.
+So we should *awaken* this faith. *How?* That’s why here is the explanation of how we should awaken this Buddhist faith. That is this book.
 
 #### 10:20
 
 So first, let’s [look at] the structure of this book. This is a very common structure which Buddhist treatises follow. First, the introduction, and the main subject, and conclusion; three points. 
 
-That introduction is *Invocation*. This is a very common structure. The Buddhist treatise follows. Always there is an invocation, and main subject. 
-
-This is the main subject, and also this is a very important point this book really teaches us. So the main subject consists of five parts:
+That introduction is “Invocation.” This is a very common structure. The Buddhist treatise follows. Always there is an invocation and main subject. This is the main subject, and also this is a very important point this book really teaches us. So the main subject consists of five parts:
 
 Part 1: The Reasons for Writing. So why did Ashvaghosha want to write this book? [There are] eight reasons there. 
 
@@ -93,67 +91,77 @@ The practice of letting go is very difficult for us, because we want to hold on.
 
 So the verse of *parinama*, this is the conclusion. 
 
-And also, the introduction, “Invocation.” Whatever kind of book is written, the author has a certain purpose why, particularly the author tried to write something on the basis of full devotion to the triple treasure. So that is the Invocation. Invocation is written in the strong devotion toward the triple treasure. 
+And also, the introduction, “Invocation.” Whatever kind of book is written, the author has a certain purpose why, particularly the author tried to write something on the basis of full devotion to the triple treasure.[...] Invocation is written in the strong devotion toward the triple treasure. 
 
 Do you have questions? 
 
 #### 31:30
 
-**Question:** Hojo-san, when you say that this book has to do with awakening Mahayana faith as opposed to Hinayana [...] what is it? 
+**Question:** Hojo-san, when you say that this book has to do with awakening Mahayana faith as opposed to Hinayana, [...] what is it? 
 
-**Katagiri Roshi:** Yes. I said Hinayana, but Maha doesn’t mean great as opposed to small.
+**Katagiri Roshi:** Yes. I said Hinayana, but Maha doesn’t mean “great” as opposed to “small.”
 
 **Same person:** No? 
 
 **Katagiri Roshi:** No. I don’t mean this. But the term Mahayana is used very naturally opposed to Hinayana. So Mahayana is the understanding Buddha’s Way in a broad perspective. But in this case, the term *maha* doesn’t mean great opposed to small.
 
-**Question:** Okay. Does *Hinayana* mean just like cultivating one’s own sort of psychological [thing]...
+**Question:** Okay. Does *Hinayana* mean just like, cultivating one’s own sort of psychological [thing]...
 
 **Katagiri Roshi:** Yes, that is a very common understanding of this. 
 
 #### 32:48
 
-**Question:** Hojo-san, you said there are different practices for those with non-backsliding faith and those with backsliding faith. How do you know if you have backsliding faith or non-backsliding faith? 
+**Question:** Hojo-san, you said there are different practices for those with non-backsliding faith and those with backsliding faith? How do you know if you have backsliding faith or non-backsliding faith? 
 
-**Katagiri Roshi:** *[Chuckles.]* Well, I think you can know pretty well in your everyday life. In the spiritual life, you cannot always stay in the strong spiritual faith. Even though you believe that you have strong spiritual faith, still within the faith, you can see the up and down slide. Sometimes you don’t want, sometimes you want. Sometimes you have doubt, you become very skeptical. Apparently you do zazen strongly, you believe Buddhism, but still there is skeptical doubt. So doubt and skepticism are kind of, this is kind of backsliding your faith. 
+**Katagiri Roshi:** *[He chuckles.]* Well, I think you can know pretty well in your everyday life. In spiritual life, you cannot always stay in the strong spiritual faith. Even though you believe that you have strong spiritual faith, still within the faith you can see the up and down [slide]. Sometimes you don’t want, sometimes you want. Sometimes you have doubt, you become very skeptical. Apparently you do zazen strongly, you believe Buddhism, but still there is skeptical doubt. So doubt and skepticism, [...] this is kind of backsliding your faith. 
 
-So more or less, you have this kind of backsliding faith. In order to have a not-backsliding faith, we have to practice for a long time. But basically, we are already living in the realm of unbacksliding faith, because we are already embraced by the essence of existence, being. Even though you realize or you don’t realize, you are embraced by the universe. So from this point, wherever you may go, you are always at the stage of not-backsliding faith already. But we don’t see it. That’s a problem for us. That’s why we have to notice, we have to realize it, and we have to practice it. 
+So more or less, we have this kind of backsliding faith. In order to have a not-backsliding faith, we have to practice for a long time. 
 
-**Question:** Then why are there different kinds of practices? If everybody is both backsliding and non-backsliding, why do they [have] different kinds of practices?
+But basically, we are already living in the realm of un-backsliding faith, because we are already embraced by the essence of existence, being. [Whether] you realize or you don’t realize, you are embraced by the universe. So from this point, wherever you may go, you are always at the stage of not-backsliding faith, already. 
 
-**Katagiri Roshi:** Because everyone has different kinds of lifestyles. I think basically all sentient beings live in the same and one ground; from this point all sentient beings become equal. But each one is different. Tree is different, bird is different. So very naturally [there are] many kinds of human beings there. But through the different characteristics, different personalities, different lifestyles, different form of beings, we have to realize the same and one ground, so-called *faith*, the essence of the universe. We have to find it. That’s why there are many practices.
+But we don’t see it. That’s a problem for us. That’s why we have to notice, we have to realize it, and we have to practice it. 
+
+**Question:** Then why are there different kinds of practices? If everybody is both backsliding and non-backsliding, why do they say there are different kinds of practices?
+
+**Katagiri Roshi:** Because everyone has different kinds of lifestyles. Basically all sentient beings live in the same and one ground; from this point all sentient beings become equal. But, each one is different. Tree is different, bird is different. So very naturally [there are] many kinds of human beings there. But through the different characters and characteristics, different personalities, different lifestyles, different form of beings, we have to realize the same and one ground, so-called *faith*, the essence of the universe. We have to find it. That’s why there are many practices.
 
 #### 39:15
 
-**Question:** [...] faith, does that mean faith in dharma? Or what is it faith in? 
+**Question:** [It says] faith, does that mean faith in the dharma? Or what is it faith in? 
 
-**Katagiri Roshi:** Well, we can say dharma. Because dharma is the essence of being. [Dharma has] three meanings: essence of being, and phenomena, and [also the] teaching, that is called dharma. So what we should believe in, generally speaking, we say dharma, we can believe dharma. So we can believe in the essence of beings as dharma, we can believe in the phenomenal world as dharma. We can believe in the dharma as the phenomenal world, because the phenomenal world is not something different from the essence of existence. So that’s why we believe the dharma as the essence of beings and as the phenomenal world, and also we believe in the teaching. That is belief. 
+**Katagiri Roshi:** Well, we can say dharma. Because dharma is the essence of being. [Dharma has] three meanings: essence of being, and phenomena, and [also the] teaching. That is called dharma. 
 
-In this book, faith is described in more detail ...
+So what we should believe in, generally speaking, we say dharma, we can believe dharma. So we can believe in the essence of beings as dharma, we can believe in the phenomenal world as dharma. We can believe in the dharma as the phenomenal world, because the phenomenal world is not something different from the essence of existence. So that’s why we believe the dharma as the essence of beings and as the phenomenal world, and also we believe in the teaching. That is belief. 
+
+But in this book, *faith* is described in more detail. ...
 
 *[Tape change.]*
 
-Let’s read the Invocation. It’s on page 23:
+#### 41:00
+
+... Let’s read the Invocation. It’s on page 23:
 
 > I take refuge in the Buddha, the greatly Compassionate One, the Savior of the world, omnipotent, omnipresent, omniscient, of most excellent deeds in all the ten directions; And in the Dharma, the manifestation of his Essence, the Reality, the sea of Suchness, the boundless storehouse of excellencies; And in the Sangha, whose members truly devote themselves to the practice. May all sentient beings be made to discard their doubts, to cast aside their evil attachments, and to give rise to the correct faith in the Mahayana, that the lineage of the Buddhas may not be broken off.
 >
 > (From *The Awakening of Faith*, attributed to Asvaghosha, translated by Yoshito S. Hakeda.)
 
-“The lineage of the Buddhas” means originally [it said] *seed* of the Buddha. Seed of the Buddha: we try to maintain, we try to continue the seed of the Buddha. That means the seed of universal life. Everything has universal life. *[There is some clarification of the word: seed.]* But in this translation here, it says the *lineage* of the Buddha. 
+“The lineage of the Buddhas” means, originally [it said] *seed* of the Buddha. Seed of the Buddha: we try to maintain, we try to continue the seed of the Buddha. That means the seed of universal life. Everything has universal life. *[There is some clarification of the word: seed.]* But in this translation here, it says the *lineage* of the Buddha. 
 
-That’s why in the invocation we take refuge in the triple treasure: buddha, dharma, sangha. So, “I take refuge in the Buddha.” 
+That’s why in the Invocation we take refuge in the Triple Treasure: buddha, dharma, sangha. So, “I take refuge in the Buddha.” 
 
-Take refuge is called *nama* or *namo*: *kimyo*. *Ki* is return, *myo* means life. So take refuge in the Buddha is return to the Buddha with life. In other words, you have to devote yourself to return to the essence of existence, to the Buddha, with life. So you have to offer your life; you offer your life to buddha. That is big, huge devotion. Not only thinking, okay? You cannot offer yourself, offer your life to the Buddha in terms of the egoistic sense, you cannot do it. So you need the great, enormous effort, enormous compassion. You should offer your life. Something more than to *risk* your life, okay? Kind of risking your life, but risking your life is very egoistic. But to take refuge in Buddha is kind of risking your life but very elegant. Elegant behavior must be based on. 
+*Take refuge* is called *nama* or *namo*, [or in Japanese] *kimyo*. *Ki* is “return,” *myo* means “life.” So take refuge in the Buddha is “return to the Buddha with life.” In other words, you have to devote yourself to return to the essence of existence, to the Buddha, with life. So you have to offer your life: you offer your life to buddha. That is big, huge devotion. Not only thinking, okay? You cannot offer yourself, offer your life to the Buddha in terms of the egoistic sense, you cannot do it. So you need the great, enormous effort, enormous compassion. You should offer your life. Something more than to *risk* your life, okay? Kind of risking your life, but risking your life is very egoistic. But to take refuge in the Buddha is kind of risking your life but very elegant. [It must be based on] elegant behavior. 
 
-So, “I take refuge in the Buddha,” that is *kimyo*, “take refuge.” In English we say take refuge, but in Sanskrit we say *namo*. *Namo* is translated as *kimyo* in Japanese. [It means] return to the Buddha with your life. Do you understand? Full devotion to the Buddha. 
+So, “I take refuge in the Buddha,” that is *kimyo*, “take refuge.” In English we say “take refuge,” but in Sanskrit we say *namo*. And *namo* is translated as *kimyo* in Japanese. [It means] return to the Buddha with your life. Do you understand? Devote. Full devotion to the Buddha. 
 
-“... the greatly Compassionate One” – so One is the Buddha – very compassionate. Because compassion comes from the bottom of existence. When you touch the core of existence, very naturally compassion comes up. I always say, just like your water pipe touches the water vein, very naturally water comes up. Just like this. So if you understand very deeply the human world, then naturally compassion comes up. Wherever you may be, compassion is there. 
+“... the greatly Compassionate One”: So what is the Buddha? “The greatly Compassionate One.” Very compassionate. Because compassion comes from the bottom of existence. When you touch the core of existence, very naturally compassion comes up. I always say, just like your water pipe touches the water vein, very naturally water comes up. Just like this. So if you understand very deeply the human world, then naturally compassion comes up. Wherever you may be, compassion is there. 
 
-So “greatly Compassionate One,” this is the Buddha. And the Buddha is to have this compassion, and also to awaken this compassion, to let others awaken this compassion. So that is called Buddha. Buddha awakens himself. To have awaken to compassion, and simultaneously to let others awaken compassion. 
+So “greatly Compassionate One,” this is the Buddha. And the Buddha is to have this compassion, and also to awaken this compassion, to let others awaken this compassion. 
 
-“... the Savior of the world” – so if you have this great compassion, very naturally you can help all sentient beings. So we say “Savior.” I don’t know “savior.” “Savior of the world.”
+So that is called buddha. Buddha awakens himself. To [...] awaken to compassion, and simultaneously to let others awaken compassion. 
 
-[...] I don’t know how I can say, in the Chinese here it says “supreme karma.” Instead of “greatly compassionate one, the Savior of the world,” originally it says supreme karma, supreme activities. Because that is Buddha’s intention, or Buddha’s will. Buddha’s will is always something supreme, and, what would you say, always moving toward the essence of existence on the basis of compassion. So Buddha’s intention or will lets him do something good always, under all circumstances. That is “greatly compassionate one, the savior of the world.” At that time, you will become the great buddha who helps all sentient beings. 
+“... the Savior of the world”: So if you have this great compassion, very naturally you can help all sentient beings. So we say “Savior.” I don’t know [about the word] “savior,” “savior of the world”...
+
+[...] I don’t know how I can say [it]. In the Chinese, here it says “supreme karma.” Instead of “greatly compassionate one, the Savior of the world,” originally it says *supreme karma*, *supreme activities*. Because that is Buddha’s intention, or Buddha’s will. Buddha’s will is always something supreme, and, what would you say, always moving toward the essence of existence on the basis of compassion. So Buddha’s intention or will lets him do something good always, under all circumstances. That is “greatly compassionate one, the savior of the world.” At that time, you will become the great buddha who helps all sentient beings. 
 
 “omnipotent” – I don’t know how to say. *Omnipotent* means Buddha’s body. “omnipotent, omnipresent.” 
 
