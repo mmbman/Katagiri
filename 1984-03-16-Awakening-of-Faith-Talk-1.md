@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 1"
+title: "The Awakening of Faith – Talk 1: Introduction and Invocation"
 ---
 ## March 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -161,11 +161,13 @@ So that is called buddha. Buddha awakens himself. To [...] awaken to compassion,
 
 “... the Savior of the world”: So if you have this great compassion, very naturally you can help all sentient beings. So we say “Savior.” I don’t know [about the word] “savior,” “savior of the world”...
 
-[...] I don’t know how I can say [it]. In the Chinese, here it says “supreme karma.” Instead of “greatly compassionate one, the Savior of the world,” originally it says *supreme karma*, *supreme activities*. Because that is Buddha’s intention, or Buddha’s will. Buddha’s will is always something supreme, and, what would you say, always moving toward the essence of existence on the basis of compassion. So Buddha’s intention or will lets him do something good always, under all circumstances. That is “greatly compassionate one, the savior of the world.” At that time, you will become the great buddha who helps all sentient beings. 
+[...] I don’t know how I can say [it]. In the Chinese, here it says “supreme karma.” Instead of “greatly compassionate one, the Savior of the world,” originally it says *supreme karma*, *supreme activities*. Because that is Buddha’s intention, or Buddha’s will. Buddha’s will is always something supreme, and always moving toward the essence of existence on the basis of compassion. 
 
-“omnipotent” – I don’t know how to say. *Omnipotent* means Buddha’s body. “omnipotent, omnipresent.” 
+So Buddha’s intention or will lets him do something good always, under all circumstances. That is “greatly compassionate one, the savior of the world.” At that time, you become [a] great buddha who helps all sentient beings. 
 
-Oh excuse me, let me say – “the greatly compassionate one, the savior of the world, omnipotent, omnipresent, omniscient, of most excellent deeds in all the ten directions”. Already, yes, yes. Most excellent deeds or activity, I mentioned. 
+“Omnipotent”: I don’t know how to say. *Omnipotent* means Buddha’s body. “Omnipotent, omnipresent, omniscient.” 
+
+Oh excuse me, let me say: “The greatly compassionate one, the savior of the world, omnipotent, omnipresent, omniscient, of most excellent deeds in all the ten directions.” Already, yes, yes. Most excellent deeds or activity, I mentioned. 
 
 Let me say, Buddha – excuse me, I said a little bit something wrong. I didn’t notice “the most excellent deeds in all the ten directions.” Buddha’s activity is always excellent or supreme. “In all the ten directions” means the implication of space, but not only space, but also the time process. Including time and space, Buddha is always doing something good, for all sentient beings. So in all ten directions means, for all sentient beings who exist in space and time. That is called in the ten directions. So Buddha has most excellent deeds for all sentient beings. 
 
