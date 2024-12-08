@@ -14,7 +14,7 @@ This series of transcripts is in rough draft stage.
 - [Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
 - [Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 - [Talk 6](1984-04-27-Awakening-of-Faith-Talk-6)
-- Talk 7
+- [Talk 7](1984-05-04-Awakening-of-Faith-Talk-7)
 - Talk 8
 - [Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 - Talk 10: Time
