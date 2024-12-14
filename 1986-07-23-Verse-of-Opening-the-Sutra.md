@@ -28,7 +28,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 > Having this to see and listen to, remember and accept,  
 > I vow to taste the truth of the Tathagata’s words.  
 
-**Katagiri Roshi:** [This verse is found] in the [...] “Daily Used Statements, Verses, and Dharani” which occurs in the [...] various *ekos* – final dedications – compiled by [Hu-en] (or possibly Huayan?) in 1565 (CE) or so. (*Transcriber’s Note:* This paragraph is difficult to transcribe, and so far I have been unable to track down the reference. It should be noted that the *Verse* itself can be traced back to origins in China around 500-700 CE; accounts vary.)
+**Katagiri Roshi:** [This verse is found] in the [section of] “Daily Used Statements, Verses, and Dharani” which occurs in the [...] various *ekos* – final dedications – compiled by [Hu-yen] (or possibly Huayan?) in 1565 (CE) or so. (*Transcriber’s Note:* This paragraph is difficult to transcribe, and so far I have been unable to track down the reference. It should be noted that the *Verse of Opening the Sutra* is traced to origins in China around 500-700 CE; accounts vary.)
 
 So, the “unsurpassed, penetrating, and perfect dharma.” 
 
