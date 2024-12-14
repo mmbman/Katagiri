@@ -42,7 +42,7 @@ So you don’t understand very well a person who uses just one thing in his whol
 
 #### 10:13
 
-In the *Lotus Sutra*, the Sun-Moon-Light Tathagata was born in this world as a Buddha named the Sun-Moon-Light Tathagata... and the next generation, he was born as a Buddha named the Sun-Moon-Light Tatagatha. And in the next generation, there was a Buddha named the Sun-Moon-Light Tatagatha. For century after century, Buddha was born in this world, but the same person, same name.
+In the *Lotus Sutra*, the Sun-Moon-Light Tathagata was born in this world as a Buddha named the Sun-Moon-Light Tathagata... and the next generation, he was born as a Buddha named the Sun-Moon-Light Tathagata. And in the next generation, there was a Buddha named the Sun-Moon-Light Tathagata. For century after century, Buddha was born in this world, but the same person, same name.
 
 This is very important for us. What is real life? Real life never changes, from generation to generation. Life was born in this world, named Life Tathagata. And in the next generation, life was born, and it was named Life Tathagata. The same thing, generation after generation. Exactly the same, wonderful thing.
 

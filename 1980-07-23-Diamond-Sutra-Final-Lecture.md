@@ -31,7 +31,7 @@ This is a very famous verse in Buddhism. It means the world which is conditioned
 
 Asanga, one of the famous Buddhist scholars in ancient times, had a commentary to this verse. He says: 
 
-> The Tatagatha’s nirvana is neither the same as the conditioned world in causation, nor different from it. Partly because even after entering nirvana, Buddhas appear as Nirmanakaya Buddha in the world to preach, and partly because the characteristics of all conditioned beings are considered from the nine points of view, with their right knowledge. 
+> The Tathagata’s nirvana is neither the same as the conditioned world in causation, nor different from it. Partly because even after entering nirvana, Buddhas appear as Nirmanakaya Buddha in the world to preach, and partly because the characteristics of all conditioned beings are considered from the nine points of view, with their right knowledge. 
 >
 > (Source of translation unknown.)
 
@@ -41,21 +41,21 @@ For instance, if you practice zazen for one month, or two months, or years, cons
 
 And also, if you trust in [yourself] or if you trust in others, there are always sort of cultural backgrounds. [There are] lots of cultural backgrounds in time and space: American culture, Japanese culture, and customs, heredity, habits, et cetera. We wear lots of clothes. And then we can depend on human life, and we can trust in ourselves and others. If we don’t have *anything*, it’s very difficult to live in this world.
 
-So strictly speaking, we live in the realm of the law of causation. This is the dualistic world; this is the human world we live in. That’s why [it says] “the Tatagatha’s nirvana is neither the same as the conditioned world in causation”; this [dualistic world] is called *the conditioned world in causation*. 
+So strictly speaking, we live in the realm of the law of causation. This is the dualistic world; this is the human world we live in. That’s why [it says] “the Tathagata’s nirvana is neither the same as the conditioned world in causation”; this [dualistic world] is called *the conditioned world in causation*. 
 
-But “the Tatagatha’s nirvana” – *nirvana* means freedom, liberation; perfect liberation from human suffering. “The Tatagatha’s nirvana is neither the same as the conditioned world in causation”... in other words, a perfect peaceful life is liberated from the law of causation. We live in the law of causation; that’s why we cannot ignore the law of causation. But there is no reason why we have to be completely tied up with the law of causation. We have to be *free from* the law of causation. 
+But “the Tathagata’s nirvana” – *nirvana* means freedom, liberation; perfect liberation from human suffering. “The Tathagata’s nirvana is neither the same as the conditioned world in causation”... in other words, a perfect peaceful life is liberated from the law of causation. We live in the law of causation; that’s why we cannot ignore the law of causation. But there is no reason why we have to be completely tied up with the law of causation. We have to be *free from* the law of causation. 
 
 In other words, if you do something wrong, the result is wrong – this is the law of causation. But actually, even though you do something good, sometimes you don’t see the good result. And also, sometimes even though you do something good, the result is not good. So, we always have two aspects. Your life is backed by the law of causation; you cannot ignore it. Whatever you do, whatever you [may be], there is always causation. But on the other hand, you cannot understand human life exactly just according to the law of causation, because cause and effect are sometimes not exactly fitting, not exactly the same. 
 
 So even though your motivation is good, [sometimes] the result is not good. Have you experienced this? The motivation is good: “I want to help.” According to the motivation, you want to help somebody, but the result is completely reversed: you hurt somebody. And also [sometimes] people don’t accept your help, your motivation, so people really get angry with you. So even though the motivation is good as a cause, the result is not good. From this point, the basic nature of human life is completely free from the law of causation. But on the other hand, you cannot completely ignore the law of causation. That’s why reality is very contradictory. 
 
-Asanga says, “The Tatagatha’s nirvana is neither the same as conditioned world in causation, *nor different from it*.” So, the peaceful world is not exactly the same as the dualistic world, but not different from it. Asanga says, “Partly because even after entering nirvana” – for instance, even though you enter the peaceful life, even though you can live your life in peace and harmony with people day after day, still you have your own physical body and mind, which are suffering from human life. 
+Asanga says, “The Tathagata’s nirvana is neither the same as conditioned world in causation, *nor different from it*.” So, the peaceful world is not exactly the same as the dualistic world, but not different from it. Asanga says, “Partly because even after entering nirvana” – for instance, even though you enter the peaceful life, even though you can live your life in peace and harmony with people day after day, still you have your own physical body and mind, which are suffering from human life. 
 
 So even after entering nirvana, “Buddhas appear as Nirmanakaya Buddha.” *Nirmanakaya Buddha* means the human body. Buddha was born in this world with a human body; this is Buddha Shakyamuni. [...] The Buddha has to teach the Buddha’s teaching constantly. In order to teach, he has to have his own human body, human mind.
 
 #### 11:30
 
-Why is it that “the Tatagatha’s nirvana is neither the same as the conditioned world in causation, nor different from it?” “Partly because even after entering nirvana, Buddhas appears as Nirmanakaya Buddha in the world to preach...”
+Why is it that “the Tathagata’s nirvana is neither the same as the conditioned world in causation, nor different from it?” “Partly because even after entering nirvana, Buddhas appears as Nirmanakaya Buddha in the world to preach...”
 
 > ... and partly because the characteristics of all conditioned beings are considered from the nine points of view, with their right knowledge.
 

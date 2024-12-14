@@ -44,25 +44,25 @@ The parable of the magic city. It says,
 
 in Sanskrit, it’s very complicated, but in English, 
 
-> This is a Buddha named Universal Surpassing Wisdom Tatagatha
+> This is a Buddha named Universal Surpassing Wisdom Tathagata
 
-or literally, Great Pervading Surpassing Wisdom Tatagatha. 
+or literally, Great Pervading Surpassing Wisdom Tathagata. 
 
 Great Pervading means great capability to teach freely, to every living being, any kind of beings. This is Great Pervading Wisdom. 
 
 So this buddha, named, Great Pervading Surpassing Wisdom. This wisdom is really unsurpassed, because wherever he may be, whatever he does, his capability always extends to all sentient beings to help, and to teach. So his wisdom, his knowledge, is really unsurpassed. And also there is he has his own country, named Sambhava. That means Well-Completed. The name of the country is Well-Completed. And also his age, the age where he lives, is named Maha Rupa – Great Form, Great Appearance. 
 
-So there are three things: the Buddha named Great Pervading Surpassing Wisdom Tatagatha, and his country, called Sambhava, Well-Completed, and the age in which he lives is called Great Appearance, Maha Rupa.
+So there are three things: the Buddha named Great Pervading Surpassing Wisdom Tathagata, and his country, called Sambhava, Well-Completed, and the age in which he lives is called Great Appearance, Maha Rupa.
 
 And also this buddha lived a long, long time ago. So this buddha is one of the past buddhas. So how long, how many years ago? Here it says – very interesting – “since that buddha became extinct, a very long time has passed”. So this Buddha died many, many years ago. 
 
 For instance, what is many years ago [that] this sutra says? For instance, “suppose the earth element in a three thousand great thousand-fold world were by someone grounded into ink powder, and he were to pass through a thousand countries in an eastern direction, and then let fall one drop as long as a grain of dust. Again passing through another thousand countries, again let fall one drop. Suppose he thus proceeds until he has finished the ink powder made of the earth element.” This is called a long, long time ago. That means innumerable, countless period of time ago. You cannot count. 
 
-And then when this buddha attained enlightenment, the radiant light penetrated throughout the world. And then all bodhisattvas, brahmas, deities, demons, all sentient beings who saw this light came to this tatagatha and asked for his preaching, and said to him like this: 
+And then when this buddha attained enlightenment, the radiant light penetrated throughout the world. And then all bodhisattvas, brahmas, deities, demons, all sentient beings who saw this light came to this Tathagata and asked for his preaching, and said to him like this: 
 
 “How good it is to see the buddhas, holy honored ones, who save the world, who can complete the health of the human world to deliver at the living. The always honored of gods and men, out of compassion for the crowds of young ..., can open the doors of the sweet dews, for the extensive relief of all, innumerable kalpas of yore have emptily passed without buddhas. While a world-honored one didn’t appear, darkness is everywhere rained. Thriving ... the three evil states, flourishing ... ashavas. While the heavenly host dwindled, fell into evil estates, not hearing the law from buddhas. If a following improper ways, their bodies, strength, and wisdom, these all ... the way. Because of sinful karma, they lost their joy and joyful thoughts. Fixed in heretical view, unconscious of the rules of goodness, not receiving the correction of the buddhas, they ever fell into evil ways. The Buddha is the eye of the world, and after long ages appears. Through pity for the living, he is revealed in the world, surpassing in his perfect enlightenment. Great is our felicity, and all other beings rejoice as never before. All ... made beautiful through this light. Now we offer the world-honored one, condescend in compassion to accept them.”
 
-Then I think when this tatagatha attained enlightenment, the light gave forth throughout the world, and all sentient beings came across this light, and appreciated it, and rejoiced in the light, and also rejoiced in their life. And then they realized the palaces they live become very beautiful, by light. 
+Then I think when this Tathagata attained enlightenment, the light gave forth throughout the world, and all sentient beings came across this light, and appreciated it, and rejoiced in the light, and also rejoiced in their life. And then they realized the palaces they live become very beautiful, by light. 
 
 So finally, they say, we will offer this beautiful palace to you. So these palaces are given to the Buddha. And then after this, they say, condescend in compassion to accept them. Then they say, “may this deed of merit extend to all creatures, that we with all the living, may together accomplish the Buddha way.” Exactly the same as this. 
 
@@ -70,7 +70,7 @@ So after offering the beautiful palace, they used to live, is given to Buddha. A
 
 So this eko, this [Gatha of] Closing the [Sutra], comes from this story in the Lotus Sutra. 
 
-And then after this, this Tatagatha talked about Four Noble Truths to the audience. This is Chapter Seven.
+And then after this, this Tathagata talked about Four Noble Truths to the audience. This is Chapter Seven.
 
 #### 20:37
 
