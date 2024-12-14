@@ -15,3 +15,15 @@ Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour
 ##### [Verse of Opening the Sutra](1986-07-23-Verse-of-Opening-the-Sutra)
 
 Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually chanted before a dharma talk. He connects the *Verse* to related passages from the *Lotus Sutra* and the *Samadhi Sutra*, and also draws a connection with the psychologist Alice Miller.
+
+---
+
+Probable future inclusions:
+
+- Gatha of Closing the Sutra
+- Verse of Offering Incense
+- Bowing
+- Westerners’ Reluctance Toward Bowing
+- Obon Memorial
+- Chanting Practice
+
