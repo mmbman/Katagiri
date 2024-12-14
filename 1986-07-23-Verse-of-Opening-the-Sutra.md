@@ -242,9 +242,7 @@ Is that alright?
 
 **Question:** Roshi, when you talked about the parent [seeing] the child: isn’t it also reversed, the child [seeing] the parent? 
 
-**Katagiri Roshi:** Mm-hmm. Sure. 
-
-[The] child must [...] deal with the parents exactly as the messenger of the world we knew. 
+**Katagiri Roshi:** Mm-hmm. Sure. [The] child must [...] deal with the parents exactly as the messenger of the world we knew. 
 
 Particularly parents’ and children’s relationships are very deep, you know? 
 
