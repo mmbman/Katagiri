@@ -194,47 +194,49 @@ So when you are born, the whole world is born. The whole world arises with you. 
 
 *[Tape change.]*
 
-... Truth is one. No secondary. Whoever looks at the truth, truth is whatever it is. In whatever situation it may be, truth is one. 
+... Truth is one. [There is] no secondary. Whoever looks at the truth, truth is whatever it is. In whatever situation it may be, truth is one. 
 
-But we always create many, many, many kinds of truth. In terms of Buddhism, in terms of Christianity, in terms of Judaism... Even in the realm of Christianity, we are fighting with each other under the beautiful flag of the term *God*. God must be one exactly, but we create lots of kinds of God. 
+But we always create many, many, many kinds of truth. In terms of Buddhism, in terms of Christianity, in terms of Judaism... Even in the realm of Christianity, we are fighting with each other under the beautiful flag of the term *God*. God must be *one* exactly. But we create lots of kinds of God. 
 
 #### 46:10
 
-So “all things abide in their fixed [order], hence the world abides forever.” 
+So “all things abide in their fixed order, hence the world abides forever.” 
 
 “All things abide in their fixed order” means [that] Katagiri exists, right now right here, is completely beyond human speculation. Because Katagiri is produced by time which is ripe, conditions which have been arranged, beyond my speculation. 
 
-For instance, I have a certain type of character, and then [right] now I am peaceful. But if immediately a certain situation is coming up... for instance, you put the Katagiri on the top of a cliff. *[Laughter.]* And let him see the bottom of the ocean. I don’t like that high level, you know? *[He laughs.]* So immediately I create fear. 
+For instance: I have a certain type of character. And then, [right] now I am peaceful. But if immediately a certain situation is coming up... for instance, you put the Katagiri on the top of a cliff, okay? *[Laughter.]* And let him see the bottom of the ocean, exactly. I don’t like that high level. *[He laughs.]* So immediately I create fear. 
 
-So right now, I am very peaceful, but in a certain situation, I create... something. So Katagiri comes up in a different way. But I don’t know *why* – why those conditions are arranged and time is ripe. I don’t know. We can create a condition, we can create a time – but not always. There are lots of times, lots of conditions you cannot control. 
+So right now, I am very peaceful, but in a certain situation, I create... *something*. So Katagiri comes up in a different way. But I don’t know *why* – why those conditions are arranged and time is ripe. I don’t know. We can create a condition, we can create a time – but not always. There are lots of times, lots of conditions *you* cannot control. 
 
 For instance, if you drive a car. That means you create time, you create wonderful conditions. But sometimes, somebody hits your car, you know? You don’t expect it. So that time and conditions: who creates them? We don’t know. At that time, Katagiri’s existence is completely different. 
 
-So, *I am Katagiri in peace, now*, is completely something produced by time which is ripe, conditions arranged, beyond human speculation. So that’s why *now* is very important. 
+So, *I am Katagiri in peace*, now, is completely something produced by time which is ripe, conditions arranged, beyond human speculation. So that’s why *now* is *very* important. 
 
-For instance, if I see this time and condition. Some times can be controlled by me; some conditions can be controlled, created, produced by me. But most of the time and conditions cannot be produced by me. You know? Because sometimes I don’t like to be here. *[He laughs.]* When my emotions are not peaceful, and my body is sick, at that time I don’t like to be here and to talk. And when I look at my English, et cetera, I hate my English. Something like that. So very naturally, emotionally, I cannot be here. But, you always give me the conditions and time, beyond my speculation: “Katagiri, you are [our] teacher. Please come here and sit down.” So I sit down. But personally, I don’t exactly *love* it. *[He laughs a little, and a couple people laugh.]* Do you understand what I mean? 
+For instance, if I see this time and condition. Some times can be controlled by me; some conditions can be controlled, created, produced by me. But most of the time and conditions cannot be produced by me. You know? Because sometimes I don’t like to *be here*. *[He laughs.]* When my emotions are not peaceful, and my body is sick, at that time, I don’t like to be here and to talk. And when I look at my English, et cetera, I hate my English, you know? Something like that. So very naturally, emotionally, I cannot be here. But, you always give me the conditions and time, beyond my speculation: “Katagiri, you are [our] teacher. Please come here and sit down.” So I sit down. But personally, [it’s] not exactly, *I love it.* *[A couple people laugh, and he chuckles.]* Do you understand what I mean? 
 
-So now I can see time and conditions, which are ripe and arranged perfectly, is what? [It’s a] very important *now*. Now is very important, because it is really something produced by time and conditions which have been handed down from generation to generation, from the past, to the present, to the future. Many, many, myriad conditions exist.
+So, now I can see time and conditions, which are ripe and arranged perfectly, is what? [It’s a] very important *now*. Now is very important, because it is really something produced by time and conditions which have been handed down from generation to generation, from the past, to the present, to the future. Many, many, myriad conditions exist.
 
-That’s why it says here, “So they reveal the one vehicle. All things abide in their fixed order, [hence the world abides forever].”
+That’s why it says here, “So they reveal the one vehicle. All things abide in their fixed order, [hence the world abides forever].” That’s why *now* is eternal. [...] The instant, right now, right here, is *exactly* eternal. So that is exactly “abiding forever.”
 
-That’s why *now* is eternal. Now is eternal. The instant, right now, right here, is exactly eternal. 
+So what is eternal being? Eternal being is *right now*. And then, next *right now*. [And] next *right now*. 
 
-So that is exactly abiding forever.  So what is eternal? Eternal being is *right now*. And then, next *right now*. [And] next *right now*. 
+But if you see this instant which seems to be separate, [...] if you take care of this instant, right now, right here, with wholeheartedness, it’s linked naturally with the next instant. So it is separated, but it’s not separated, it’s linked. 
 
-But if you see this instant which seems to be separate, [...] if you take care of this instant, right now, right here, with wholeheartedness, it’s linked with the next instant, naturally. So it is separated, but it’s not separated, it’s linked. So that’s why [we say] “continuation in discontinuation, discontinuation in continuation.” (*Transcriber’s Note:* He might mean “continuity in discontinuity.”) It is the total picture of the reality you live in now. So, the contents of real true reality is based on continuation in discontinuation, discontinuation in continuation. That’s why you have to take care of now, and then, it’s connected to next. 
+So that’s why [we say] “continuation in discontinuation, discontinuation in continuation.” (*Transcriber’s Note:* He might mean “continuity in discontinuity.”) It is the total picture of the reality you live in now. So, the contents of real true reality is based on continuation in discontinuation, discontinuation in continuation. That’s why you have to take care of now, and then, it’s connected to next. 
 
 Okay. Do you have a question? 
 
 #### 53:35
 
-**Question:** Roshi, when you talked about Katagiri and the universe being born, do you mean that’s continuously happening all the time, or do you mean that as a historic event, a one-time event?
+**Question:** Roshi, when you talked about Katagiri and the universe being born, do you mean that’s continuous, happening all the time, or do you mean a historic event, a one-time event?
 
-**Katagiri Roshi:** I think the universe cannot be seen easily, because it’s vast. But what you can see is now, and the moment, and the present time. So through the present time, what you can do is to take care of the present time. But that present time is not the present only, it is exactly connected with the universe. In other words, it is backed by the whole universe. 
+**Katagiri Roshi:** I think the universe cannot be seen easily, because it’s vast. But what you can see is now, and the moment, and the present time. So through the present time, what you can do is, to take care of the present time. But that present time is not the present only, it is exactly connected with the universe. In other words, it is backed by the whole universe. 
 
-[...] How can you see that universe? That’s why you have to penetrate the present time, with clear mind. So with your mind, you have to research deeply [the] microphone, Katagiri, in the present, and then see something behind me, above me, something more than to the right, to the left, something more than beneath my feet. So, the whole space, vast and open space around me. And then, very naturally, with your mind you have to research this. That is [what the teaching always talks about]. 
+[...] How can you see that universe? That’s why you have to penetrate the present time, with clear mind. So with your mind, you have to research deeply [the] microphone, Katagiri, in the present, and see something behind me, above me, something more than to the right, to the left, something more than beneath my feet. So the whole vast and open space around me. 
 
-And also, practically, with your body, you have to practice this. So that’s why sitting zazen is you do zazen, but simultaneously [...] you extend, your body and mind extend, [to] every inch of the universe. Because you become *samadhi*. Exactly one. 
+And then, very naturally, with your mind you have to research this. That is [what the teaching always talks about]. And also, practically, with your body, you have to practice this. 
+
+So that’s why sitting zazen is *you do zazen*, but simultaneously you do zazen but your body and mind extend [to] every inch of the universe. Because you become *samadhi*. Exactly one. 
 
 So practically, with your body, you can practice this. And with your mind, you have to make your mind calm, and research carefully, and continually see the trees, birds, human beings with deep insight. This is our important practice. 
 
@@ -242,15 +244,17 @@ Is that alright?
 
 #### 56:24
 
-**Question:** Roshi, when you talked the parent [seeing] the child: isn’t it also reversed, the child [seeing] the parent? 
+**Question:** Roshi, when you talked about the parent [seeing] the child: isn’t it also reversed, the child [seeing] the parent? 
 
-**Katagiri Roshi:** Mm-hmm. Sure. The child must be deal with the parents exactly as the messenger of the world we knew. 
+**Katagiri Roshi:** Mm-hmm. Sure. 
 
-Particularly parents and children’s relationships are very deep, you know? 
+[The] child must [...] deal with the parents exactly as the messenger of the world we knew. 
 
-*[Silence]*
+Particularly parents’ and children’s relationships are very deep, you know? 
 
-I think that book written by Alice Miller – I forgot the title of that book. If you want to know, I will tell you. (*Transcriber’s Note:* Probably *The Drama of the Gifted Child*.) I think you can buy her book in the United States. I think it’s a pretty good book.
+*[Silence.]*
+
+I think that the book written by Alice Miller – I forgot the title. If you want to know, I will tell you. (*Transcriber’s Note:* Probably *The Drama of the Gifted Child*.) I think you can buy her book in the United States. I think it’s a pretty good book.
 
 #### 57:52 end of recording
 
