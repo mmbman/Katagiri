@@ -34,15 +34,15 @@ So, the “unsurpassed, penetrating, and perfect dharma.”
 
 Well, in Japanese, [the verse is titled] *Kaikyō ge*: the “Verse of Opening [the] Sutra” (開經偈).
 
-Now *sutra* means “scriptures,” but a *sutra* originally means “interwoven of strings in vertical and horizontal.” Is that clear? *Interwoven*. That is a meaning of the term *sutra* in Sanskrit. 
+Now *sutra* means “scriptures,” but a *sutra* originally means “interwoven of strings in vertical and horizontal.” Is that clear? *Interwoven*; that is a meaning of the term *sutra* in Sanskrit. 
 
-So *sutra* as a Buddhist scripture means “interwoven of strings in vertical [and] horizontal.” That means human life, the human world, is exactly interwoven by time and space. The *huge* network of interwoven time and space: this is human world, human life. Even though you see the moment [or] instant [that] you exist day to day, it consists of a huge network of the interwoven time and space. This is the structure of the instant. 
+So *sutra* as a Buddhist scripture means “interwoven of strings in vertical [and] horizontal.” That means human life, the human world, is exactly interwoven by time and space. The *huge* network of interwoven time and space: this is the human world, human life. Even though you see the moment [or] instant [that] you exist day to day, it consists of a huge network of interwoven time and space. This is the structure of the instant. 
 
 So opening *that* sutra means [to] *completely* open, [which] means you have to see that huge network of interwoven time and space. We have to see it clearly, and then taste it. This is [to] *open*. 
 
 If you even slightly have your own prejudice, or your own desires, or your education, it’s very difficult to open your life. So completely open ourselves: that is opening the sutra. Because we have to see the real picture of human life. 
 
-And, if you open the sutra, the huge network of [interweaving] time and space, it is exactly “the unsurpassed, penetrating, and perfect dharma.” 
+And, if you open the sutra, the huge network of [interweaving] time and space is exactly “the unsurpassed, penetrating, and perfect dharma.” 
 
 #### 06:06
 
@@ -56,9 +56,7 @@ And *jin jin* also means “profound,” *very* profound. We say “penetrating,
 
 And next we say “perfect,” but literally [it is] *subtle*, or *wondrous*. *Inconceivable*. You cannot pin down what it is, but it is working with us. If you see it objectively, you cannot know what it is, you cannot explain it. But practically speaking, subjectively, you can experience it. Exactly you can know: “Yes, it is with us.” But if you see [it] objectively, you cannot explain it; it’s very difficult [to say] what it is. That is so-called *subtle*, very subtle.
 
-So *dharma* is supreme, and profound, and very subtle. Very subtle. This is *dharma* in Buddhism. 
-
-So I think in Buddhism, *dharma* is... not *exactly*, but *almost* corresponding to *God* in Christianity. So Indian people and some Buddhists say, “I believe in *dharma*.” 
+So *dharma* is supreme, and profound, and subtle, very subtle. This is *dharma* in Buddhism. So I think in Buddhism, *dharma* is... not *exactly*, but *almost* corresponding to *God* in Christianity. So Indian people and some Buddhists say, “I believe in *dharma*.” 
 
 *Dharma* is a very technical Buddhist term, and very popular. It’s a philosophical term, but it’s not philosophical, [it’s a] very spiritual term. So it’s a very complicated term. *At the least,* it has three meanings. If you use *dharma*, it is *the principle of existence*. And second, it is *phenomena*: *all* phenomena, visible and invisible. And also [it is] *teaching*. *Dharma* has at least those three meanings: *principle of existence*, and also *all phenomena*, and also *teaching*. Because you can experience it and you can teach it to people. This is our responsibility: we have to transmit this dharma to the next generation. So, we can teach. That is *dharma*. 
 
