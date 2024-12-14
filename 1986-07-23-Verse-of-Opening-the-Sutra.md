@@ -32,13 +32,13 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 
 So, the “unsurpassed, penetrating, and perfect dharma.” 
 
-Well, in Japanese, [the verse is titled] *Kaikyō ge*: the “Verse of Opening Sutra” (開經偈).
+Well, in Japanese, [the verse is titled] *Kaikyō ge*: the “Verse of Opening [the] Sutra” (開經偈).
 
 Now *sutra* means “scriptures,” but a *sutra* originally means “interwoven of strings in vertical and horizontal.” Is that clear? *Interwoven*. That is a meaning of the term *sutra* in Sanskrit. 
 
 So *sutra* as a Buddhist scripture means “interwoven of strings in vertical [and] horizontal.” That means human life, the human world, is exactly interwoven by time and space. The *huge* network of interwoven time and space: this is human world, human life. Even though you see the moment [or] instant [that] you exist day to day, it consists of a huge network of the interwoven time and space. This is the structure of the instant. 
 
-So opening *that* sutra means *completely* open, [which] means you have to see that huge network of interwoven time and space. We have to see it clearly, and then taste it. This is [to] *open*. 
+So opening *that* sutra means [to] *completely* open, [which] means you have to see that huge network of interwoven time and space. We have to see it clearly, and then taste it. This is [to] *open*. 
 
 If you even slightly have your own prejudice, or your own desires, or your education, it’s very difficult to open your life. So completely open ourselves: that is opening the sutra. Because we have to see the real picture of human life. 
 
