@@ -30,7 +30,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 
 **Katagiri Roshi:** [This verse is found] in the portion of the “Daily Used Statements, Verses, and Dharani” which occurs in the [...] various *ekos* – final dedications – compiled by [Hu-en] (possible Huayan?) in 1565 (CE) or so. (*Transcriber’s Note:* This paragraph is difficult to transcribe, and so far I have been unable to track down the reference. It should be noted that the *Verse* itself can be traced back to origins in China around 500-700 CE; accounts vary.)
 
-So, the “unsurpassed, penetrating, and perfect dharma”... 
+So, the “unsurpassed, penetrating, and perfect dharma.” 
 
 Well, in Japanese, [the verse is titled] *Kaikyō ge*: the “Verse of Opening Sutra” (開經偈).
 
@@ -60,9 +60,7 @@ So *dharma* is supreme, and profound, and very subtle. Very subtle. This is *dha
 
 So I think in Buddhism, *dharma* is... not *exactly*, but *almost* corresponding to *God* in Christianity. So Indian people and some Buddhists say, “I believe in *dharma*.” 
 
-*Dharma* is a very technical Buddhist term, and very popular. It’s a philosophical term, but it’s not philosophical, [it’s a] very spiritual term. So it’s a very complicated term. *At the least,* it has three meanings. If you use *dharma*, it is *the principle of existence*. And second, it is *phenomena*: *all* phenomena, visible and invisible. And also [it is] *teaching*. *Dharma* has at least those three meanings: *principle of existence*, and also *all phenomena*, and also *teaching*. Because you can experience it and you can teach it to people. This is our responsibility: we have to transmit this dharma to the next generation. So, we can teach. 
-
-That is *dharma*. 
+*Dharma* is a very technical Buddhist term, and very popular. It’s a philosophical term, but it’s not philosophical, [it’s a] very spiritual term. So it’s a very complicated term. *At the least,* it has three meanings. If you use *dharma*, it is *the principle of existence*. And second, it is *phenomena*: *all* phenomena, visible and invisible. And also [it is] *teaching*. *Dharma* has at least those three meanings: *principle of existence*, and also *all phenomena*, and also *teaching*. Because you can experience it and you can teach it to people. This is our responsibility: we have to transmit this dharma to the next generation. So, we can teach. That is *dharma*. 
 
 #### 11:15
 
