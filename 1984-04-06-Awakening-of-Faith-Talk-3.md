@@ -23,6 +23,8 @@ So I want to start to study from Part 3, “Interpretation.” This is very logi
 > Interpretation  
 >
 > The part on outline has been given; next the part on interpretation [of the principle of Mahayana] will be given. It consists of three chapters: (1) Revelation of the True Meaning; (2) Correction of Evil Attachments; (3) Analysis of the Types of Aspiration for Enlightenment.
+>
+> (From *The Awakening of Faith*, translated by Yoshito S. Hakeda, 1967.)
 
 I gave you the diagram. Do you have this? I think you should bring this diagram too, alright?
 
