@@ -17,7 +17,7 @@ This series of transcripts is in rough draft stage.
 - [Talk 7](1984-05-04-Awakening-of-Faith-Talk-7)
 - [Talk 8](1984-05-11-Awakening-of-Faith-Talk-8)
 - [Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
-- Talk 10: Time
+- [Talk 10: Time](1984-05-16-Awakening-of-Faith-Talk-10)
 - Talk 11: Alayavijnana and Tathagatagarbha
 - Talk 12: Tathagatagarbha
 - Talk 13: Tathagatagarbha, Alayavijnana
