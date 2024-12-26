@@ -20,7 +20,7 @@ This series of transcripts is in rough draft stage.
 - [Talk 10: Time](1984-05-16-Awakening-of-Faith-Talk-10)
 - [Talk 11: Alayavijnana and Tathagatagarbha](1984-05-18-Awakening-of-Faith-Talk-11)
 - [Talk 12: Tathagatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
-- Talk 13: Tathagatagarbha, Alayavijnana
+- [Talk 13: Tathagatagarbha, Alayavijnana](1984-05-24-Awakening-of-Faith-Talk-13)
 
 *Talks 2, 4, and 14 are missing.*
 
