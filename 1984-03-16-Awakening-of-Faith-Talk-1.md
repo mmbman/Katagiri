@@ -21,23 +21,25 @@ Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the str
 
 **Katagiri Roshi:** I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand, mainly I want to concentrate on the *teaching* of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also the teaching of the function of human psychology.
 
-Mainly in Buddhist history, [there are] two lines of teaching. One is the teaching of *emptiness*, mentioned by Nagarjuna. After that in Buddhist history, the Buddhist teaching based on Buddhist psychology has been developed. That is *Abhidharmakosha*, and the *mere consciousness*. 
+Mainly in Buddhist history, [there are] two lines of teaching. One is the teaching of *emptiness*, [taught] by Nagarjuna. After that in Buddhist history, the Buddhist teaching based on Buddhist psychology has been developed. That is *Abhidharmakosha*, and the “Mere Consciousness” (“Consciousness-Only”).
 
-But this book is kind of [an] overall picture of the teaching, including the teaching of emptiness, and also Buddha’s teaching in terms of Buddhist psychology. So it’s a very interesting book. Very systematical. The title is *The Awakening of Faith*. But originally [the title is], I think I would like to say, *The Treatise on Awakening Mahayana Faith*.
+But this book is kind of [an] overall picture of a teaching, including the teaching of emptiness, and also Buddha’s teaching in terms of Buddhist psychology. So [it’s a] very interesting book. Very systematical. 
 
-[In the word] *Mahayana*, *maha* is “great,” *yana* is “vehicle.” In this book, *Mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing.” So *maha* means the essence or ultimate nature of what is here [and] now. That *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
+The title is *The Awakening of Faith*. But originally, I think I would like to say [the title is] *The Treatise on Awakening Mahayana Faith*.
 
-And the function of the *maha* is a kind of a vehicle to carry all sentient beings; that’s why we say *vehicle*. So *Mahayana*, *yana* means “vehicle.” So all sentient beings are carried on [it]. So that is *mahayana*. 
+[In the word] *mahayana*, *maha* is “great,” *yana* is “vehicle.” In this book, *mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing.” So *maha* means the essence or ultimate nature of what is here, now, [and] that *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
 
-[...] I have to say more [on] Mahayana *faith*, [as in] *Awakening of Faith*. This book is a teaching of Buddhist faith: not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. 
+And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle.” So *Maha-yana*, *yana* means “vehicle.” So all sentient beings are carried on. So that is *mahayana*. 
 
-So Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. Mahayana is the object of faith because *maha* means *essense of being* or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being, which embraces all sentient beings and carries them, so it is very pure function. That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. 
+[...] I have to say more [on] Mahayana *faith*, [as in] *Awakening of Faith*. This book is [a] teaching of Buddhist faith: not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. 
 
-That’s why the person who wants to believe in that one – believe in this faith, believe in that object, [the] essense of being – very naturally that person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally *you* must be pure and clean. [Even if] even for a moment you think so, you become very clean and pure. 
+So Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. Mahayana is the object of faith because *maha* means *essense of being* or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being, which embraces all sentient beings and carries them. So it is very pure function. That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. 
+
+That’s why the person who wants to believe in that – believe in this faith, believe in that object, [the] essense of being – very naturally [the] person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally *you* must be pure and clean. [Even if] even for a moment you think so, you become very clean and pure. 
 
 So that’s why if you believe this essence of being you become pure, so in Buddhism it says faith is pure and clean. Purity and cleanness, this is the meaning of faith. 
 
-So we should *awaken* this faith. *How?* That’s why here is the explanation of how we should awaken this Buddhist faith. That is this book.
+So we should *awaken* this faith. *How?* That’s why [it explains] how we should awaken this Buddhist faith. That is this book.
 
 #### 10:20
 
