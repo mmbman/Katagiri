@@ -30,7 +30,7 @@ This series of transcripts is in rough draft stage.
 
 ###### Series 3
 
-- Talk 23
+- [Talk 23](1984-10-19-Awakening-of-Faith-Talk-23)
 - Talk 24
 
 *Talks 25-27 are not yet in the online archive. Talk 28 is missing.*
