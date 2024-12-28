@@ -6,7 +6,7 @@ title: "The Awakening of Faith"
 
 Katagiri Roshi gave 38 talks commenting on this text, in five series. 23 of those talks are currently available; 15 are not yet in the online audio archive or are lost.
 
-This series of transcripts is in rough draft stage. 
+This series of transcripts is in draft stage. 
 
 ###### Series 1
 
