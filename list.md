@@ -161,27 +161,27 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Mindfulness – Talk 4](1984-03-24-Mindfulness-Talk-4)
 1. [Mindfulness – Talk 5](1984-03-25-Mindfulness-Talk-5)
 
-1. *The Awakening of Faith* Talk 3
+1. *The Awakening of Faith* – Talk 3
 
 1. *Blue Cliff Record* Case 55 Talk 3
 
-1. *The Awakening of Faith* Talk 5
+1. *The Awakening of Faith* – Talk 5
 
 1. *Blue Cliff Record* Case 57 Talk 1
 
-1. *The Awakening of Faith* Talk 6
+1. *The Awakening of Faith* – Talk 6
 
 1. *Blue Cliff Record* Case 57 Talk 2
 
-1. *The Awakening of Faith* Talk 7
-1. *The Awakening of Faith* Talk 8
+1. *The Awakening of Faith* – Talk 7
+1. *The Awakening of Faith* – Talk 8
 
 1. [*The Awakening of Faith* Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 
-1. *The Awakening of Faith* Talk 10: Time
-1. *The Awakening of Faith* Talk 11: Alayavijnana and Tathagatagarbha
-1. *The Awakening of Faith* Talk 12: Tathagatagarbha
-1. *The Awakening of Faith* Talk 13: Tathagatagarbha and Alayavijinana
+1. *The Awakening of Faith* – Talk 10: Time
+1. *The Awakening of Faith* – Talk 11: Alayavijnana and Tathagatagarbha
+1. *The Awakening of Faith* – Talk 12: Tathagatagarbha
+1. *The Awakening of Faith* – Talk 13: Tathagatagarbha and Alayavijinana
 
 1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 1
 1. *Shobogenzo Juundo Shiki*: Rules for the Monks Annex – Talk 2
@@ -202,14 +202,14 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 61 Talk 1
 
-1. *The Awakening of Faith* Talk 23
+1. *The Awakening of Faith* – Talk 23
 
 1. *Book of Equanimity*: Dongshan's "Always Close" – Talk 1
 1. *Book of Equanimity*: Dongshan's "Always Close" – Talk 2
 
 1. *Blue Cliff Record* Case 61 Talk 2
 
-1. *The Awakening of Faith* Talk 24
+1. *The Awakening of Faith* – Talk 24
 
 1. The Four Sustenances – Talk 1
 1. The Four Sustenances – Talk 2
