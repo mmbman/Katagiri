@@ -16,7 +16,7 @@ This series of transcripts is in draft stage.
 - Talk 6
 - Talk 7
 - Talk 8
-- [Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
+- Talk 9: Two Kinds of Nowness
 - Talk 10: Time
 - Talk 11: Alayavijnana and Tathagatagarbha
 - Talk 12: Tathagatagarbha
