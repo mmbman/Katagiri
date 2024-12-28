@@ -29,7 +29,7 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 
 ## Latest Updates
 
-**December 27, 2024:** Posted [“*The Awakening of Faith* – Talk 1”](1984-03-16-Awakening-of-Faith-Talk-1)
+**December 27, 2024:** Posted [“*The Awakening of Faith* – Talk 1”](1984-03-16-Awakening-of-Faith-Talk-1).
 
 **November 17, 2024:** Posted [“Verse of Opening the Sutra”](1986-07-23-Verse-of-Opening-the-Sutra)
 
