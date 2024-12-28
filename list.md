@@ -153,7 +153,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Precepts for Lay Ordination – Part 1
 1. Precepts for Lay Ordination – Part 2
 
-1. *The Awakening of Faith* Talk 1
+1. [*The Awakening of Faith* – Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
 
 1. [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 1. [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)

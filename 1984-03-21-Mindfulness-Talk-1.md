@@ -3,7 +3,7 @@ title: "Mindfulness – Talk 1"
 ---
 ## March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-22-Mindfulness-Talk-2) \| Series: [Mindfulness](mindfulness)
+#### [List](list#1984) \| [Previous](1984-03-16-Awakening-of-Faith-Talk-1) \| [Next](1984-03-22-Mindfulness-Talk-2) \| Series: [Mindfulness](mindfulness)
 
 ### Summary 
 
@@ -424,4 +424,4 @@ Just like sleep. *Shikan* sleep, you know? *[He chuckles.]* *Shikan* sleep is ve
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-22-Mindfulness-Talk-2) \| Series: [Mindfulness](mindfulness)
+#### [List](list#1984) \| [Previous](1984-03-16-Awakening-of-Faith-Talk-1) \| [Next](1984-03-22-Mindfulness-Talk-2) \| Series: [Mindfulness](mindfulness)
