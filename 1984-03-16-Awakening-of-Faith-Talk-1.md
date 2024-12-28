@@ -19,9 +19,9 @@ Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the str
 
 #### 0:00
 
-**Katagiri Roshi:** I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand, mainly I want to concentrate on the *teaching* of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also [the teaching of] the function of human psychology.
+**Katagiri Roshi:** I don’t want to explain the history of this book, or the story of the author, Ashvaghosha. I think if you read this book, if you can understand [something], mainly I want to concentrate on the *teaching* of this book. This teaching is very interesting. Kind of the teaching of Buddha based on the teaching of emptiness and also [the teaching of] the function of human psychology.
 
-Mainly in Buddhist history, [there are] two lines of teaching. One is the teaching of *emptiness*, [taught] by Nagarjuna. After that in Buddhist history, the [...] teaching based on Buddhist psychology has been developed: that is *Abhidharmakosha*, and the “Mere Consciousness” (“Consciousness-Only”). But this book is kind of [an] overall picture of a teaching, including the teaching of emptiness and also Buddha’s teaching in terms of Buddhist psychology. So [it’s a] very interesting book. Very systematical. 
+Mainly in Buddhist history, [there are] two lines of teaching. One is the teaching of *emptiness*, [taught] by Nagarjuna. After that in Buddhist history, the [Buddha’s] teaching based on Buddhist psychology has been developed; that is *Abhidharmakosha*, and the “Mere Consciousness” (“Consciousness-Only”). But this book is kind of [an] overall picture of a teaching including the teaching of emptiness and also Buddha’s teaching in terms of Buddhist psychology. So [it’s a] very interesting book. Very systematical. 
 
 The title is *The Awakening of Faith*. But originally, I think I would like to say [the title is] *The Treatise on Awakening Mahayana Faith*.
 
