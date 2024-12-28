@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 1: Introduction and Invocation"
 
 ### Summary
 
-Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by more questions.
+Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by another question.
 
 ### Transcript
 
@@ -241,7 +241,7 @@ And Buddhist faith is very grounded in human life, because you have to believe [
 
 > May all sentient beings be made to discard their doubts, to cast aside their evil attachments, and to give rise to the correct faith in the Mahayana, that the lineage of the Buddhas may not be broken off.
 
-“May all sentient beings be made to discard their doubts”: One point is, he takes a vow to take refuge in the Triple Treasure, that is the reason why he wants to let all sentient beings be made to discard their doubts. Human beings have lots of doubts – toward the essence of existence, and also the teaching about the essence of the beings. Lots of doubts. So he [wants to] remove their doubts. 
+“May all sentient beings be made to discard their doubts”: One point is, he takes a vow to take refuge in the Triple Treasure, that is the reason why he wants to let all sentient beings be made to discard their doubts. Human beings have lots of doubts – toward the essence of existence, and also the teaching about the essence of the beings. Lots of doubts. So he wants to remove their doubts. 
 
 “To cast aside their evil attachments”: human beings possess very strong evil attachments, to the self, and to its object. Very strong attachment, consciously or unconsciously. The more you practice and you study Buddhism, the more you realize how strongly your attachment is functioning. 
 
@@ -251,25 +251,25 @@ Okay. Do you have questions?
 
 #### 1:11:00
 
-**Question:** Hojo-san? You said, “We’re already buddha, so we need to act like buddha.” We’re already buddha, and everything we do is the action of buddha. Is that right? If we’re already buddha, then everything we do is already the action of buddha. 
+**Person 5:** Hojo-san? You said, “We’re already buddha, so we need to act like buddha.” We’re already buddha, and everything we do is the action of buddha. Is that right? If we’re already buddha, then everything we do is already the action of buddha. 
 
 **Katagiri Roshi:** Mm-hmm?
 
-**Question:** So what do we need to try to do?
+**Person 5:** So what do we need to try to do?
 
 **Katagiri Roshi:** Well, that’s why we have to do it. But human beings don’t do it, actually. Don’t you think so? Trees, birds, and sky, winter, [are] working pretty well as buddha. But human beings don’t work in that way. Do you understand? 
 
-For instance, when you do zazen, that is simple zazen. *Buddha* means, if you are buddha, and then “you should act as a buddha in zazen” means ... well, what do you mean by this? Zazen and you are not separated, zazen and you are interconnected, interpenetrated, having a great, wonderful created world there, created life there, between zazen and you. Very nice creation there, created life. But we don’t do it. Look at the trees and winter: wonderful creation there. But we don’t do it. We are always doing zazen, but we’re always complaining, and daydreaming, and always thinking, chasing after thoughts. Don’t you think so? We are always creating a gap between zazen and you, always. So it’s very difficult to create universal life, created life. 
+For instance, when you do zazen, that is simple zazen. *Buddha* means, if you are buddha, and then “you should act as a buddha in zazen” means ... well, what do you mean by this? Zazen and you are not separated, zazen and you are interconnected, interpenetrated – having a great, wonderful created world there, created life there, between zazen and you. Very nice creation there, created life. But we don’t do it. Look at the trees and winter: wonderful creation there. But we don’t do it. We are always doing zazen, but [we’re] always complaining, and daydreaming, and always thinking, chasing after thoughts. Don’t you think so? We are always creating a gap between zazen and you, always. 
 
-I say *group creation*, okay? *[He chuckles.]* Group creation. Sangha means by the sangha you have to have group creation, wonderful creation in life. That means each person must communicate very closely; don’t create a gap. But that is very difficult. If you live like this, very naturally you are fighting, you know? In many ways. Competing, always. 
+So it’s very difficult to create universal life, created life. I say *group creation*, okay? *[He chuckles.]* *Group* creation. *Sangha* means by the sangha you have to have group creation, wonderful creation in life. That means each person must communicate very closely; don’t create a gap. But that is very difficult. If you live like this, very naturally you are fighting, you know? In many ways. Competing, always. 
 
-But look at the trees and birds, and winter: very naturally, there is wonderful creation there. That’s why we are really caught by the beauty of nature. Completely beyond human speculation: why do you like nature? We like it. Because we can see it. That’s a beautiful scene. We have [it] already, that’s why we can see that something beautiful which nature has. But actually we don’t do it, that’s why we are really caught by nature and dream that nature. At that time, we forget completely how to practice this. So always dreaming, and [being excited about] the beauty of nature. That’s why people want to go to nature, et cetera. 
+But look at the trees and birds, and winter: very naturally, there is wonderful creation there. That’s why we are really caught by the beauty of nature. Completely beyond human speculation: why do you like nature? We like it ... because we can see it. That’s a beautiful scene. We have [it] already, that’s why we can see that something beautiful which nature has. But actually, we don’t do it! That’s why we are really caught by nature and dream [of] that nature. At that time, we forget completely how to practice this. So always dreaming, and [being excited about] the beauty of nature. That’s why people want to go to nature, et cetera. 
 
 Well, we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha.”
 
-So that is, from day to day you have to practice, anyway. There is no end. Day to day, you have to do it. 
+So that is, from day to day you have to practice, anyway. There is no, what would you say... no end. Day to day, you have to do it. 
 
-#### end of recording
+#### 1:16:12 end of recording
 
 ---
 
