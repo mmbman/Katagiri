@@ -38,7 +38,7 @@ This series of transcripts is in draft stage.
 ###### Series 4
 
 - Talk 29
-- Talk 30 - Not available due to an error in the audio archive: file is a duplicate of Talk 29.
+- Talk 30 - *Not available due to an error in the audio archive. File is a duplicate of Talk 29.*
 - Talk 31
 - Talk 32
 
