@@ -37,7 +37,7 @@ This series of transcripts is in rough draft stage.
 
 ###### Series 4
 
-- Talk 29
+- [Talk 29](1985-10-18-Awakening-of-Faith-Talk-29)
 - Talk 30
 - Talk 31
 - Talk 32
