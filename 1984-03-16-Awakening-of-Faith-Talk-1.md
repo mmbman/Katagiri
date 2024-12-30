@@ -27,7 +27,7 @@ The title is *The Awakening of Faith*. But originally, I think I would like to s
 
 [In the word] *mahayana*, *maha* is “great”, *yana* is “vehicle”. In this book, *mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing”. So *maha* means the essence or ultimate nature of what is here, now, [and] that *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
 
-And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle”. So *Maha-yana*, *yana* means “vehicle”. So all sentient beings are carried on. So that is *mahayana*. 
+And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle”. So *Maha-yana*, *yana* means “vehicle”. So all sentient beings are carried on. That is *mahayana*. 
 
 [...] 
 
