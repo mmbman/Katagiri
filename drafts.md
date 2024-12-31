@@ -12,6 +12,7 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 - [Gatha of Closing the Sutra](1986-07-26-Gatha-of-Closing-the-Sutra)
 - [Settling in the Vast Openness of the Sky](1986-08-02-Settling-in-the-Vast-Openness-of-the-Sky)
+- [T’ien T’ai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 
 ### 1987
 
