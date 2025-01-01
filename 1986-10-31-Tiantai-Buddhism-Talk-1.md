@@ -15,7 +15,9 @@ title: "Tiantai Buddhism: Historical Background"
 
 #### 0:00
 
-**Katagiri Roshi:** Today I would like to talk about a little history. [That history is about] the founder of Tiantai (Japanese: *Tendai*) teaching in China. And also if I have time, I would like to explain the whole system of [...] the Fourfold Tendai teaching in this book. (*Transcriber’s Note:* The book is *T’ien-t’ai Buddhism: An Outline of the Fourfold Teachings*, recorded by Chegwan, David Chapell, editor, Hawaii, 1983. The currently available version seems to be “A Guide to the Tiantai Fourfold Teachings” in *Tiantai Lotus Texts*, BDK English Tripiṭaka Series.)
+**Katagiri Roshi:** Today I would like to talk about a little history. [That history is about] the founder of Tiantai (Japanese: *Tendai*) teaching in China. And also if I have time, I would like to explain the whole system of [...] the Fourfold Tendai teaching in this book. 
+
+(*Transcriber’s Note:* The book is *T’ien-t’ai Buddhism: An Outline of the Fourfold Teachings*, recorded by Chegwan, editor David Chapell, Hawaii, 1983. The currently available version seems to be “A Guide to the Tiantai Fourfold Teachings” in *Tiantai Lotus Texts*, BDK English Tripiṭaka Series.)
 
 Page 31, you can see a diagram. I would like to explain this diagram, which is “Tiantai Five Periods and Eight Teachings” based on Chegwan's *The Fourfold Teaching*. 
 
