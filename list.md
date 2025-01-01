@@ -350,16 +350,16 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Shobogenzo Kokyo*: Form and Mirror – Talk 1
 1. *Shobogenzo Kokyo*: Form and Mirror – Talk 2
 
-1. T'ien T'ai Buddhism: Historical Background
+1. [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 
 1. Zen and Writing: Word and its Spirit
 
-1. T'ien T'ai Buddhism: Outline of 4-Fold Teaching – Talk 1
-1. T'ein T'ai Buddhism: Outline of 4-Fold Teaching – Talk 2
+1. Tiantai Buddhism: Outline of the Fourfold Teaching – Talk 1
+1. Tiantai Buddhism: Outline of the Fourfold Teaching – Talk 2
 
 1. *Blue Cliff Record* Case 79 Talk 1
 
-1. T'ien T'ai Buddhism: Conclusion
+1. Tiantai Buddhism: Conclusion
 
 1. Bowing
 
