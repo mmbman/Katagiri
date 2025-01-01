@@ -30,6 +30,8 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 
 ## Latest Updates
 
+**January 1, 2025:** Posted [“Tiantai Buddhism: Historical Background”](1986-10-31-Tiantai-Buddhism-Talk-1).
+
 **December 27, 2024:** Posted [“*The Awakening of Faith* – Talk 1”](1984-03-16-Awakening-of-Faith-Talk-1).
 
 **November 17, 2024:** Posted [“Verse of Opening the Sutra”](1986-07-23-Verse-of-Opening-the-Sutra)
@@ -37,5 +39,3 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 **November 15, 2024:** Posted [“Mindfulness – Talk 5”](1984-03-25-Mindfulness-Talk-5)
 
 **November 13, 2024:** Posted [“Mindfulness – Talk 4”](1984-03-24-Mindfulness-Talk-4)
-
-**November 7, 2024:** Working on the [Mindfulness](mindfulness) series.
