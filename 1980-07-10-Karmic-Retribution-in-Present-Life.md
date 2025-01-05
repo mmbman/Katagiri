@@ -186,7 +186,7 @@ That’s why here it says, “That flesh is a great bodhisattva who had bestowed
 
 #### 1:13:17
 
-So it is really *reality*, whatever happens. For instance, [Chris] was murdered in San Francisco... do you remember? Of course we understand how sad his parents are. But there is nothing to explain about this reality. Nothing to say. 
+So it is really *reality*, whatever happens. For instance, [Chris] was murdered in San Francisco... do you remember? (*Transcriber’s Note:* This is probably Chris Pirsig, who was fatally stabbed outside of San Francisco Zen Center in 1979.) Of course we understand how sad his parents are. But there is nothing to explain about this reality. Nothing to say. 
 
 So the question we should focus on is not being killed by somebody, et cetera. If you always focus on the problem of being killed by somebody, at that time you focus on criticism [of] the victim and also the murderer. But that is not our business; that is the business of constitutions and laws, et cetera. Our business is religious. Religious means understanding a certain situation in a deep way. 
 
