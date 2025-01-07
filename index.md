@@ -30,6 +30,8 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 
 ## Latest Updates
 
+**January 6, 2025:** Posted [“*The Awakening of Faith* – Talk 3”](1984-04-06-Awakening-of-Faith-Talk-3).
+
 **January 1, 2025:** Posted [“Tiantai Buddhism: Historical Background”](1986-10-31-Tiantai-Buddhism-Talk-1).
 
 **December 27, 2024:** Posted [“*The Awakening of Faith* – Talk 1”](1984-03-16-Awakening-of-Faith-Talk-1).

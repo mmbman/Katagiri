@@ -11,7 +11,7 @@ This series of transcripts is in draft stage.
 ###### Series 1
 
 - [Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
-- Talk 3
+- [Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
 - Talk 5
 - Talk 6
 - Talk 7
