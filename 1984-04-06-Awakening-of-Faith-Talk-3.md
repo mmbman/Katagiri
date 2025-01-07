@@ -32,16 +32,16 @@ I gave you the diagram. Do you have this? I think you should bring this diagram 
 
 So the interpretation is divided into three chapters. One is “Revelation of the True Meaning,” second, “Correction of Evil Attachments,” third, “Analysis of the Types of Aspiration for Enlightenment.” 
 
-“The part on outline has been given”: this is page 28, Part Two, “Outline.” So this is “the part on outline has been given, next the part on interpretation...” This is Interpretation. 
+“The part on outline has been given”: this is page 28, Part Two, “Outline.” So [...] “next the part on interpretation...” This is “Interpretation.”
 
 #### 2:57
 
 > Chapter One  
 > Revelation of True Meaning  
 
-“Revelation of True Meaning” means, [logically] speaking, in this chapter, this author tried to explain the meaning of Mahayana teaching. I told you, Mahayana means *universal dynamic working*. This is Mahayana. [It’s] not Mahayana opposed to Hinayana. So the title of this book is *Awakening of Faith*, but strictly speaking, this is the awakening of *Mahayana* faith. 
+“Revelation of True Meaning” means, [logically] speaking, in this chapter, this author tried to explain the meaning of Mahayana teaching. I told you, Mahayana means *universal dynamic working*; this is Mahayana. [It’s] not Mahayana opposed to Hinayana. So the title of this book is *Awakening of Faith*, but strictly speaking, this is the awakening of *Mahayana* faith. 
 
-*Mahayana faith*, not faith *in* Mahayana. The original text says *Mahayana faith* in the Outline. [...] Here it says “The Awakening of Faith,” but sometimes in this translation it says “The Awakening of Faith in Mahayana.” *[Katagiri Roshi makes a sound that sounds a lot like “bleh,” but could be “but.”]* [But] it's not *in* Mahayana, [it’s] *Mahayana faith*, okay? Because faith must be dynamic working, reaching to the limits of phenomena, the limits of human knowledge. At that time, you can really touch the core of existence. So, that is [that] at that time, it is called *dynamic working*, *truth*. 
+*Mahayana faith*, not faith *in* Mahayana. The original text says *Mahayana faith* in the Outline. [...] Here it says “The Awakening of Faith,” but sometimes in this translation it says “The Awakening of Faith in Mahayana.” *[Katagiri Roshi makes a sound that sounds a lot like “bleh,” but could be “but.”]* [But] it's not *in* Mahayana, [it’s] *Mahayana faith*, okay? Because faith must be dynamic working, reaching to the limits of phenomena, the limits of human knowledge. At that time, you can really touch the core of existence. So, [...] at that time it is called *dynamic working*, *truth*. 
 
 So [...] “Revelation of True Meaning” is [that] they try to explain the *real* meaning of Mahayana teaching. Or concretely speaking, particularly [...] in terms of our life, “revelation of the true meaning means” [...] what is the overall picture of your life. Simply speaking, you say reality: *real* reality. Real reality, the overall picture of reality; what is the overall picture of reality you are present in from moment to moment. That is “Revelation of *True* Meaning.” So this is the title of Chapter One.
 
