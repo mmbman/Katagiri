@@ -25,9 +25,9 @@ Mainly in Buddhist history, [there are] two lines of teaching. One is the teachi
 
 The title is *The Awakening of Faith*. But originally, I think I would like to say [the title is] *The Treatise on Awakening Mahayana Faith*.
 
-[In the word] *mahayana*, *maha* is “great”, *yana* is “vehicle”. In this book, *mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing”. So *maha* means the essence or ultimate nature of what is here, now, [and] that *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
+[In the word] *mahayana*, *maha* is “great,” *yana* is “vehicle.” In this book, *mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing.” So *maha* means the essence or ultimate nature of what is here, now, [and] that *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
 
-And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle”. So *Maha-yana*, *yana* means “vehicle”. So all sentient beings are carried on. That is *mahayana*. 
+And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle.” So *Maha-yana*, *yana* means “vehicle.” All sentient beings are carried on. That is *mahayana*. 
 
 [...] 
 
@@ -45,17 +45,17 @@ So we should *awaken* this faith. *How?* That’s why [it explains] how we shoul
 
 So first, let’s [look at] the structure of this book. This is a very common structure which Buddhist treatises follow: first, the introduction, and [then] the main subject, and conclusion. Three points. 
 
-[The] introduction is “Invocation”. This is a very common structure. The Buddhist treatise follows. Always there is an invocation and main subject. [The main subject] is [the] very important point this book really teaches us. 
+[The] introduction is “Invocation.” This is a very common structure. The Buddhist treatise follows. Always there is an invocation and main subject. [The main subject] is [the] very important point this book really teaches us. 
 
 The main subject consists of five parts:
 
 Part 1: The Reasons for Writing. So why did Ashvaghosha want to write this book? [There are] eight reasons there. 
 
-Part 2: Outline. [...] That outline is *one mind*, its *two aspects*, its *three characteristics*. Already that outline is explanation of the Interpretation (Part 3), or Part 4 [and] Part 5. So Part 3, Part 4, and Part 5 explain about *one mind*, its two aspects, and its three characteristics. 
+Part 2: Outline. [...] That outline is *one-mind*, its *two aspects*, its *three characteristics*. Already that outline is explanation of the Interpretation (Part 3), or Part 4 [and] Part 5. So Part 3, Part 4, and Part 5 explain about one-mind, its two aspects, and its three characteristics. 
 
-*One mind* means the truth. Truth means one mind, only one mind – *mind only*. Human beings, trees, birds, winter – all existence, all beings – are based on the same and one ground. We call [this] *one mind*. 
+*One-mind* means the truth. Truth means one-mind, only one mind – *mind only*. Human beings, trees, birds, winter – all existence, all beings – are based on the same and one ground. We call [this] *one-mind*. 
 
-So one mind, and its *two aspects*. [...] In Part 3 there are [three chapters]. [...] Under Chapter 1, “Revelation of the True Meaning,” there is “The Mind in Terms of the Truth”, [and] “The Mind in Terms of Phenomena”. Two aspects means the mind in terms of the truth, the mind in terms of phenomena. So *one mind* can be seen in terms of two aspects: the truth, and also arising and ceasing of being. All sentient beings are born and disappear like this. Birth and death. So from two aspects, *one mind* is seen. [...]
+So one-mind, and its *two aspects*. [...] In Part 3 there are [three chapters]. [...] Under Chapter 1, “Revelation of the True Meaning,” there is “The Mind in Terms of the Truth,” [and] “The Mind in Terms of Phenomena.” Two aspects means the mind in terms of the truth, the mind in terms of phenomena. So *one-mind* can be seen in terms of two aspects: the truth, and also arising and ceasing of being. All sentient beings are born and disappear like this. Birth and death. So from two aspects, one-mind is seen. [...]
 
 *Three characteristics* means: one is *essence*, second is *attributes*, and [third is] *functioning*. So all sentient beings are based on three characteristics: one is *essence*, second is *attributes*, and third is *function*. 
 
@@ -75,21 +75,21 @@ So those are the three characteristics.
 
 **Katagiri Roshi:** *Discipline* means the reason why, reason for the existence.
 
-... And the *one mind*, its *two aspects*, its *three characteristics* in a sense describe about the *maha*, in this case. We say *Mahayana* – what is the *maha*. But in this book, *maha* is described by *one mind*, its two aspects, and its three characteristics. And also, in Part 4, there are four faiths, and five practices, and excellent skillfulness – something like this. That is the meaning of the *maha*. 
+... And the *one-mind*, its *two aspects*, its *three characteristics* in a sense describe about the *maha*, in this case. We say *Mahayana* – what is the *maha*. But in this book, *maha* is described by one-mind, its two aspects, and its three characteristics. And also, in Part 4, there are four faiths, and five practices, and excellent skillfulness – something like this. That is the meaning of the *maha*. 
 
-Okay, “Revelation of the Truth”, and “The Mind in Terms of the Truth”... the next line [is] the two kinds of [their] truth: emptiness and non-emptiness. So *mind in terms of the truth* is described from three points, [and] two kinds of the truth, emptiness or non-emptiness. Well, I don’t want to explain [this now]; gradually we can understand this one. 
+Okay, “Revelation of the Truth,” and “The Mind in Terms of the Truth”... the next line [is] the two kinds of [their] truth: emptiness and non-emptiness. So *mind in terms of the truth* is described from three points, [and] two kinds of the truth, emptiness or non-emptiness. Well, I don’t want to explain [this now]; gradually we can understand this one. 
 
 Briefly I want to explain [Part 3]: 
 
-Chapter 1, “Revelation of the True Meaning”. So very naturally, we know already the outline of what this book [contains]. [...] What is the one mind? So here it says “Revelation of True Meaning”: under this, the book mentions the mind in terms of the two truths, [the mind in terms of the absolute and] the mind in terms of phenomena. 
+Chapter 1, “Revelation of the True Meaning.” So very naturally, we know already the outline of what this book [contains]. [...] What is the one mind? So here it says “Revelation of True Meaning”: under this, the book mentions the mind in terms of the two truths, [the mind in terms of the absolute and] the mind in terms of phenomena. 
 
-Chapter 2: “The Causation of Evil Attachments”. Next it says, “the correction of two attachments, to a person and dharma.” Causation of evil attachment. So if you understand the truths – the mind in terms of the truth, the mind in terms of phenomena – there is still some problem, that is attachment to a person and dharma. This is a strong attachment we have. So we have to correct this. [...]
+Chapter 2: “The Causation of Evil Attachments.” Next it says, “the correction of two attachments, to a person and dharma.” Causation of evil attachment. So if you understand the truths – the mind in terms of the truth, the mind in terms of phenomena – there is still some problem, that is attachment to a person and dharma. This is a strong attachment we have. So we have to correct this. [...]
 
 Chapter 3: “Analysis of the Types of Aspiration for Enlightenment.” So, how we practice. [...] This is [about] aspirations for enlightenment. So we should know what enlightenment is, [and how to accomplish [or] attain enlightenment. [...]
 
-Part 4: "On Faith.” So [Part 3,] “Interpretation”, is the most important [part] in this book. Very concretely it explains what [is the] meaning of the truth and how to practice, what are the obstacles for us in order to reach the truth. And Part 4 is our practice. Practice for [a] *determined* class of people – that means, who have *non-backsliding* faith, very strong faith. For those people, how we practice. But on the other hand, there are people who have *backsliding* faith, [an] “un-determined” class of people. So for those people, how we practice, how we awaken Mahayana faith. That is Part 4. 
+Part 4: "On Faith.” So [Part 3,] “Interpretation,” is the most important [part] in this book. Very concretely it explains what [is the] meaning of the truth and how to practice, what are the obstacles for us in order to reach the truth. And Part 4 is our practice. Practice for [a] *determined* class of people – that means, who have *non-backsliding* faith, very strong faith. For those people, how we practice. But on the other hand, there are people who have *backsliding* faith, [an] “un-determined” class of people. So for those people, how we practice, how we awaken Mahayana faith. That is Part 4. 
 
-And Part 5, we try to encourage all sentient beings also to reach Buddha’s way. So, *how*? So there is “Encouragement of Practice and the Benefit”. For instance, Buddha’s way, the essence of beings is very pure and clean, so even for a moment, let’s *think* of it. In other words, usually we say, “Let’s live in a positive way” – very often we say so. And buddha is very valuable and helpful for us. So let’s [...] have access to the Buddha’s teaching as best as we can. As much as possible, we try. Something like this. So that is encouragement. So, how we awaken Buddhist Mahayana faith. [...]
+And Part 5, we try to encourage all sentient beings also to reach Buddha’s way. So, *how*? So there is “Encouragement of Practice and the Benefit.” For instance, Buddha’s way, the essence of beings is very pure and clean, so even for a moment, let’s *think* of it. In other words, usually we say, “Let’s live in a positive way” – very often we say so. And buddha is very valuable and helpful for us. So let’s [...] have access to the Buddha’s teaching as best as we can. As much as possible, we try. Something like this. So that is encouragement. So, how we awaken Buddhist Mahayana faith. [...]
 
 The conclusion is the verse of *parinama*. *Parinama* is “dedication”. Dedication or *parinama* [is] *eko* in Japanese. *Eko* means turn the merits of your practice to another. If you do something, very naturally you can get a result, but that result is not something you should hold on to by yourself, you should *share it* with the people. So as best as we can, we should do something good every day, because if you do something good, that goodness guides you to have close access to the Buddha’s way, instead of doing something wrong. If you do something wrong, that activity keeps you away from the essence of being or ultimate nature of beings. Very naturally it keeps you away; [slipping] off, going far from that. That’s why, as best as we can, we should do something good. If we do something good, very naturally [...] you can find the way to have access to the Buddha Way. So that is *eko*, dedication; we say *parinama* [in Sanskrit]. 
 
@@ -101,7 +101,7 @@ That’s why human beings in a sense create lots of ego and attachment – to yo
 
 So the verse of *parinama*, this is the conclusion. 
 
-And also, the introduction, “Invocation”. Whatever kind of book is written, the author has a certain purpose why. Particularly, the author tried to write something on the basis of full devotion to the Triple Treasure. So that is the Invocation. The Invocation is written in the strong devotion toward the Triple Treasure. 
+And also, the introduction, “Invocation.” Whatever kind of book is written, the author has a certain purpose why. Particularly, the author tried to write something on the basis of full devotion to the Triple Treasure. So that is the Invocation. The Invocation is written in the strong devotion toward the Triple Treasure. 
 
 Do you have questions so far? 
 
@@ -109,7 +109,7 @@ Do you have questions so far?
 
 **Person 2:** Hojo-san, when you say that this book has to do with awakening Mahayana faith as opposed to Hinayana, [...] what is it? 
 
-**Katagiri Roshi:** Yes. I said Hinayana, but Maha doesn’t mean “great” as opposed to “small”.
+**Katagiri Roshi:** Yes. I said Hinayana, but Maha doesn’t mean “great” as opposed to “small.”
 
 **Person 2:** No? 
 
@@ -165,7 +165,7 @@ Well, in this book, *faith* is described in more detail. ...
 
 That’s why in the Invocation we take refuge in the Triple Treasure: buddha, dharma, sangha. So, “I take refuge in the Buddha.” 
 
-*Take refuge* is called *nama* or *namo*, [or in Japanese] *kimyo*. *Ki* is “return”, *myo* means “life”. So “take refuge in the Buddha” is “return to the Buddha with life.” In other words, you have to devote yourself to return to the essence of existence, to the Buddha, with life. 
+*Take refuge* is called *nama* or *namo*, [or in Japanese] *kimyo*. *Ki* is “return,” *myo* means “life.” So “take refuge in the Buddha” is “return to the Buddha with life.” In other words, you have to devote yourself to return to the essence of existence, to the Buddha, with life. 
 
 So you have to *offer* your life. You offer your life to buddha. 
 
@@ -177,21 +177,21 @@ Something more than to *risk* your life, okay? Kind of risking your life, but ri
 
 > I take refuge in the Buddha, the greatly Compassionate One, the Savior of the world, omnipotent, omnipresent, omniscient, of most excellent deeds in all the ten directions; ...
 
-So, “I take refuge in the Buddha,” that is *kimyo*, “take refuge”. In English we say “take refuge”, but in Sanskrit we say *namo*. And *namo* is translated as *kimyo* in Japanese. [It means] return to the Buddha with your life. Do you understand? Devote. Full devotion to the Buddha. 
+So, “I take refuge in the Buddha,” that is *kimyo*, “take refuge.” In English we say “take refuge,” but in Sanskrit we say *namo*. And *namo* is translated as *kimyo* in Japanese. [It means] return to the Buddha with your life. Do you understand? Devote. Full devotion to the Buddha. 
 
 “... the greatly Compassionate One”: So what is the Buddha? “The greatly Compassionate One.” Very compassionate, because compassion comes from the bottom of existence. When you touch the core of existence, very naturally compassion comes up. I always say, just like your water pipe touches the water vein, very naturally water comes up. Just like this. So if you understand very deeply the human world, very naturally compassion comes up. Wherever you may be, compassion is there. 
 
 So “greatly Compassionate One,” this is the Buddha. And the Buddha is to have this compassion, and also [...] to let others awaken this compassion. So that is called Buddha. Buddha awakens himself [...] to compassion, and simultaneously [lets] others awaken compassion. 
 
-“... the Savior of the world”: So if you have this great compassion, very naturally you can help all sentient beings. So we say “Savior”. 
+“... the Savior of the world”: So if you have this great compassion, very naturally you can help all sentient beings. So we say “Savior.” 
 
-I don’t know [about the word] “savior”. “Savior of the world” [...] I don’t know how I can say [it]. In the Chinese, here it says “supreme karma”. Instead of “greatly compassionate one, the Savior of the world,” originally it says *supreme karma*, *supreme activities*. Because that is Buddha’s intention, or Buddha’s will. Buddha’s will is always something supreme, and always moving toward the essence of existence on the basis of compassion. So Buddha’s intention or will lets him do something good always, under all circumstances. That is “greatly compassionate one, the savior of the world.” At that time, you become [a] great buddha who helps all sentient beings. 
+I don’t know [about the word] “savior.” “Savior of the world” [...] I don’t know how I can say [it]. In the Chinese, here it says “supreme karma.” Instead of “greatly compassionate one, the Savior of the world,” originally it says *supreme karma*, *supreme activities*. Because that is Buddha’s intention, or Buddha’s will. Buddha’s will is always something supreme, and always moving toward the essence of existence on the basis of compassion. So Buddha’s intention or will lets him do something good always, under all circumstances. That is “greatly compassionate one, the savior of the world.” At that time, you become [a] great buddha who helps all sentient beings. 
 
 [...] Oh excuse me, let me say: “... the greatly Compassionate One, the Savior of the world, omnipotent, omnipresent, omniscient, of most excellent deeds in all the ten directions.” [...] Excuse me, I said a little bit something wrong; I didn’t notice “the most excellent deeds in all the ten directions.” The buddha’s activity is always excellent or supreme. “In all the ten directions” means the implication of space, but not only space, but also the time process. Including time and space, Buddha is always doing something good, for all sentient beings. So “in all ten directions” means for all sentient beings who exist in space and time. That is called *in the ten directions*. So Buddha has most excellent deeds for all sentient beings. 
 
 And next, what is most excellent deeds for all sentient beings? That is a great Compassionate One. He is great [and] compassionate, that’s why his deeds are very excellent. One by one, it says “the great compassionate one,” Buddha, his deeds are very compassionate, and also he is helping all sentient beings, the human world, that’s why “savior of the world.” That is his deeds.
 
-And also “omnipotent, omnipresent.” *Omnipotent* means Buddha’s body is always functioning freely, helping. According to the characteristic of the person, according to the circumstances, Buddha helps. So that is “omnipotent”. Buddha’s body is working freely, functioning freely. That is “omnipotent, omnipresent”. And also it says “omniscient”. *Omnipotent, omnipresent, omniscient* means the implication of how Buddha’s body is functioning: completely freely. 
+And also “omnipotent, omnipresent.” *Omnipotent* means Buddha’s body is always functioning freely, helping. According to the characteristic of the person, according to the circumstances, Buddha helps. So that is “omnipotent.” Buddha’s body is working freely, functioning freely. That is “omnipotent, omnipresent.” And also it says “omniscient.” *Omnipotent, omnipresent, omniscient* means the implication of how Buddha’s body is functioning: completely freely. 
 
 [...] That is Buddha, so that’s why we take refuge in the Buddha. We are buddha already, that’s why we try to do as a buddha, we try to behave as a buddha. We are already buddha, that’s why we have to show it, we have to act as a buddha. If you are not buddha, it’s not necessary to practice, you know? We *are* buddha, that’s why we have to act as a buddha. If you are not buddha, you cannot act as a buddha. 
 
@@ -203,15 +203,15 @@ And next, we take refuge in the dharma. Dharma is the manifestation of its essen
 
 So the reality you live in is really *essence of being*. So you don’t know, you cannot touch it, you cannot pin down what reality is, [...] what is the place you live in. It’s vast. The more you research, the more you don’t know. It’s very big, vast. That is reality. 
 
-So [...] dharma is “manifestation of his essence”, [the] essence of beings, or sometimes it is called “Reality”. What is this? This is kind of a “sea of suchness”. *Suchness* is truth, or vastness of existence. So reality or essence of beings is really vast as the sea. 
+So [...] dharma is “manifestation of his essence,” [the] essence of beings, or sometimes it is called “Reality.” What is this? This is kind of a “sea of suchness.” *Suchness* is truth, or vastness of existence. So reality or essence of beings is really vast as the sea. 
 
-And also [dharma is] “the boundless storehouse of excellencies”. Wonderful things [are] in it. 
+And also [dharma is] “the boundless storehouse of excellencies.” Wonderful things [are] in it. 
 
 So that’s why we have to practice patience. Under all circumstances, unfavorable or favorable conditions, anyway we have to practice patience, and we have to make effort, we have to take care of with discipline, and we have to practice meditation and wisdom. 
 
 *Meditation* means tranquilization. And *wisdom* is clear observation – in [Zen], sometimes [we say] *vipassana*. Meditation is called *shamata*; *shamata* is one-pointedness. So very naturally your mind, your body becomes tranquil, tranquilized. So meditation is the [...] practice of tranquilization, and wisdom is clear observation, by which you can see the essence of human life, which is going up and down, up and down. So the core of existence, core of the human world, samsaric world, we can see it, by wisdom. So that’s why clear observation; we say *vipassana*. 
 
-So very naturally we have the “boundless storehouse of excellency”. That is dharma. That’s why, whatever happens, let’s learn the dharma, believe in the dharma, and devote yourself to the dharma, constantly. This is great encouragement.
+So very naturally we have the “boundless storehouse of excellency.” That is dharma. That’s why, whatever happens, let’s learn the dharma, believe in the dharma, and devote yourself to the dharma, constantly. This is great encouragement.
 
 #### 59:42
 
@@ -237,7 +237,7 @@ And next, we have to devote ourselves to the sangha, people who are always pract
 
 So that is the contents, quality of believing in dharma. That’s why [the] Triple Treasure is very important.
 
-So Buddhist faith is not to believe in something *divine*, or “holiness”. But you have to believe in holiness and also the teacher’s teaching, and also the people who practice buddha and holiness and also his teaching. So very vast. [...] Buddhist faith is very vast. 
+So Buddhist faith is not to believe in something *divine*, or “holiness.” But you have to believe in holiness and also the teacher’s teaching, and also the people who practice buddha and holiness and also his teaching. So very vast. [...] Buddhist faith is very vast. 
 
 And Buddhist faith is very grounded in human life, because you have to believe [in] human beings who practice Buddha’s way, Buddha’s teaching. So that is the sangha. That’s why sangha is important. 
 
@@ -269,7 +269,7 @@ So it’s very difficult to create universal life, created life. I say *group cr
 
 But look at the trees and birds, and winter: very naturally, there is wonderful creation there. That’s why we are really caught by the beauty of nature. Completely beyond human speculation. Why do we like nature? We like it ... because we can see it. That’s a beautiful scene. We have [it] already, that’s why we can see that something beautiful which nature has. But actually, we don’t do it! That’s why we are really caught by nature and dream [of] that nature. At that time, we forget completely how to practice this. So always dreaming, and [being excited about] the beauty of nature. That’s why people want to go to nature, et cetera. 
 
-Well, we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha”.
+Well, we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha.”
 
 So that is, from day to day you have to practice, anyway. There is no... what would you say... no end. Day to day, you have to do it. 
 
