@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 3"
 
 ### Summary
 
-Katagiri Roshi begins discussing Part Three, which is the main part of the work. 
+Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter One, “Revelation of True Meaning,” begins with the section “One Mind and Its Two Aspects.”
 
 ### Transcript
 
@@ -32,7 +32,9 @@ I gave you the diagram. Do you have this? I think you should bring this diagram 
 
 So the interpretation is divided into three chapters. One is “Revelation of the True Meaning,” second, “Correction of Evil Attachments,” third, “Analysis of the Types of Aspiration for Enlightenment.” 
 
-“The part on outline has been given”: I think this is page 28, Part Two, “Outline.” So this is “the part on outline has been given, next the part on interpretation...” This is Interpretation. 
+“The part on outline has been given”: this is page 28, Part Two, “Outline.” So this is “the part on outline has been given, next the part on interpretation...” This is Interpretation. 
+
+#### 2:57
 
 > Chapter One  
 > Revelation of True Meaning  
@@ -43,13 +45,19 @@ So the interpretation is divided into three chapters. One is “Revelation of th
 
 So [...] “Revelation of True Meaning” is [that] they try to explain the *real* meaning of Mahayana teaching. Or concretely speaking, particularly [...] in terms of our life, “revelation of the true meaning means” [...] what is the overall picture of your life. Simply speaking, you say reality: *real* reality. Real reality, the overall picture of reality; what is the overall picture of reality you are present in from moment to moment. That is “Revelation of *True* Meaning.” So this is the title of Chapter One.
 
-And then, this Chapter One is also divided into two sections. One is called [...] “One Mind and Its Two Aspects”... 
+And then, this Chapter One is also divided into two sections. [The first] is called [...] “One Mind and Its Two Aspects.”
 
 > The revelation of the true meaning [...] by [...] that the principle of One Mind has two aspects. One is the aspect of Mind in terms of the Absolute [...], and the other is the aspect of Mind in terms of phenomena [...]. Each of these two aspects embraces all states of existence. Why? Because these two aspects are mutually inclusive.
 
-[But] the last sentence is translated in a different way, according to D. T. Suzuki. He says, "Both are so closely interrelated that one cannot be separated from the other." 
+The last sentence is translated in a different way according to D. T. Suzuki. He says, "Both are so closely interrelated that one cannot be separated from the other." 
 
-Well, anyway. “The revelation of the true meaning by that the principle of One Mind has two aspects”: In this case “the principle” means *dharma*. *Dharma* is translated as “the principle” here, in this translation. So, “Dharma of One Mind.” 
+Well, anyway:
+
+#### 8:57
+
+> The revelation of the true meaning by that the principle of One Mind has two aspects. 
+
+In this case “the principle” means *dharma*. *Dharma* is translated as “the principle” here, in this translation. So, “dharma of One Mind.” 
 
 Look at page 28, “Part Two (Outline),” the third paragraph: 
 
@@ -81,11 +89,21 @@ So [...] when the truth is seen in terms of [...] the phenomenal world of human 
 
 #### 20:18
 
-So, “... the principle” – the dharma – “of One Mind has two aspects. One is the aspect of Mind in terms of the Absolute” – so-called *truth* – “and the other is the aspect of Mind in terms of phenomena.” 
+So, “... the principle” – the dharma – “of One Mind has two aspects.”
 
-So, *phenomena* and *truth*. One Mind has two aspects. In other words, one piece of paper with two aspects: one is the absolute or truth, the other is phenomena. 
+> One is the aspect of Mind in terms of the Absolute ...
 
-And also, “each of these two aspects embraces all states of existence.” Each of these two aspects, the absolute and phenomena, embraces all sentient beings. 
+So-called *truth*...
+
+> ... and the other is the aspect of Mind in terms of phenomena.
+
+So, *phenomena* and *truth*: One Mind has two aspects. In other words, one piece of paper with two aspects: one is the absolute or truth, the other is phenomena. 
+
+And also, 
+
+> Each of these two aspects embraces all states of existence. 
+
+Each of these two aspects, the absolute and phenomena, embraces all sentient beings. 
 
 So that means [the] real reality we live, from day to day, is called One Mind in terms of the absolute. So real reality is completely absolute, completely no comment. Constantly you are there, wherever you may go. You make a mistake, you don't make a mistake, or crying, laughing, or whatever you say, you are doing [it] right in the middle of real reality, based on One Mind. This is, philosophically we say, One Mind. And then, we *act*. When we act, we think, we cry, we suffer, many things. This is the phenomenal world. So the phenomenal world is always going in the realm of the absolute. Nowhere to escape [to]. 
 
@@ -93,7 +111,9 @@ So this is the very important outlook on human life, the human world. Whatever y
 
 That's why here it says, “Each of these two aspects embraces all state of existence.”
 
-“Why? Because these two aspects are mutually inclusive.” Inclusive; you cannot separate them. They are two, but they are not two, they are one. But it's not one: if you say “one,” it seems to be combined, two things. It’s not combination of two things. That is a little difficult understanding. [...] Philosophically, intellectually you can understand it, but [...] it is very difficult for us to find a way how to live in that real reality, on the basis of interrelated with truth and phenomena. It's pretty difficult. Not only Buddhism, but [...] Western philosophy, or many philosophers anyway, explain the truth and phenomena, but it's very difficult to find philosophers to teach us how to live, how to dwell in there constantly, how to act, how to live in peace and harmony. It's pretty hard. 
+> Why? Because these two aspects are mutually inclusive.
+
+Inclusive; you cannot separate them. They are two, but they are not two, they are one. But it's not one: if you say “one,” it seems to be combined, two things. It’s not combination of two things. That is a little difficult understanding. [...] Philosophically, intellectually you can understand it, but [...] it is very difficult for us to find a way how to live in that real reality, on the basis of interrelated with truth and phenomena. It's pretty difficult. Not only Buddhism, but [...] Western philosophy, or many philosophers anyway, explain the truth and phenomena, but it's very difficult to find philosophers to teach us how to live, how to dwell in there constantly, how to act, how to live in peace and harmony. It's pretty hard. 
 
 But Buddhism constantly teaches us that point. That's why from this point, the goal of Buddhism is not understanding the meaning of liberation or the experience of liberation; [that’s] not the final goal. The final goal is the understanding of liberation, experience of liberation, *but*, you have to have deep compassion to help all sentient beings on the basis of liberation. This is called liberation. You have to help!
 
@@ -121,9 +141,7 @@ This is a very important point. If you try to understand the people and things, 
 
 #### 32:55
 
-[...] And also... here it says, “[these] two aspects are mutually inclusive.” 
-
-Well, temporarily I can say so, like this. [The] limits of suffering – limits of phenomena, the limits of knowledge, limits of pleasure, whatever you say – [the] limits of suffering is the beginning of *vastness*, the truth, exactly. The limits of suffering is the beginning of vastness or truth or one mind, universe. So “limits of the suffering” means if you experience suffering through and through... [sometimes] you cannot cry; sometimes you can burst out laughing. *[He chuckles.]* Okay? So the limits of suffering is not suffering, completely not suffering. It's something else. So maybe laughing. And the limits of laughter becomes suffering, crying. Like this. Because the limits of joy is the beginning of vastness; because the end of the joy is completely extending everywhere, so that is vastness. That is called *beginning of the vastness*, so-called *truth*. 
+[...] And also... here it says, “[these] two aspects are mutually inclusive.” Well, temporarily I can say so, like this. [The] limits of suffering – limits of phenomena, the limits of knowledge, limits of pleasure, whatever you say – [the] limits of suffering is the beginning of *vastness*, the truth, exactly. The limits of suffering is the beginning of vastness or truth or one mind, universe. So “limits of the suffering” means if you experience suffering through and through... [sometimes] you cannot cry; sometimes you can burst out laughing. *[He chuckles.]* Okay? So the limits of suffering is not suffering, completely not suffering. It's something else. So maybe laughing. And the limits of laughter becomes suffering, crying. Like this. Because the limits of joy is the beginning of vastness; because the end of the joy is completely extending everywhere, so that is vastness. That is called *beginning of the vastness*, so-called *truth*. 
 
 Everyone experiences this. For instance, in the 1960s and 70s in San Francisco, lots of things happened. I knew a couple of people who were really mental disordered. In a sense, one man suffered a lot. I don't know if he suffered in appropriate way or not, anyway, he suffered. And then several times he was in the hospital, and coming out, or getting in again, always back and forth, back and forth. And he seemed to be very sad. Very often, he cried. But when he was completely disordered, he became laughter. Completely he laughed. He didn't cry. 
 
